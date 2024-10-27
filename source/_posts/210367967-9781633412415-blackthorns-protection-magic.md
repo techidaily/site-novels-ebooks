@@ -1,7 +1,7 @@
 ---
 title: Blackthorn's Protection Magic | Free Book
-date: 2024-10-23 21:54:51
-updated: 2024-10-26 12:11:24
+date: 2024-10-19T22:05:56.214Z
+updated: 2024-10-26T16:34:14.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034516d239ec81b51f1483f97f9b4e86ed6825fcd79bb6fcc8c8931567e2ed1b.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034516d239ec81b51f1483f97f9b4e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

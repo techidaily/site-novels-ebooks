@@ -1,7 +1,7 @@
 ---
 title: The Deep Heart of Witchcraft | Free Book
-date: 2024-10-25 15:13:29
-updated: 2024-10-26 10:47:52
+date: 2024-10-24T23:58:44.258Z
+updated: 2024-10-26T20:29:09.988Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80978a988528b1ff6b3a54bd57f69e61e25057659a826fbb222f5a45201ab944.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80978a988528b1ff6b3a54bd57f69e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

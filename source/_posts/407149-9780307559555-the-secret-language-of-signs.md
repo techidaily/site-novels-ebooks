@@ -1,7 +1,7 @@
 ---
 title: The Secret Language of Signs | Free Book
-date: 2024-10-23 14:31:43
-updated: 2024-10-26 10:10:46
+date: 2024-10-20T19:43:01.163Z
+updated: 2024-10-27T01:59:15.289Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d78d4104baaee282686f6cf36c7ea11fbeb877bff1f816ab65c46e7b2e7d0e3a.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d78d4104baaee282686f6cf36c7ea11
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

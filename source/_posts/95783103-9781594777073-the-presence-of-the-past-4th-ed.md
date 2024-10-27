@@ -1,7 +1,7 @@
 ---
 title: The Presence of the Past (4th ed.) | Free Book
-date: 2024-10-24 10:56:42
-updated: 2024-10-26 11:30:20
+date: 2024-10-23T20:25:28.989Z
+updated: 2024-10-26T17:16:28.417Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/deecaf403a4c26516b920beecb676ffbff2d6eefd6930148d6958fa7d01b2d00.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/deecaf403a4c26516b920beecb676ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

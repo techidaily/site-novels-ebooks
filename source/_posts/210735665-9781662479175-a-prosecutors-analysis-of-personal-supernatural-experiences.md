@@ -1,7 +1,7 @@
 ---
 title: A Prosecutor's Analysis of Personal Supernatural Experiences | Free Book
-date: 2024-10-25 11:28:16
-updated: 2024-10-26 11:32:40
+date: 2024-10-20T02:25:02.278Z
+updated: 2024-10-26T18:38:14.616Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33a472f9f141cc40ac67b1256a26268c9d977702e15fff519e4139007fbda3aa.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33a472f9f141cc40ac67b1256a26268
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

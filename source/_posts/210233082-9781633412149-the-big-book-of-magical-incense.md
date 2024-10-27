@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Magical Incense | Free Book
-date: 2024-10-23 22:46:25
-updated: 2024-10-26 12:25:50
+date: 2024-10-24T23:22:35.120Z
+updated: 2024-10-26T17:05:36.841Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b4eff2a982374dcf5217648f57200fec3299911fb53f66ed9074adf793e15545.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b4eff2a982374dcf5217648f57200fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

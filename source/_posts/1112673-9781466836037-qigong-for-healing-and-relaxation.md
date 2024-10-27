@@ -1,7 +1,7 @@
 ---
 title: Qigong for Healing and Relaxation | Free Book
-date: 2024-10-23 19:52:48
-updated: 2024-10-26 12:26:40
+date: 2024-10-21T21:01:20.495Z
+updated: 2024-10-27T02:27:43.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12e0a8c5ff5573b2ee1c7c1356f77de1b9848dcc34c1d02175d410c8979a31ff.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12e0a8c5ff5573b2ee1c7c1356f77de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

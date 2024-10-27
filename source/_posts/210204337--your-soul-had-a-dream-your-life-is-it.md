@@ -1,7 +1,7 @@
 ---
 title: Your Soul Had a Dream, Your Life Is It | Free Book
-date: 2024-10-23 19:48:54
-updated: 2024-10-26 12:57:20
+date: 2024-10-22T05:55:10.581Z
+updated: 2024-10-26T23:38:15.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/764a33ef943315cb32d1f2447cb0b4c92c53bad4a0eb20c30dbf4092f105aade.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/764a33ef943315cb32d1f2447cb0b4c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

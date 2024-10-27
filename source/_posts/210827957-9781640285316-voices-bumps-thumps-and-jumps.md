@@ -1,7 +1,7 @@
 ---
 title: Voices, Bumps, Thumps, and Jumps | Free Book
-date: 2024-10-23 16:37:23
-updated: 2024-10-26 10:49:43
+date: 2024-10-20T18:42:45.930Z
+updated: 2024-10-26T22:29:12.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f2a33a036ba2c5ed0c11b36c31c64532a661de6387d62cf34c34a6dac8004625.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f2a33a036ba2c5ed0c11b36c31c6453
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Muchas Vidas, Muchos Sabios (Many Lives, Many Masters) | Free Book
-date: 2024-10-24 13:37:16
-updated: 2024-10-26 11:58:36
+date: 2024-10-26T04:50:27.255Z
+updated: 2024-10-26T17:20:46.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da56bb378aa02ef3ccd208d1037fa9cb4c552ffa7395b891a9b97047d5ecd999.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da56bb378aa02ef3ccd208d1037fa9c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

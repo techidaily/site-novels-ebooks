@@ -1,7 +1,7 @@
 ---
 title: The Witch's Eight Paths of Power | Free Book
-date: 2024-10-25 23:59:23
-updated: 2024-10-26 10:33:19
+date: 2024-10-25T00:22:52.226Z
+updated: 2024-10-27T01:25:52.765Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/507896576da6925aa87ac613d8ab1acdb9b31051876ba5f7aec98e3fea16006b.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/507896576da6925aa87ac613d8ab1ac
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Scientific Christian Mental Practice: Also Includes High Mysticism | Free Book"
-date: 2024-10-25 18:33:59
-updated: 2024-10-26 12:28:20
+date: 2024-10-22T22:40:58.402Z
+updated: 2024-10-26T18:20:26.899Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0268c77c562fc9af3f4e579ab637e5a1f902e47e6754dc9013eea909b55af1cc.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0268c77c562fc9af3f4e579ab637e5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

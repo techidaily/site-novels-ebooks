@@ -1,7 +1,7 @@
 ---
 title: The Love of Angels (Spiritual Encounters) | Free Book
-date: 2024-10-24 16:28:10
-updated: 2024-10-26 10:58:12
+date: 2024-10-23T17:35:10.086Z
+updated: 2024-10-26T22:45:01.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e722bd3c6081ce1ada88044864ceff67f0ad8d99ee5a25d0d805a132dfd8889.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e722bd3c6081ce1ada88044864ceff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

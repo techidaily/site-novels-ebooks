@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Técnicas De Mindfulness Para Una Meditación Poderosa | Free Book"
-date: 2024-10-25 16:49:46
-updated: 2024-10-26 11:18:32
+date: 2024-10-24T02:29:11.041Z
+updated: 2024-10-27T05:17:51.600Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3d94668b78017e3ebb420c39dfe1babfdc9fa8eee99e0e7fb88865beeed4cf9.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3d94668b78017e3ebb420c39dfe1ba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

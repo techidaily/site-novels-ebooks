@@ -1,7 +1,7 @@
 ---
 title: Spells for the Solitary Witch | Free Book
-date: 2024-10-25 23:42:15
-updated: 2024-10-26 10:32:41
+date: 2024-10-21T02:34:23.031Z
+updated: 2024-10-27T02:38:54.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab1f487ef35d403c8ffad9521754dfc946c16976a13e56f95adc84cdb8092d41.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab1f487ef35d403c8ffad9521754dfc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

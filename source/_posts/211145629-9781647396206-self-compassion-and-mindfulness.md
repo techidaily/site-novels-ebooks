@@ -1,7 +1,7 @@
 ---
 title: Self-Compassion and Mindfulness | Free Book
-date: 2024-10-24 22:23:23
-updated: 2024-10-26 11:52:43
+date: 2024-10-23T01:17:26.536Z
+updated: 2024-10-27T01:04:13.267Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e80a8c4a4c9984ebd6a1fc9f86e70037a36a5b04a5ae46da85ba09fe26b5aa8.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e80a8c4a4c9984ebd6a1fc9f86e700
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

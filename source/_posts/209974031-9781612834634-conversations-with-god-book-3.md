@@ -1,7 +1,7 @@
 ---
 title: Conversations With God, Book 3 | Free Book
-date: 2024-10-24 17:59:54
-updated: 2024-10-26 10:23:23
+date: 2024-10-20T16:11:40.295Z
+updated: 2024-10-26T20:00:49.972Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4c0f19274be969788d7ce5c5517dc05de3c029fc605671c473d228328425bb01.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4c0f19274be969788d7ce5c5517dc05
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

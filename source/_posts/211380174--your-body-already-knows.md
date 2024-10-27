@@ -1,7 +1,7 @@
 ---
 title: Your Body Already Knows | Free Book
-date: 2024-10-24 23:14:37
-updated: 2024-10-26 12:49:15
+date: 2024-10-19T23:37:22.705Z
+updated: 2024-10-26T20:43:27.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0332dffd19c93f567f40fb8df91e1c14b377bbb6ce073347fb5a0763371447b2.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0332dffd19c93f567f40fb8df91e1c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

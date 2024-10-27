@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and the Black Art - A Book Dealing with the Psychology and Folklore of the Witches | Free Book
-date: 2024-10-25 15:34:35
-updated: 2024-10-26 11:47:54
+date: 2024-10-21T01:25:52.240Z
+updated: 2024-10-27T01:57:23.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62fa3ac48ecde42ace304ac024ba8334124a9c063523f6a0cfc169d30b3bf9e7.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62fa3ac48ecde42ace304ac024ba833
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

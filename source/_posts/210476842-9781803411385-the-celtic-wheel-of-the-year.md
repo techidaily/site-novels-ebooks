@@ -1,7 +1,7 @@
 ---
 title: The Celtic Wheel of the Year | Free Book
-date: 2024-10-25 11:34:16
-updated: 2024-10-26 10:38:57
+date: 2024-10-21T01:44:58.339Z
+updated: 2024-10-26T23:46:30.330Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/52526ae62766098de91f6050328f9aa1ccc5e546749d87ceb45e0ceaf18a2306.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/52526ae62766098de91f6050328f9aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

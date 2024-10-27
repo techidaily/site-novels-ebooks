@@ -1,7 +1,7 @@
 ---
 title: Miracles and Other Realities | Free Book
-date: 2024-10-25 17:33:18
-updated: 2024-10-26 10:59:25
+date: 2024-10-22T18:13:45.143Z
+updated: 2024-10-26T20:43:48.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c21ec2a5daba55f0f2eba6c2c22c2ece2cd2e05f8014d0ca4ebc85b75c1b223.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c21ec2a5daba55f0f2eba6c2c22c2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

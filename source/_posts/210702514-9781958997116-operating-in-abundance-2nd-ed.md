@@ -1,7 +1,7 @@
 ---
 title: Operating in Abundance (2nd ed.) | Free Book
-date: 2024-10-24 16:48:49
-updated: 2024-10-26 12:17:41
+date: 2024-10-24T16:58:30.763Z
+updated: 2024-10-27T03:43:56.556Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84d309b3e9f5cd1b7e20014f00be3144cc3c2997c4b813b963bea2675b6750d9.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84d309b3e9f5cd1b7e20014f00be314
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

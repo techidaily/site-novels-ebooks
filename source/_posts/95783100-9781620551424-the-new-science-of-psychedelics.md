@@ -1,7 +1,7 @@
 ---
 title: The New Science of Psychedelics | Free Book
-date: 2024-10-24 15:52:39
-updated: 2024-10-26 10:48:38
+date: 2024-10-23T22:35:19.735Z
+updated: 2024-10-26T23:32:48.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/940eb14f431a711287ee07cd4827281e948b3556b827e515c675e3df49e0ec57.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/940eb14f431a711287ee07cd4827281
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

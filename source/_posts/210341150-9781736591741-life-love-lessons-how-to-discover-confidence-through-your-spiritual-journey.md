@@ -1,7 +1,7 @@
 ---
 title: Life & Love Lessons- How to Discover Confidence Through Your Spiritual Journey | Free Book
-date: 2024-10-24 17:57:25
-updated: 2024-10-26 12:32:16
+date: 2024-10-24T16:41:18.503Z
+updated: 2024-10-27T05:39:46.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49aa0ad77dd6546236eeb29535a21dc3b1cbcf0ca34e91826e6adc0e1588f110.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49aa0ad77dd6546236eeb29535a21dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

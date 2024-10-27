@@ -1,7 +1,7 @@
 ---
 title: Breathing through the Whole Body | Free Book
-date: 2024-10-24 21:49:56
-updated: 2024-10-26 10:23:26
+date: 2024-10-25T02:27:38.838Z
+updated: 2024-10-26T23:51:51.939Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/197ba38802d30f9b7355273011cba7a05c0969f03810f1a8bf727c99d888b9e8.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/197ba38802d30f9b7355273011cba7a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

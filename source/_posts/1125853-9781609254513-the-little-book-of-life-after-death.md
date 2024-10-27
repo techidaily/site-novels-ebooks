@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Life After Death | Free Book
-date: 2024-10-25 17:16:38
-updated: 2024-10-26 10:32:11
+date: 2024-10-20T22:02:18.170Z
+updated: 2024-10-27T00:51:19.449Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b57972a5c9dc1196f92120db6500b9088dddea026cf4b8084e3637dbfa7cfd0.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b57972a5c9dc1196f92120db6500b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

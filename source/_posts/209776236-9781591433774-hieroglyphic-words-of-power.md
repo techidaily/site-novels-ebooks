@@ -1,7 +1,7 @@
 ---
 title: Hieroglyphic Words of Power | Free Book
-date: 2024-10-25 11:36:31
-updated: 2024-10-26 12:25:36
+date: 2024-10-22T02:54:21.624Z
+updated: 2024-10-27T02:28:55.193Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b1656b641f4ee57e85cce7d4cf0574209ecafdea7fc50889c7b4b4a78f7fc9c.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b1656b641f4ee57e85cce7d4cf0574
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

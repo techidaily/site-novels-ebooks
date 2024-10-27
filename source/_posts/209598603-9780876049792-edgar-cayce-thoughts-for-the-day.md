@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce Thoughts for the Day | Free Book
-date: 2024-10-23 16:42:54
-updated: 2024-10-26 10:14:48
+date: 2024-10-22T19:34:01.553Z
+updated: 2024-10-26T21:11:57.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4adac4010ecc6bc48a8c2051f6d73ca2e8e03116555b4e019a9f12b025ae416.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4adac4010ecc6bc48a8c2051f6d73c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

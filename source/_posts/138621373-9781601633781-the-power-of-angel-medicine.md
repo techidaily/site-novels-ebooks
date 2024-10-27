@@ -1,7 +1,7 @@
 ---
 title: The Power of Angel Medicine | Free Book
-date: 2024-10-23 13:36:56
-updated: 2024-10-26 11:16:20
+date: 2024-10-25T00:19:47.940Z
+updated: 2024-10-26T20:48:23.917Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/209c9f260ee221e0d03b120319426fc16d09e6186c642cbdb05796d68d139b05.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/209c9f260ee221e0d03b120319426fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

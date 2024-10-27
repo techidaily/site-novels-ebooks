@@ -1,7 +1,7 @@
 ---
 title: The Hidden Secrets of a Modern Seer | Free Book
-date: 2024-10-24 23:22:23
-updated: 2024-10-26 11:31:37
+date: 2024-10-25T17:13:49.636Z
+updated: 2024-10-27T04:17:02.819Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5902c10fa6920ced3674db712df9ecb51661721a4d1bf984dfe8c87f535f4b52.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5902c10fa6920ced3674db712df9ecb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The I Ching or Book of Changes | Free Book
-date: 2024-10-25 10:36:12
-updated: 2024-10-26 11:32:25
+date: 2024-10-21T17:49:47.027Z
+updated: 2024-10-26T18:12:16.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/888115fe6cd11380e5890abd59dd9653fcd0e5aec7746a0bff6202064cef9b5a.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/888115fe6cd11380e5890abd59dd965
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

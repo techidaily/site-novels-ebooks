@@ -1,7 +1,7 @@
 ---
 title: "Intuition: Soul Guidance for Life's Decisions | Free Book"
-date: 2024-10-24 18:47:53
-updated: 2024-10-26 10:16:26
+date: 2024-10-19T23:13:34.428Z
+updated: 2024-10-26T21:35:10.259Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b63571a663d0089a3282d9303ac04b3d1575b8db82dfca06aea9fec947d322e0.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b63571a663d0089a3282d9303ac04b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

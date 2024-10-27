@@ -1,7 +1,7 @@
 ---
 title: "Buddha Doodles: Imagine the Possibilities | Free Book"
-date: 2024-10-23 23:45:16
-updated: 2024-10-26 12:32:49
+date: 2024-10-19T19:08:56.947Z
+updated: 2024-10-27T03:16:28.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b69c665c420d5820063cc0bb572fda4f8291f85c822ac9587c42b38ab5cc887.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b69c665c420d5820063cc0bb572fda
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

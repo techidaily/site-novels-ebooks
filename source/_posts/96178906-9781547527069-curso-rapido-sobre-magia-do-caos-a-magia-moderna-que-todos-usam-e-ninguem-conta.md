@@ -1,7 +1,7 @@
 ---
 title: Curso rápido sobre magia do caos.  A magia moderna que todos usam e ninguém conta | Free Book
-date: 2024-10-24 12:39:21
-updated: 2024-10-26 10:47:23
+date: 2024-10-21T21:09:35.969Z
+updated: 2024-10-27T00:54:10.024Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93881dc7e6c3bbdc68cce9d0c9c41e423cf50dadf06f46b5d642eab708013649.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93881dc7e6c3bbdc68cce9d0c9c41e4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

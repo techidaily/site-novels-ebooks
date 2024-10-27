@@ -1,7 +1,7 @@
 ---
 title: Buddha Behind Bars - A Memoir | Free Book
-date: 2024-10-23 21:48:31
-updated: 2024-10-26 11:59:38
+date: 2024-10-23T18:46:51.568Z
+updated: 2024-10-27T01:34:12.574Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66f28c61c5d8aa0228d7e15826cbe55db3b5f23eae141277135e6e0a1031f4c7.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66f28c61c5d8aa0228d7e15826cbe55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

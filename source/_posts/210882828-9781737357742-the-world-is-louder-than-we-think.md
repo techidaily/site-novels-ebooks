@@ -1,7 +1,7 @@
 ---
 title: The World is Louder than we think | Free Book
-date: 2024-10-25 22:29:26
-updated: 2024-10-26 11:32:20
+date: 2024-10-24T21:24:50.911Z
+updated: 2024-10-26T18:47:40.782Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4aaefa4a3d2c727feecec3a8e981b4e84b8a8ab891c6b1918b2738cf4190a46f.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4aaefa4a3d2c727feecec3a8e981b4e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

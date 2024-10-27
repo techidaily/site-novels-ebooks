@@ -1,7 +1,7 @@
 ---
 title: Both Feet on the Spiritual Path | Free Book
-date: 2024-10-25 22:35:20
-updated: 2024-10-26 10:23:18
+date: 2024-10-23T18:59:18.743Z
+updated: 2024-10-26T23:42:58.809Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e9d481befdaa6b142d945f7407d6b1f5df8ed7b915aa6f6f0d539685f9bf277.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e9d481befdaa6b142d945f7407d6b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

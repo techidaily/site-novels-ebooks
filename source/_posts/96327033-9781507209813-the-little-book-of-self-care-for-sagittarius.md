@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Sagittarius | Free Book
-date: 2024-10-23 13:12:28
-updated: 2024-10-26 11:29:55
+date: 2024-10-22T04:47:18.869Z
+updated: 2024-10-27T00:23:05.439Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379c97a1dda998ff087b353f1fe5678bf59b.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

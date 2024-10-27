@@ -1,7 +1,7 @@
 ---
 title: "Nikola Tesla: Afterlife Comments on Paraphysical Concepts, Volume Two | Free Book"
-date: 2024-10-25 19:43:14
-updated: 2024-10-26 11:34:48
+date: 2024-10-24T05:45:44.967Z
+updated: 2024-10-26T21:40:41.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f9e9549b8be3a6b322b949a13f8adf09ffb5c4f075a3648417a4f9bcfc6822c.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f9e9549b8be3a6b322b949a13f8adf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

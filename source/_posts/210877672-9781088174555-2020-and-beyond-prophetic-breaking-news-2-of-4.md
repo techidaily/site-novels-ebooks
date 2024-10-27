@@ -1,7 +1,7 @@
 ---
 title: 2020 and Beyond Prophetic Breaking News - 2 of 4 | Free Book
-date: 2024-10-23 18:15:47
-updated: 2024-10-26 11:12:47
+date: 2024-10-23T00:48:24.804Z
+updated: 2024-10-27T04:04:21.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/69e72f2d001947607a3fcfe1f167daf33229d21248061d504a915278192389dd.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/69e72f2d001947607a3fcfe1f167daf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

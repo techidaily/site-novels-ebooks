@@ -1,7 +1,7 @@
 ---
 title: Emerson and the Dream of America | Free Book
-date: 2024-10-23 16:45:25
-updated: 2024-10-26 11:34:10
+date: 2024-10-20T19:55:55.223Z
+updated: 2024-10-27T04:26:06.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ed2843822c6fc96a05d0d27818dbd2056d87aabaf6bc983068424e8096e7bf9.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ed2843822c6fc96a05d0d27818dbd2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Australian Ghost Whisperer | Free Book
-date: 2024-10-24 15:33:54
-updated: 2024-10-26 12:40:10
+date: 2024-10-20T22:10:45.081Z
+updated: 2024-10-27T00:06:26.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a582ac70f0857799a5e5a267a61cd865bbf9f4bd0f7b3f2ea6439ab6e152b3b.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a582ac70f0857799a5e5a267a61cd8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Past Life Regression | Free Book
-date: 2024-10-25 19:43:52
-updated: 2024-10-26 10:39:37
+date: 2024-10-25T00:12:02.844Z
+updated: 2024-10-26T17:37:35.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0eec6f467c7eb536151f8130dfcb366e198ffaddf82047cb94fcdab9fa2dff40.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0eec6f467c7eb536151f8130dfcb366
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

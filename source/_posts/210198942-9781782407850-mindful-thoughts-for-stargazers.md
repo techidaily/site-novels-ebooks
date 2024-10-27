@@ -1,7 +1,7 @@
 ---
 title: Mindful Thoughts for Stargazers | Free Book
-date: 2024-10-24 21:53:44
-updated: 2024-10-26 11:32:21
+date: 2024-10-21T01:56:27.632Z
+updated: 2024-10-26T22:15:56.442Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d02ec9df1aa7f9f4efc92d6e2ceca849708ee6107429dbab541db8c3d10bd5a0.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d02ec9df1aa7f9f4efc92d6e2ceca84
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

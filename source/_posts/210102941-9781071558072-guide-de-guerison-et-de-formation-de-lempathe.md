@@ -1,7 +1,7 @@
 ---
 title: Guide de Guérison et de Formation de L’empathe | Free Book
-date: 2024-10-24 23:12:46
-updated: 2024-10-26 11:46:16
+date: 2024-10-19T20:29:43.901Z
+updated: 2024-10-26T21:19:39.933Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3deb56b0f41b25a5786d3eb262b842ac6235a13400cfc7e9bfa2cec1e6b209c0.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3deb56b0f41b25a5786d3eb262b842a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

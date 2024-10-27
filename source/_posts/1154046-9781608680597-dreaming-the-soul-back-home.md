@@ -1,7 +1,7 @@
 ---
 title: Dreaming the Soul Back Home | Free Book
-date: 2024-10-24 12:49:34
-updated: 2024-10-26 11:39:52
+date: 2024-10-25T03:36:11.391Z
+updated: 2024-10-26T16:00:34.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa6fdfdab73bf6d910b91add37d3aeeaa0d7b3d045abda69c67ba2a208101ba2.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa6fdfdab73bf6d910b91add37d3aee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

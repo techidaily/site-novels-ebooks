@@ -1,7 +1,7 @@
 ---
 title: The Ten Things to Do When Your Life Falls Apart | Free Book
-date: 2024-10-24 22:43:33
-updated: 2024-10-26 12:50:52
+date: 2024-10-24T02:59:59.417Z
+updated: 2024-10-26T19:31:50.596Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ed2bf956d3f0c16e2dceb8edaefd690586dd98133cb7890c968652279882ef92.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ed2bf956d3f0c16e2dceb8edaefd690
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Essential Law of Attraction Collection | Free Book
-date: 2024-10-23 16:49:33
-updated: 2024-10-26 10:50:59
+date: 2024-10-20T04:19:30.107Z
+updated: 2024-10-26T18:03:35.081Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2167b39ae5a9012989c4babf3828b3d9e7411f32db2587ffedb292a4808cd996.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2167b39ae5a9012989c4babf3828b3d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

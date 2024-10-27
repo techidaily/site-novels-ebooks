@@ -1,7 +1,7 @@
 ---
 title: THE PHILOSOPHY OF THE UNIVERSE AND THE DIMENSIONS OF THE MULTIVERSE | Free Book
-date: 2024-10-25 10:38:35
-updated: 2024-10-26 12:50:33
+date: 2024-10-21T05:02:20.075Z
+updated: 2024-10-26T17:22:27.878Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8772e80f1142bbd0aa13936c568137e3ec54202c396af43a8727d9ab988ea8a2.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8772e80f1142bbd0aa13936c568137e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

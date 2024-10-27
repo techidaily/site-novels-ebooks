@@ -1,7 +1,7 @@
 ---
 title: Kabbalah and the Power of Dreaming | Free Book
-date: 2024-10-23 19:32:20
-updated: 2024-10-26 10:45:29
+date: 2024-10-25T18:52:32.508Z
+updated: 2024-10-26T17:55:48.969Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8643745fab00167c9ae8ffcfa5258fbe7eb22fd8a7c4c079344809305aebcae9.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8643745fab00167c9ae8ffcfa5258fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

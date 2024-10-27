@@ -1,7 +1,7 @@
 ---
 title: The Paranormal Surrounds Us | Free Book
-date: 2024-10-23 21:44:49
-updated: 2024-10-26 12:26:21
+date: 2024-10-21T00:41:20.873Z
+updated: 2024-10-27T04:38:02.654Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a664ddb80ad1e6d4a2698465faf9f557504c957950858796b0f1a64f8f4c7626.jpg
@@ -208,3 +208,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a664ddb80ad1e6d4a2698465faf9f55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

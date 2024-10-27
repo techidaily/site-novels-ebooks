@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Canadian Hauntings | Free Book
-date: 2024-10-24 15:31:57
-updated: 2024-10-26 12:54:54
+date: 2024-10-22T02:54:02.460Z
+updated: 2024-10-26T20:08:03.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9067800e8f4a1349b36ab4ba09d0351e2353d187a8c394bf28999f8b673060e2.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9067800e8f4a1349b36ab4ba09d0351
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

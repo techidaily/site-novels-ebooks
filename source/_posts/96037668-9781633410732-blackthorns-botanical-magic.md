@@ -1,7 +1,7 @@
 ---
 title: Blackthorn's Botanical Magic | Free Book
-date: 2024-10-23 16:45:50
-updated: 2024-10-26 11:45:11
+date: 2024-10-22T16:08:28.404Z
+updated: 2024-10-26T16:00:57.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fde8fc20c37944048065b53d0b1a60de8ddfe200efa564c152d42fa192f18a31.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fde8fc20c37944048065b53d0b1a60d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

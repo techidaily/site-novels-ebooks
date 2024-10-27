@@ -1,7 +1,7 @@
 ---
 title: Visits from the Afterlife | Free Book
-date: 2024-10-24 17:56:13
-updated: 2024-10-26 10:37:31
+date: 2024-10-26T00:23:28.255Z
+updated: 2024-10-27T01:58:16.849Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ef1805d13df3c8243fe9914ef6ab6287dc0e6af17853109f92a90dacc79624a.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ef1805d13df3c8243fe9914ef6ab62
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

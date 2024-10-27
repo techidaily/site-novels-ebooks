@@ -1,7 +1,7 @@
 ---
 title: Meditación. Mejora Tu Concentración Con Estas Técnicas Básicas De Meditación | Free Book
-date: 2024-10-25 19:48:16
-updated: 2024-10-26 12:29:44
+date: 2024-10-25T20:57:28.246Z
+updated: 2024-10-26T19:05:02.105Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f9d61c541f99e57cdc94bff3814da2394a1e24e9e0ff58073ba6d9dd102ae8e.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f9d61c541f99e57cdc94bff3814da2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

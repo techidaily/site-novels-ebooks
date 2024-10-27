@@ -1,7 +1,7 @@
 ---
 title: Conversations With the Children of Now | Free Book
-date: 2024-10-23 13:45:24
-updated: 2024-10-26 11:15:33
+date: 2024-10-20T03:09:14.679Z
+updated: 2024-10-26T23:32:19.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b12d887997e25d1ef40354a13c1e2e049ea835b3341753ecbc47d69976c04da.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b12d887997e25d1ef40354a13c1e2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

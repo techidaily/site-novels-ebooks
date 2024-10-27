@@ -1,7 +1,7 @@
 ---
 title: Diloggún Tales of the Natural World | Free Book
-date: 2024-10-24 15:34:24
-updated: 2024-10-26 10:14:47
+date: 2024-10-20T02:32:58.513Z
+updated: 2024-10-27T00:30:02.172Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f31d1d55ee62185e3d64dac412d8a6c8c357ff912ad58ba4c92608b1c815895b.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f31d1d55ee62185e3d64dac412d8a6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

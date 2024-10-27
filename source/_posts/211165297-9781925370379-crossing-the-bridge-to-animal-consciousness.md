@@ -1,7 +1,7 @@
 ---
 title: Crossing the Bridge to Animal Consciousness | Free Book
-date: 2024-10-23 12:41:37
-updated: 2024-10-26 12:44:18
+date: 2024-10-21T02:58:33.375Z
+updated: 2024-10-26T23:41:27.682Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c986d046f99709d05d5c24b9d6ec22dec272e023ea995925643d779f2087acd0.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c986d046f99709d05d5c24b9d6ec22d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: God Carried Me through My Addiction | Free Book
-date: 2024-10-25 21:57:16
-updated: 2024-10-26 10:27:49
+date: 2024-10-21T01:34:16.498Z
+updated: 2024-10-27T04:42:44.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea1368c6dbd9b947ebaac8ddea7bfe3a16f853597fdb47ceae5bd1f64c48ad09.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea1368c6dbd9b947ebaac8ddea7bfe3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

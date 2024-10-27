@@ -1,7 +1,7 @@
 ---
 title: "Tarô: Combinações entre Arcanos Maiores e Menores | Free Book"
-date: 2024-10-23 16:54:15
-updated: 2024-10-26 11:18:40
+date: 2024-10-23T00:17:03.686Z
+updated: 2024-10-27T00:44:48.981Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42775abc5a83783791fb1fc2af904fab3a72b8a3df7e6c308f43026618c8be81.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42775abc5a83783791fb1fc2af904fa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

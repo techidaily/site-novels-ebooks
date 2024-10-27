@@ -1,7 +1,7 @@
 ---
 title: The Realized Light of the Twelve Dimensions | Free Book
-date: 2024-10-24 17:45:21
-updated: 2024-10-26 12:59:16
+date: 2024-10-23T21:47:43.944Z
+updated: 2024-10-27T01:07:37.830Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ceec0df3ba950a87662f6f23e0d8aaff03f172264bc952162cb44bfbaadfd111.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ceec0df3ba950a87662f6f23e0d8aaf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

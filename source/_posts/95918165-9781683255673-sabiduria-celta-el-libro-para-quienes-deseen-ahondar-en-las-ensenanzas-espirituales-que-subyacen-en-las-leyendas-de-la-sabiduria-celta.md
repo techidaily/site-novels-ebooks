@@ -1,7 +1,7 @@
 ---
 title: Sabiduría celta. El libro para quienes deseen ahondar en las enseñanzas espirituales que subyacen en las leyendas de la sabiduría celta | Free Book
-date: 2024-10-25 20:39:25
-updated: 2024-10-26 11:39:26
+date: 2024-10-20T05:38:32.196Z
+updated: 2024-10-26T17:01:19.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/447d55169d406aa35f2505c0bb94d6c941bd07abe0b75f08550e765242434c79.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/447d55169d406aa35f2505c0bb94d6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

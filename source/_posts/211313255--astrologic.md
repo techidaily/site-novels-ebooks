@@ -1,7 +1,7 @@
 ---
 title: Astrologic | Free Book
-date: 2024-10-25 19:54:18
-updated: 2024-10-26 11:15:49
+date: 2024-10-23T22:35:40.398Z
+updated: 2024-10-26T18:41:16.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66ab4a2c291a05378932796a7b465484c560b36d7e827ace4345f1ce5e5425dd.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66ab4a2c291a05378932796a7b46548
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

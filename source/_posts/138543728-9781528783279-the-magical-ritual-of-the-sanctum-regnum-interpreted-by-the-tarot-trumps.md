@@ -1,7 +1,7 @@
 ---
 title: The Magical Ritual of the Sanctum Regnum - Interpreted by the Tarot Trumps | Free Book
-date: 2024-10-25 12:35:34
-updated: 2024-10-26 12:39:49
+date: 2024-10-23T21:34:00.116Z
+updated: 2024-10-26T19:56:27.758Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8979cb956a709a92b2fcfcd80f2d667d4cb964d5002f66ce7e5045960bd0f528.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8979cb956a709a92b2fcfcd80f2d667
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

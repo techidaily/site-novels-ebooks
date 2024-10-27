@@ -1,7 +1,7 @@
 ---
 title: The Celestial Code of Scripture | Free Book
-date: 2024-10-24 12:21:53
-updated: 2024-10-26 12:18:52
+date: 2024-10-20T20:50:20.205Z
+updated: 2024-10-27T03:14:26.182Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e1c7ad2c26b8193f9fc4d83852824b5a757a84ebc79adeb2188522f910e3379.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e1c7ad2c26b8193f9fc4d83852824b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

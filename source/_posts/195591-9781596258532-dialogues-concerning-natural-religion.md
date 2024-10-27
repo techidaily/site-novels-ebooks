@@ -1,7 +1,7 @@
 ---
 title: Dialogues Concerning Natural Religion | Free Book
-date: 2024-10-25 23:30:25
-updated: 2024-10-26 12:21:20
+date: 2024-10-21T02:35:34.051Z
+updated: 2024-10-26T19:24:31.838Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e676e8d31b763812cdaf97e49e7698b0de9a649446778c04e17b37ef21c82e3.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e676e8d31b763812cdaf97e49e7698
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

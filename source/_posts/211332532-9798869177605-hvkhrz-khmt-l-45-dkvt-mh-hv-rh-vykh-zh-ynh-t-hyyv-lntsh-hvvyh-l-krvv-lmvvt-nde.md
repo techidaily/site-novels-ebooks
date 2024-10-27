@@ -1,7 +1,7 @@
 ---
 title: הוכרז כמת ל -45 דקות - מה שהוא ראה ואיך זה שינה את חייו לנצח - חוויה של קרוב למוות (NDE) | Free Book
-date: 2024-10-23 18:14:39
-updated: 2024-10-26 10:36:31
+date: 2024-10-25T23:41:27.016Z
+updated: 2024-10-26T16:32:53.110Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/275c7e6b5a5b84539026bc51902c6ad3db37c1445e192b49b84a5094da4ddc42.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/275c7e6b5a5b84539026bc51902c6ad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

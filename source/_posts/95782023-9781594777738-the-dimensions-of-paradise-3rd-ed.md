@@ -1,7 +1,7 @@
 ---
 title: The Dimensions of Paradise (3rd ed.) | Free Book
-date: 2024-10-25 22:12:19
-updated: 2024-10-26 12:29:59
+date: 2024-10-22T20:40:23.964Z
+updated: 2024-10-26T22:41:23.481Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/714320ad3d401f065a25d9720c7cd52d5e47c2cc6db79787cc17539245910ac5.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/714320ad3d401f065a25d9720c7cd52
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

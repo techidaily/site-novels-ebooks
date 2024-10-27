@@ -1,7 +1,7 @@
 ---
 title: Reflections on Doing Your Great Work in Any Occupation | Free Book
-date: 2024-10-25 22:53:12
-updated: 2024-10-26 11:43:46
+date: 2024-10-21T05:24:00.793Z
+updated: 2024-10-27T04:02:46.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff88f05758a46f6c12a12a2312e73a3959ef1afd00aabd15eb00dcb4175e1a07.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff88f05758a46f6c12a12a2312e73a3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

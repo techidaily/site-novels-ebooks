@@ -1,7 +1,7 @@
 ---
 title: Daily Reflections from Dr. David R. Hawkins | Free Book
-date: 2024-10-24 19:51:24
-updated: 2024-10-26 10:27:18
+date: 2024-10-24T22:21:50.097Z
+updated: 2024-10-26T16:08:59.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7181b96d2ecf006ff5b20e101c290814d723ab873894e94804208f81422edd2f.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7181b96d2ecf006ff5b20e101c29081
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: 5-Minute Magic for Modern Wiccans | Free Book
-date: 2024-10-23 12:38:51
-updated: 2024-10-26 10:53:47
+date: 2024-10-22T16:13:53.884Z
+updated: 2024-10-26T21:55:38.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa82932f24f17acc4d995f7d07febace5535dca7f4082d472630e99c5a13a947.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa82932f24f17acc4d995f7d07febac
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

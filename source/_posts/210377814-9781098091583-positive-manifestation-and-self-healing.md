@@ -1,7 +1,7 @@
 ---
 title: Positive Manifestation And Self Healing | Free Book
-date: 2024-10-24 12:38:32
-updated: 2024-10-26 11:57:31
+date: 2024-10-23T18:25:54.149Z
+updated: 2024-10-27T02:59:48.961Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f27ce508bd4a0e9e2c74a3d3f3cc36df5b745fdb05f60702088b1c359d105723.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f27ce508bd4a0e9e2c74a3d3f3cc36d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Four Pillars of Destiny: Potential, Career, and Wealth | Free Book"
-date: 2024-10-23 11:14:19
-updated: 2024-10-26 12:23:12
+date: 2024-10-23T20:09:15.920Z
+updated: 2024-10-26T16:17:06.013Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a43f0abdc5646be70af484488b49279cce8e21906a9046e6cbc3848c681d9e3.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a43f0abdc5646be70af484488b4927
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

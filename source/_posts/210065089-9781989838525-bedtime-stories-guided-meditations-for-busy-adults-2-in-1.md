@@ -1,7 +1,7 @@
 ---
 title: Bedtime Stories & Guided Meditations For Busy Adults (2 in 1) | Free Book
-date: 2024-10-23 10:26:17
-updated: 2024-10-26 11:54:51
+date: 2024-10-19T16:12:34.910Z
+updated: 2024-10-27T05:32:31.030Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c1cc558302faea5ff36200181f4496494adbba4455f712f4f7bdd9a04d03385e.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c1cc558302faea5ff36200181f44964
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

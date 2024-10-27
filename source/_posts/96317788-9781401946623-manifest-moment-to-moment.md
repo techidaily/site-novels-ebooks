@@ -1,7 +1,7 @@
 ---
 title: Manifest Moment to Moment | Free Book
-date: 2024-10-23 18:41:34
-updated: 2024-10-26 12:41:13
+date: 2024-10-20T19:39:54.722Z
+updated: 2024-10-26T18:09:01.722Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f8872b27007ca03d3bad41d8d36772fd0b406f9f0a43c8c9f925daa3106769b4.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f8872b27007ca03d3bad41d8d36772f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

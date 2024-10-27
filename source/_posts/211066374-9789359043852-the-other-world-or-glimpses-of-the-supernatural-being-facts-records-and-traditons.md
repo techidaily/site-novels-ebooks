@@ -1,7 +1,7 @@
 ---
 title: The Other World; or, Glimpses Of The Supernatural Being Facts Records And Traditons | Free Book
-date: 2024-10-23 12:11:33
-updated: 2024-10-26 11:47:48
+date: 2024-10-21T01:38:48.879Z
+updated: 2024-10-26T19:04:18.926Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e53a74a133779a551b208574e2085a3488d412d96d15c86a61b5228da821907.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e53a74a133779a551b208574e2085a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

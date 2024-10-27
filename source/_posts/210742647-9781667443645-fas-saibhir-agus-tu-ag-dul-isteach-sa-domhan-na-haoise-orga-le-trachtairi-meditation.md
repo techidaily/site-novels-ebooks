@@ -1,7 +1,7 @@
 ---
 title: Fás Saibhir agus tú ag Dul isteach sa Domhan na hAoise Órga (le Tráchtairí Meditation) | Free Book
-date: 2024-10-24 22:53:18
-updated: 2024-10-26 10:51:29
+date: 2024-10-23T22:26:03.477Z
+updated: 2024-10-27T01:03:14.717Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/54db00246e5d67b76aefe6aabd457a0fabfc76423f8a226b6be8dda41eacc025.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/54db00246e5d67b76aefe6aabd457a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

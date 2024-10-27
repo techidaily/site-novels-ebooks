@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Vampires and Werewolves (2nd ed.) | Free Book
-date: 2024-10-23 13:47:30
-updated: 2024-10-26 12:34:44
+date: 2024-10-20T18:49:32.378Z
+updated: 2024-10-27T00:08:23.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26585a5aa533fc1aec28e83dc1200bb579b2dfaa688d7c8e5e563f39dd7e4d2c.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26585a5aa533fc1aec28e83dc1200bb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

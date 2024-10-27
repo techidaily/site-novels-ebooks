@@ -1,7 +1,7 @@
 ---
 title: The Keys to the Kingdom, and the Second War in Heaven | Free Book
-date: 2024-10-24 13:16:59
-updated: 2024-10-26 11:59:15
+date: 2024-10-25T18:03:55.985Z
+updated: 2024-10-26T21:54:52.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7747358618e5f7a7ae737d49389f927aac644b11bcc9d9644347db70ec2e0150.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7747358618e5f7a7ae737d49389f927
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

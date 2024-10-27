@@ -1,7 +1,7 @@
 ---
 title: Spirituality Instruction Manual | Free Book
-date: 2024-10-23 16:14:29
-updated: 2024-10-26 12:28:39
+date: 2024-10-20T05:01:43.248Z
+updated: 2024-10-26T16:22:25.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/46c5e5d4a380d2158600c66d4511fc602307f048dbe21fe80d6ec30c91d8263d.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/46c5e5d4a380d2158600c66d4511fc6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

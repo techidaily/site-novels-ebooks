@@ -1,7 +1,7 @@
 ---
 title: 14 Steps to Awaken the Sacred Feminine | Free Book
-date: 2024-10-24 10:28:21
-updated: 2024-10-26 10:15:18
+date: 2024-10-24T03:30:59.112Z
+updated: 2024-10-27T02:04:01.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eff722a5f87ca65506fce50de0f3ebb52ea4a323d1a7362b27cd5668356a003a.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eff722a5f87ca65506fce50de0f3ebb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

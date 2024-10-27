@@ -1,7 +1,7 @@
 ---
 title: Extraordinary Knowing | Free Book
-date: 2024-10-23 11:24:52
-updated: 2024-10-26 12:50:38
+date: 2024-10-24T16:59:49.081Z
+updated: 2024-10-26T16:52:50.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9825912f7a97e75f3da2aa878341914bbe45acc956060929cdb417e0a207a9fb.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9825912f7a97e75f3da2aa878341914
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

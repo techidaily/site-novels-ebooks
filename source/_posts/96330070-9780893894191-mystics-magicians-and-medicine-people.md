@@ -1,7 +1,7 @@
 ---
 title: Mystics, Magicians and Medicine People | Free Book
-date: 2024-10-23 14:39:47
-updated: 2024-10-26 11:10:16
+date: 2024-10-23T22:45:30.607Z
+updated: 2024-10-27T00:23:50.960Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0fae499f807a4f6ae483d75d03bc773f0ea83ef0ea4930dfc984ba59087d36f.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0fae499f807a4f6ae483d75d03bc77
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

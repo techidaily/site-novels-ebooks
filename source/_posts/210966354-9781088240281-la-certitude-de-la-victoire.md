@@ -1,7 +1,7 @@
 ---
 title: LA CERTITUDE DE LA VICTOIRE | Free Book
-date: 2024-10-24 21:52:51
-updated: 2024-10-26 10:18:44
+date: 2024-10-25T00:27:43.068Z
+updated: 2024-10-26T17:49:01.116Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3b3ebc478668c985136fe57f93039936d2256cc499ddc2b7cd794da716cacc6.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3b3ebc478668c985136fe57f930399
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

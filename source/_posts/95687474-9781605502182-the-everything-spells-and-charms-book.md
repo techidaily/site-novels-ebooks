@@ -1,7 +1,7 @@
 ---
 title: The Everything Spells and Charms Book | Free Book
-date: 2024-10-25 14:45:14
-updated: 2024-10-26 10:51:24
+date: 2024-10-21T16:04:55.602Z
+updated: 2024-10-27T01:59:03.707Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9781e32e2d1aee4a743526ddae43694bde62082466b679cafb0994d2d92f7c9e.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9781e32e2d1aee4a743526ddae43694
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

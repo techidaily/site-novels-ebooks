@@ -1,7 +1,7 @@
 ---
 title: Opus Mago-Cabbalisticum Et Theosophicum | Free Book
-date: 2024-10-25 17:56:36
-updated: 2024-10-26 11:42:54
+date: 2024-10-22T03:40:39.979Z
+updated: 2024-10-26T19:56:09.172Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0e0c01faca065119ad3297ad482d9f30c8b60e9292070f75814f66b420b3efd.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0e0c01faca065119ad3297ad482d9f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

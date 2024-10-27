@@ -1,7 +1,7 @@
 ---
 title: Avenues of the Human Spirit | Free Book
-date: 2024-10-23 14:21:26
-updated: 2024-10-26 10:12:48
+date: 2024-10-25T16:14:15.804Z
+updated: 2024-10-26T21:27:35.764Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e491b95b32abe6c29a26e914bd670b57c874af03b7088a9d0c5c6e7b3b3aa0e.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e491b95b32abe6c29a26e914bd670b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

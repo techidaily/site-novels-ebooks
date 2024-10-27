@@ -1,7 +1,7 @@
 ---
 title: The Zenned Out Guide to Understanding Tarot | Free Book
-date: 2024-10-24 11:31:55
-updated: 2024-10-26 11:22:30
+date: 2024-10-23T05:52:32.841Z
+updated: 2024-10-26T16:00:07.463Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/195c1622e295c087dc908ef9eae9ce727a0fc988938e73b1004ba8597f0dd9bd.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/195c1622e295c087dc908ef9eae9ce7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

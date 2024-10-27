@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness and Meditation for Children and Teens : A Comprehensive Guide to Mindfulness Skills in Children and Teens | Free Book"
-date: 2024-10-23 16:35:43
-updated: 2024-10-26 12:59:20
+date: 2024-10-20T19:58:00.036Z
+updated: 2024-10-26T17:13:41.001Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/247f703b60a974faac8f495f236e620a6915e4284fde2c724c634c9ac10bff6f.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/247f703b60a974faac8f495f236e620
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

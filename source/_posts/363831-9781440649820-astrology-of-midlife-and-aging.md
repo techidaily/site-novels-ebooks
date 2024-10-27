@@ -1,7 +1,7 @@
 ---
 title: Astrology of Midlife and Aging | Free Book
-date: 2024-10-23 13:10:41
-updated: 2024-10-26 11:48:24
+date: 2024-10-19T21:38:03.828Z
+updated: 2024-10-26T23:28:16.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/604424d638b56153b005c830a17129d277fca4fa5fa1757216deb37830d74f75.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/604424d638b56153b005c830a17129d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

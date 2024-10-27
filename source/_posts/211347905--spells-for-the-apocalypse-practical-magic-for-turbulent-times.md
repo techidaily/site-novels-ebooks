@@ -1,7 +1,7 @@
 ---
 title: "Spells for the Apocalypse: Practical Magic for Turbulent Times | Free Book"
-date: 2024-10-23 10:56:58
-updated: 2024-10-26 11:39:23
+date: 2024-10-22T20:38:01.072Z
+updated: 2024-10-27T05:01:00.905Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33a76092148296465e459f9ce5163983840082663a8675b2a9ac8e765c7931db.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33a76092148296465e459f9ce516398
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Book of Primal Signs (2nd ed.) | Free Book
-date: 2024-10-25 17:59:55
-updated: 2024-10-26 11:14:55
+date: 2024-10-24T17:47:07.853Z
+updated: 2024-10-27T05:33:55.239Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e60868938f2736086c1a4ba9d01f91567e82fbfd320543765297a649784be95.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e60868938f2736086c1a4ba9d01f91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

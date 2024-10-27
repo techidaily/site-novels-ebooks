@@ -1,7 +1,7 @@
 ---
 title: Adepts of the Five Elements | Free Book
-date: 2024-10-23 10:17:28
-updated: 2024-10-26 10:19:11
+date: 2024-10-25T23:49:05.234Z
+updated: 2024-10-27T01:37:20.856Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d2bd555a1cb52adaac28c8a9ffdd3d0247f5475fc12407c19b064aa5affeedf.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d2bd555a1cb52adaac28c8a9ffdd3d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

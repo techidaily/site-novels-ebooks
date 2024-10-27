@@ -1,7 +1,7 @@
 ---
 title: Aim High - The Heart of God Volume 1 | Free Book
-date: 2024-10-25 12:35:54
-updated: 2024-10-26 10:52:17
+date: 2024-10-24T19:28:50.966Z
+updated: 2024-10-26T20:29:58.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc152e1ae5c3c0be63c3c3c72526fd2470a5858b6c278a49dd1d8a7f9eb91c25.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc152e1ae5c3c0be63c3c3c72526fd2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

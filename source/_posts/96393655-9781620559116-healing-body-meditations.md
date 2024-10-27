@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2024-10-24 12:57:18
-updated: 2024-10-26 11:50:19
+date: 2024-10-19T17:52:22.854Z
+updated: 2024-10-26T17:14:15.454Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Book of Transformation | Free Book
-date: 2024-10-23 16:26:45
-updated: 2024-10-26 11:26:56
+date: 2024-10-19T23:52:36.238Z
+updated: 2024-10-27T06:00:48.542Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38d10516c971adb6b723b7d1da35593a26e1bea103c998e164626e42ac914136.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38d10516c971adb6b723b7d1da35593
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

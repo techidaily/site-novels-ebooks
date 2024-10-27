@@ -1,7 +1,7 @@
 ---
 title: O's Little Book of Love & Friendship | Free Book
-date: 2024-10-24 16:39:37
-updated: 2024-10-26 11:30:47
+date: 2024-10-24T01:17:23.285Z
+updated: 2024-10-26T16:14:20.275Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d08a9f73265166b1786020ab784c2b3ec2329ae9ae7038378e9d159905983da.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d08a9f73265166b1786020ab784c2b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

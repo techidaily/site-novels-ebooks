@@ -1,7 +1,7 @@
 ---
 title: Mystery Teachings from the Living Earth | Free Book
-date: 2024-10-24 12:43:20
-updated: 2024-10-26 12:42:54
+date: 2024-10-25T00:56:33.245Z
+updated: 2024-10-26T16:18:08.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8168be5170a39eccc2d35fc8404e658f6f9df8fee4e4e002936752f2f1e641cc.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8168be5170a39eccc2d35fc8404e658
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Archangel Guide to Ascension | Free Book
-date: 2024-10-24 21:36:48
-updated: 2024-10-26 10:46:15
+date: 2024-10-25T16:30:48.804Z
+updated: 2024-10-26T19:38:32.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd0b8e9890f15e0e3c161606e35ad0f7d9290726da97681c9dd2fc33dd9a4c23.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd0b8e9890f15e0e3c161606e35ad0f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

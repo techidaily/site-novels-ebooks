@@ -1,7 +1,7 @@
 ---
 title: Blooming into Mindfulness | Free Book
-date: 2024-10-24 18:41:45
-updated: 2024-10-26 11:57:29
+date: 2024-10-25T22:23:55.179Z
+updated: 2024-10-27T01:08:05.742Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/940bc33828401acf82a7bb52052678543af1e065af5582eddbf0ff03721c7f55.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/940bc33828401acf82a7bb520526785
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

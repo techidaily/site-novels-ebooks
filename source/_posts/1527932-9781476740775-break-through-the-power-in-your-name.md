@@ -1,7 +1,7 @@
 ---
 title: Break Through the Power in Your Name | Free Book
-date: 2024-10-25 14:31:34
-updated: 2024-10-26 10:55:13
+date: 2024-10-24T21:39:23.821Z
+updated: 2024-10-27T02:16:03.214Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4b89dd9d6fd144821f55e4c95acdf25ea75e40cdf523e6a5e6d57a3ccabbd342.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4b89dd9d6fd144821f55e4c95acdf25
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Art of Embracing Nothingness | Free Book
-date: 2024-10-24 16:15:15
-updated: 2024-10-26 11:57:17
+date: 2024-10-22T03:06:33.391Z
+updated: 2024-10-26T16:15:29.267Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c89a73aa53820c3d36f3ce051049d4bd0a516675d9d20fd2b7be743cb924a1e.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c89a73aa53820c3d36f3ce051049d4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

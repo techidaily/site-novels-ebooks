@@ -1,7 +1,7 @@
 ---
 title: Developing Your Sixth Sense | Free Book
-date: 2024-10-25 10:19:33
-updated: 2024-10-26 12:36:23
+date: 2024-10-19T19:09:34.758Z
+updated: 2024-10-27T04:04:03.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/491a4f15cf043e9ed0bdb632bdc102dac9a506c06d1113e6139a54395795b266.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/491a4f15cf043e9ed0bdb632bdc102d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

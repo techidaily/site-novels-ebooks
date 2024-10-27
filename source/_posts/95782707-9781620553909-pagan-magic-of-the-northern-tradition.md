@@ -1,7 +1,7 @@
 ---
 title: Pagan Magic of the Northern Tradition | Free Book
-date: 2024-10-25 11:40:49
-updated: 2024-10-26 12:23:22
+date: 2024-10-26T04:01:01.453Z
+updated: 2024-10-26T23:17:19.991Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84c6e5e5fe098b39c69e5e653cd9c39b8742dc652a234dc389e755c88af15fb5.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84c6e5e5fe098b39c69e5e653cd9c39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

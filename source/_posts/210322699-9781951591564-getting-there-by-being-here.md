@@ -1,7 +1,7 @@
 ---
 title: Getting There By Being Here | Free Book
-date: 2024-10-23 13:44:10
-updated: 2024-10-26 10:58:54
+date: 2024-10-24T22:16:05.398Z
+updated: 2024-10-26T23:47:14.631Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691797ce9ee4ee7d8c849c7e07ad56859fe8c77dc5287339f91ee959f8f7873f.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691797ce9ee4ee7d8c849c7e07ad568
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

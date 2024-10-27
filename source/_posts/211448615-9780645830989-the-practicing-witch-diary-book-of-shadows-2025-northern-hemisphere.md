@@ -1,7 +1,7 @@
 ---
 title: The Practicing Witch Diary - Book of Shadows - 2025 - Northern Hemisphere | Free Book
-date: 2024-10-24 14:25:44
-updated: 2024-10-26 10:26:36
+date: 2024-10-21T20:03:19.471Z
+updated: 2024-10-26T23:55:15.667Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1852f00381b335e96eb7a9af996e126efe86e366f3b704a08fe12b811054fb42.jpg
@@ -238,3 +238,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1852f00381b335e96eb7a9af996e126
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

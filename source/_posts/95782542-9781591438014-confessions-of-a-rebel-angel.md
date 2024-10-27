@@ -1,7 +1,7 @@
 ---
 title: Confessions of a Rebel Angel | Free Book
-date: 2024-10-23 10:33:58
-updated: 2024-10-26 11:54:59
+date: 2024-10-20T01:22:05.021Z
+updated: 2024-10-26T21:42:40.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e833a4e764c31618c6cc5e25a2f88d12ec4ad82847c1223722ab0eb57e22b93.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e833a4e764c31618c6cc5e25a2f88d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

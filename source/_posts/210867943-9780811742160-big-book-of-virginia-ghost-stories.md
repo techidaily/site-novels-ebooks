@@ -1,7 +1,7 @@
 ---
 title: Big Book of Virginia Ghost Stories | Free Book
-date: 2024-10-24 19:48:19
-updated: 2024-10-26 11:58:26
+date: 2024-10-25T04:24:37.500Z
+updated: 2024-10-27T02:32:16.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71aa20e1f7a71fd3f7fc311c9c5b6da0b5f482db8e0cbe061be530d00a924416.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71aa20e1f7a71fd3f7fc311c9c5b6da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

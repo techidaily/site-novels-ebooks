@@ -1,7 +1,7 @@
 ---
 title: Nagarjuna on the Six Perfections | Free Book
-date: 2024-10-25 15:19:10
-updated: 2024-10-26 11:23:14
+date: 2024-10-21T21:22:36.928Z
+updated: 2024-10-27T02:16:06.110Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/108e741a940584da1980bb939bb03200f8b2148ad5c3a727da40cb17ac4c5565.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/108e741a940584da1980bb939bb0320
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

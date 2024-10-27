@@ -1,7 +1,7 @@
 ---
 title: Empowering, Motivational, Team-building, Leadership Wide-Ruled Lined Personal Journal, Diary, & Note | Free Book
-date: 2024-10-25 17:56:57
-updated: 2024-10-26 11:56:13
+date: 2024-10-21T18:48:31.421Z
+updated: 2024-10-27T04:15:26.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d43ecbf6005b5542646f2573ba10a040931a7fbe8073c4e63b29f506b33a50b.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d43ecbf6005b5542646f2573ba10a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Antique Affair | Free Book
-date: 2024-10-24 13:37:51
-updated: 2024-10-26 11:47:36
+date: 2024-10-26T04:10:30.354Z
+updated: 2024-10-26T20:18:50.418Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/880b373bb4fb5d94b002d2fcb89ea3b82012f7d8a1b136c18eaf1bf01ff30595.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/880b373bb4fb5d94b002d2fcb89ea3b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

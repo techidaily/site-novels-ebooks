@@ -1,7 +1,7 @@
 ---
 title: "Moon Magic: Lunar Myths, Goddesses, Horoscopes, and Herbs | Free Book"
-date: 2024-10-25 15:57:35
-updated: 2024-10-26 10:48:35
+date: 2024-10-23T00:29:33.500Z
+updated: 2024-10-26T21:36:33.559Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/922c896142cfb43882c3481292ebfe3ce46d4d19a44e23963c78f5a3b216ec81.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/922c896142cfb43882c3481292ebfe3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

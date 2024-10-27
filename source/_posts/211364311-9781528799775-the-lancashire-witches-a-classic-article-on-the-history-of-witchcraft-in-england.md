@@ -1,7 +1,7 @@
 ---
 title: The Lancashire Witches - A Classic Article on the History of Witchcraft in England | Free Book
-date: 2024-10-23 11:37:43
-updated: 2024-10-26 10:38:31
+date: 2024-10-22T16:50:29.696Z
+updated: 2024-10-26T20:02:47.217Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ebbaeb8f719a635406bce257b4711601fd63c9800e2f4c8b27eafc4c48400fc.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ebbaeb8f719a635406bce257b47116
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Scorpio | Free Book
-date: 2024-10-24 20:11:36
-updated: 2024-10-26 10:39:27
+date: 2024-10-19T18:46:59.958Z
+updated: 2024-10-27T00:28:52.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d9ef4410b5e00641f73989bf34a54042b47ebd95397b78a2876c0ae8f60a25f.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d9ef4410b5e00641f73989bf34a540
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Chronobiology: the Biology of Time | Free Book"
-date: 2024-10-24 13:23:24
-updated: 2024-10-26 12:58:18
+date: 2024-10-20T20:27:39.559Z
+updated: 2024-10-27T02:11:35.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d671f6c812626e8f5c09d01e7478f0d9efd2537fd8dcb4fdb18b93eaa27aeb0d.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d671f6c812626e8f5c09d01e7478f0d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

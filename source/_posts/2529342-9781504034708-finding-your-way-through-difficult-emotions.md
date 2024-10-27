@@ -1,7 +1,7 @@
 ---
 title: Finding Your Way Through Difficult Emotions | Free Book
-date: 2024-10-24 22:24:18
-updated: 2024-10-26 12:14:33
+date: 2024-10-19T17:55:23.909Z
+updated: 2024-10-27T00:50:34.849Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bf8ec0cfd65c6a2cc5332f64b623df9489997ffc631d7aac1f06717d58314ca7.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bf8ec0cfd65c6a2cc5332f64b623df9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

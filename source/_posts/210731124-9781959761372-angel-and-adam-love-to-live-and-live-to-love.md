@@ -1,7 +1,7 @@
 ---
 title: "Angel and Adam: Love to Live and Live to Love : | Free Book"
-date: 2024-10-25 10:37:29
-updated: 2024-10-26 10:53:44
+date: 2024-10-24T17:25:30.032Z
+updated: 2024-10-26T23:13:05.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/467c5ede6a98f402b615f228264401491b1524b6cf41e5536cb7efbae7bfcc39.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/467c5ede6a98f402b615f2282644014
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Bible 3.0, The 6 Commandments of the Chosen Life | Free Book
-date: 2024-10-25 11:36:48
-updated: 2024-10-26 10:29:42
+date: 2024-10-25T20:18:33.454Z
+updated: 2024-10-27T02:46:24.070Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b255928bf6b47127fe1f5798b5f1725c5a4d81b1396daec48e61bf9b5192c24.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b255928bf6b47127fe1f5798b5f172
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

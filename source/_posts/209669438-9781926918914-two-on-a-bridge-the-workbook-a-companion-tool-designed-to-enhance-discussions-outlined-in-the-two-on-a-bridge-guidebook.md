@@ -1,7 +1,7 @@
 ---
 title: "Two on a Bridge The Workbook: A Companion Tool Designed to Enhance Discussions Outlined in the Two on a Bridge Guidebook | Free Book"
-date: 2024-10-24 10:49:37
-updated: 2024-10-26 12:15:22
+date: 2024-10-24T22:51:48.686Z
+updated: 2024-10-26T17:45:49.657Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aeefe9d30f50f8fa5386a0b4d789d08654af72154719cdd583bba041f93eca39.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aeefe9d30f50f8fa5386a0b4d789d08
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

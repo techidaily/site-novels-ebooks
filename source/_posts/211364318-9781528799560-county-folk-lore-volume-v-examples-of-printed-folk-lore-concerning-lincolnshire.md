@@ -1,7 +1,7 @@
 ---
 title: County Folk-Lore - Volume V - Examples of Printed Folk-Lore Concerning Lincolnshire | Free Book
-date: 2024-10-23 18:31:51
-updated: 2024-10-26 10:44:40
+date: 2024-10-25T16:22:50.425Z
+updated: 2024-10-27T02:48:34.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/916558f6b1a5a07eab27e4fbc4d72bd537a6bd4d9ab341c664035dfa9944829b.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/916558f6b1a5a07eab27e4fbc4d72bd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

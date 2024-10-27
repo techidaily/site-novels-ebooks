@@ -1,7 +1,7 @@
 ---
 title: The Geoengineered Transhuman (2nd ed.) | Free Book
-date: 2024-10-23 12:31:23
-updated: 2024-10-26 10:30:50
+date: 2024-10-23T05:58:01.747Z
+updated: 2024-10-27T03:50:06.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a64f04ddb8cb296992e0778a38b91f3d9bbe2651959d28466b01d69e5821019b.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a64f04ddb8cb296992e0778a38b91f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

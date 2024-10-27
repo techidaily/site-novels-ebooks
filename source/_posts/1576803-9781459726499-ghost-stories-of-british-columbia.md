@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories of British Columbia | Free Book
-date: 2024-10-25 11:58:14
-updated: 2024-10-26 11:45:20
+date: 2024-10-21T21:36:31.092Z
+updated: 2024-10-26T16:53:42.828Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3636a7f95f4d3c5023a52a6574ceb3bffd8ef8e231d16c74b518e9c97433c446.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3636a7f95f4d3c5023a52a6574ceb3b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

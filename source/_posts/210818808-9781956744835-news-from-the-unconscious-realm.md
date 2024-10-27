@@ -1,7 +1,7 @@
 ---
 title: News from the Unconscious Realm | Free Book
-date: 2024-10-24 12:26:10
-updated: 2024-10-26 11:17:30
+date: 2024-10-22T01:52:04.404Z
+updated: 2024-10-27T03:17:50.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/65e5a1e6a0b29785fe3d8e5d403b0d4387a284f5af9a34b248061503c90daa29.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/65e5a1e6a0b29785fe3d8e5d403b0d4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

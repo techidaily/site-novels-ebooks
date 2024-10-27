@@ -1,7 +1,7 @@
 ---
 title: Conversations in Apocalyptic Times | Free Book
-date: 2024-10-24 12:47:19
-updated: 2024-10-26 10:10:36
+date: 2024-10-20T01:58:58.117Z
+updated: 2024-10-27T02:30:08.223Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c329135b2f92eadf05cc79806f4a01557ff0ba10ff551505edbaff341ce8362.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c329135b2f92eadf05cc79806f4a01
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

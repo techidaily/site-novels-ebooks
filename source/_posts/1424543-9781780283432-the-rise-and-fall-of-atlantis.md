@@ -1,7 +1,7 @@
 ---
 title: The Rise and Fall of Atlantis | Free Book
-date: 2024-10-25 13:50:18
-updated: 2024-10-26 10:45:53
+date: 2024-10-24T17:06:20.435Z
+updated: 2024-10-27T04:41:08.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/414787d94b237091acf54347aab6a91ec8f3df273ed8af2de960596304829971.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/414787d94b237091acf54347aab6a91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Biology of Transcendence (2nd ed.) | Free Book
-date: 2024-10-24 22:24:28
-updated: 2024-10-26 12:42:30
+date: 2024-10-20T02:12:50.822Z
+updated: 2024-10-26T18:03:18.750Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b168535f3fb08c0942a12f5239783ab8a802cc753b4b95325cdc2e6e5457f8d.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b168535f3fb08c0942a12f5239783a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

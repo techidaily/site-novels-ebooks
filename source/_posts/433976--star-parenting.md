@@ -1,7 +1,7 @@
 ---
 title: Star Parenting | Free Book
-date: 2024-10-23 16:30:45
-updated: 2024-10-26 12:32:37
+date: 2024-10-23T03:15:45.268Z
+updated: 2024-10-27T04:49:43.302Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/467d8d3de867ca9cfd6f6be5a4be616c210866ac65b0ee18f6d0be2f7a3d077d.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/467d8d3de867ca9cfd6f6be5a4be616
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

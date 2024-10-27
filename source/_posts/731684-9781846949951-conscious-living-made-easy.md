@@ -1,7 +1,7 @@
 ---
 title: Conscious Living Made Easy | Free Book
-date: 2024-10-25 11:52:50
-updated: 2024-10-26 11:30:50
+date: 2024-10-22T00:27:26.730Z
+updated: 2024-10-26T22:26:44.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b61dacab3b21d222387aebcee2ab3c0a51c14cc33e3e1831b71d9e0e70db551c.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b61dacab3b21d222387aebcee2ab3c0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

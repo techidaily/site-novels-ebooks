@@ -1,7 +1,7 @@
 ---
 title: Open Your Heart And Write Your Vision | Free Book
-date: 2024-10-25 12:16:52
-updated: 2024-10-26 12:54:14
+date: 2024-10-21T22:27:02.741Z
+updated: 2024-10-27T05:13:16.874Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/36044553e58b798792179b05af5d66108023da138e520b749bbb2bcc682f6793.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/36044553e58b798792179b05af5d661
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

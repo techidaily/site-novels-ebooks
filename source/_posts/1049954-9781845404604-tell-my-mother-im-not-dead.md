@@ -1,7 +1,7 @@
 ---
 title: Tell My Mother I'm Not Dead | Free Book
-date: 2024-10-23 19:50:10
-updated: 2024-10-26 10:10:49
+date: 2024-10-20T16:03:46.782Z
+updated: 2024-10-27T05:44:57.345Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/258a125bd07d43dcfa03d325a575a464a9b5de3e87f2b0ae3c7762705d00b324.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/258a125bd07d43dcfa03d325a575a46
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

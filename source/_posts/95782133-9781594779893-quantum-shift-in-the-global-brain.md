@@ -1,7 +1,7 @@
 ---
 title: Quantum Shift in the Global Brain | Free Book
-date: 2024-10-23 14:14:58
-updated: 2024-10-26 10:30:18
+date: 2024-10-22T18:19:07.876Z
+updated: 2024-10-27T05:54:56.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b162026a741d8f3bd489e94fd98ec311105380f976908ad168297899e702b406.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b162026a741d8f3bd489e94fd98ec31
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

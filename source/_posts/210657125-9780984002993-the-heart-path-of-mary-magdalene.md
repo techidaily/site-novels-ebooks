@@ -1,7 +1,7 @@
 ---
 title: The Heart Path of Mary Magdalene | Free Book
-date: 2024-10-24 14:39:46
-updated: 2024-10-26 12:32:52
+date: 2024-10-19T21:17:58.498Z
+updated: 2024-10-27T02:55:03.454Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f2e37a41fdda3916cf18cfcaa34c8b8895e18a15e9f4c47fce83d56d4a648c1.jpg
@@ -207,3 +207,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f2e37a41fdda3916cf18cfcaa34c8b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

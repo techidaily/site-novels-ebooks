@@ -1,7 +1,7 @@
 ---
 title: Taming the Tiger Within | Free Book
-date: 2024-10-23 19:34:13
-updated: 2024-10-26 12:13:29
+date: 2024-10-23T05:44:03.416Z
+updated: 2024-10-27T02:28:11.213Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce53691af74b8a61b0bb5bb6e463ef7e7a0571bb52b66ecec0a6b137a2d354df.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce53691af74b8a61b0bb5bb6e463ef7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Your Subconscious Mind | Free Book
-date: 2024-10-24 11:23:58
-updated: 2024-10-26 11:53:22
+date: 2024-10-20T22:41:15.515Z
+updated: 2024-10-26T17:29:59.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad4cc52d61f62352fa26482a74515561b3495c1461b0245c31f7a7f65dcf0a69.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad4cc52d61f62352fa26482a7451556
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

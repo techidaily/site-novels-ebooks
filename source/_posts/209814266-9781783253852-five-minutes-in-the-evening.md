@@ -1,7 +1,7 @@
 ---
 title: Five Minutes in the Evening | Free Book
-date: 2024-10-24 20:34:43
-updated: 2024-10-26 11:28:47
+date: 2024-10-20T04:43:54.851Z
+updated: 2024-10-26T21:24:40.420Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d6c4fa551334f0c16505faa1d7f50aac8ff78835e95375ab977436e7a71476f.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d6c4fa551334f0c16505faa1d7f50a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Curses and Maledictions for Everyday Use | Free Book
-date: 2024-10-25 10:17:23
-updated: 2024-10-26 11:11:59
+date: 2024-10-24T19:39:36.336Z
+updated: 2024-10-26T19:53:47.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9366487d10c672e3ce6c39b85485dc51bb41e76421d98e8464175207a4ce251.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9366487d10c672e3ce6c39b85485dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

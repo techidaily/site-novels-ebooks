@@ -1,7 +1,7 @@
 ---
 title: Letting Go of the Person You Used to Be | Free Book
-date: 2024-10-24 18:21:55
-updated: 2024-10-26 11:58:32
+date: 2024-10-25T22:11:50.309Z
+updated: 2024-10-27T02:39:57.931Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14c107def53b9e2816109a8d3b92cc690940978f1581b76034a8d28e12aa0fb0.jpg
@@ -217,3 +217,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14c107def53b9e2816109a8d3b92cc6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

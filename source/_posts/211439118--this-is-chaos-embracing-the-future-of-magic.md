@@ -1,7 +1,7 @@
 ---
 title: "This Is Chaos: Embracing the Future of Magic | Free Book"
-date: 2024-10-25 16:31:27
-updated: 2024-10-26 12:25:36
+date: 2024-10-25T18:49:03.285Z
+updated: 2024-10-27T04:33:22.638Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4c0a376e6db51ace011acd52de76b1ac1967fbd34c4e51a0e3b1f1df53aaa8da.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4c0a376e6db51ace011acd52de76b1a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

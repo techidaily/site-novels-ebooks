@@ -1,7 +1,7 @@
 ---
 title: DECODING THE LAWS OF THE UNIVERSE | Free Book
-date: 2024-10-24 10:37:50
-updated: 2024-10-26 11:25:40
+date: 2024-10-24T03:08:53.934Z
+updated: 2024-10-26T23:19:33.745Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/089a210d24cb80baa0646a6bb00d0709e3205597df19a27194c4d30a5deab76a.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/089a210d24cb80baa0646a6bb00d070
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

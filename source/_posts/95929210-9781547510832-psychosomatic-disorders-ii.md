@@ -1,7 +1,7 @@
 ---
 title: Psychosomatic Disorders II | Free Book
-date: 2024-10-23 16:43:48
-updated: 2024-10-26 11:17:40
+date: 2024-10-22T05:23:47.251Z
+updated: 2024-10-27T01:58:41.286Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7be11bf8d14854ddafc391e3e2e15f069aca18b8ba2b2d0905c2c6685b8776d4.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7be11bf8d14854ddafc391e3e2e15f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

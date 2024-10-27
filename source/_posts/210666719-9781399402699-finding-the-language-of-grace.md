@@ -1,7 +1,7 @@
 ---
 title: Finding the Language of Grace | Free Book
-date: 2024-10-25 15:57:12
-updated: 2024-10-26 10:46:44
+date: 2024-10-20T16:56:46.398Z
+updated: 2024-10-27T02:31:17.776Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a225af572b39f5669c29192d13dbecc264071d002086ae074d32007d156e4dfd.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a225af572b39f5669c29192d13dbecc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

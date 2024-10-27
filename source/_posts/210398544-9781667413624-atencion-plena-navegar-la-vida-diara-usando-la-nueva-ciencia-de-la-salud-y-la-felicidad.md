@@ -1,7 +1,7 @@
 ---
 title: "Atención plena: Navegar la vida diara usando la nueva ciencia de la salud y la felicidad | Free Book"
-date: 2024-10-25 11:17:37
-updated: 2024-10-26 11:15:51
+date: 2024-10-22T17:55:27.541Z
+updated: 2024-10-26T17:49:02.964Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3c05068b598584b668c8c168eec9e50d9914dc765daf7f75f8e983293e279d2.jpg
@@ -121,3 +121,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3c05068b598584b668c8c168eec9e5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

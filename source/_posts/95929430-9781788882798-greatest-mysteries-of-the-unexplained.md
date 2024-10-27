@@ -1,7 +1,7 @@
 ---
 title: Greatest Mysteries of the Unexplained | Free Book
-date: 2024-10-24 22:39:29
-updated: 2024-10-26 12:22:39
+date: 2024-10-22T17:00:49.121Z
+updated: 2024-10-26T20:13:47.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66efd94db16d33ca5c4e60d2f575b5fd1f3f903124b7e8eff2e9548e4381f74a.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66efd94db16d33ca5c4e60d2f575b5f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

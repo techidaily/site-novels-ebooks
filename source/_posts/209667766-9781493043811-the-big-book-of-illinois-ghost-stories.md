@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Illinois Ghost Stories | Free Book
-date: 2024-10-25 10:42:11
-updated: 2024-10-26 12:58:45
+date: 2024-10-20T05:44:45.325Z
+updated: 2024-10-26T19:54:52.031Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8498291ea620c2ba83620261d6458fb067aba02ce95e7f19e00c4a14f7459fe.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8498291ea620c2ba83620261d6458f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

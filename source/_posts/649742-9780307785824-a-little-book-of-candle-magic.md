@@ -1,7 +1,7 @@
 ---
 title: A Little Book of Candle Magic | Free Book
-date: 2024-10-23 12:29:30
-updated: 2024-10-26 10:42:22
+date: 2024-10-19T19:28:05.967Z
+updated: 2024-10-27T00:17:25.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16545c07c3776f2d94276d319382f93bff4e916a78796958edcae3c289ca0ff8.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16545c07c3776f2d94276d319382f93
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

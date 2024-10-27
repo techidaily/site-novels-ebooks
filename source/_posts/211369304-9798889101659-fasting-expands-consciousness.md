@@ -1,7 +1,7 @@
 ---
 title: Fasting Expands Consciousness | Free Book
-date: 2024-10-24 16:33:50
-updated: 2024-10-26 12:18:52
+date: 2024-10-26T01:39:13.608Z
+updated: 2024-10-26T16:25:40.314Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/edb2c5a22673611fa2e60c8d6d637f96f8cc80b2cd89427d6cf4b2cf0fd3ea50.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/edb2c5a22673611fa2e60c8d6d637f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

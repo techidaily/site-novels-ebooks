@@ -1,7 +1,7 @@
 ---
 title: The Mercury Retrograde Book | Free Book
-date: 2024-10-24 11:56:45
-updated: 2024-10-26 12:50:12
+date: 2024-10-20T04:35:45.848Z
+updated: 2024-10-26T19:54:05.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ed38179403fdbc1e52496edcab331dc63ceaef7d320527079af535cc8be49e40.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ed38179403fdbc1e52496edcab331dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

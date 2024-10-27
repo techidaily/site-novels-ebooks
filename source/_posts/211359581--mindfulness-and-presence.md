@@ -1,7 +1,7 @@
 ---
 title: Mindfulness and Presence | Free Book
-date: 2024-10-23 11:43:57
-updated: 2024-10-26 11:14:10
+date: 2024-10-25T20:59:54.372Z
+updated: 2024-10-26T21:42:12.627Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2486e0ddc0c4c3e4e93e96f06b746605639b9a57610dd65d16b70a6589d38602.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2486e0ddc0c4c3e4e93e96f06b74660
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

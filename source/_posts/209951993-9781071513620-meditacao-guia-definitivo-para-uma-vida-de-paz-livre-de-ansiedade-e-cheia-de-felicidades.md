@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Guia Definitivo Para Uma Vida De Paz, Livre De Ansiedade E Cheia De Felicidades | Free Book"
-date: 2024-10-25 22:38:37
-updated: 2024-10-26 11:15:40
+date: 2024-10-23T16:17:04.980Z
+updated: 2024-10-27T05:48:51.371Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ff461aeeef8efc640e5a801f8c8c032eca3d73329335d8f0d6003d0d17a91f0.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ff461aeeef8efc640e5a801f8c8c03
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

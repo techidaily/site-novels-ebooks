@@ -1,7 +1,7 @@
 ---
 title: Stanislav Grof, LSD Pioneer | Free Book
-date: 2024-10-23 12:26:12
-updated: 2024-10-26 10:53:13
+date: 2024-10-23T19:00:26.597Z
+updated: 2024-10-27T05:31:10.015Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aba73bd10bbbc177669ccdcca88a6e2756987a66245259205127a52885acc113.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aba73bd10bbbc177669ccdcca88a6e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

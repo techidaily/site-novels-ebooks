@@ -1,7 +1,7 @@
 ---
 title: American Metaphysical Religion | Free Book
-date: 2024-10-25 10:39:20
-updated: 2024-10-26 10:59:47
+date: 2024-10-22T19:08:18.691Z
+updated: 2024-10-27T04:26:17.853Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/149ee52e83d210a5cfcb23ce5a864e6cda593dfcdaad56204bb2ffe640ac253e.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/149ee52e83d210a5cfcb23ce5a864e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: FOUR CITADELS & THE KEY OF TWELVE | Free Book
-date: 2024-10-24 10:42:15
-updated: 2024-10-26 12:11:12
+date: 2024-10-25T21:50:55.813Z
+updated: 2024-10-27T01:33:30.220Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34133b6f51a7df9b18f0ab7e1aa012f789848072bd3927767c281ed79ad5e756.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34133b6f51a7df9b18f0ab7e1aa012f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

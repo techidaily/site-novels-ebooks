@@ -1,7 +1,7 @@
 ---
 title: Awakening Higher Consciousness | Free Book
-date: 2024-10-24 22:21:55
-updated: 2024-10-26 12:27:52
+date: 2024-10-25T01:53:44.411Z
+updated: 2024-10-26T17:38:39.797Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80782940df92f8305e5371b6af290f21e806b1f50c779283f068150da0e7fe73.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80782940df92f8305e5371b6af290f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

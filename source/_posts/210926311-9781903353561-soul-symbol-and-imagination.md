@@ -1,7 +1,7 @@
 ---
 title: Soul, Symbol and Imagination | Free Book
-date: 2024-10-24 20:29:54
-updated: 2024-10-26 10:29:17
+date: 2024-10-21T16:20:13.603Z
+updated: 2024-10-26T19:42:22.387Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c2bc4a5de97669b72c89980f52e38e15f6b998ba3ef63aa293d8ccd617db247.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c2bc4a5de97669b72c89980f52e38e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

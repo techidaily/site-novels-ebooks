@@ -1,7 +1,7 @@
 ---
 title: Real Hauntings 4-Book Bundle | Free Book
-date: 2024-10-23 10:50:12
-updated: 2024-10-26 12:52:29
+date: 2024-10-24T20:04:53.578Z
+updated: 2024-10-27T02:46:34.479Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c4566f5e7e8821dbf87c654e764413ae9c089629478405934f1a3aa2779380a.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c4566f5e7e8821dbf87c654e764413
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Capricorn | Free Book"
-date: 2024-10-23 22:39:31
-updated: 2024-10-26 12:48:11
+date: 2024-10-20T00:17:10.773Z
+updated: 2024-10-26T18:26:01.672Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff0b061ace44d772852b1c8a71956cfd85cf6452e90237c20f584b083df9281a.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff0b061ace44d772852b1c8a71956cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

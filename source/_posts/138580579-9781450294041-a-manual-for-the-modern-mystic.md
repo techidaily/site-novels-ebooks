@@ -1,7 +1,7 @@
 ---
 title: A Manual for the Modern Mystic | Free Book
-date: 2024-10-23 17:26:30
-updated: 2024-10-26 11:42:31
+date: 2024-10-21T23:38:41.620Z
+updated: 2024-10-26T23:00:34.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49d2f280d1c743a3c8d459b24bb2dda944465be4673c11387e05c6f508c3d887.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49d2f280d1c743a3c8d459b24bb2dda
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

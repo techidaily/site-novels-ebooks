@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Numerology | Free Book
-date: 2024-10-24 21:17:31
-updated: 2024-10-26 12:36:33
+date: 2024-10-23T18:31:05.810Z
+updated: 2024-10-26T17:37:29.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db89c1d9a9d1aae5e7a861ef9d5e75ea044b549276cd658cf4af326f5b7f5881.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db89c1d9a9d1aae5e7a861ef9d5e75e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Les combinaisons entre les arcanes majeurs et mineurs | Free Book
-date: 2024-10-24 21:19:50
-updated: 2024-10-26 11:39:30
+date: 2024-10-22T22:42:44.448Z
+updated: 2024-10-27T04:59:03.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/25d3563c4391b8e0b0599f8ee4894958e33306e264d332413a5f0773934abd7d.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25d3563c4391b8e0b0599f8ee489495
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

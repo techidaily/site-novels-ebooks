@@ -1,7 +1,7 @@
 ---
 title: DECODING THE DOLPHIN'S BREATH | Free Book
-date: 2024-10-23 17:15:27
-updated: 2024-10-26 12:35:24
+date: 2024-10-24T18:54:38.839Z
+updated: 2024-10-27T04:26:59.027Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e6a7fe287baaeb0fbe0a1d7e11260147d43981f84247bdb6f8837ce3db024f6.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e6a7fe287baaeb0fbe0a1d7e112601
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

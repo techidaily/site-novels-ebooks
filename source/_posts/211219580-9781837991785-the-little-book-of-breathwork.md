@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Breathwork | Free Book
-date: 2024-10-25 11:10:31
-updated: 2024-10-26 10:54:49
+date: 2024-10-24T21:05:46.422Z
+updated: 2024-10-27T01:49:59.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58020d9a1b45acace7e8137f504578a1eebc4f8238bcc3b52cf95fc3dd44cd8.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58020d9a1b45acace7e8137f504578
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

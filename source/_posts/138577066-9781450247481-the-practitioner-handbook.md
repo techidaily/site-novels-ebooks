@@ -1,7 +1,7 @@
 ---
 title: The Practitioner Handbook | Free Book
-date: 2024-10-23 15:56:21
-updated: 2024-10-26 12:57:13
+date: 2024-10-23T20:29:22.828Z
+updated: 2024-10-27T02:22:31.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/81bdfc86afa2e1c004eb41e8527ce843c31ce35eae8aecb043b9ea8d74d21813.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/81bdfc86afa2e1c004eb41e8527ce84
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

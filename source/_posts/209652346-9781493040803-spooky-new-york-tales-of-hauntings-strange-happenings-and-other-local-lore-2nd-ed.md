@@ -1,7 +1,7 @@
 ---
 title: "Spooky New York: Tales Of Hauntings, Strange Happenings, And Other Local Lore (2nd ed.) | Free Book"
-date: 2024-10-24 16:58:14
-updated: 2024-10-26 10:14:24
+date: 2024-10-25T05:36:46.822Z
+updated: 2024-10-26T21:43:55.871Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c29b881c9bcd25e35f3fd38863b50d998cc407b08b1c51189b57e0b68ee22b9d.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c29b881c9bcd25e35f3fd38863b50d9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Creative Mind and Success | Free Book
-date: 2024-10-24 20:50:26
-updated: 2024-10-26 12:23:48
+date: 2024-10-21T19:35:24.777Z
+updated: 2024-10-26T22:44:07.996Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fd256d9cb4f6184c1ce101a817613e3ae41d9d448b8e1f141751d57a989642c.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fd256d9cb4f6184c1ce101a817613e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

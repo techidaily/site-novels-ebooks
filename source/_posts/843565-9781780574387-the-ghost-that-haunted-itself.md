@@ -1,7 +1,7 @@
 ---
 title: The Ghost That Haunted Itself | Free Book
-date: 2024-10-25 16:12:44
-updated: 2024-10-26 12:25:16
+date: 2024-10-21T21:01:10.649Z
+updated: 2024-10-26T22:29:26.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1bbeadc7fc4c7dfd6e95f5301a3efa70760c50f233a7b287d0e523d1a80cfa5c.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1bbeadc7fc4c7dfd6e95f5301a3efa7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

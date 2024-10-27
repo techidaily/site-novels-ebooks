@@ -1,7 +1,7 @@
 ---
 title: "Atención plena: El arte de la atención plena Aprenda a aquietar la mente | Free Book"
-date: 2024-10-25 15:14:54
-updated: 2024-10-26 10:50:55
+date: 2024-10-26T05:08:08.170Z
+updated: 2024-10-27T02:56:40.751Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7318a8959f5c56fda7b7ad1dfd9b76eaf07f6a211c1bb8ce2eb58324b513b9af.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7318a8959f5c56fda7b7ad1dfd9b76e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

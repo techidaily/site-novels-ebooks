@@ -1,7 +1,7 @@
 ---
 title: Summary of Sophie Bashford's You Are a Goddess | Free Book
-date: 2024-10-25 22:11:19
-updated: 2024-10-26 12:57:32
+date: 2024-10-21T03:44:53.019Z
+updated: 2024-10-27T05:25:37.172Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ddd10f84929f4c64fe2d52d82d3766d7e6b62512dbe648400d41a1506b25a09.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ddd10f84929f4c64fe2d52d82d3766
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

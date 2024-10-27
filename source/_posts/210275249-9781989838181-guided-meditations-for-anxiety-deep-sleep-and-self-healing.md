@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations for Anxiety, Deep Sleep, and Self Healing | Free Book
-date: 2024-10-23 23:25:41
-updated: 2024-10-26 12:21:36
+date: 2024-10-25T23:25:36.999Z
+updated: 2024-10-26T23:15:45.532Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4da1f141bc5b5981336b444d4ec8bc52c08df387ddbfabaf3470555b2d7cc7f0.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4da1f141bc5b5981336b444d4ec8bc5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

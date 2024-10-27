@@ -1,7 +1,7 @@
 ---
 title: Entre en... el mundo secreto de los tarots | Free Book
-date: 2024-10-24 14:30:28
-updated: 2024-10-26 12:38:49
+date: 2024-10-20T17:08:41.312Z
+updated: 2024-10-26T23:40:37.680Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5515e876e572c60a81ac48060aa40a8873eed472d03cb154f1d6f64560319b8e.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5515e876e572c60a81ac48060aa40a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

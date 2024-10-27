@@ -1,7 +1,7 @@
 ---
 title: Astrologie initiatique et pratique | Free Book
-date: 2024-10-25 13:46:42
-updated: 2024-10-26 11:33:23
+date: 2024-10-22T19:26:22.813Z
+updated: 2024-10-26T23:21:41.475Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/baad2a6898579d22b314a48c702365fa65f786993ca895f7c3dd760e23406e4e.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/baad2a6898579d22b314a48c702365f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

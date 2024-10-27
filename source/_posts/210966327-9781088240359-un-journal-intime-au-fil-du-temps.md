@@ -1,7 +1,7 @@
 ---
 title: UN JOURNAL INTIME AU FIL DU TEMPS | Free Book
-date: 2024-10-23 14:18:31
-updated: 2024-10-26 11:38:34
+date: 2024-10-20T17:54:34.781Z
+updated: 2024-10-27T00:09:14.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3646e5a2ee1d9a141cb88fc055ef30a52a4a204465bb0b61b20ff06a9809448f.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3646e5a2ee1d9a141cb88fc055ef30a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

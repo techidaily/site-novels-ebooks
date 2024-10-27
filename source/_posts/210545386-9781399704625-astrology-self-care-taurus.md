@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Taurus | Free Book"
-date: 2024-10-23 22:12:32
-updated: 2024-10-26 10:12:33
+date: 2024-10-21T04:57:56.786Z
+updated: 2024-10-26T16:47:47.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d41c93f6407b6b2283313312cc9a6ab0c594e9e132e05c244f527910137ea74f.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d41c93f6407b6b2283313312cc9a6ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

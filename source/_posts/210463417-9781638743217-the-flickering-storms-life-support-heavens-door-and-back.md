@@ -1,7 +1,7 @@
 ---
 title: The Flickering Storms, Life Support, Heaven's Door and Back | Free Book
-date: 2024-10-24 19:33:59
-updated: 2024-10-26 11:27:13
+date: 2024-10-26T04:32:01.355Z
+updated: 2024-10-26T16:00:14.879Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/267fa19bc1668c0e476aaa5696c92e213cd259330883f69797c7c241f6c3c978.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/267fa19bc1668c0e476aaa5696c92e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

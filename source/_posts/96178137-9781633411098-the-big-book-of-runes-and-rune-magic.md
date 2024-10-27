@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Runes and Rune Magic | Free Book
-date: 2024-10-23 22:12:41
-updated: 2024-10-26 10:39:25
+date: 2024-10-20T00:40:38.599Z
+updated: 2024-10-26T18:33:31.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12f69e05bee19e8849c82d53715d23bc16c6ee69935409c7f509829b2f4a2d87.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12f69e05bee19e8849c82d53715d23b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

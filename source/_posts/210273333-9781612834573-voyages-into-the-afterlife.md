@@ -1,7 +1,7 @@
 ---
 title: Voyages into the Afterlife | Free Book
-date: 2024-10-25 11:42:15
-updated: 2024-10-26 10:56:40
+date: 2024-10-26T00:42:23.173Z
+updated: 2024-10-26T19:32:10.954Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4b7d456ca7965df1f6ce957c253ebd11f94dc67c3eace211539f9b27064f13c.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4b7d456ca7965df1f6ce957c253ebd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

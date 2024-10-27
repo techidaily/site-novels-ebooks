@@ -1,7 +1,7 @@
 ---
 title: "L’intuizione: la guida dell’anima | Free Book"
-date: 2024-10-23 18:29:51
-updated: 2024-10-26 12:43:13
+date: 2024-10-23T01:53:24.150Z
+updated: 2024-10-26T20:41:46.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aabf5c0856ad49e127940967fdbc4ddc144c4778cb87a6faba4b876704c23d6f.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aabf5c0856ad49e127940967fdbc4dd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

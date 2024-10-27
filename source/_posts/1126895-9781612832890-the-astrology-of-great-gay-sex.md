@@ -1,7 +1,7 @@
 ---
 title: The Astrology of Great Gay Sex | Free Book
-date: 2024-10-25 10:22:46
-updated: 2024-10-26 10:49:18
+date: 2024-10-23T02:52:46.886Z
+updated: 2024-10-26T20:10:36.486Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1782277391a0c2f33e0f1052112c7ffd32fd83da9df79dde591ee5f6e3552670.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1782277391a0c2f33e0f1052112c7ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Consejos para ser resiliente en Momentos de Estrés: | Free Book"
-date: 2024-10-23 15:46:35
-updated: 2024-10-26 11:24:51
+date: 2024-10-24T01:52:48.753Z
+updated: 2024-10-26T18:56:20.697Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2daab226b5547bc08af3f22a0cfab47f5c87c0eae7f36b7aee050d71e04f721f.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2daab226b5547bc08af3f22a0cfab47
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

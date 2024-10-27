@@ -1,7 +1,7 @@
 ---
 title: The ACT Practitioner's Guide to the Science of Compassion | Free Book
-date: 2024-10-25 15:26:29
-updated: 2024-10-26 12:20:18
+date: 2024-10-24T02:38:51.690Z
+updated: 2024-10-26T18:23:26.733Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42f39cff95ffabc51186b39adf4072bf0c78b011944259240f7613941c4d87be.jpg
@@ -236,3 +236,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42f39cff95ffabc51186b39adf4072b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

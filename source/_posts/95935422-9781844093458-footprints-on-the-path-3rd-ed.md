@@ -1,7 +1,7 @@
 ---
 title: Footprints on the Path (3rd ed.) | Free Book
-date: 2024-10-23 14:38:17
-updated: 2024-10-26 12:19:25
+date: 2024-10-24T03:42:22.603Z
+updated: 2024-10-27T01:38:34.862Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85382bd4434a8824b65a7e700981eb5cf44f73be480589d8f709c56d9e21f014.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85382bd4434a8824b65a7e700981eb5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

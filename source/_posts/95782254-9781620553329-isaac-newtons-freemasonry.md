@@ -1,7 +1,7 @@
 ---
 title: Isaac Newton's Freemasonry | Free Book
-date: 2024-10-25 19:57:10
-updated: 2024-10-26 11:37:25
+date: 2024-10-23T04:00:33.507Z
+updated: 2024-10-27T04:15:30.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28cd2044ca0d45a18cd7835ff084d8199e9e20cf60043b563885ae72e5957ee9.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28cd2044ca0d45a18cd7835ff084d81
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: 작전 테라 (새로운 지구) | Free Book
-date: 2024-10-25 13:29:19
-updated: 2024-10-26 10:31:12
+date: 2024-10-25T22:16:25.553Z
+updated: 2024-10-27T05:43:24.962Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b740c7f5cbe7bd6af2d98db89df0d96301291321b6deed95610aff75c6a3d272.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b740c7f5cbe7bd6af2d98db89df0d96
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

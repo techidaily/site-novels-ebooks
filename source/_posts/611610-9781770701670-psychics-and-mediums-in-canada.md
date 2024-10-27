@@ -1,7 +1,7 @@
 ---
 title: Psychics and Mediums in Canada | Free Book
-date: 2024-10-25 16:11:41
-updated: 2024-10-26 11:22:46
+date: 2024-10-22T16:42:51.610Z
+updated: 2024-10-26T16:52:04.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/130e5a9a1884dc01283cf1300de3a24579823a36ee108b2c05db9fac1b8f13d2.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/130e5a9a1884dc01283cf1300de3a24
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

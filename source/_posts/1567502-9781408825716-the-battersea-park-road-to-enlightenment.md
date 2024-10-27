@@ -1,7 +1,7 @@
 ---
 title: The Battersea Park Road to Enlightenment | Free Book
-date: 2024-10-24 15:44:57
-updated: 2024-10-26 10:55:21
+date: 2024-10-26T03:31:40.409Z
+updated: 2024-10-27T05:31:43.731Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9680cdaaef1056877ba8f169924a1afc5d21170d10c68e274505c39e56307e3a.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9680cdaaef1056877ba8f169924a1af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

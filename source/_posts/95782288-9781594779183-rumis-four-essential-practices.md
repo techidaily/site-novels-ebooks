@@ -1,7 +1,7 @@
 ---
 title: Rumi's Four Essential Practices | Free Book
-date: 2024-10-24 20:42:58
-updated: 2024-10-26 10:14:55
+date: 2024-10-21T22:48:40.261Z
+updated: 2024-10-27T04:59:25.915Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b8ff2ac5b94f866044a83084cc6f72f55e173e197dc5fdadc74b092c91332fd.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b8ff2ac5b94f866044a83084cc6f72
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

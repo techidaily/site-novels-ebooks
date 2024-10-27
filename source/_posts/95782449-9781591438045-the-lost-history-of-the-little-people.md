@@ -1,7 +1,7 @@
 ---
 title: The Lost History of the Little People | Free Book
-date: 2024-10-23 18:23:12
-updated: 2024-10-26 11:13:58
+date: 2024-10-20T20:08:08.129Z
+updated: 2024-10-27T02:11:25.609Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91ed5c84991c6bbaa6e8daee5d0ff703ca84bb537a43c9df858210777535c418.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91ed5c84991c6bbaa6e8daee5d0ff70
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

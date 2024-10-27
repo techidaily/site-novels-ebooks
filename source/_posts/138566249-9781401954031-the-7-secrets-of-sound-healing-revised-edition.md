@@ -1,7 +1,7 @@
 ---
 title: The 7 Secrets of Sound Healing Revised Edition | Free Book
-date: 2024-10-25 12:55:39
-updated: 2024-10-26 11:13:28
+date: 2024-10-25T17:38:17.547Z
+updated: 2024-10-27T04:58:31.852Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00b656a6ceec25dd8619d2ccb0ee305b24d1d2d3fc97c9f0d05a1cef918900d5.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00b656a6ceec25dd8619d2ccb0ee305
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

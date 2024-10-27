@@ -1,7 +1,7 @@
 ---
 title: Advanced Civilizations of Prehistoric America | Free Book
-date: 2024-10-23 21:40:52
-updated: 2024-10-26 12:44:47
+date: 2024-10-23T04:06:04.579Z
+updated: 2024-10-26T22:45:19.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a28e9c957a97afdada47c17d64ea8991827e2940cff5611ad625b8c977596b8.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a28e9c957a97afdada47c17d64ea89
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

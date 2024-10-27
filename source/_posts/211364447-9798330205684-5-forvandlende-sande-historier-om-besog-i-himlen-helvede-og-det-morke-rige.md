@@ -1,7 +1,7 @@
 ---
 title: 5 forvandlende sande historier om besøg i himlen, helvede og det mørke rige | Free Book
-date: 2024-10-25 17:26:58
-updated: 2024-10-26 10:48:45
+date: 2024-10-24T05:15:06.971Z
+updated: 2024-10-26T18:57:18.119Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07e2beedca1d54277a957943d1cccf04bb261fdd8b8be2ec35fb3edb330c9385.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07e2beedca1d54277a957943d1cccf0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

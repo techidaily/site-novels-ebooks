@@ -1,7 +1,7 @@
 ---
 title: The Displaying Of Supposed Witchcraft | Free Book
-date: 2024-10-23 16:51:18
-updated: 2024-10-26 10:25:37
+date: 2024-10-25T03:12:45.206Z
+updated: 2024-10-27T04:12:15.818Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9692e18229d4c286e22913f8efecbed699d2f114e78cad59744d8065c1b56639.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9692e18229d4c286e22913f8efecbed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

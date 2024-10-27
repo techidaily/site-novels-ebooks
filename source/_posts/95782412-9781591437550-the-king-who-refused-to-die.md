@@ -1,7 +1,7 @@
 ---
 title: The King Who Refused to Die | Free Book
-date: 2024-10-25 23:37:28
-updated: 2024-10-26 12:47:23
+date: 2024-10-19T21:35:02.737Z
+updated: 2024-10-27T03:40:39.115Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8714953bf5587bf6bb81b19f827348ae418ba0cb318d2dd67e685797c910b51f.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8714953bf5587bf6bb81b19f827348a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

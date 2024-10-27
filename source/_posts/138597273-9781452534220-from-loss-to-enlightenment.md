@@ -1,7 +1,7 @@
 ---
 title: From Loss to Enlightenment | Free Book
-date: 2024-10-23 17:33:10
-updated: 2024-10-26 11:14:52
+date: 2024-10-21T22:58:12.818Z
+updated: 2024-10-27T05:14:36.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cad82c886452b22dda8b6a413a53abe9b0630075c449e1a2202b0fd6dab12552.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cad82c886452b22dda8b6a413a53abe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

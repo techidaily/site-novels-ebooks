@@ -1,7 +1,7 @@
 ---
 title: True Irish Ghost Stories | Free Book
-date: 2024-10-25 15:54:13
-updated: 2024-10-26 11:57:21
+date: 2024-10-25T00:00:16.914Z
+updated: 2024-10-26T21:41:26.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1fa642556e7a3f96cb6b015d3b8f115e4ee0a1f58182d3f52ba6dfd9c0163f43.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1fa642556e7a3f96cb6b015d3b8f115
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

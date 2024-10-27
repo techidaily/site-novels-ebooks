@@ -1,7 +1,7 @@
 ---
 title: The Haunting of the Presidents | Free Book
-date: 2024-10-25 15:36:13
-updated: 2024-10-26 10:33:35
+date: 2024-10-25T21:16:06.033Z
+updated: 2024-10-27T04:02:40.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6810cc955f8e0baca12e3ca4112aa983bead09ba68d4d2cf258bdeb3f26733b3.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6810cc955f8e0baca12e3ca4112aa98
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Twilight and Resurrection of Humanity | Free Book
-date: 2024-10-23 14:25:52
-updated: 2024-10-26 12:53:38
+date: 2024-10-25T04:12:36.248Z
+updated: 2024-10-26T22:07:20.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bdde55bf5112885d5ad70345dd45712ac425398598e76bdc7a7c97bda0d58d6d.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bdde55bf5112885d5ad70345dd45712
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

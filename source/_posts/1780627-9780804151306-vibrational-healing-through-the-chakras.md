@@ -1,7 +1,7 @@
 ---
 title: Vibrational Healing Through the Chakras | Free Book
-date: 2024-10-24 12:13:57
-updated: 2024-10-26 11:12:57
+date: 2024-10-19T20:05:12.335Z
+updated: 2024-10-26T19:18:21.724Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9492571f17ac07595ae263ecab77be6107aa6280ee6991b36f3f095f2fd50bd.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9492571f17ac07595ae263ecab77be
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

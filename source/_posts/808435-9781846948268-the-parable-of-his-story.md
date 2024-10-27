@@ -1,7 +1,7 @@
 ---
 title: The Parable of His-Story | Free Book
-date: 2024-10-25 20:46:36
-updated: 2024-10-26 10:55:11
+date: 2024-10-21T01:37:42.024Z
+updated: 2024-10-26T19:25:50.848Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/186861b7ed3cca69711556e179f32cb9fd5f9ea152fd9e5e8c235328e0b9bcee.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/186861b7ed3cca69711556e179f32cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

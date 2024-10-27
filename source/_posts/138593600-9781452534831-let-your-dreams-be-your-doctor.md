@@ -1,7 +1,7 @@
 ---
 title: Let Your Dreams Be Your Doctor | Free Book
-date: 2024-10-25 15:25:31
-updated: 2024-10-26 11:40:45
+date: 2024-10-20T03:52:27.798Z
+updated: 2024-10-27T05:54:13.998Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/967998b9a31e38229bf9b9c3fa0ef90d6fa2bd30c84e6120a8a6442489b4a5f0.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/967998b9a31e38229bf9b9c3fa0ef90
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

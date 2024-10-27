@@ -1,7 +1,7 @@
 ---
 title: Enciende el poder del fuego puro dentro de ti - Manual del bautismo del Espíritu Santo | Free Book
-date: 2024-10-24 10:49:46
-updated: 2024-10-26 11:45:22
+date: 2024-10-21T17:49:27.347Z
+updated: 2024-10-26T16:11:05.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3b974b77bac6d22527c389ee1218e7f0395a2e5fddcc6685f903fe763f83b02.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3b974b77bac6d22527c389ee1218e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

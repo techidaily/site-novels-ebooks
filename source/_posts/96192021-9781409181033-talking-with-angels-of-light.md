@@ -1,7 +1,7 @@
 ---
 title: Talking with Angels of Light | Free Book
-date: 2024-10-24 13:14:15
-updated: 2024-10-26 10:36:56
+date: 2024-10-24T19:59:15.225Z
+updated: 2024-10-26T18:45:43.318Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e60b9c4618d18809caf72e3a4e5cc6047b70a5a7628ef9aa4e1a3d02e86da74d.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e60b9c4618d18809caf72e3a4e5cc60
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

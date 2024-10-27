@@ -1,7 +1,7 @@
 ---
 title: Brilliant Minds in Captivity | Free Book
-date: 2024-10-25 20:48:18
-updated: 2024-10-26 12:23:14
+date: 2024-10-25T18:58:50.709Z
+updated: 2024-10-26T23:39:18.534Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92006ae3fa8bebde08cb47ad96e898c41da78fa7ab3b65f802dd6694c90c77ad.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92006ae3fa8bebde08cb47ad96e898c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Gateway to the Modern Crone | Free Book
-date: 2024-10-24 12:15:40
-updated: 2024-10-26 10:56:20
+date: 2024-10-24T04:45:28.110Z
+updated: 2024-10-26T20:21:33.864Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d95439efd43b61137e3c5f7d0976b2c4c2e92005b6f80f8fbf1f353fb8f6c28.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d95439efd43b61137e3c5f7d0976b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

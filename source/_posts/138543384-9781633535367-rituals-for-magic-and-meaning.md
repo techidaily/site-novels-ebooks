@@ -1,7 +1,7 @@
 ---
 title: Rituals for Magic and Meaning | Free Book
-date: 2024-10-24 11:17:14
-updated: 2024-10-26 10:54:16
+date: 2024-10-19T18:17:52.085Z
+updated: 2024-10-26T23:02:27.399Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9dd044686952aef1774a55e36da45c62dd001c540d25935af17ed8f67686d672.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9dd044686952aef1774a55e36da45c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

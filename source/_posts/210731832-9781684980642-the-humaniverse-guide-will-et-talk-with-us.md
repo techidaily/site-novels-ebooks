@@ -1,7 +1,7 @@
 ---
 title: "The Humaniverse Guide: Will ET Talk with Us? | Free Book"
-date: 2024-10-25 20:42:49
-updated: 2024-10-26 11:33:37
+date: 2024-10-25T17:20:30.022Z
+updated: 2024-10-27T04:13:15.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc022c5be2a16f38ef9fe328116b232780819c857fbafb4cffdc9baaef91b647.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc022c5be2a16f38ef9fe328116b232
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

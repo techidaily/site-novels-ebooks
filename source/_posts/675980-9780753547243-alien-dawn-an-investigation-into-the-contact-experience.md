@@ -1,7 +1,7 @@
 ---
 title: "Alien Dawn: An Investigation into the Contact Experience | Free Book"
-date: 2024-10-24 22:54:46
-updated: 2024-10-26 12:49:31
+date: 2024-10-25T02:16:44.406Z
+updated: 2024-10-26T19:11:49.415Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1083e2d94328827883cb8e12e805461ee208c0215aea99d199c9c2b75e445919.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1083e2d94328827883cb8e12e805461
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

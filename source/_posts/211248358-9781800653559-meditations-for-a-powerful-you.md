@@ -1,7 +1,7 @@
 ---
 title: Meditations for a Powerful You | Free Book
-date: 2024-10-24 15:30:47
-updated: 2024-10-26 10:18:18
+date: 2024-10-23T21:45:16.657Z
+updated: 2024-10-26T18:35:54.746Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b70439dfd2c3b4baad400322dc3bbe6947588752d5cb77d486fcd027d6252123.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b70439dfd2c3b4baad400322dc3bbe6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

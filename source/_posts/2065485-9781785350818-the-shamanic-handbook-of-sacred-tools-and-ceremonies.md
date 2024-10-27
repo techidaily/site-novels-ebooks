@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Handbook of Sacred Tools and Ceremonies | Free Book
-date: 2024-10-24 10:30:35
-updated: 2024-10-26 12:17:20
+date: 2024-10-20T21:36:36.400Z
+updated: 2024-10-26T20:22:03.989Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/508ee5772a4d74eb78fb9b9d4ac31ef8baa14f9ff9aca4efc7282595e8aba840.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/508ee5772a4d74eb78fb9b9d4ac31ef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

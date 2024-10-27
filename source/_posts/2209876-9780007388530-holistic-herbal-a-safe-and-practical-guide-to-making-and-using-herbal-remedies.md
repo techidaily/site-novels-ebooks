@@ -1,7 +1,7 @@
 ---
 title: "Holistic Herbal: A Safe and Practical Guide to Making and Using Herbal Remedies | Free Book"
-date: 2024-10-23 12:40:31
-updated: 2024-10-26 11:45:36
+date: 2024-10-26T04:54:25.414Z
+updated: 2024-10-27T04:35:35.766Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f426f6af09bccf3d92d803350910b57085474bc6c8514aa5f0c011933533ded.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f426f6af09bccf3d92d803350910b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

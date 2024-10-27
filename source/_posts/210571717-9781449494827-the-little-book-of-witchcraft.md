@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Witchcraft | Free Book
-date: 2024-10-24 11:58:52
-updated: 2024-10-26 12:59:26
+date: 2024-10-25T23:54:40.686Z
+updated: 2024-10-26T19:20:14.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d060bb669f4f29b3eecfcb879cd675f1ab9095f6a2a5875f54a91bae2dc2a1f.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d060bb669f4f29b3eecfcb879cd675
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Initiation in the Aeon of the Child | Free Book
-date: 2024-10-24 10:23:46
-updated: 2024-10-26 12:46:51
+date: 2024-10-24T18:54:35.399Z
+updated: 2024-10-27T01:09:32.452Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a7f8b3d3b4ebfea1281e4c63f36ae518b733f4d2dc57c70fe8189f28ea37e5f.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a7f8b3d3b4ebfea1281e4c63f36ae5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

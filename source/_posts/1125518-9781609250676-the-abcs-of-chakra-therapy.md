@@ -1,7 +1,7 @@
 ---
 title: The ABC's of Chakra Therapy | Free Book
-date: 2024-10-25 14:45:29
-updated: 2024-10-26 11:58:50
+date: 2024-10-23T01:57:58.440Z
+updated: 2024-10-26T21:55:47.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9730fd4f53e7e96a7193048e03356e6a5a91e5befc23424d7712dcac97247b9a.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9730fd4f53e7e96a7193048e03356e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

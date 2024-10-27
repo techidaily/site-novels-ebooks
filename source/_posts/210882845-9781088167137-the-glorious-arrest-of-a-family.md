@@ -1,7 +1,7 @@
 ---
 title: THE GLORIOUS ARREST OF A FAMILY | Free Book
-date: 2024-10-24 19:53:47
-updated: 2024-10-26 11:24:42
+date: 2024-10-26T00:44:30.824Z
+updated: 2024-10-26T21:39:10.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c447dc8be1ca4989e3ecc4d1344e2a393258707899626e3aa5060601c4ebadef.jpg
@@ -210,3 +210,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c447dc8be1ca4989e3ecc4d1344e2a3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

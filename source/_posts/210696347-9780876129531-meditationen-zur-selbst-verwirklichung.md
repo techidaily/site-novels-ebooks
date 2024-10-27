@@ -1,7 +1,7 @@
 ---
 title: Meditationen zur SELBST-Verwirklichung | Free Book
-date: 2024-10-24 19:53:51
-updated: 2024-10-26 12:54:42
+date: 2024-10-24T02:23:47.868Z
+updated: 2024-10-26T21:36:24.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23600cee47f410081b97bcc36c081087e8dee47c09376fc9e72c54241aedc360.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23600cee47f410081b97bcc36c08108
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

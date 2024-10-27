@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Guía De Meditación Para Personas Ocupadas Para Curar Depresión, Ansiedad Y Estrés | Free Book"
-date: 2024-10-23 10:27:53
-updated: 2024-10-26 10:20:48
+date: 2024-10-21T02:23:13.995Z
+updated: 2024-10-26T23:21:31.989Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b0758802241bd8bf983a9a52a7e0431f2e79d6e2b83f2be75e033cc9d11e2af.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b0758802241bd8bf983a9a52a7e043
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

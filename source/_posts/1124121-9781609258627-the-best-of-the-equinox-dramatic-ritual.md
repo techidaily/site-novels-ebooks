@@ -1,7 +1,7 @@
 ---
 title: The Best of the Equinox, Dramatic Ritual | Free Book
-date: 2024-10-25 18:59:24
-updated: 2024-10-26 11:55:47
+date: 2024-10-20T19:42:49.246Z
+updated: 2024-10-26T19:59:25.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1302cc79251ae7e02d04c592cc47ce3299b000a3ebc7e47a05a1eb4ee41993f0.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1302cc79251ae7e02d04c592cc47ce3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Runes for Transformation | Free Book
-date: 2024-10-23 12:54:51
-updated: 2024-10-26 10:33:17
+date: 2024-10-25T22:10:14.730Z
+updated: 2024-10-27T01:26:14.172Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/edbc8e3d46d8896975661d6856df49d5dc9ac994923cffb79c7d5a9c9af8e8bd.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/edbc8e3d46d8896975661d6856df49d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Dame Alice Kyteler the Sorceress of Kilkenny A.D. 1324 (Folklore History Series) | Free Book
-date: 2024-10-25 18:24:30
-updated: 2024-10-26 10:43:26
+date: 2024-10-25T00:40:28.224Z
+updated: 2024-10-27T04:43:30.074Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d87b53df05845baea292ee6880cf950f6c5a89af70fc138bea1b5901fd4ec9b4.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d87b53df05845baea292ee6880cf950
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

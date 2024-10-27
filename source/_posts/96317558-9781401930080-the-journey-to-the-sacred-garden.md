@@ -1,7 +1,7 @@
 ---
 title: The Journey to the Sacred Garden | Free Book
-date: 2024-10-25 11:16:20
-updated: 2024-10-26 10:49:34
+date: 2024-10-22T01:47:14.295Z
+updated: 2024-10-26T22:26:31.758Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0cc4126bd9ef36d6f825ca3da2b07d2e023ca98c788cabeddf5746e8a1b352d.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0cc4126bd9ef36d6f825ca3da2b07d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

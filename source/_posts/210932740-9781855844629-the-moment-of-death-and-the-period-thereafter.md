@@ -1,7 +1,7 @@
 ---
 title: The Moment of Death And The Period Thereafter | Free Book
-date: 2024-10-24 10:39:45
-updated: 2024-10-26 11:52:14
+date: 2024-10-22T16:46:35.822Z
+updated: 2024-10-27T03:44:36.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/551af92e3eecf98fc1aa746691406b263b4a661b989927285caf649754fa7aeb.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/551af92e3eecf98fc1aa746691406b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

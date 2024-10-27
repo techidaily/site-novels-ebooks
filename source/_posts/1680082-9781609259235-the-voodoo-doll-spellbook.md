@@ -1,7 +1,7 @@
 ---
 title: The Voodoo Doll Spellbook | Free Book
-date: 2024-10-24 12:14:38
-updated: 2024-10-26 10:36:45
+date: 2024-10-25T05:32:58.570Z
+updated: 2024-10-27T01:21:16.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e051e426873acb0d18ab9916335fa768973b59e7b3fce20fc002cf8854b8655.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e051e426873acb0d18ab9916335fa7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

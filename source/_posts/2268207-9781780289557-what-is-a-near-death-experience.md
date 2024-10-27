@@ -1,7 +1,7 @@
 ---
 title: What Is a Near-Death Experience? | Free Book
-date: 2024-10-23 20:33:51
-updated: 2024-10-26 12:41:13
+date: 2024-10-25T16:47:01.799Z
+updated: 2024-10-26T23:41:47.359Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccb2f2d614506fb0cf71344af756a26a0f3eefeeb217febb6f2e1671d7b7bccb.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccb2f2d614506fb0cf71344af756a26
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

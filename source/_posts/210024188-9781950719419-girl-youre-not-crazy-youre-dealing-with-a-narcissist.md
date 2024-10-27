@@ -1,7 +1,7 @@
 ---
 title: Girl, You're Not Crazy. You're Dealing With a Narcissist | Free Book
-date: 2024-10-23 20:23:37
-updated: 2024-10-26 12:45:23
+date: 2024-10-25T18:02:59.325Z
+updated: 2024-10-26T16:29:39.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0e31e65c4c94bff39cf6a2c26404274eb2b083d5080c6032ac420e6419d7590.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0e31e65c4c94bff39cf6a2c2640427
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

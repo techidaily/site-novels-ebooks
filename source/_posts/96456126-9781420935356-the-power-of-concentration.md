@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2024-10-23 13:32:29
-updated: 2024-10-26 11:36:46
+date: 2024-10-24T18:58:25.117Z
+updated: 2024-10-26T16:00:18.041Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

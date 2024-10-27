@@ -1,7 +1,7 @@
 ---
 title: Explaining the Unexplained | Free Book
-date: 2024-10-25 23:15:56
-updated: 2024-10-26 12:42:16
+date: 2024-10-20T04:45:14.180Z
+updated: 2024-10-27T02:46:49.317Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db83688b296995077b73cf77b53a6fa9a5cb5e8c1a74625957b9c2c69ea8242b.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db83688b296995077b73cf77b53a6fa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

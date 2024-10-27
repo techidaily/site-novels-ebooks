@@ -1,7 +1,7 @@
 ---
 title: Quantum Integrative Medicine | Free Book
-date: 2024-10-23 23:42:19
-updated: 2024-10-26 12:19:25
+date: 2024-10-19T17:08:59.276Z
+updated: 2024-10-27T05:57:36.559Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b80d8d852a08cb38a31d13626ec7b39ef44be695428798584b50503f9197a02.jpg
@@ -291,3 +291,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b80d8d852a08cb38a31d13626ec7b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Untraining of a Sea Priestess | Free Book
-date: 2024-10-24 12:18:37
-updated: 2024-10-26 12:30:34
+date: 2024-10-23T02:09:25.984Z
+updated: 2024-10-26T20:31:05.941Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/31293a600aaccad80d995515576cfad48d926b8f28e87a17ffb467f174a5dfac.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/31293a600aaccad80d995515576cfad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

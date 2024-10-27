@@ -1,7 +1,7 @@
 ---
 title: How to Pray Without Talking to God | Free Book
-date: 2024-10-25 18:24:27
-updated: 2024-10-26 11:18:48
+date: 2024-10-21T19:27:45.186Z
+updated: 2024-10-26T16:22:11.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd5e7210d29b26ada87c8427ea1fab53af61049862fd304e04837ff6a668385b.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd5e7210d29b26ada87c8427ea1fab5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

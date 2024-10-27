@@ -1,7 +1,7 @@
 ---
 title: The Beginner's Guide to the Akashic Records | Free Book
-date: 2024-10-25 11:32:39
-updated: 2024-10-26 11:37:26
+date: 2024-10-20T05:19:12.854Z
+updated: 2024-10-27T03:31:18.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf76b7ecb41069834796e7340f8295551ad16d5bb50042f27425276771defd6e.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf76b7ecb41069834796e7340f82955
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Parents Sampler | Free Book
-date: 2024-10-24 17:17:14
-updated: 2024-10-26 10:13:29
+date: 2024-10-20T17:23:37.319Z
+updated: 2024-10-27T04:13:18.834Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e85048c297c341474908cdb9c1b988ef724e62764b3a5f6da4d04b137b3e5c4d.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e85048c297c341474908cdb9c1b988e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

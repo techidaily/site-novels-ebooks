@@ -1,7 +1,7 @@
 ---
 title: "Poetry for Inspiration, Faith, Truth and Healing: Where We Are Now Series - Volume 2 | Free Book"
-date: 2024-10-24 16:17:31
-updated: 2024-10-26 11:46:31
+date: 2024-10-26T00:41:48.823Z
+updated: 2024-10-26T17:20:41.707Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f01bb4ab13c917139009c9d0879592eaa24c8d586bac290c30cba880ef1b059f.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f01bb4ab13c917139009c9d0879592e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

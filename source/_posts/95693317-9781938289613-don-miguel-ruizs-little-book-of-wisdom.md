@@ -1,7 +1,7 @@
 ---
 title: don Miguel Ruiz's Little Book of Wisdom | Free Book
-date: 2024-10-24 14:38:10
-updated: 2024-10-26 10:33:29
+date: 2024-10-24T22:03:53.393Z
+updated: 2024-10-27T05:42:38.286Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a61d84efe72b39f4280275b15f13fc5618fca7fc91c7a946cb0ad732e79b56d8.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a61d84efe72b39f4280275b15f13fc5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

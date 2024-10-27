@@ -1,7 +1,7 @@
 ---
 title: The Mind That Changes Everything | Free Book
-date: 2024-10-25 14:33:42
-updated: 2024-10-26 11:14:19
+date: 2024-10-20T03:29:31.908Z
+updated: 2024-10-27T05:11:42.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d225d873a1ec4a410b374962ea370b9a94c0c73c9f412938b28ebb59673500bb.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d225d873a1ec4a410b374962ea370b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

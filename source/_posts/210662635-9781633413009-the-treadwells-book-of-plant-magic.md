@@ -1,7 +1,7 @@
 ---
 title: The Treadwell's Book of Plant Magic | Free Book
-date: 2024-10-23 11:15:50
-updated: 2024-10-26 11:41:16
+date: 2024-10-21T20:40:22.590Z
+updated: 2024-10-26T16:24:08.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88a70e079c6b402be29e0d71151333a923aa20ad031c219d67e01ad1de9b77a2.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88a70e079c6b402be29e0d71151333a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind and How to Use It (Master Class Series) | Free Book
-date: 2024-10-23 15:26:33
-updated: 2024-10-26 10:54:14
+date: 2024-10-22T18:11:17.375Z
+updated: 2024-10-27T00:43:04.164Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c497c1f09bec6664a1f57ed1f3f4a113a4974caad0beae9f86f502d3070e8f0e.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c497c1f09bec6664a1f57ed1f3f4a11
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

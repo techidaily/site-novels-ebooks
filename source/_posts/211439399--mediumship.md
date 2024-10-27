@@ -1,7 +1,7 @@
 ---
 title: Mediumship | Free Book
-date: 2024-10-23 20:47:57
-updated: 2024-10-26 12:53:26
+date: 2024-10-25T18:52:56.147Z
+updated: 2024-10-26T17:59:29.805Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe101a991fc5a4a0ce8c67e8fe8d57f7aa778fb6ac5110925e76978ad33ccffd.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe101a991fc5a4a0ce8c67e8fe8d57f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

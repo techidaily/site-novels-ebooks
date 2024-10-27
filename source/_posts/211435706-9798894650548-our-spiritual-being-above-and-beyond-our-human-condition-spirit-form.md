@@ -1,7 +1,7 @@
 ---
 title: "Our Spiritual Being Above and Beyond our Human Condition: Spirit & Form | Free Book"
-date: 2024-10-24 14:30:31
-updated: 2024-10-26 11:58:48
+date: 2024-10-21T20:57:44.734Z
+updated: 2024-10-26T17:45:43.032Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cca3d26f2049525b9ca89b6dab6c9c1ccad9fb9e2c1f2b04e235e0f62360c7f0.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cca3d26f2049525b9ca89b6dab6c9c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

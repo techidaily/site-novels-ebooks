@@ -1,7 +1,7 @@
 ---
 title: Money + Love Manifestation Blueprint- The Law Of Attraction (2 in 1) | Free Book
-date: 2024-10-23 11:40:19
-updated: 2024-10-26 12:42:59
+date: 2024-10-19T23:01:23.843Z
+updated: 2024-10-26T23:56:24.444Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f522611e1ef4b92c9399199d342329e2021532e54b672de69874fb3fd27cd23.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f522611e1ef4b92c9399199d342329
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

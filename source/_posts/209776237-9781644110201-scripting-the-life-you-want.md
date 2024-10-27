@@ -1,7 +1,7 @@
 ---
 title: Scripting the Life You Want | Free Book
-date: 2024-10-24 21:56:22
-updated: 2024-10-26 12:59:58
+date: 2024-10-23T23:16:48.060Z
+updated: 2024-10-26T22:09:58.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/934f2ebbcaefb60078d21dfba7a28ee27aad5bb7bf1783500a0a408799b7fafd.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/934f2ebbcaefb60078d21dfba7a28ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

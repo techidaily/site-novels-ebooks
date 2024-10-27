@@ -1,7 +1,7 @@
 ---
 title: Psychic Research and Modern Physics | Free Book
-date: 2024-10-23 17:11:37
-updated: 2024-10-26 12:43:19
+date: 2024-10-25T16:08:45.797Z
+updated: 2024-10-26T20:58:19.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e1bec3890204e8723513ea26b1f00d000b635c64d85f5026f310f2cbed3b3f5.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e1bec3890204e8723513ea26b1f00d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

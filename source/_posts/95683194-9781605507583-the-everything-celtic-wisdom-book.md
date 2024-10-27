@@ -1,7 +1,7 @@
 ---
 title: The Everything Celtic Wisdom Book | Free Book
-date: 2024-10-23 17:35:54
-updated: 2024-10-26 12:22:13
+date: 2024-10-21T05:35:08.244Z
+updated: 2024-10-27T03:02:49.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c92d3dfa1dc7662ff867ee4a3b0d3a7b47bab7098a923789de5405efbc8cb90f.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c92d3dfa1dc7662ff867ee4a3b0d3a7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

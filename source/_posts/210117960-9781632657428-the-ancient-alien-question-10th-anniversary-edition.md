@@ -1,7 +1,7 @@
 ---
 title: The Ancient Alien Question, 10th Anniversary Edition | Free Book
-date: 2024-10-24 17:32:34
-updated: 2024-10-26 11:20:16
+date: 2024-10-22T22:02:18.012Z
+updated: 2024-10-27T04:57:40.833Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5226623a2309fa86943f2cd2c7de4bf49b5784364d90426e9d4b19428b8de09f.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5226623a2309fa86943f2cd2c7de4bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

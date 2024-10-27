@@ -1,7 +1,7 @@
 ---
 title: In Tune With the Infinite (Condensed Classics) | Free Book
-date: 2024-10-23 16:10:52
-updated: 2024-10-26 11:24:45
+date: 2024-10-25T04:09:38.622Z
+updated: 2024-10-26T18:50:18.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44ef65e1daaa8ba88e74de363e0342f48424a392bed4470013c8e66778558d50.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44ef65e1daaa8ba88e74de363e0342f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

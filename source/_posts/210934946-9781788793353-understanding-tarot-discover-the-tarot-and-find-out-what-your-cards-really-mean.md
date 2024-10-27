@@ -1,7 +1,7 @@
 ---
 title: "Understanding Tarot: Discover the tarot and find out what your cards really mean | Free Book"
-date: 2024-10-25 13:53:55
-updated: 2024-10-26 10:26:40
+date: 2024-10-26T01:19:40.909Z
+updated: 2024-10-26T18:06:40.920Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376a838873d6d0308151e59dbd89bc2803a1fad794fe9636c4db0793de0c45b7.jpg
@@ -118,3 +118,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376a838873d6d0308151e59dbd89bc2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

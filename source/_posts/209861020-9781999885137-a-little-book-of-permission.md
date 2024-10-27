@@ -1,7 +1,7 @@
 ---
 title: A Little Book of Permission | Free Book
-date: 2024-10-23 18:46:11
-updated: 2024-10-26 12:38:10
+date: 2024-10-25T19:59:51.067Z
+updated: 2024-10-26T22:19:52.171Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ead0e3c83246da9c8136bd118ab536b7986de5d0eab19b691b59d8ec7fb4839.jpg
@@ -217,3 +217,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ead0e3c83246da9c8136bd118ab536
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

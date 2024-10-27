@@ -1,7 +1,7 @@
 ---
 title: La tua vita nell'aldiquà è la tua vita nell'aldilà | Free Book
-date: 2024-10-24 21:45:33
-updated: 2024-10-26 10:23:41
+date: 2024-10-21T00:06:41.036Z
+updated: 2024-10-26T16:51:19.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b24a869224bb4140a927563cd01dbabb5bc13fbc6a8ddd3c82c344250f936b1.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b24a869224bb4140a927563cd01dba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

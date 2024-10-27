@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Philosophy of Tagore | Free Book
-date: 2024-10-24 10:36:11
-updated: 2024-10-26 10:47:51
+date: 2024-10-25T05:16:43.241Z
+updated: 2024-10-26T22:07:02.489Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8e11ddb70acb326d8c2fc6ebf2e94674c506fb38948783811bbf518e8d6a1ed.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8e11ddb70acb326d8c2fc6ebf2e946
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Psychic Investigations in Early America | Free Book
-date: 2024-10-25 14:21:13
-updated: 2024-10-26 10:54:58
+date: 2024-10-21T18:30:08.536Z
+updated: 2024-10-26T19:22:48.382Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2748098821097516f9d99dd26b0b918e3c119645173a9a08e0cc8d31bd45f8de.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2748098821097516f9d99dd26b0b918
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

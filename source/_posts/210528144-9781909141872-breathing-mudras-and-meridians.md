@@ -1,7 +1,7 @@
 ---
 title: Breathing, Mudras and Meridians | Free Book
-date: 2024-10-25 20:47:50
-updated: 2024-10-26 12:34:15
+date: 2024-10-20T01:11:59.021Z
+updated: 2024-10-26T23:02:35.391Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/546386c6fb6bfe3cee734fe5dbb6e26cd95b02b051c9ecac9f4620bd8c97fc4e.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/546386c6fb6bfe3cee734fe5dbb6e26
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

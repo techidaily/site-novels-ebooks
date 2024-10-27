@@ -1,7 +1,7 @@
 ---
 title: Demons and Spirits of the Land | Free Book
-date: 2024-10-24 22:11:41
-updated: 2024-10-26 12:49:23
+date: 2024-10-25T21:24:53.471Z
+updated: 2024-10-27T03:58:00.721Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cfee89035379a9fd40fb28e17dc963fc00b7c3a2f680997bcf22553056d5d05.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cfee89035379a9fd40fb28e17dc963
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

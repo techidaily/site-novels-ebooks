@@ -1,7 +1,7 @@
 ---
 title: The Mediumship of Arnold Clare | Free Book
-date: 2024-10-24 17:42:21
-updated: 2024-10-26 11:38:39
+date: 2024-10-23T05:55:12.705Z
+updated: 2024-10-27T02:03:53.995Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/257be05bc7007dcdfda72d0f1874209cae4c0521c508c34c5fa597532cce210b.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/257be05bc7007dcdfda72d0f1874209
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

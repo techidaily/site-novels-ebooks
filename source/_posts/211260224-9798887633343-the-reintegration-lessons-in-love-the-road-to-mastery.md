@@ -1,7 +1,7 @@
 ---
 title: The Reintegration Lessons in Love; The Road to Mastery | Free Book
-date: 2024-10-24 11:37:50
-updated: 2024-10-26 10:28:43
+date: 2024-10-24T18:51:59.363Z
+updated: 2024-10-26T17:35:07.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb2f80408348e52e353aaf780b1d6742a8a9e57acbbc57470daa030a30961ead.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb2f80408348e52e353aaf780b1d674
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

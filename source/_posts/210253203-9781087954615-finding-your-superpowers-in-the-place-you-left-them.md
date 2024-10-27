@@ -1,7 +1,7 @@
 ---
 title: Finding Your Superpowers in the Place you Left Them | Free Book
-date: 2024-10-24 13:38:15
-updated: 2024-10-26 12:41:30
+date: 2024-10-19T22:23:04.486Z
+updated: 2024-10-27T04:59:10.338Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a6954d6f440b21850289c8b4fd7e79e4c02a7d8efae32e5bd82808c19181093.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a6954d6f440b21850289c8b4fd7e79
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

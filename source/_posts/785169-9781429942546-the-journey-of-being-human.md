@@ -1,7 +1,7 @@
 ---
 title: The Journey of Being Human | Free Book
-date: 2024-10-25 15:59:32
-updated: 2024-10-26 10:12:47
+date: 2024-10-24T17:51:50.436Z
+updated: 2024-10-26T17:33:40.757Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26faa1fdf28ae0b2e7e4d5534af05e21a267b69716697492ab9169b3a27892b2.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26faa1fdf28ae0b2e7e4d5534af05e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

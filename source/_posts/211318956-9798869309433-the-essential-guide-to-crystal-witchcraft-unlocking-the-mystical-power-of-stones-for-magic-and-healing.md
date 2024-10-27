@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Crystal Witchcraft - Unlocking the Mystical Power of Stones for Magic and Healing | Free Book
-date: 2024-10-23 19:25:24
-updated: 2024-10-26 12:17:20
+date: 2024-10-20T17:14:27.822Z
+updated: 2024-10-26T23:55:34.108Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b3d9639d9ee41e31597b340544a009cbf84f076504fa14c2d818ca31e87142e.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b3d9639d9ee41e31597b340544a009
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

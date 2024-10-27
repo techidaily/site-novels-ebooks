@@ -1,7 +1,7 @@
 ---
 title: Tales of Witchcraft and Wonder | Free Book
-date: 2024-10-23 23:21:53
-updated: 2024-10-26 12:33:23
+date: 2024-10-23T04:24:21.188Z
+updated: 2024-10-26T20:22:18.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ed77f5d9ce4caa874ccdac3e9a546cd61cd39c7386373905cd3a66dec666a324.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ed77f5d9ce4caa874ccdac3e9a546cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

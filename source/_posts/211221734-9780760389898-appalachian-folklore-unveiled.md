@@ -1,7 +1,7 @@
 ---
 title: Appalachian Folklore Unveiled | Free Book
-date: 2024-10-25 20:38:42
-updated: 2024-10-26 11:47:56
+date: 2024-10-23T04:53:08.083Z
+updated: 2024-10-26T22:14:19.298Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9b23e4880a7d32fa9a03c70107c81b4b3142b7c1bb2cee0f9bedc933a23687f.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9b23e4880a7d32fa9a03c70107c81b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

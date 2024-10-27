@@ -1,7 +1,7 @@
 ---
 title: Emotional Rags to Spiritual Riches | Free Book
-date: 2024-10-23 20:32:39
-updated: 2024-10-26 12:17:48
+date: 2024-10-22T17:27:25.199Z
+updated: 2024-10-26T21:17:51.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acacede4f1ca36041e4c9cce9bb656184e84f122404d02394720b37db39d7616.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acacede4f1ca36041e4c9cce9bb6561
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

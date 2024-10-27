@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Guia De Atenção Plena Para Autodisciplina E Sucesso | Free Book"
-date: 2024-10-25 20:23:33
-updated: 2024-10-26 11:51:48
+date: 2024-10-25T01:40:19.042Z
+updated: 2024-10-27T01:36:21.800Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/048887554a2437715cc28fd2580b5b532eaf3b954eaf57b1a6560ec91bf4791a.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/048887554a2437715cc28fd2580b5b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

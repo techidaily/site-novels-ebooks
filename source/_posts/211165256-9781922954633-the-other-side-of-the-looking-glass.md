@@ -1,7 +1,7 @@
 ---
 title: The Other Side of the Looking Glass | Free Book
-date: 2024-10-25 14:58:28
-updated: 2024-10-26 10:55:47
+date: 2024-10-20T17:39:31.105Z
+updated: 2024-10-27T00:12:47.060Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc78c02c2bb80f7f83178be2f68cb8aa2391f3cca8f298c933fb24d3e108fe0a.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc78c02c2bb80f7f83178be2f68cb8a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

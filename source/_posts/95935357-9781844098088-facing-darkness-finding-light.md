@@ -1,7 +1,7 @@
 ---
 title: Facing Darkness, Finding Light | Free Book
-date: 2024-10-24 15:44:44
-updated: 2024-10-26 12:37:44
+date: 2024-10-26T04:49:37.249Z
+updated: 2024-10-26T21:23:27.452Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2d926159213b233e2f2bfb78ef78e0273f649a72259871ddc2046f07f606902.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2d926159213b233e2f2bfb78ef78e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Las cartas adivinatorias de los indios de América | Free Book
-date: 2024-10-25 12:37:36
-updated: 2024-10-26 12:13:53
+date: 2024-10-25T03:29:56.983Z
+updated: 2024-10-26T23:38:21.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfd1e74d8fd6539d3578988e5a5b6f04bf73c0c5d4bcb2e4512cd1dd19f7e23a.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfd1e74d8fd6539d3578988e5a5b6f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

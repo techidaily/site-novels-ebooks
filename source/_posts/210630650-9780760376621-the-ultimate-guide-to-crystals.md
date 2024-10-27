@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Crystals | Free Book
-date: 2024-10-25 19:47:11
-updated: 2024-10-26 12:27:40
+date: 2024-10-19T20:51:00.494Z
+updated: 2024-10-26T18:21:00.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3b399b7130d9616885c872428e4c9d2107f0a7a5e837065af0035dbe95c363d.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3b399b7130d9616885c872428e4c9d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: God Doesn't Do Evil That Good May Come | Free Book
-date: 2024-10-25 13:26:56
-updated: 2024-10-26 10:12:53
+date: 2024-10-22T16:36:27.855Z
+updated: 2024-10-26T19:37:27.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/46a293d3974be049df2660869ff9914e5f4ba2a2bdf2004437195959907dbdee.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/46a293d3974be049df2660869ff9914
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

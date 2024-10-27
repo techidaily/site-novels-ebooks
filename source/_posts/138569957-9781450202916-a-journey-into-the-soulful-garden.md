@@ -1,7 +1,7 @@
 ---
 title: A Journey into the Soulful Garden | Free Book
-date: 2024-10-24 14:31:22
-updated: 2024-10-26 12:46:31
+date: 2024-10-23T04:43:34.924Z
+updated: 2024-10-26T20:28:29.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d737608175a2c2da5ac4cc7dd644e5a641e938e5a92c4d28c8bde48d5bd108b8.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d737608175a2c2da5ac4cc7dd644e5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

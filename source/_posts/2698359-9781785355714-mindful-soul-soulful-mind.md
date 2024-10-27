@@ -1,7 +1,7 @@
 ---
 title: Mindful Soul, Soulful Mind | Free Book
-date: 2024-10-23 20:52:49
-updated: 2024-10-26 11:37:38
+date: 2024-10-20T22:44:08.309Z
+updated: 2024-10-27T01:51:24.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c844107c495ee1168b1cc1e79a942a100733d5d9587bac429f7151e12e36d1b1.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c844107c495ee1168b1cc1e79a942a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

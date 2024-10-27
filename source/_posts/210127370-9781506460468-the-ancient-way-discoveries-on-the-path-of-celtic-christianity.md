@@ -1,7 +1,7 @@
 ---
 title: "The Ancient Way: Discoveries on the Path of Celtic Christianity | Free Book"
-date: 2024-10-25 13:54:38
-updated: 2024-10-26 12:29:27
+date: 2024-10-24T17:20:11.957Z
+updated: 2024-10-26T16:24:21.023Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95603d03fc36f0dde1db6f279a87a6282381d5731e978eae32a51cfae86a2096.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95603d03fc36f0dde1db6f279a87a62
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

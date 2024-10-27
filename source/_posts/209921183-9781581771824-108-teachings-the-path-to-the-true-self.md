@@ -1,7 +1,7 @@
 ---
 title: "108 Teachings: The Path to the True Self | Free Book"
-date: 2024-10-24 22:57:27
-updated: 2024-10-26 11:47:14
+date: 2024-10-23T01:17:55.636Z
+updated: 2024-10-26T17:48:07.030Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74d01b146cb3bb96b58364ad64b8d741b18813ca44ed6f9b116613799132165f.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74d01b146cb3bb96b58364ad64b8d74
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

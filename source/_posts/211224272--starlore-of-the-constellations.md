@@ -1,7 +1,7 @@
 ---
 title: Starlore of the Constellations | Free Book
-date: 2024-10-25 15:11:14
-updated: 2024-10-26 10:15:30
+date: 2024-10-21T04:21:54.547Z
+updated: 2024-10-26T23:47:49.780Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f22496040c4a983953466c96986fe62acc7d1c67afc64bb82c26cbeabc6bc57.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f22496040c4a983953466c96986fe6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

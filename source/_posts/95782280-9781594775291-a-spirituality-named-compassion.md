@@ -1,7 +1,7 @@
 ---
 title: A Spirituality Named Compassion | Free Book
-date: 2024-10-24 11:20:13
-updated: 2024-10-26 10:12:16
+date: 2024-10-21T02:09:41.479Z
+updated: 2024-10-27T02:35:35.075Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abe88f0a38f18152194ef8a96b6caba95957ca4c2956cf508361c8661133d801.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abe88f0a38f18152194ef8a96b6caba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

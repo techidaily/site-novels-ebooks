@@ -1,7 +1,7 @@
 ---
 title: The Matapaua Conversations | Free Book
-date: 2024-10-25 23:12:12
-updated: 2024-10-26 11:53:34
+date: 2024-10-19T17:15:15.966Z
+updated: 2024-10-26T21:01:08.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01993cfb9b9359ca6aded8cd6f2c4e02ae528b801d64611d6981dd8ac27ca463.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01993cfb9b9359ca6aded8cd6f2c4e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Transforming The Soul: Volume 1 | Free Book"
-date: 2024-10-23 18:31:17
-updated: 2024-10-26 11:22:42
+date: 2024-10-23T19:58:20.246Z
+updated: 2024-10-26T16:10:45.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a228388c75ccb9361c3a135cd3d3683211d7fed42c3a4ccdaad88b9ac2800a00.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a228388c75ccb9361c3a135cd3d3683
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

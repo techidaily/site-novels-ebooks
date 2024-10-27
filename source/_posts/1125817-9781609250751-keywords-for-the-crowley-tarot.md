@@ -1,7 +1,7 @@
 ---
 title: Keywords for the Crowley Tarot | Free Book
-date: 2024-10-24 23:31:56
-updated: 2024-10-26 11:51:47
+date: 2024-10-22T21:57:59.562Z
+updated: 2024-10-27T00:40:07.246Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c5a51b969001bb30e4b22bb19dec92abe4e683061a5c09999bf042e7d7b183a.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c5a51b969001bb30e4b22bb19dec92
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

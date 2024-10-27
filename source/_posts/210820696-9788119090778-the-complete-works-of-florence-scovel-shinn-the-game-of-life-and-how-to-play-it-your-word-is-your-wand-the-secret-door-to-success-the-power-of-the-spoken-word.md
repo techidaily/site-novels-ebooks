@@ -1,7 +1,7 @@
 ---
 title: "The Complete Works of Florence Scovel Shinn: The Game of Life and How to Play It, Your Word is Your Wand, The Secret Door to Success, The Power of the Spoken Word | Free Book"
-date: 2024-10-24 20:50:54
-updated: 2024-10-26 10:20:59
+date: 2024-10-24T22:28:59.824Z
+updated: 2024-10-27T05:42:11.865Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4afd3d900a64b51b6e3e7edf7f7002ba980f98c7b2a131e6c7c2e1851453c86.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4afd3d900a64b51b6e3e7edf7f7002
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

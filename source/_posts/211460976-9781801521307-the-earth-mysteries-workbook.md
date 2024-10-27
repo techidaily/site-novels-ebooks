@@ -1,7 +1,7 @@
 ---
 title: The Earth Mysteries Workbook | Free Book
-date: 2024-10-25 10:54:35
-updated: 2024-10-26 12:53:32
+date: 2024-10-24T19:04:10.577Z
+updated: 2024-10-26T18:13:36.317Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7917b2332f73d22652a0f94ecd586a2d8decaf1156a85d3b4f6ca51b580a19aa.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7917b2332f73d22652a0f94ecd586a2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

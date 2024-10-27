@@ -1,7 +1,7 @@
 ---
 title: Russian Edition - Operating in Abundance | Free Book
-date: 2024-10-25 17:45:41
-updated: 2024-10-26 12:12:23
+date: 2024-10-21T01:36:11.910Z
+updated: 2024-10-27T05:46:56.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a76985f68da77ecc6adae9f534297ae9c84b6d10e45292aff699f1262f7c5a3.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a76985f68da77ecc6adae9f534297a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

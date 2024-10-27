@@ -1,7 +1,7 @@
 ---
 title: Broken, Crushed, Shattered, Mended, Healed | Free Book
-date: 2024-10-25 19:41:36
-updated: 2024-10-26 10:33:38
+date: 2024-10-23T23:21:06.304Z
+updated: 2024-10-26T18:37:37.480Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28d7a6a966364747dc9187f6341d6652fe321cdf55da6373285e4cf79583694b.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28d7a6a966364747dc9187f6341d665
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

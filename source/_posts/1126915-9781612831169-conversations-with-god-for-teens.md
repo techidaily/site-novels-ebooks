@@ -1,7 +1,7 @@
 ---
 title: Conversations with God for Teens | Free Book
-date: 2024-10-25 20:55:27
-updated: 2024-10-26 12:12:26
+date: 2024-10-23T21:14:15.894Z
+updated: 2024-10-27T05:49:15.661Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7f8266de16b31e1d0e280d356d6d1fe21bc9f3d67850ad8423d4e0db7adf4b3a.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7f8266de16b31e1d0e280d356d6d1fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

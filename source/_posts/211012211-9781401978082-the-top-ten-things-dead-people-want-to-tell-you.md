@@ -1,7 +1,7 @@
 ---
 title: The Top Ten Things Dead People Want to Tell YOU | Free Book
-date: 2024-10-24 19:28:44
-updated: 2024-10-26 10:42:58
+date: 2024-10-26T05:51:50.156Z
+updated: 2024-10-26T16:56:06.956Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b098fa0839c2181b33216239956d22a94ead3132b310d8d37761e3f20ed654d7.jpg
@@ -235,3 +235,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b098fa0839c2181b33216239956d22a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

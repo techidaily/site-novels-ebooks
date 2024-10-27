@@ -1,7 +1,7 @@
 ---
 title: The Machinery of the Mind (Annotated) | Free Book
-date: 2024-10-25 19:36:19
-updated: 2024-10-26 10:35:41
+date: 2024-10-25T23:31:05.925Z
+updated: 2024-10-26T17:27:38.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f70aeba1953d91d609c597dd9577a0c8282210f6dfbd5542d535dbf45fe1ad8f.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f70aeba1953d91d609c597dd9577a0c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

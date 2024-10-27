@@ -1,7 +1,7 @@
 ---
 title: Maha Reiki Master Teaching Manual | Free Book
-date: 2024-10-23 17:50:19
-updated: 2024-10-26 12:55:14
+date: 2024-10-22T02:42:43.985Z
+updated: 2024-10-26T16:40:01.637Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17e84d610bea36ebbed7812911f85b9f5f79c90d4e373da999c96ee548029e48.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17e84d610bea36ebbed7812911f85b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Chinese Spirit-Medium Cults in Singapore | Free Book
-date: 2024-10-23 10:48:29
-updated: 2024-10-26 12:57:17
+date: 2024-10-19T20:02:23.140Z
+updated: 2024-10-26T23:40:58.758Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/48b754485a8827d083dc3d1926d6006be456afad7b7a72f9aa1dd67b8072a75c.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/48b754485a8827d083dc3d1926d6006
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Way of the Psychonaut Vol. 2 | Free Book
-date: 2024-10-25 23:10:37
-updated: 2024-10-26 11:41:48
+date: 2024-10-23T21:04:08.793Z
+updated: 2024-10-26T18:22:18.516Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a74928ead6e9f7b06ae5bc5e59cfb8984e8f43490ea84631548e2369c99947ff.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a74928ead6e9f7b06ae5bc5e59cfb89
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

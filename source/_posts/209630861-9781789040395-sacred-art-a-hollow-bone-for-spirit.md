@@ -1,7 +1,7 @@
 ---
 title: Sacred Art - A Hollow Bone for Spirit | Free Book
-date: 2024-10-24 23:38:18
-updated: 2024-10-26 12:17:29
+date: 2024-10-20T23:47:30.072Z
+updated: 2024-10-27T04:09:42.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/962d1af17490b86d6ffb2fbf9488a84595b350d19efab2fe8a2f87c82bb1f616.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/962d1af17490b86d6ffb2fbf9488a84
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

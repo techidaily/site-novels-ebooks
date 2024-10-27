@@ -1,7 +1,7 @@
 ---
 title: Spiritual Healing from Sexual Violence | Free Book
-date: 2024-10-24 22:22:24
-updated: 2024-10-26 10:39:29
+date: 2024-10-21T20:52:04.827Z
+updated: 2024-10-27T02:04:04.529Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f38e73e4231a933a8a94dc990b20d1f0b102c619972564daf2f292ddc3a886be.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f38e73e4231a933a8a94dc990b20d1f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Liderança: Motive seus funcionários e influencie facilmente as pessoas para melhorar a tomada de decisões | Free Book"
-date: 2024-10-25 12:41:22
-updated: 2024-10-26 10:56:56
+date: 2024-10-21T01:01:17.345Z
+updated: 2024-10-26T19:53:56.694Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4119348576d4c0a5a9e04f23d87cee65ad3b9e3806e6a2786e863e2c8d2c715a.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4119348576d4c0a5a9e04f23d87cee6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

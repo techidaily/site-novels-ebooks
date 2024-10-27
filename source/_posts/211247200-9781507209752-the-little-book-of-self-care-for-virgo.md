@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Virgo | Free Book
-date: 2024-10-23 20:20:48
-updated: 2024-10-26 11:16:53
+date: 2024-10-22T21:15:33.849Z
+updated: 2024-10-27T03:25:22.258Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26740d37d24ef2dc927056a1983d8d6cfdb345aa1c9376cda08ab9d4d87f5cf4.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26740d37d24ef2dc927056a1983d8d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

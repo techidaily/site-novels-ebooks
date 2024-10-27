@@ -1,7 +1,7 @@
 ---
 title: "French Toast Witchery: Volume 1 | Free Book"
-date: 2024-10-23 17:44:45
-updated: 2024-10-26 11:31:36
+date: 2024-10-23T16:49:17.787Z
+updated: 2024-10-27T00:12:21.852Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/39222d8a77d0ec134a1774613aa40f59f458c7b12184c990881c03de68195520.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/39222d8a77d0ec134a1774613aa40f5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

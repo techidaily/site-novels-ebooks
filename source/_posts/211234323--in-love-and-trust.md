@@ -1,7 +1,7 @@
 ---
 title: In Love and Trust | Free Book
-date: 2024-10-25 22:28:54
-updated: 2024-10-26 12:11:13
+date: 2024-10-22T23:33:56.587Z
+updated: 2024-10-26T22:36:34.033Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3dad984909e3ee5e37b48425ea5ec08f66d67fed4d255ba5a94020aa7fd9bfd.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3dad984909e3ee5e37b48425ea5ec0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

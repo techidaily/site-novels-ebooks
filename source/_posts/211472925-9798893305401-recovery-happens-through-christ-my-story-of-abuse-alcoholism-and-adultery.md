@@ -1,7 +1,7 @@
 ---
 title: Recovery Happens Through Christ (My Story of Abuse, Alcoholism, and Adultery) | Free Book
-date: 2024-10-23 14:43:36
-updated: 2024-10-26 12:49:26
+date: 2024-10-21T05:22:28.745Z
+updated: 2024-10-27T03:34:46.551Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b6e745f904909a6bd0f80f886780c9d562bd5dccd91d61fc156c06080ce17b2a.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b6e745f904909a6bd0f80f886780c9d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

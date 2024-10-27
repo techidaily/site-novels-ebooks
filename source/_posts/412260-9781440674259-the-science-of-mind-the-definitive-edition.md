@@ -1,7 +1,7 @@
 ---
 title: "The Science of Mind: The Definitive Edition | Free Book"
-date: 2024-10-23 14:59:29
-updated: 2024-10-26 12:53:39
+date: 2024-10-24T01:43:31.045Z
+updated: 2024-10-26T22:38:59.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/633d55097538413a60e57f805b187067f3268a25a1543ca00b13a8eda8ccd643.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/633d55097538413a60e57f805b18706
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

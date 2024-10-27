@@ -1,7 +1,7 @@
 ---
 title: Love Yourself Love Your Life | Free Book
-date: 2024-10-24 11:27:53
-updated: 2024-10-26 11:44:11
+date: 2024-10-21T05:58:38.191Z
+updated: 2024-10-27T05:40:11.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42f14447e17c90f86b9346f1fb3669bb84fb75aa0dd7b91735e1400077bfa54a.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42f14447e17c90f86b9346f1fb3669b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

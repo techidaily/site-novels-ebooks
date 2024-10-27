@@ -1,7 +1,7 @@
 ---
 title: The Writings of Thomas Troward, Vol I | Free Book
-date: 2024-10-25 20:22:32
-updated: 2024-10-26 12:54:19
+date: 2024-10-24T02:54:19.644Z
+updated: 2024-10-27T01:34:45.724Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c048148f7c8629d27c3962b1e76606017c2330c463648d200eecfa30d7f61ac0.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c048148f7c8629d27c3962b1e766060
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Practical Guide to Vibrational Medicine | Free Book
-date: 2024-10-25 12:19:51
-updated: 2024-10-26 10:38:16
+date: 2024-10-23T16:54:12.730Z
+updated: 2024-10-26T22:35:30.643Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49cf9467b767d2a343543f44e3896a80d403d19127999c8e9419342d84ad244b.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49cf9467b767d2a343543f44e3896a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

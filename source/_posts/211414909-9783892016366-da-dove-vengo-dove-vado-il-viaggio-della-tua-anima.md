@@ -1,7 +1,7 @@
 ---
 title: Da dove vengo? Dove vado? Il viaggio della tua anima | Free Book
-date: 2024-10-25 20:30:10
-updated: 2024-10-26 12:17:46
+date: 2024-10-23T04:23:39.150Z
+updated: 2024-10-27T04:34:15.651Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c992da49ef417758dee2b3379b18cb35e2e9f76d4aa25e2ddea9a145e275044.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c992da49ef417758dee2b3379b18cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

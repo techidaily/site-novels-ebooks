@@ -1,7 +1,7 @@
 ---
 title: Throw Away Your Loincloth | Free Book
-date: 2024-10-23 16:27:15
-updated: 2024-10-26 11:54:11
+date: 2024-10-20T01:22:31.758Z
+updated: 2024-10-26T21:59:31.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c99b2a629171fe79366a364d380bb50acd1628d73cf8786d42d9a853af76363.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c99b2a629171fe79366a364d380bb5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

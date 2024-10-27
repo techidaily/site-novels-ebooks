@@ -1,7 +1,7 @@
 ---
 title: Near-Death Experience in Ancient Civilizations (2nd ed.) | Free Book
-date: 2024-10-24 19:17:36
-updated: 2024-10-26 12:39:26
+date: 2024-10-24T00:15:05.141Z
+updated: 2024-10-26T20:29:59.093Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3109dfbb5680e3d73b180ff4964bf91d553ea8231d32dc531ed6e72f19cbf6d2.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3109dfbb5680e3d73b180ff4964bf91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

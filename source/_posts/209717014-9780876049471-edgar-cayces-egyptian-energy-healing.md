@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Egyptian Energy Healing | Free Book
-date: 2024-10-23 13:39:34
-updated: 2024-10-26 10:13:22
+date: 2024-10-22T23:40:18.580Z
+updated: 2024-10-26T23:26:35.769Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28c58d322eff92f186ffc50414a1ace278f644ab8a31daf5b300379bdd65cb2a.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28c58d322eff92f186ffc50414a1ace
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

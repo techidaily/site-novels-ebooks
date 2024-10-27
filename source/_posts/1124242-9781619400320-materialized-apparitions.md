@@ -1,7 +1,7 @@
 ---
 title: Materialized Apparitions | Free Book
-date: 2024-10-24 23:18:43
-updated: 2024-10-26 12:45:31
+date: 2024-10-21T16:59:11.670Z
+updated: 2024-10-26T17:13:36.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d3efaebdc022aa307be3358bcac8cfa7c582ccf5a433482f55ff8c94237f2b0.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d3efaebdc022aa307be3358bcac8cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

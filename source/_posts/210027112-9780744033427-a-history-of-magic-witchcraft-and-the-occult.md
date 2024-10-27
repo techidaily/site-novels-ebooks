@@ -1,7 +1,7 @@
 ---
 title: A History of Magic, Witchcraft, and the Occult | Free Book
-date: 2024-10-24 12:20:50
-updated: 2024-10-26 12:56:28
+date: 2024-10-23T03:36:19.421Z
+updated: 2024-10-27T01:44:35.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0afae9502da233cb3d4dec97fc2d9615be8452625c15cb15eb0ac0a3b2c322f.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0afae9502da233cb3d4dec97fc2d96
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

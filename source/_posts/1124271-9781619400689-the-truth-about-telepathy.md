@@ -1,7 +1,7 @@
 ---
 title: The Truth About Telepathy | Free Book
-date: 2024-10-24 19:37:48
-updated: 2024-10-26 11:39:45
+date: 2024-10-23T05:41:38.479Z
+updated: 2024-10-26T19:48:51.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/267c886845465a3df581fa9a5c6ebce0f12966dacdac43fb774d184620627cff.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/267c886845465a3df581fa9a5c6ebce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

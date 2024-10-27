@@ -1,7 +1,7 @@
 ---
 title: Haunted Greenwich Village | Free Book
-date: 2024-10-24 19:32:12
-updated: 2024-10-26 10:21:21
+date: 2024-10-23T05:24:52.046Z
+updated: 2024-10-26T22:59:41.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/009d79409589ca0e2e0199ffc24d89defe87e37d0e6324e4286f91724f8a0199.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/009d79409589ca0e2e0199ffc24d89d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Believer's Guide to Salvation | Free Book
-date: 2024-10-23 19:38:36
-updated: 2024-10-26 10:49:28
+date: 2024-10-19T19:57:51.836Z
+updated: 2024-10-26T19:16:00.823Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e05a9dfc1ee99f3d4f06ae41262089af7d5d6565bfe551d6ec138e476bdbf02.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e05a9dfc1ee99f3d4f06ae41262089
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

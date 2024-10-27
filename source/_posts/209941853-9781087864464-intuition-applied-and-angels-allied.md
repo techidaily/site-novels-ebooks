@@ -1,7 +1,7 @@
 ---
 title: Intuition Applied and Angels Allied | Free Book
-date: 2024-10-23 13:42:13
-updated: 2024-10-26 12:27:50
+date: 2024-10-24T00:40:07.106Z
+updated: 2024-10-26T22:14:17.601Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/126b120bff33b164bc3995bea958860bda1af2ed71ef3940f1e65403126c1baa.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/126b120bff33b164bc3995bea958860
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

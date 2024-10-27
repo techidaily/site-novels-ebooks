@@ -1,7 +1,7 @@
 ---
 title: The Mysterious Life and Faked Death of Jesse James | Free Book
-date: 2024-10-23 19:35:15
-updated: 2024-10-26 12:11:12
+date: 2024-10-23T01:39:50.163Z
+updated: 2024-10-27T02:38:20.393Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5fa4f574dce12286898d09c25f35b59e563ab180e1eb4afc26e15d2f2abc7684.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5fa4f574dce12286898d09c25f35b59
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

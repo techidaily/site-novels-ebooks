@@ -1,7 +1,7 @@
 ---
 title: The Death of Religion and the Rebirth of Spirit | Free Book
-date: 2024-10-25 21:40:38
-updated: 2024-10-26 10:41:35
+date: 2024-10-19T21:14:30.905Z
+updated: 2024-10-26T23:13:07.299Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4ef83675c828686ea57750c958bd2cd2b9c2efe73129f0a494482adb03c0e22c.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4ef83675c828686ea57750c958bd2cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

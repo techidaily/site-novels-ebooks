@@ -1,7 +1,7 @@
 ---
 title: How to Use the Science of Mind | Free Book
-date: 2024-10-23 11:33:12
-updated: 2024-10-26 11:50:24
+date: 2024-10-25T04:32:49.047Z
+updated: 2024-10-27T03:38:14.763Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca05ebb1ae791a5f0cd5cd96fe64edf8595d535aa1d9774cdb9efe92ccac396c.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca05ebb1ae791a5f0cd5cd96fe64edf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

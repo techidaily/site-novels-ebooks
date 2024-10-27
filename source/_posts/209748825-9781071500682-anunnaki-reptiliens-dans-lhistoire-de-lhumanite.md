@@ -1,7 +1,7 @@
 ---
 title: "Anunnaki: Reptiliens dans l’histoire de l’humanité | Free Book"
-date: 2024-10-23 12:17:46
-updated: 2024-10-26 11:56:16
+date: 2024-10-25T22:58:46.120Z
+updated: 2024-10-26T23:13:41.350Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc16f79d098f319836abe6ce219dffbabcac745eba2f80f693a7fdbe64f58595.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc16f79d098f319836abe6ce219dffb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

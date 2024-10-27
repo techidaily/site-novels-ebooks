@@ -1,7 +1,7 @@
 ---
 title: Secret History of the Watchers | Free Book
-date: 2024-10-25 18:56:12
-updated: 2024-10-26 10:42:48
+date: 2024-10-21T23:48:40.039Z
+updated: 2024-10-26T17:09:21.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16d2b73ddba30224207a745d6ee2131182a5f7fd5b9cf89dcc2d85b64044e04d.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16d2b73ddba30224207a745d6ee2131
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

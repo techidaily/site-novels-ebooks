@@ -1,7 +1,7 @@
 ---
 title: The Destruction of Atlantis | Free Book
-date: 2024-10-23 11:42:38
-updated: 2024-10-26 10:43:13
+date: 2024-10-23T17:03:53.213Z
+updated: 2024-10-27T04:19:36.749Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3083392abfa14d147e47da1ac7c77ce55e35bfb28c24fc4f5fc01c29c01eb57.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3083392abfa14d147e47da1ac7c77c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

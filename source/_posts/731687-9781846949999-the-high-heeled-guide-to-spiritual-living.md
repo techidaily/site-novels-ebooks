@@ -1,7 +1,7 @@
 ---
 title: The High Heeled Guide to Spiritual Living | Free Book
-date: 2024-10-23 16:53:18
-updated: 2024-10-26 11:10:50
+date: 2024-10-21T19:42:52.695Z
+updated: 2024-10-27T03:09:26.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2461ba163a65463486b1c3611bfb691828ee009fdcfd8ef3bb134cd0ac13ef0d.jpg
@@ -121,3 +121,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2461ba163a65463486b1c3611bfb691
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: THIRD EYE & KUNDALINI AWAKENING FOR BEGINNERS | Free Book
-date: 2024-10-25 11:37:24
-updated: 2024-10-26 12:43:49
+date: 2024-10-25T05:40:50.830Z
+updated: 2024-10-26T22:48:20.623Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1feea5c666a8de236b8c3baf3e23d3fc0c6689c650ca1d4a6f44bc8e812bbfd.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1feea5c666a8de236b8c3baf3e23d3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Golden Dawn - A Key to Ritual Magic | Free Book
-date: 2024-10-25 20:44:41
-updated: 2024-10-26 11:18:52
+date: 2024-10-21T03:21:32.448Z
+updated: 2024-10-26T20:44:08.853Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ce6fa9a8185938f51169454a389e896d6e091408292c385c6e76297f978c7f5.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ce6fa9a8185938f51169454a389e89
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

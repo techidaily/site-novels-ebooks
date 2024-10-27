@@ -1,7 +1,7 @@
 ---
 title: Anthroposophic Medicine for all the Family | Free Book
-date: 2024-10-25 19:35:41
-updated: 2024-10-26 11:57:50
+date: 2024-10-21T19:08:05.444Z
+updated: 2024-10-27T02:49:15.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9728cab59813fd04d4dbed0ecc63f1aaebe02e6f33508a449fbe34fdf83a024a.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9728cab59813fd04d4dbed0ecc63f1a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

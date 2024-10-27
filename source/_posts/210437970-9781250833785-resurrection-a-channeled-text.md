@@ -1,7 +1,7 @@
 ---
 title: "Resurrection: A Channeled Text | Free Book"
-date: 2024-10-23 14:41:39
-updated: 2024-10-26 11:57:13
+date: 2024-10-20T23:27:08.090Z
+updated: 2024-10-26T22:06:20.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff1d586fb67d1d1432cec89bbf3fa09215609277aefb35bda2e19e50377fc3ef.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff1d586fb67d1d1432cec89bbf3fa09
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

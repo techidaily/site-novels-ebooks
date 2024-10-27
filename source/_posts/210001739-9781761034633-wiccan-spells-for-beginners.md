@@ -1,7 +1,7 @@
 ---
 title: Wiccan Spells for Beginners | Free Book
-date: 2024-10-23 23:33:29
-updated: 2024-10-26 12:28:32
+date: 2024-10-24T17:44:12.564Z
+updated: 2024-10-27T02:33:49.547Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6c3374cf0b69e137e8cab19056ef36f6e26d4bf73e778048bc045984aab44f6.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6c3374cf0b69e137e8cab19056ef36
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

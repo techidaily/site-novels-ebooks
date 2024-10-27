@@ -1,7 +1,7 @@
 ---
 title: Lord, Let Me Win | Free Book
-date: 2024-10-24 16:17:33
-updated: 2024-10-26 10:23:57
+date: 2024-10-25T03:34:59.264Z
+updated: 2024-10-26T18:14:59.482Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/3312439c8d6a139e7794386a7ffd6c3683e4300b79f9436edf4350934653420b.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3312439c8d6a139e7794386a7ffd6c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

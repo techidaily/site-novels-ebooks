@@ -1,7 +1,7 @@
 ---
 title: Qigong for Treating Common Ailments | Free Book
-date: 2024-10-25 14:13:19
-updated: 2024-10-26 10:23:33
+date: 2024-10-25T00:41:33.724Z
+updated: 2024-10-27T00:56:09.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bd6a308653fa742297337b6c0edd86cf6a009c97d6a4e94a42ab4162ad8d4e9.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bd6a308653fa742297337b6c0edd86
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

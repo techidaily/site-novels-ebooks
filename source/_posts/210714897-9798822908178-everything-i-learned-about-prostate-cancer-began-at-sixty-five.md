@@ -1,7 +1,7 @@
 ---
 title: Everything I Learned about Prostate Cancer Began at Sixty-Five | Free Book
-date: 2024-10-23 20:12:16
-updated: 2024-10-26 11:21:18
+date: 2024-10-26T01:50:32.393Z
+updated: 2024-10-26T16:34:07.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f39f5224324544343e07ad89bc028cbcb74f3567bc8e38a26d4d302946af20c.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f39f5224324544343e07ad89bc028c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

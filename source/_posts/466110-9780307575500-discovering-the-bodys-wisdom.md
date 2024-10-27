@@ -1,7 +1,7 @@
 ---
 title: Discovering the Body's Wisdom | Free Book
-date: 2024-10-24 19:53:11
-updated: 2024-10-26 12:19:24
+date: 2024-10-23T23:42:43.843Z
+updated: 2024-10-26T21:41:51.574Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d699084d89b9d5cb398395b4f4d61ab8b0bc8e7c4012b560603ffb2df9c93b2.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d699084d89b9d5cb398395b4f4d61a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

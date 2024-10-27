@@ -1,7 +1,7 @@
 ---
 title: Go Slowly, Breathe and Smile | Free Book
-date: 2024-10-25 14:42:40
-updated: 2024-10-26 12:29:58
+date: 2024-10-20T05:53:44.614Z
+updated: 2024-10-26T23:09:46.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/721cd356a8be6a0fd89b97ffb623a1aff05e83e50ffb6dc6159a7acc9948b9ab.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/721cd356a8be6a0fd89b97ffb623a1a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

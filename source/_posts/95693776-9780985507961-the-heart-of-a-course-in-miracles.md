@@ -1,7 +1,7 @@
 ---
 title: The Heart of A Course in Miracles | Free Book
-date: 2024-10-25 10:42:10
-updated: 2024-10-26 11:10:14
+date: 2024-10-20T16:55:37.423Z
+updated: 2024-10-26T17:32:04.293Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14d62992de654a9fe42ffa834c37d1402137163f9899bf499bb4ef63f4a6dc92.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14d62992de654a9fe42ffa834c37d14
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: consejos prácticos para entrenarse en Mindfulness | Free Book"
-date: 2024-10-24 14:41:21
-updated: 2024-10-26 12:45:45
+date: 2024-10-19T22:35:40.712Z
+updated: 2024-10-27T01:23:03.150Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33807416649fd9822e60849f8525dfe8df329babe38a522a4e4d8ec180c9b89c.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33807416649fd9822e60849f8525dfe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

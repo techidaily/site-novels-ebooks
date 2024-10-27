@@ -1,7 +1,7 @@
 ---
 title: The Celestial Key to the Vedas | Free Book
-date: 2024-10-23 14:26:12
-updated: 2024-10-26 12:53:38
+date: 2024-10-24T05:12:19.115Z
+updated: 2024-10-27T00:13:00.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba429b5354c41a600d55825c3b644593effef16c0810f2c2f00567c9a620bf4c.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba429b5354c41a600d55825c3b64459
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

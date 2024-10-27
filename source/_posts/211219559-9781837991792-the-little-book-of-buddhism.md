@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Buddhism | Free Book
-date: 2024-10-23 10:44:48
-updated: 2024-10-26 11:40:33
+date: 2024-10-22T22:08:33.130Z
+updated: 2024-10-27T03:24:55.807Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7dc58b6d7b21008d886ffa84d943887b8f6eaacef17eb8e18beb4c5236ea8902.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7dc58b6d7b21008d886ffa84d943887
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

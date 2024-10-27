@@ -1,7 +1,7 @@
 ---
 title: Erkenne und Heile Dich durch die Kraft des Geistes | Free Book
-date: 2024-10-23 15:11:46
-updated: 2024-10-26 11:21:42
+date: 2024-10-25T21:31:41.162Z
+updated: 2024-10-27T00:16:55.479Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66e9daf50ed097eb045282cc4211677539ef10dcbfacfcb468818873a4ffe906.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66e9daf50ed097eb045282cc4211677
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

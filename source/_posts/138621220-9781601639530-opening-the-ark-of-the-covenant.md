@@ -1,7 +1,7 @@
 ---
 title: Opening the Ark of the Covenant | Free Book
-date: 2024-10-23 17:32:25
-updated: 2024-10-26 11:59:28
+date: 2024-10-21T02:47:59.016Z
+updated: 2024-10-27T02:46:12.616Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6edbd6de196b54fa5d8b25f35638c6c760a984249b144aecec96e0422673ce94.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6edbd6de196b54fa5d8b25f35638c6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Soul Regression Therapy - Past Life Regression and Between Life Regression, Healing Current Life Wounds and Trauma | Free Book
-date: 2024-10-23 17:42:45
-updated: 2024-10-26 10:23:33
+date: 2024-10-25T01:50:13.311Z
+updated: 2024-10-27T05:21:14.633Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/912cc836d15594065b7453de825a216dbb7a35e094c9e1b9cc9258228f093162.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/912cc836d15594065b7453de825a216
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

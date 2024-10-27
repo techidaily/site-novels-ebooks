@@ -1,7 +1,7 @@
 ---
 title: A Course in Miracles Made Easy | Free Book
-date: 2024-10-25 11:57:37
-updated: 2024-10-26 11:24:24
+date: 2024-10-20T22:10:39.947Z
+updated: 2024-10-26T19:31:36.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b827278a70f219f1f8758ce9630f5424cdfe6c15c3ce8be190ea5762f867910b.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b827278a70f219f1f8758ce9630f542
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

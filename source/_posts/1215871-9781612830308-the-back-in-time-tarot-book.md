@@ -1,7 +1,7 @@
 ---
 title: The Back in Time Tarot Book | Free Book
-date: 2024-10-24 14:51:44
-updated: 2024-10-26 12:14:32
+date: 2024-10-24T02:45:31.332Z
+updated: 2024-10-26T22:35:39.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0356f842068bf8a9c2caea2bb912363736156e683ca6332e75b61438553ecce1.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0356f842068bf8a9c2caea2bb912363
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

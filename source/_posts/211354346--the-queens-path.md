@@ -1,7 +1,7 @@
 ---
 title: The Queen's Path | Free Book
-date: 2024-10-24 16:47:21
-updated: 2024-10-26 10:24:18
+date: 2024-10-25T03:41:56.403Z
+updated: 2024-10-26T19:35:34.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0684c54c0b829532240c6fd932c82ebed7148f094e5208e35257ed27c04eccc.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0684c54c0b829532240c6fd932c82e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: the Secret American Dream | Free Book
-date: 2024-10-24 17:21:34
-updated: 2024-10-26 10:42:42
+date: 2024-10-23T23:18:39.346Z
+updated: 2024-10-27T02:54:55.944Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd088bb7de5c27ac4c70731c68a36c8f42b7fde7e50fc0b605c18999daf5f9fb.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd088bb7de5c27ac4c70731c68a36c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

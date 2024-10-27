@@ -1,7 +1,7 @@
 ---
 title: The Curious Lore of Precious Stones | Free Book
-date: 2024-10-24 15:34:21
-updated: 2024-10-26 11:23:22
+date: 2024-10-24T21:38:02.099Z
+updated: 2024-10-26T20:36:33.951Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0983c2c3406439506661166d53c8ab4d37f85c5088c33feda80461784cd0351e.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0983c2c3406439506661166d53c8ab4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

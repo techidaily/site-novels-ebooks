@@ -1,7 +1,7 @@
 ---
 title: The Poison Path Grimoire | Free Book
-date: 2024-10-23 13:44:21
-updated: 2024-10-26 12:10:10
+date: 2024-10-23T01:22:50.899Z
+updated: 2024-10-27T05:41:39.823Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/06db6fe888863c984b010ded015c4cfbcf3afde48ea865dbd84ffa81a1f7d1fc.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/06db6fe888863c984b010ded015c4cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

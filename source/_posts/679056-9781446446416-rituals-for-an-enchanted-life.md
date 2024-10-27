@@ -1,7 +1,7 @@
 ---
 title: Rituals For An Enchanted Life | Free Book
-date: 2024-10-24 11:55:51
-updated: 2024-10-26 10:53:57
+date: 2024-10-21T03:39:10.386Z
+updated: 2024-10-26T22:39:34.228Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89ce4eaa0e2fa6b06a6ccbd725b2328a7e4d43bc2972aae588a213100e986c38.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89ce4eaa0e2fa6b06a6ccbd725b2328
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

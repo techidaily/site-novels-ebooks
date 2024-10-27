@@ -1,7 +1,7 @@
 ---
 title: Selected Writings of James Allen | Free Book
-date: 2024-10-25 22:53:22
-updated: 2024-10-26 10:47:32
+date: 2024-10-23T02:33:10.346Z
+updated: 2024-10-26T18:43:45.021Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ea222969bc3d2c9bc411d1181c1a489cc38d6d49bb9cf51a20de793e2bdf4ba.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ea222969bc3d2c9bc411d1181c1a48
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

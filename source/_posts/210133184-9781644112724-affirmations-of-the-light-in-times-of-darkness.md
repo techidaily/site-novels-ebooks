@@ -1,7 +1,7 @@
 ---
 title: Affirmations of the Light in Times of Darkness | Free Book
-date: 2024-10-25 20:28:21
-updated: 2024-10-26 10:56:41
+date: 2024-10-21T04:53:51.287Z
+updated: 2024-10-27T03:07:22.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eeb71651fdeebf91d5cac39899e5824e48da10d08021050ecfdfa342e0dae8a9.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eeb71651fdeebf91d5cac39899e5824
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Three Secrets of Aging | Free Book
-date: 2024-10-25 17:46:11
-updated: 2024-10-26 11:44:37
+date: 2024-10-21T02:25:14.133Z
+updated: 2024-10-27T01:49:02.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6fd8034cb0a34575f273f5244a3baf81800148584afc4c5b19bd2d68c0c2491.jpg
@@ -121,3 +121,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6fd8034cb0a34575f273f5244a3baf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

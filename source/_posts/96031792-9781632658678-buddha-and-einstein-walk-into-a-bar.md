@@ -1,7 +1,7 @@
 ---
 title: Buddha and Einstein Walk Into a Bar | Free Book
-date: 2024-10-23 19:15:59
-updated: 2024-10-26 12:14:11
+date: 2024-10-19T23:42:21.119Z
+updated: 2024-10-26T19:35:01.562Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c09ebb9c9e2ac3caa09227de5b5d6712b795ffcd536c7b5aba04fa6fc4e6c420.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c09ebb9c9e2ac3caa09227de5b5d671
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

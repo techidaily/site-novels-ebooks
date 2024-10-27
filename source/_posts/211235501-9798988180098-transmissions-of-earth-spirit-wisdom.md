@@ -1,7 +1,7 @@
 ---
 title: Transmissions of Earth Spirit Wisdom | Free Book
-date: 2024-10-23 12:16:44
-updated: 2024-10-26 11:30:55
+date: 2024-10-24T02:27:00.301Z
+updated: 2024-10-27T02:21:07.545Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a8c18fad897634bb13c5e371d93710e72876f60441e343d0f40b5b94f08047e1.jpg
@@ -222,3 +222,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a8c18fad897634bb13c5e371d93710e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

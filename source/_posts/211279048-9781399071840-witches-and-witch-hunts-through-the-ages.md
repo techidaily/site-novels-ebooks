@@ -1,7 +1,7 @@
 ---
 title: Witches and Witch Hunts Through the Ages | Free Book
-date: 2024-10-24 15:17:14
-updated: 2024-10-26 12:52:14
+date: 2024-10-22T20:20:40.294Z
+updated: 2024-10-26T16:20:46.276Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80c10d3bcd4c25bde8d78f7ea3b92f5ad4f26162d86bfd82da5d52b955a308a5.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80c10d3bcd4c25bde8d78f7ea3b92f5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

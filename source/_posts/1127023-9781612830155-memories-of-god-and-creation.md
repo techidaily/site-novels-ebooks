@@ -1,7 +1,7 @@
 ---
 title: Memories of God and Creation | Free Book
-date: 2024-10-23 15:40:56
-updated: 2024-10-26 12:34:19
+date: 2024-10-19T19:20:42.356Z
+updated: 2024-10-26T21:11:02.632Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bf266b0c8b6fbfd4b3cef64826cf0626b8c6448b2058a583231c0f638ec658ed.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bf266b0c8b6fbfd4b3cef64826cf062
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Haunted Old West (2nd ed.) | Free Book
-date: 2024-10-23 22:33:55
-updated: 2024-10-26 10:51:51
+date: 2024-10-22T23:09:59.442Z
+updated: 2024-10-26T21:57:04.328Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/8059c72ae103569b42a7db8323b71e0aed2cf7562a9bde558fdf837b0080b995.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8059c72ae103569b42a7db8323b71e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

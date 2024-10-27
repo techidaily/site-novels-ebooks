@@ -1,7 +1,7 @@
 ---
 title: Against the Pollution of the I | Free Book
-date: 2024-10-24 19:52:52
-updated: 2024-10-26 11:18:11
+date: 2024-10-21T02:50:17.783Z
+updated: 2024-10-26T19:48:42.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/daa8fe5a30fb237d90396848c47e6f3ce7711d08de3c46340f7a285e6b3565ec.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/daa8fe5a30fb237d90396848c47e6f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

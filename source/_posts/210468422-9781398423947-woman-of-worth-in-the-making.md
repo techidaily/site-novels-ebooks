@@ -1,7 +1,7 @@
 ---
 title: Woman of Worth in the Making | Free Book
-date: 2024-10-24 10:56:58
-updated: 2024-10-26 11:54:36
+date: 2024-10-19T20:53:56.004Z
+updated: 2024-10-27T03:50:35.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cc145f6f4713189753905f89e5ff1bb32a0e29a524c9954dd141b115b73c5b0.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cc145f6f4713189753905f89e5ff1b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

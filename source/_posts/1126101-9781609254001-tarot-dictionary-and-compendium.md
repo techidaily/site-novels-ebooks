@@ -1,7 +1,7 @@
 ---
 title: Tarot Dictionary and Compendium | Free Book
-date: 2024-10-23 17:41:41
-updated: 2024-10-26 12:57:51
+date: 2024-10-23T18:47:44.576Z
+updated: 2024-10-27T01:39:53.679Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/25e2ea6e444672b1d50759306136997498870f41ba3a6f9a8eb33a88f2e2ebe9.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25e2ea6e444672b1d50759306136997
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

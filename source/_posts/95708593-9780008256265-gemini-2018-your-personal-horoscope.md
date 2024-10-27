@@ -1,7 +1,7 @@
 ---
 title: "Gemini 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-25 13:51:26
-updated: 2024-10-26 11:34:48
+date: 2024-10-22T21:55:18.664Z
+updated: 2024-10-27T04:54:28.873Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90b0c1e58d9b71585a89d7e9f47fabea5333bf36bd8f19808c4acc16f4dd7aed.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90b0c1e58d9b71585a89d7e9f47fabe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

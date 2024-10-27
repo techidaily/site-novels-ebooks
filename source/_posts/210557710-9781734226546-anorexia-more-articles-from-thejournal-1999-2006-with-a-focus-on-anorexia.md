@@ -1,7 +1,7 @@
 ---
 title: Anorexia - More articles from theJournal (1999-2006) with a focus on Anorexia | Free Book
-date: 2024-10-24 14:36:40
-updated: 2024-10-26 10:12:47
+date: 2024-10-23T19:08:02.735Z
+updated: 2024-10-26T18:13:05.995Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/187370f6407c891db5e90d33758d3b40d017ec7db0cafb9bb625674f8cf38f59.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/187370f6407c891db5e90d33758d3b4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

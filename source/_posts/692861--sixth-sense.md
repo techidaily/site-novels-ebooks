@@ -1,7 +1,7 @@
 ---
 title: Sixth Sense | Free Book
-date: 2024-10-25 23:11:50
-updated: 2024-10-26 12:26:35
+date: 2024-10-24T18:35:47.433Z
+updated: 2024-10-26T23:05:35.007Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07a98e3f23fc2e0099270f73b43e698ed5f4ef7eae93e519a6e621db6268e982.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07a98e3f23fc2e0099270f73b43e698
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

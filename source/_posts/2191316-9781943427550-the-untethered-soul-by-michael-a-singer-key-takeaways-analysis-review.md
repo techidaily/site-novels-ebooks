@@ -1,7 +1,7 @@
 ---
 title: The Untethered Soul by Michael A. Singer | Key Takeaways, Analysis & Review | Free Book
-date: 2024-10-24 10:36:23
-updated: 2024-10-26 12:29:11
+date: 2024-10-22T23:42:43.695Z
+updated: 2024-10-26T19:12:22.818Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2875a50f3b36d80c9b7309241faa88f96c92e699fc5f0380f07766f96fc20b23.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2875a50f3b36d80c9b7309241faa88f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

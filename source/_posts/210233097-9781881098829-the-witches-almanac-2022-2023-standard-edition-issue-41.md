@@ -1,7 +1,7 @@
 ---
 title: The Witches' Almanac 2022-2023 Standard Edition Issue 41 | Free Book
-date: 2024-10-23 14:13:29
-updated: 2024-10-26 11:50:24
+date: 2024-10-23T04:14:26.555Z
+updated: 2024-10-26T16:00:16.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca61d40db78a20c1bc10f2d7ec6fb2d7fd6cad3bf7f3e6e86b25e9b47090a4ae.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca61d40db78a20c1bc10f2d7ec6fb2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

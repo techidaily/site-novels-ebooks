@@ -1,7 +1,7 @@
 ---
 title: The Largest Vital Organ of the Body is the Environment | Free Book
-date: 2024-10-24 23:16:51
-updated: 2024-10-26 11:37:56
+date: 2024-10-22T02:26:30.908Z
+updated: 2024-10-26T18:28:46.062Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c80b740328294f09c7fdbcf591de2eb09e0d80925c3d064d1944eaf8daf2bf51.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c80b740328294f09c7fdbcf591de2eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

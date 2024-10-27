@@ -1,7 +1,7 @@
 ---
 title: Basic Psychic Development | Free Book
-date: 2024-10-23 21:53:44
-updated: 2024-10-26 11:13:19
+date: 2024-10-23T23:27:29.046Z
+updated: 2024-10-27T01:35:50.598Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61922db3e44eaadc65d282378d6a7a84198af098d0eb644763d54b52408a8d20.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61922db3e44eaadc65d282378d6a7a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

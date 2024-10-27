@@ -1,7 +1,7 @@
 ---
 title: Summary of Dean Koontz's A Big Little Life | Free Book
-date: 2024-10-24 20:45:29
-updated: 2024-10-26 10:38:38
+date: 2024-10-23T04:36:49.382Z
+updated: 2024-10-26T17:09:17.017Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/714171d1e34c070f00946582e709efcb95e0232e514ef69aed3059922b327d04.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/714171d1e34c070f00946582e709efc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

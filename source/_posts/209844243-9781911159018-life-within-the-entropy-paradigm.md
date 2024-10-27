@@ -1,7 +1,7 @@
 ---
 title: "Life Within the Entropy Paradigm: | Free Book"
-date: 2024-10-24 22:48:58
-updated: 2024-10-26 11:57:50
+date: 2024-10-20T01:41:01.561Z
+updated: 2024-10-26T18:58:49.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f1898130e7624762d2251003b54ff0f764615d125d7bf6f0609f0c69cd74a73.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f1898130e7624762d2251003b54ff0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

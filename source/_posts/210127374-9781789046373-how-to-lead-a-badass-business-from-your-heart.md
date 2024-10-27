@@ -1,7 +1,7 @@
 ---
 title: How to Lead a Badass Business From Your Heart | Free Book
-date: 2024-10-25 17:25:40
-updated: 2024-10-26 12:56:24
+date: 2024-10-20T22:24:38.100Z
+updated: 2024-10-26T19:33:52.478Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cb74c066c63c284b70fe5dfcaa8ce24cec68f229b422bdb98401f15e753b420.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cb74c066c63c284b70fe5dfcaa8ce2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

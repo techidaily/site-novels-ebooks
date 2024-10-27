@@ -1,7 +1,7 @@
 ---
 title: The New Psychedelic Revolution | Free Book
-date: 2024-10-24 22:32:34
-updated: 2024-10-26 12:13:56
+date: 2024-10-24T21:20:04.270Z
+updated: 2024-10-27T01:20:18.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ad60e7074217e65d8633454fccaa2a32baac4a94c15c5f24de102bbb11164cc.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ad60e7074217e65d8633454fccaa2a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

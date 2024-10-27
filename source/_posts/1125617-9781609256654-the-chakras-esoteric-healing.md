@@ -1,7 +1,7 @@
 ---
 title: The Chakras & Esoteric Healing | Free Book
-date: 2024-10-23 15:39:57
-updated: 2024-10-26 10:46:39
+date: 2024-10-21T23:18:51.816Z
+updated: 2024-10-27T03:00:10.798Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fee20e1c6d77991dcb7dcb00fbb382e015a2927388e515f39d49614a0ecb70bb.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fee20e1c6d77991dcb7dcb00fbb382e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Curanderismo Soul Retrieval | Free Book
-date: 2024-10-23 17:40:45
-updated: 2024-10-26 10:21:37
+date: 2024-10-22T01:22:09.444Z
+updated: 2024-10-27T01:34:45.318Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed51578ee401a573874d976459b0dd19d6aa.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

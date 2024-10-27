@@ -1,7 +1,7 @@
 ---
 title: From Comatose To Consciousness | Free Book
-date: 2024-10-24 10:49:41
-updated: 2024-10-26 10:10:13
+date: 2024-10-19T18:36:23.524Z
+updated: 2024-10-27T01:42:03.441Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ff4fd536d433fbf0f7663df476cfc15469bb370fa263942b1a01d1e6a54904c.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ff4fd536d433fbf0f7663df476cfc1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

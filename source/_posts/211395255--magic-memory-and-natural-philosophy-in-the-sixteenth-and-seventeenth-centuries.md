@@ -1,7 +1,7 @@
 ---
 title: Magic, Memory and Natural Philosophy in the Sixteenth and Seventeenth Centuries | Free Book
-date: 2024-10-25 11:24:14
-updated: 2024-10-26 12:39:11
+date: 2024-10-26T02:26:50.555Z
+updated: 2024-10-26T18:14:27.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d89c6c0b8b7bb00ff6160d848236fac73cd694bede6ae678750eec60f3dfbe2.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d89c6c0b8b7bb00ff6160d848236fa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

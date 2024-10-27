@@ -1,7 +1,7 @@
 ---
 title: Birthright Knowing | Free Book
-date: 2024-10-25 15:25:21
-updated: 2024-10-26 11:24:10
+date: 2024-10-22T03:18:06.012Z
+updated: 2024-10-27T01:19:40.038Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/6eacab30df26697174255046bef633e07cc92a25058e30ff79d315de98247434.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eacab30df26697174255046bef633e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

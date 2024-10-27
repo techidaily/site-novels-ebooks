@@ -1,7 +1,7 @@
 ---
 title: Twenty Three Years of Lessons | Free Book
-date: 2024-10-25 14:30:13
-updated: 2024-10-26 12:25:30
+date: 2024-10-22T19:05:59.641Z
+updated: 2024-10-27T02:54:49.887Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99573b23d182618108990dca196ecf40d8c23f9fdc035df6b26e95d4ff814c27.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99573b23d182618108990dca196ecf4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

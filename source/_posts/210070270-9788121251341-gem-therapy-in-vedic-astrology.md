@@ -1,7 +1,7 @@
 ---
 title: Gem therapy In Vedic Astrology | Free Book
-date: 2024-10-23 18:17:18
-updated: 2024-10-26 11:38:57
+date: 2024-10-21T04:46:29.431Z
+updated: 2024-10-27T04:13:17.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3eea2120db73da1b262b8ab770d8e8a908fe907535497c4ad28d3b8e5e690cee.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3eea2120db73da1b262b8ab770d8e8a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

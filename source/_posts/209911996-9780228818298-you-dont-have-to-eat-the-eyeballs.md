@@ -1,7 +1,7 @@
 ---
 title: You Don't Have to Eat the Eyeballs | Free Book
-date: 2024-10-23 11:58:57
-updated: 2024-10-26 12:22:56
+date: 2024-10-24T01:33:14.886Z
+updated: 2024-10-26T23:41:22.976Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75248705885f313f15696d1794ad89651269959a9278241557e437b49322e838.jpg
@@ -207,3 +207,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75248705885f313f15696d1794ad896
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

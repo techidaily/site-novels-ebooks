@@ -1,7 +1,7 @@
 ---
 title: "Love Astrology: Capricorn | Free Book"
-date: 2024-10-24 22:42:47
-updated: 2024-10-26 10:26:54
+date: 2024-10-20T03:22:52.318Z
+updated: 2024-10-27T05:38:37.238Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03ff42d98bbc8b39481ee1d481ec3bec5821847cf39f132b2a7c358cc6213584.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03ff42d98bbc8b39481ee1d481ec3be
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

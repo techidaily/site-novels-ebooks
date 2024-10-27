@@ -1,7 +1,7 @@
 ---
 title: "Hauntings: True Stories of Unquiet Spirits | Free Book"
-date: 2024-10-25 11:20:43
-updated: 2024-10-26 12:58:26
+date: 2024-10-25T04:52:58.605Z
+updated: 2024-10-27T03:33:07.081Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ddb59113d99cc55eb8cde52e3149c558e3cadc5ec77f153d2c54f9d0bd031299.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ddb59113d99cc55eb8cde52e3149c55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

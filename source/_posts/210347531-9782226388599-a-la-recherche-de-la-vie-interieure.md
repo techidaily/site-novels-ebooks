@@ -1,7 +1,7 @@
 ---
 title: A la recherche de la vie intérieure | Free Book
-date: 2024-10-25 17:36:29
-updated: 2024-10-26 10:26:55
+date: 2024-10-21T22:21:36.839Z
+updated: 2024-10-27T03:35:27.171Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f40704757db090608a7ca34d70affe5bfd8a0953ed39b0049bb15e5099f0625.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f40704757db090608a7ca34d70affe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

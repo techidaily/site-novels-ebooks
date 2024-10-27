@@ -1,7 +1,7 @@
 ---
 title: The Way of the Water Priestess | Free Book
-date: 2024-10-23 21:57:11
-updated: 2024-10-26 11:57:15
+date: 2024-10-22T02:57:37.190Z
+updated: 2024-10-26T18:52:41.549Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/006543281d172c87517bc28dd371dd3060579bc580f36b845ed64dce08aabc4a.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/006543281d172c87517bc28dd371dd3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

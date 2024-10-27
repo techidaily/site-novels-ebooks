@@ -1,7 +1,7 @@
 ---
 title: The Corpus Hermeticum (translated) | Free Book
-date: 2024-10-25 15:57:23
-updated: 2024-10-26 10:14:55
+date: 2024-10-23T01:41:01.039Z
+updated: 2024-10-26T19:10:01.123Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8630dac47b45083ffbd8cea3761c9917e6c00abbd75ee070bca8cd965e1b262.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8630dac47b45083ffbd8cea3761c99
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

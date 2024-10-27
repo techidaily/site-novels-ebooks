@@ -1,7 +1,7 @@
 ---
 title: Flying Saucers over the White House | Free Book
-date: 2024-10-25 13:37:28
-updated: 2024-10-26 10:31:44
+date: 2024-10-22T02:31:28.487Z
+updated: 2024-10-27T03:29:08.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5fb0aac5eb5b53d752063b33a7e4bf637e8f95c60ce5c4ba148c32fb0b17e59.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5fb0aac5eb5b53d752063b33a7e4bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

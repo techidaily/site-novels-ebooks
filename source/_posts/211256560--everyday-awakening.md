@@ -1,7 +1,7 @@
 ---
 title: Everyday Awakening | Free Book
-date: 2024-10-23 16:44:25
-updated: 2024-10-26 11:33:32
+date: 2024-10-19T19:49:03.538Z
+updated: 2024-10-26T19:21:21.497Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fba247faef9e24103b1d90e84b5a11d0c17357a7c010b81f82af005074c60e86.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fba247faef9e24103b1d90e84b5a11d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

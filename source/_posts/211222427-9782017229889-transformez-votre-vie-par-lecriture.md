@@ -1,7 +1,7 @@
 ---
 title: Transformez votre vie par l'écriture | Free Book
-date: 2024-10-23 22:42:41
-updated: 2024-10-26 10:55:13
+date: 2024-10-20T16:51:05.661Z
+updated: 2024-10-27T03:33:35.129Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f168c7e3dc07f21d0b0261355d898cbd747a86bf8b7657dcb549252695f1784.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f168c7e3dc07f21d0b0261355d898c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

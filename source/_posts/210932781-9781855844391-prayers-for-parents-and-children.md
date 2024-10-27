@@ -1,7 +1,7 @@
 ---
 title: Prayers for Parents and Children | Free Book
-date: 2024-10-25 12:49:39
-updated: 2024-10-26 10:43:30
+date: 2024-10-24T03:53:26.699Z
+updated: 2024-10-27T04:11:57.734Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/68ad099e7bd711e4d515b6f8e9580f29e87ebef380b367ad9cff53f21536fc49.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/68ad099e7bd711e4d515b6f8e9580f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

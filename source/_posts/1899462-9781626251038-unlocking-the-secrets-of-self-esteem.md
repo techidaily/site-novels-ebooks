@@ -1,7 +1,7 @@
 ---
 title: Unlocking the Secrets of Self-Esteem | Free Book
-date: 2024-10-24 11:20:42
-updated: 2024-10-26 12:12:50
+date: 2024-10-20T18:35:45.344Z
+updated: 2024-10-27T02:38:56.873Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8124c1ba44bd4c7ab877f7ede26a2feaec51ae1e62de1774fce8061de497058e.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8124c1ba44bd4c7ab877f7ede26a2fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

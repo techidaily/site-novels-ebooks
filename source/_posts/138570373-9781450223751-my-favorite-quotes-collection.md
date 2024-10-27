@@ -1,7 +1,7 @@
 ---
 title: My Favorite Quotes Collection | Free Book
-date: 2024-10-24 18:41:56
-updated: 2024-10-26 11:31:23
+date: 2024-10-22T22:42:15.940Z
+updated: 2024-10-27T04:46:31.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e4237427c464dfbecb34f02fd5d28935a7280875462eb5a02e817f1838d40491.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e4237427c464dfbecb34f02fd5d2893
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Flying Saucers Over America | Free Book
-date: 2024-10-23 21:42:16
-updated: 2024-10-26 10:48:20
+date: 2024-10-20T20:38:06.295Z
+updated: 2024-10-26T22:29:27.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec82fabac2233160c243889b1cf60028d3e155d0df42f05899a73cb15d26d575.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec82fabac2233160c243889b1cf6002
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

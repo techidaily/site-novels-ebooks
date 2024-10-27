@@ -1,7 +1,7 @@
 ---
 title: Crystal Healing for the Heart | Free Book
-date: 2024-10-25 10:46:17
-updated: 2024-10-26 12:26:16
+date: 2024-10-22T17:23:09.856Z
+updated: 2024-10-26T22:42:25.904Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e3569353588c3286653c8aab0f25fb73d8bfd6afc967e1fbc7c8038c4c5bd0b.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e3569353588c3286653c8aab0f25fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

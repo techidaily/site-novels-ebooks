@@ -1,7 +1,7 @@
 ---
 title: Ancient Wisdom for Modern Needs | Free Book
-date: 2024-10-24 10:24:29
-updated: 2024-10-26 12:41:21
+date: 2024-10-26T05:03:41.336Z
+updated: 2024-10-26T18:00:08.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ddfcf889db61dad69fb164e562f02105345de06e331b693725bb7450d829e8b4.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ddfcf889db61dad69fb164e562f0210
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

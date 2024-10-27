@@ -1,7 +1,7 @@
 ---
 title: Rojin, Buddha's Mystical Power | Free Book
-date: 2024-10-25 14:54:21
-updated: 2024-10-26 10:44:27
+date: 2024-10-22T02:17:05.307Z
+updated: 2024-10-27T04:58:05.818Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efb99a83aac34029399b719c931ca6b7658899d8c3c6b13d6e688793f4780337.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efb99a83aac34029399b719c931ca6b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Reinventing the Body, Resurrecting the Soul | Free Book
-date: 2024-10-23 22:49:18
-updated: 2024-10-26 11:29:47
+date: 2024-10-22T21:19:39.273Z
+updated: 2024-10-27T03:08:00.137Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/53d32b1f7d88970c2fadd618b99d3ec69bad500b2b9d8db099f8f65576d1a54e.jpg
@@ -205,3 +205,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/53d32b1f7d88970c2fadd618b99d3ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

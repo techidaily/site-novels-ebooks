@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - Deathwalking | Free Book
-date: 2024-10-25 13:37:27
-updated: 2024-10-26 12:13:35
+date: 2024-10-24T16:52:26.281Z
+updated: 2024-10-26T22:40:00.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c147fd535f442cea450b0707a9a50468977c887415844fc965d56bc67ad7c10e.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c147fd535f442cea450b0707a9a5046
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

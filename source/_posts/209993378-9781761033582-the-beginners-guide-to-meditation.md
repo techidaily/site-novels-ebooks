@@ -1,7 +1,7 @@
 ---
 title: The Beginners Guide to Meditation | Free Book
-date: 2024-10-25 20:25:28
-updated: 2024-10-26 12:42:54
+date: 2024-10-19T19:32:28.517Z
+updated: 2024-10-26T20:03:42.795Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0df4f945408c778e227121d9800c9f981b59bf4dda64bbedf46846a96d8721cc.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0df4f945408c778e227121d9800c9f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

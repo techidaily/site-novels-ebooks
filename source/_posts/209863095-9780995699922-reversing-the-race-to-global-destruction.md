@@ -1,7 +1,7 @@
 ---
 title: Reversing the Race to Global Destruction | Free Book
-date: 2024-10-24 12:25:45
-updated: 2024-10-26 12:33:10
+date: 2024-10-23T02:15:24.737Z
+updated: 2024-10-27T04:04:06.745Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/272adb564d8f6c4b602b77a3f8d7f9e1aeb8d5093eab58d6569811fd111adda2.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/272adb564d8f6c4b602b77a3f8d7f9e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

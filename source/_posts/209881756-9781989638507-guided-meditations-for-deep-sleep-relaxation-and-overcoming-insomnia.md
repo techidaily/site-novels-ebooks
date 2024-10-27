@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations For Deep Sleep, Relaxation, And Overcoming Insomnia | Free Book
-date: 2024-10-23 23:43:48
-updated: 2024-10-26 12:43:25
+date: 2024-10-22T19:08:43.237Z
+updated: 2024-10-26T22:29:58.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9d9f127aca4cb1082b1d78d9f2e5631938846cb78e4f5cebf98951f2ef1b87b.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9d9f127aca4cb1082b1d78d9f2e563
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

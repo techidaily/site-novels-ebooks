@@ -1,7 +1,7 @@
 ---
 title: Beyond These Four Walls | Free Book
-date: 2024-10-24 20:19:12
-updated: 2024-10-26 11:43:24
+date: 2024-10-24T19:56:30.505Z
+updated: 2024-10-26T17:37:46.592Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ea2710cf07d9d68987ba0a5dd7b52efdadded496ca6649c97dc3e82ca2c06b1.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ea2710cf07d9d68987ba0a5dd7b52e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

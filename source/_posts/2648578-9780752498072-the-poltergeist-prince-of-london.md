@@ -1,7 +1,7 @@
 ---
 title: The Poltergeist Prince of London | Free Book
-date: 2024-10-25 23:44:22
-updated: 2024-10-26 10:46:29
+date: 2024-10-21T19:47:40.780Z
+updated: 2024-10-27T02:42:54.264Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e7e22e7d512bc6b26d7723391ed8c91a12daca8db504d6d441528a891e10031.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e7e22e7d512bc6b26d7723391ed8c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

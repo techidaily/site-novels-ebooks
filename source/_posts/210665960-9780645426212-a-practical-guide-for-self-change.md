@@ -1,7 +1,7 @@
 ---
 title: A Practical Guide for Self Change | Free Book
-date: 2024-10-25 14:38:34
-updated: 2024-10-26 10:45:16
+date: 2024-10-20T02:12:22.434Z
+updated: 2024-10-26T17:13:13.866Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8eec0d3d9b291c3d97e059379e73dde599477a5876bae12ab84177076867998d.jpg
@@ -233,3 +233,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8eec0d3d9b291c3d97e059379e73dde
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

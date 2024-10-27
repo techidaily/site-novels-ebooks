@@ -1,7 +1,7 @@
 ---
 title: Ezekiel's Awakening Into Light | Free Book
-date: 2024-10-24 21:46:18
-updated: 2024-10-26 11:39:12
+date: 2024-10-24T18:02:11.829Z
+updated: 2024-10-27T03:29:07.974Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/41067469af553e420fd066e5ee15dd2823fc2e56470be0df82a8759d164d3954.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/41067469af553e420fd066e5ee15dd2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

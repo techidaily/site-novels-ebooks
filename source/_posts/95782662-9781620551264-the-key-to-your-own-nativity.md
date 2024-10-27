@@ -1,7 +1,7 @@
 ---
 title: The Key to Your Own Nativity | Free Book
-date: 2024-10-24 21:16:12
-updated: 2024-10-26 11:15:27
+date: 2024-10-23T18:43:43.637Z
+updated: 2024-10-26T20:00:32.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a2ea57b5d479f28a8bcc5f88c9bd12ef1833a8f89c271b87083a44fb373c92a.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a2ea57b5d479f28a8bcc5f88c9bd12
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

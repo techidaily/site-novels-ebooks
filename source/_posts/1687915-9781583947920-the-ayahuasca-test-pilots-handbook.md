@@ -1,7 +1,7 @@
 ---
 title: The Ayahuasca Test Pilots Handbook | Free Book
-date: 2024-10-25 16:14:50
-updated: 2024-10-26 10:59:42
+date: 2024-10-19T17:23:55.626Z
+updated: 2024-10-26T20:01:31.342Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28ae5772ca66655745c088df542f29d748c91b1102b16a68b052fc4391c4cce5.jpg
@@ -362,3 +362,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28ae5772ca66655745c088df542f29d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

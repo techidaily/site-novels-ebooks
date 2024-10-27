@@ -1,7 +1,7 @@
 ---
 title: "The Horse in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 14:35:43
-updated: 2024-10-26 11:45:10
+date: 2024-10-19T21:37:35.566Z
+updated: 2024-10-27T02:44:41.676Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/741846c95dd2d72cbc74cefb58f3a7a803fdc08c1f03902db7142d8633cb0a96.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/741846c95dd2d72cbc74cefb58f3a7a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Libra 2016: Your Personal Horoscope | Free Book"
-date: 2024-10-25 21:39:12
-updated: 2024-10-26 10:34:28
+date: 2024-10-19T22:38:26.341Z
+updated: 2024-10-27T00:56:41.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd33217b3cae8a30aa6a01d231dcfd2a4777644b638145d666a6a93d3b7efe7b.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd33217b3cae8a30aa6a01d231dcfd2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Healing the Liminal | Free Book
-date: 2024-10-25 11:51:31
-updated: 2024-10-26 11:44:52
+date: 2024-10-24T04:40:27.826Z
+updated: 2024-10-27T02:57:15.200Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba56bea73779db5ff861d5aaf446a78cbbb22e2d02b2490d43c07c94c907209b.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba56bea73779db5ff861d5aaf446a78
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Illuminating Our True Nature | Free Book
-date: 2024-10-25 12:39:42
-updated: 2024-10-26 10:29:53
+date: 2024-10-22T18:45:38.210Z
+updated: 2024-10-26T18:49:44.948Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad7fcbcad5de8c9e4d3a7c5c5bee04885ba81f7bb810007d7f034f434df136fd.jpg
@@ -216,3 +216,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad7fcbcad5de8c9e4d3a7c5c5bee048
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

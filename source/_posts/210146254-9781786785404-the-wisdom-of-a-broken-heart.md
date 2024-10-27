@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of a Broken Heart | Free Book
-date: 2024-10-25 19:58:47
-updated: 2024-10-26 12:55:42
+date: 2024-10-22T16:08:59.002Z
+updated: 2024-10-27T00:37:37.856Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0ec179f937a5def281e8640b2e133eb6060d939b986f1aa241eb786f2e0739e.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0ec179f937a5def281e8640b2e133e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

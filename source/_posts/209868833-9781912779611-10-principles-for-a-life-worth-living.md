@@ -1,7 +1,7 @@
 ---
 title: 10 Principles for A Life Worth Living | Free Book
-date: 2024-10-25 17:32:53
-updated: 2024-10-26 10:41:13
+date: 2024-10-20T02:01:39.697Z
+updated: 2024-10-26T19:07:11.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60bae08a87b0aa2bb36fc6ec7350b13f575f243c7390c11c1a1b34441fd7aed7.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60bae08a87b0aa2bb36fc6ec7350b13
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

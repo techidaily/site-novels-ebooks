@@ -1,7 +1,7 @@
 ---
 title: "Casebook: Alien Implants | Free Book"
-date: 2024-10-23 23:22:14
-updated: 2024-10-26 11:47:52
+date: 2024-10-25T03:06:12.180Z
+updated: 2024-10-27T05:32:03.006Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/346d2774956400ae6c8ae6ae01f94679c809c34d5c1ec2c84ce561624276d88b.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/346d2774956400ae6c8ae6ae01f9467
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

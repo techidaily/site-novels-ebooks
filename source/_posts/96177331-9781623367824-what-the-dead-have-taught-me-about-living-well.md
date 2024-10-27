@@ -1,7 +1,7 @@
 ---
 title: What the Dead Have Taught Me About Living Well | Free Book
-date: 2024-10-25 11:19:33
-updated: 2024-10-26 10:16:50
+date: 2024-10-23T01:50:43.833Z
+updated: 2024-10-27T03:34:02.139Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0c4e1c0abd165c88a561c7395a805a8e76135de25d1dc047cd873528cb5f86b.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0c4e1c0abd165c88a561c7395a805a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

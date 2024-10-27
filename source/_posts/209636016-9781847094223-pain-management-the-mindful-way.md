@@ -1,7 +1,7 @@
 ---
 title: "Pain Management: The Mindful Way | Free Book"
-date: 2024-10-24 12:34:32
-updated: 2024-10-26 11:16:58
+date: 2024-10-19T19:32:58.364Z
+updated: 2024-10-26T19:08:15.028Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d8a905b9f19d59ffdde33a83e0deed6f055a1cf76336211c3d0086b37b87cad.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d8a905b9f19d59ffdde33a83e0deed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Beginner's Guide to Crystals | Free Book
-date: 2024-10-24 10:29:46
-updated: 2024-10-26 10:15:56
+date: 2024-10-24T19:44:44.509Z
+updated: 2024-10-27T05:15:25.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/67c09ddd92beb112f362a8e8d35514258aa9b6002156ece84f8e507dce2bf8b4.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/67c09ddd92beb112f362a8e8d355142
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

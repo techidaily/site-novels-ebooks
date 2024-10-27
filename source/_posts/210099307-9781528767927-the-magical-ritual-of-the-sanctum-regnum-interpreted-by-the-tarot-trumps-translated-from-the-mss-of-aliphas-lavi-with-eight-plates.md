@@ -1,7 +1,7 @@
 ---
 title: The Magical Ritual of the Sanctum Regnum - Interpreted by the Tarot Trumps - Translated from the Mss. of Ã‰liphas LÃ©vi - With Eight Plates | Free Book
-date: 2024-10-23 15:17:38
-updated: 2024-10-26 11:29:33
+date: 2024-10-22T01:33:21.387Z
+updated: 2024-10-27T03:51:18.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/121b118e39ccf5ea751f4feb75a74a4ccad3e66c9dd5327a8f5c42337d141390.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/121b118e39ccf5ea751f4feb75a74a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Remembering: the Soul of You | Free Book"
-date: 2024-10-24 16:57:34
-updated: 2024-10-26 12:32:13
+date: 2024-10-21T16:28:47.909Z
+updated: 2024-10-26T21:15:57.482Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60be1915d92d22cfd7a0b50e8d27d9a549765cd40c94c358d86fcb1c2e8682b7.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60be1915d92d22cfd7a0b50e8d27d9a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

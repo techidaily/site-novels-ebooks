@@ -1,7 +1,7 @@
 ---
 title: "Gemini 2017: Your Personal Horoscope | Free Book"
-date: 2024-10-25 15:34:45
-updated: 2024-10-26 11:55:31
+date: 2024-10-22T18:59:11.767Z
+updated: 2024-10-26T20:05:11.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76c8f3909af514072dc0955721f02bedca52848d390b79935885d489cca93ebf.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76c8f3909af514072dc0955721f02be
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

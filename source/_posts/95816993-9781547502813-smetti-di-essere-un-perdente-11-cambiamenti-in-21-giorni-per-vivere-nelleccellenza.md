@@ -1,7 +1,7 @@
 ---
 title: Smetti di essere un perdente. 11 cambiamenti in 21 giorni per vivere nell'eccellenza, | Free Book
-date: 2024-10-23 22:34:15
-updated: 2024-10-26 11:14:44
+date: 2024-10-25T05:15:06.148Z
+updated: 2024-10-27T05:32:17.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e03e020e530ee4f32b28076ebacedb7e1bb890848f7fff6b08869e046f1efc84.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e03e020e530ee4f32b28076ebacedb7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

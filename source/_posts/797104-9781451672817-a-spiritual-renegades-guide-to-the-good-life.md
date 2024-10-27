@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Renegade's Guide to the Good Life | Free Book
-date: 2024-10-25 10:13:45
-updated: 2024-10-26 12:55:28
+date: 2024-10-23T20:28:56.537Z
+updated: 2024-10-26T20:26:25.391Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a5ab0d73dce7d9a28a1bbe6821375b51d6b3b5917f5ad57e3ed22fb060788ffb.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a5ab0d73dce7d9a28a1bbe6821375b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Meditation | Free Book
-date: 2024-10-25 13:25:23
-updated: 2024-10-26 10:47:57
+date: 2024-10-22T02:00:52.858Z
+updated: 2024-10-27T01:18:38.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a05e2bd842262a677f633e49cd77f449f16cc8fd5996aed6bd5a9667fca5d346.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a05e2bd842262a677f633e49cd77f44
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Aquarius | Free Book"
-date: 2024-10-24 20:25:55
-updated: 2024-10-26 12:13:49
+date: 2024-10-19T22:20:52.856Z
+updated: 2024-10-26T17:59:20.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/515151c62db0c06e64719c623b9305a71ec3936fde812b28598cffbe824c0ef0.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/515151c62db0c06e64719c623b9305a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

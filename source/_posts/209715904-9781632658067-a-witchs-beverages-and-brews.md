@@ -1,7 +1,7 @@
 ---
 title: A Witch's Beverages and Brews | Free Book
-date: 2024-10-24 21:44:57
-updated: 2024-10-26 12:55:11
+date: 2024-10-20T02:09:49.855Z
+updated: 2024-10-26T21:29:27.729Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6286d94b0a58d0bd2856bcd8524fc62b1517083a52240f0d4a9527b1b9cab87c.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6286d94b0a58d0bd2856bcd8524fc62
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

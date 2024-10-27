@@ -1,7 +1,7 @@
 ---
 title: The Occult, Magic & Witchcraft | Free Book
-date: 2024-10-24 22:25:40
-updated: 2024-10-26 12:39:14
+date: 2024-10-25T23:47:42.666Z
+updated: 2024-10-27T02:58:35.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23bb90e91f6683b64c9cbc4ef4ea0f9daf86fb785c46f94fd2ffbb51bec85892.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23bb90e91f6683b64c9cbc4ef4ea0f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

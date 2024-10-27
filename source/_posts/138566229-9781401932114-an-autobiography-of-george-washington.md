@@ -1,7 +1,7 @@
 ---
 title: An Autobiography of George Washington | Free Book
-date: 2024-10-23 10:52:39
-updated: 2024-10-26 10:55:53
+date: 2024-10-26T02:39:08.250Z
+updated: 2024-10-26T21:17:40.312Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89845c7c2a160d3c5039f7078504bce6bd333a5aadf1f917506d4eaec9e0ae82.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89845c7c2a160d3c5039f7078504bce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

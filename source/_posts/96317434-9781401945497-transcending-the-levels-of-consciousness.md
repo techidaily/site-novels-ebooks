@@ -1,7 +1,7 @@
 ---
 title: Transcending the Levels of Consciousness | Free Book
-date: 2024-10-25 14:40:10
-updated: 2024-10-26 12:10:18
+date: 2024-10-25T16:55:11.706Z
+updated: 2024-10-27T04:36:29.972Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2264d219f5abde39b0ef11083f4bc4cba8f0f449064c266171264e740028a23.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2264d219f5abde39b0ef11083f4bc4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

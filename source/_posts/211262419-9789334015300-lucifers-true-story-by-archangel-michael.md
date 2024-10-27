@@ -1,7 +1,7 @@
 ---
 title: Lucifer's True Story by Archangel Michael | Free Book
-date: 2024-10-23 19:44:30
-updated: 2024-10-26 11:12:50
+date: 2024-10-19T19:58:39.590Z
+updated: 2024-10-26T18:04:42.223Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c92593ae26f82e2353725502526b520aa38e76d130e90efce4e29c5dd1f37563.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c92593ae26f82e2353725502526b520
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

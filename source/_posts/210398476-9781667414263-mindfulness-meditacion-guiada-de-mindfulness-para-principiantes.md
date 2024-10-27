@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: meditación guiada de Mindfulness para principiantes | Free Book"
-date: 2024-10-23 14:15:40
-updated: 2024-10-26 12:51:13
+date: 2024-10-22T23:12:42.350Z
+updated: 2024-10-27T03:40:45.261Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f1a6279e5d9b3419c4e5ff43ffe0772bb10d8f6b17f6ab3875d1eb4d71129ee0.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f1a6279e5d9b3419c4e5ff43ffe0772
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

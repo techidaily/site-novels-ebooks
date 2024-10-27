@@ -1,7 +1,7 @@
 ---
 title: The Beginning and End of John Jefferson High School | Free Book
-date: 2024-10-24 20:45:52
-updated: 2024-10-26 12:41:53
+date: 2024-10-20T19:12:18.144Z
+updated: 2024-10-27T02:38:05.035Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/457b98365326d1f71b97fedcf3033c8b285c4886279d03996dbb0a6444bc5327.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/457b98365326d1f71b97fedcf3033c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

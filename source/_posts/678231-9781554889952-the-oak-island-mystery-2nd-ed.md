@@ -1,7 +1,7 @@
 ---
 title: The Oak Island Mystery (2nd ed.) | Free Book
-date: 2024-10-23 12:45:39
-updated: 2024-10-26 11:11:28
+date: 2024-10-25T05:42:48.951Z
+updated: 2024-10-27T05:23:16.730Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/125eefaaac061f55e274ccd82c37caab8210270fff33244515997491f4efead2.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/125eefaaac061f55e274ccd82c37caa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

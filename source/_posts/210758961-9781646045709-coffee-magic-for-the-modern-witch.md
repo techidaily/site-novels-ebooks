@@ -1,7 +1,7 @@
 ---
 title: Coffee Magic for the Modern Witch | Free Book
-date: 2024-10-23 13:35:11
-updated: 2024-10-26 11:42:20
+date: 2024-10-20T02:58:55.513Z
+updated: 2024-10-26T23:43:05.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92609a6341903d7a3e6e24d563a90539de33b8a61b31c9718faf5be374e865b.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92609a6341903d7a3e6e24d563a905
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Big Book of UFO Facts, Figures & Truth | Free Book
-date: 2024-10-23 18:44:58
-updated: 2024-10-26 11:46:51
+date: 2024-10-25T19:16:55.360Z
+updated: 2024-10-26T16:04:59.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e0a365528fc80544d14e5cb11a5ee17c135f1309d541d46b34670d44e24810f.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e0a365528fc80544d14e5cb11a5ee1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

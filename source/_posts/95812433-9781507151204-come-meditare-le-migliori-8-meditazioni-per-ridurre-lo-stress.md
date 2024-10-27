@@ -1,7 +1,7 @@
 ---
 title: "Come meditare: Le migliori 8 meditazioni per ridurre lo stress | Free Book"
-date: 2024-10-24 16:58:34
-updated: 2024-10-26 11:52:30
+date: 2024-10-26T00:00:24.133Z
+updated: 2024-10-27T02:36:16.380Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e2f47ce6c20126dec6fe2345e32c4809ada4219632e2c931637b0b05710c680.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e2f47ce6c20126dec6fe2345e32c48
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

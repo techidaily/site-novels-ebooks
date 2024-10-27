@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書004：天眼─第三眼進入更高人類精神次元（靈力篇）: The Great Tao of Spiritual Science Series 04: The Third Eye | Free Book"
-date: 2024-10-25 16:30:22
-updated: 2024-10-26 11:44:54
+date: 2024-10-19T19:08:29.863Z
+updated: 2024-10-26T21:28:37.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/500f0f5ea2ce4f5e42a78094bb0d84ed21d09845b197801cf1fdfd4844297f43.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/500f0f5ea2ce4f5e42a78094bb0d84e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

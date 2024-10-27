@@ -1,7 +1,7 @@
 ---
 title: Anthroposophical Guidelines | Free Book
-date: 2024-10-24 15:26:55
-updated: 2024-10-26 10:24:28
+date: 2024-10-20T23:12:04.512Z
+updated: 2024-10-26T19:59:18.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5b4650995e99b9f4fbae3257edd88b580af6b1d0a0134df8f89ea125f12a57c.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5b4650995e99b9f4fbae3257edd88b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

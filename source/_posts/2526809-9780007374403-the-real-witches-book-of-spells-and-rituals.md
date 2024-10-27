@@ -1,7 +1,7 @@
 ---
 title: The Real Witches’ Book of Spells and Rituals | Free Book
-date: 2024-10-25 13:55:52
-updated: 2024-10-26 12:25:32
+date: 2024-10-26T00:28:30.726Z
+updated: 2024-10-26T21:25:16.043Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4c81f3c334e3f5985e16af6318c0b4b773549dca6ced2411fb65d9d2c00c1c04.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4c81f3c334e3f5985e16af6318c0b4b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

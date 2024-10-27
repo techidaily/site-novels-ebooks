@@ -1,7 +1,7 @@
 ---
 title: "Psychic Phenomena: The Appearance of Light | Free Book"
-date: 2024-10-25 22:40:27
-updated: 2024-10-26 12:49:18
+date: 2024-10-23T16:47:30.368Z
+updated: 2024-10-26T22:10:06.978Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/979c884db6aa78ebed405df5422002d5ece705251f7a7a80d298e844a6e0ea33.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/979c884db6aa78ebed405df5422002d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Book of Astrology | Free Book
-date: 2024-10-24 20:43:20
-updated: 2024-10-26 12:16:59
+date: 2024-10-23T21:38:19.755Z
+updated: 2024-10-26T20:35:32.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b185d34e1bf0a517ee4dce8c46379b253104d7d8379d97981fe71cdc87e8101a.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b185d34e1bf0a517ee4dce8c46379b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

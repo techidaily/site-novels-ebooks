@@ -1,7 +1,7 @@
 ---
 title: Meditation and Kabbalah | Free Book
-date: 2024-10-24 15:56:35
-updated: 2024-10-26 12:45:31
+date: 2024-10-20T04:50:32.839Z
+updated: 2024-10-26T17:49:17.609Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0aefd8e8154e6932aac6f0effc1c83a8d3acc52ba0130e0864df8b4a34403cb.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0aefd8e8154e6932aac6f0effc1c83
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

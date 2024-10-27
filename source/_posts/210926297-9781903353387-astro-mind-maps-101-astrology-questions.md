@@ -1,7 +1,7 @@
 ---
 title: Astro Mind Maps & 101 Astrology Questions | Free Book
-date: 2024-10-25 17:43:18
-updated: 2024-10-26 11:27:58
+date: 2024-10-23T21:33:41.588Z
+updated: 2024-10-26T21:10:10.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd516d4eba420e47a715164e64f87f297ff201c1cf246093d6c0a69574791250.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd516d4eba420e47a715164e64f87f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

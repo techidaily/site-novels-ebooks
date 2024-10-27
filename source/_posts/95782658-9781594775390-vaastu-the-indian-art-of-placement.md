@@ -1,7 +1,7 @@
 ---
 title: "Vaastu: The Indian Art of Placement | Free Book"
-date: 2024-10-24 11:29:44
-updated: 2024-10-26 10:27:53
+date: 2024-10-23T22:30:02.613Z
+updated: 2024-10-27T05:51:11.321Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d1e4832d91a51ca65de18e6549dba1a8ef0597129eda2fb705c0916852910ae.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d1e4832d91a51ca65de18e6549dba1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

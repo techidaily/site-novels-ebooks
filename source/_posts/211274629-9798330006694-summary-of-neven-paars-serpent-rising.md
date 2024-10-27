@@ -1,7 +1,7 @@
 ---
 title: Summary of Neven Paar's Serpent Rising | Free Book
-date: 2024-10-23 15:25:54
-updated: 2024-10-26 11:54:26
+date: 2024-10-19T18:17:37.990Z
+updated: 2024-10-27T01:15:57.277Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f1ebe7d7c3c28311e209437986f44ba3e4274b4c1f736f555f029caf669a3be.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f1ebe7d7c3c28311e209437986f44b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Science and Practice of Humility | Free Book
-date: 2024-10-25 18:27:29
-updated: 2024-10-26 11:57:47
+date: 2024-10-23T19:57:29.727Z
+updated: 2024-10-27T01:15:41.286Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f974bb0f15558a43870eb78c7161502b85ff0e105f8dc173c151b061d1f097f5.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f974bb0f15558a43870eb78c7161502
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

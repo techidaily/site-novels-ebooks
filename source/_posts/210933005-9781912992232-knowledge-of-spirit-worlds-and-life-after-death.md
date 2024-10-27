@@ -1,7 +1,7 @@
 ---
 title: Knowledge of Spirit Worlds and Life After Death | Free Book
-date: 2024-10-23 18:41:50
-updated: 2024-10-26 10:17:49
+date: 2024-10-21T23:27:04.560Z
+updated: 2024-10-27T02:13:58.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37d05c1c394905e752b2e945015926f57876e70450627696261a57d57ffd1191.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37d05c1c394905e752b2e945015926f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

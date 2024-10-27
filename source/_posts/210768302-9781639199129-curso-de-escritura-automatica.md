@@ -1,7 +1,7 @@
 ---
 title: Curso de escritura automática | Free Book
-date: 2024-10-25 17:26:54
-updated: 2024-10-26 12:43:53
+date: 2024-10-26T04:01:39.407Z
+updated: 2024-10-27T03:21:16.668Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e5f183ebe8a92044af8497e472d36df00b0bcc3d5b58ed786e4b4b46616da63.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e5f183ebe8a92044af8497e472d36d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

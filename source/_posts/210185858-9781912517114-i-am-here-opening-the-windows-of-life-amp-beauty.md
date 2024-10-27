@@ -1,7 +1,7 @@
 ---
 title: I AM HERE Opening the Windows of Life &amp; Beauty | Free Book
-date: 2024-10-24 12:23:36
-updated: 2024-10-26 11:52:43
+date: 2024-10-22T20:51:57.863Z
+updated: 2024-10-27T05:48:51.440Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07a0b51b21be76829527f8addf62df4328da167ca9c8c8edef0a0d217064ef70.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07a0b51b21be76829527f8addf62df4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

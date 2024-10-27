@@ -1,7 +1,7 @@
 ---
 title: The Dalai Lama’s Book of Transformation | Free Book
-date: 2024-10-23 23:45:42
-updated: 2024-10-26 12:12:50
+date: 2024-10-22T03:28:13.731Z
+updated: 2024-10-26T19:53:22.178Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e1731c95c52814e91702a9c2957341bab8dd2dc5d4753052fd6f12dbd8eca46.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e1731c95c52814e91702a9c2957341
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

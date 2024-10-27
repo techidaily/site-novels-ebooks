@@ -1,7 +1,7 @@
 ---
 title: Princes, Frogs and Ugly Sisters | Free Book
-date: 2024-10-25 22:41:49
-updated: 2024-10-26 10:15:30
+date: 2024-10-25T04:44:08.108Z
+updated: 2024-10-27T05:27:34.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0ec37851c9f70f30f2763a64d1e165e23cecfad093657b9421eb106fc13c348.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0ec37851c9f70f30f2763a64d1e165
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

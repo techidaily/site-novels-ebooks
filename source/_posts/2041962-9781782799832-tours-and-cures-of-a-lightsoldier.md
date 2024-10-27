@@ -1,7 +1,7 @@
 ---
 title: Tours and Cures of a Lightsoldier | Free Book
-date: 2024-10-23 23:18:40
-updated: 2024-10-26 10:55:30
+date: 2024-10-26T02:28:18.506Z
+updated: 2024-10-26T16:29:34.689Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cabeaa0b648f88d311678cbd64d6ce8d97d4fd97e76aacb9cc12b4be3600d3c0.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cabeaa0b648f88d311678cbd64d6ce8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

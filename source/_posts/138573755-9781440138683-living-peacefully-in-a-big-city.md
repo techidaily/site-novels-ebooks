@@ -1,7 +1,7 @@
 ---
 title: Living Peacefully in a Big City | Free Book
-date: 2024-10-23 22:20:58
-updated: 2024-10-26 10:47:22
+date: 2024-10-25T23:25:56.270Z
+updated: 2024-10-26T17:09:46.085Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/36f395464fa71bc7720ca3553348a082283238aa25277eda001664db79f804a4.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/36f395464fa71bc7720ca3553348a08
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

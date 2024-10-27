@@ -1,7 +1,7 @@
 ---
 title: The Dore Lectures on Mental Science | Free Book
-date: 2024-10-25 17:24:35
-updated: 2024-10-26 11:38:58
+date: 2024-10-21T20:51:49.331Z
+updated: 2024-10-27T01:18:25.163Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f41f8082c8f454d1c11f958ba86febec6d716caf2abff147e2aebdfead38ae5.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f41f8082c8f454d1c11f958ba86feb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

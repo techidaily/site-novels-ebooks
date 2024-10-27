@@ -1,7 +1,7 @@
 ---
 title: The Timing of Everything Promised Vol. 2 | Free Book
-date: 2024-10-23 16:26:37
-updated: 2024-10-26 11:55:47
+date: 2024-10-25T04:15:07.977Z
+updated: 2024-10-26T23:19:22.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa9321511a97b9d1154453f36d181cf768a90ff5d15cba2cd0f9e5fdb4da6251.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa9321511a97b9d1154453f36d181cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

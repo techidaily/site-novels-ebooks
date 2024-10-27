@@ -1,7 +1,7 @@
 ---
 title: Le livre des morts tibétain | Free Book
-date: 2024-10-25 11:53:37
-updated: 2024-10-26 11:20:11
+date: 2024-10-24T03:47:07.047Z
+updated: 2024-10-26T19:54:16.928Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/185ed8ec169396fcdee4584aa7364a46003d4fb892d5764277ecd6af06e83b65.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/185ed8ec169396fcdee4584aa7364a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

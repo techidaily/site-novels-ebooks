@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Discovering Your Past Lives, 2nd Edition | Free Book
-date: 2024-10-25 23:46:53
-updated: 2024-10-26 11:45:52
+date: 2024-10-26T01:10:00.932Z
+updated: 2024-10-26T23:09:26.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8eaf8adbb4131fe3221b92efeac25fc2ea8be1ab7b71166c2b27ae746859051.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8eaf8adbb4131fe3221b92efeac25f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

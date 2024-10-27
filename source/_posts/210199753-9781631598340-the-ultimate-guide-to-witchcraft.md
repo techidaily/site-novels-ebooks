@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Witchcraft | Free Book
-date: 2024-10-24 21:21:43
-updated: 2024-10-26 11:22:15
+date: 2024-10-23T19:09:39.368Z
+updated: 2024-10-27T04:55:37.458Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/222d3945007ba02a0a0fa64286dd2ad2a84fd3661c342f5cce1154ca792967c5.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/222d3945007ba02a0a0fa64286dd2ad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

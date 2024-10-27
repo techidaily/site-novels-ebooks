@@ -1,7 +1,7 @@
 ---
 title: The Secrets of Immortality | Free Book
-date: 2024-10-24 12:17:58
-updated: 2024-10-26 12:16:42
+date: 2024-10-23T21:42:10.647Z
+updated: 2024-10-26T23:09:42.576Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/856ae04294705cb5a84c37349c8571b5a6f7f8a2961ce1c020f9909d900e34cf.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/856ae04294705cb5a84c37349c8571b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

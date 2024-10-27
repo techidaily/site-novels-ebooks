@@ -1,7 +1,7 @@
 ---
 title: The Cosmic Ordering Service | Free Book
-date: 2024-10-24 22:29:54
-updated: 2024-10-26 10:37:57
+date: 2024-10-20T17:24:11.844Z
+updated: 2024-10-26T18:17:05.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7f4208887ac2c5bfe17bd6d4432c5310a44b604ad3f62361848ae555ebd2186a.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7f4208887ac2c5bfe17bd6d4432c531
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

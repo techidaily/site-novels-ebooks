@@ -1,7 +1,7 @@
 ---
 title: The Secret American Destiny | Free Book
-date: 2024-10-23 11:40:29
-updated: 2024-10-26 10:29:54
+date: 2024-10-23T01:21:50.836Z
+updated: 2024-10-27T03:00:31.776Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5ccf587a0aa123f1979df7d046c0cdc19b8fba8b4998d5dd099e5f77f52a81f.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5ccf587a0aa123f1979df7d046c0cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

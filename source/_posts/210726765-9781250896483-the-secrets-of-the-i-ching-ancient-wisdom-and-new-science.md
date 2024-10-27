@@ -1,7 +1,7 @@
 ---
 title: "The Secrets of the I Ching: Ancient Wisdom and New Science | Free Book"
-date: 2024-10-23 11:22:35
-updated: 2024-10-26 11:38:15
+date: 2024-10-25T04:22:33.930Z
+updated: 2024-10-27T00:31:31.503Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14f655e6a91a1b211f4bbdddd716b8277f2d0a062b875d1be1a505e7907f9a70.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14f655e6a91a1b211f4bbdddd716b82
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

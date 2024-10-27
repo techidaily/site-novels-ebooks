@@ -1,7 +1,7 @@
 ---
 title: "States of Denial: The Tuskar Rock Incident and other Mysteries | Free Book"
-date: 2024-10-23 16:56:37
-updated: 2024-10-26 10:46:16
+date: 2024-10-22T05:43:48.065Z
+updated: 2024-10-27T04:19:32.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/236154f47c4d4b905e13ebe1a52f1a6a5d5cb4f50847723ad166d90e492abfdb.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/236154f47c4d4b905e13ebe1a52f1a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

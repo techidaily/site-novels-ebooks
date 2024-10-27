@@ -1,7 +1,7 @@
 ---
 title: Esculpiendo su propio destino | Free Book
-date: 2024-10-24 11:20:21
-updated: 2024-10-26 10:56:50
+date: 2024-10-25T00:30:14.902Z
+updated: 2024-10-26T20:02:18.963Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4993f98406177bf8f0d5890cdbde7fc369f58043af8557b52719e12fdb69a13a.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4993f98406177bf8f0d5890cdbde7fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Alien Abductions and UFO Sightings 5-Book Bundle | Free Book
-date: 2024-10-24 16:11:27
-updated: 2024-10-26 11:29:16
+date: 2024-10-20T02:18:25.023Z
+updated: 2024-10-26T16:03:01.168Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c4647b465200ac6c88b893cea2dae589c71b984e606dd1a500173b4ec87f0aa.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c4647b465200ac6c88b893cea2dae5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret Teachers of the Western World | Free Book
-date: 2024-10-24 15:45:25
-updated: 2024-10-26 11:54:54
+date: 2024-10-25T05:16:55.050Z
+updated: 2024-10-26T23:03:38.584Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abfca4447054d0c53264b94b398359a031ec211845d31505ad6e171848465fed.jpg
@@ -274,3 +274,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abfca4447054d0c53264b94b398359a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Perceptions & Perspectives | Free Book
-date: 2024-10-24 17:18:10
-updated: 2024-10-26 12:38:40
+date: 2024-10-19T23:07:06.388Z
+updated: 2024-10-27T05:00:07.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/11c503c82527d8eadecb10da99e9b411df5fb87b326cb533dfe722feae00bad3.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/11c503c82527d8eadecb10da99e9b41
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

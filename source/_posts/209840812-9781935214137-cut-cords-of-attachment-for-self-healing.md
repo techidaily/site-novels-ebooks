@@ -1,7 +1,7 @@
 ---
 title: Cut Cords of Attachment for Self-Healing | Free Book
-date: 2024-10-23 20:46:23
-updated: 2024-10-26 10:46:38
+date: 2024-10-25T16:12:37.523Z
+updated: 2024-10-26T16:21:35.746Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec040c725390a5c98ea9bc03eeb49afa77bab364df03a0e494a6c1b18aa866b1.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec040c725390a5c98ea9bc03eeb49af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

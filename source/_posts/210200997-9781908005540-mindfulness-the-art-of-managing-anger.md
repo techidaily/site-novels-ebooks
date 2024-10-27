@@ -1,7 +1,7 @@
 ---
 title: Mindfulness & the Art of Managing Anger | Free Book
-date: 2024-10-23 10:31:50
-updated: 2024-10-26 11:55:11
+date: 2024-10-25T18:11:49.560Z
+updated: 2024-10-26T16:48:24.112Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15299caaa4b87c7f1034e97ee18b2b9847ec0657ac7a82938e8d12c8558b0dc1.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15299caaa4b87c7f1034e97ee18b2b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

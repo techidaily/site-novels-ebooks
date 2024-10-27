@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Introductory Boxed Set | Free Book
-date: 2024-10-23 12:31:27
-updated: 2024-10-26 11:36:28
+date: 2024-10-22T20:24:52.283Z
+updated: 2024-10-27T01:06:49.670Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d163198b9b427a71ca0b1bf5c5733e3bddcf72b9bf19b6aeb438d148f0ffd72f.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d163198b9b427a71ca0b1bf5c5733e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

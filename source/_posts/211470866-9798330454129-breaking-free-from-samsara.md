@@ -1,7 +1,7 @@
 ---
 title: Breaking Free from Samsara | Free Book
-date: 2024-10-24 17:42:36
-updated: 2024-10-26 10:47:58
+date: 2024-10-20T23:54:33.457Z
+updated: 2024-10-27T02:28:14.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9dfb1efbb14375021e78753044e04fd2e5a9c3c0acc3c61167be1202efd84aa.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9dfb1efbb14375021e78753044e04f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

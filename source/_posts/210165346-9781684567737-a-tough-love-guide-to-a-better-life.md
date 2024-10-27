@@ -1,7 +1,7 @@
 ---
 title: A Tough Love Guide to a Better Life | Free Book
-date: 2024-10-25 14:54:26
-updated: 2024-10-26 11:54:14
+date: 2024-10-25T18:19:19.266Z
+updated: 2024-10-26T23:34:39.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f687835e4c779d53d78b3a96fbaec76acac913677c60f8f551a2610fd7985bd.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f687835e4c779d53d78b3a96fbaec7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

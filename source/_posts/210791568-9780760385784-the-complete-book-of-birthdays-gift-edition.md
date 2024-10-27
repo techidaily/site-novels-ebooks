@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Birthdays - Gift Edition | Free Book
-date: 2024-10-25 13:17:41
-updated: 2024-10-26 12:40:21
+date: 2024-10-24T22:05:15.269Z
+updated: 2024-10-26T21:02:56.676Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/96809a27523f94877ff2b45d5a133236f38a9a16e1a354955d2816e682d72359.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/96809a27523f94877ff2b45d5a13323
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

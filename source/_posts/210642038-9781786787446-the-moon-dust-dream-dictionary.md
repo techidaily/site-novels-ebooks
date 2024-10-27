@@ -1,7 +1,7 @@
 ---
 title: The Moon Dust Dream Dictionary | Free Book
-date: 2024-10-24 19:20:22
-updated: 2024-10-26 11:27:11
+date: 2024-10-22T05:21:24.601Z
+updated: 2024-10-26T17:54:47.286Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ec80b1ff28983c28881ecfb96496fe205fcb23bb5245d3dc29efd791711dd4d.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ec80b1ff28983c28881ecfb96496fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

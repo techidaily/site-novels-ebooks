@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Mindfulness Y Técnicas De Meditación Para La Curación (Deshacerse De La Depresión) | Free Book"
-date: 2024-10-23 17:31:44
-updated: 2024-10-26 10:27:48
+date: 2024-10-25T02:55:32.734Z
+updated: 2024-10-26T16:35:10.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/368bdad579d8ad31add0f61a955ce7160d3f3dff87298941cad4647a0bad62bf.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/368bdad579d8ad31add0f61a955ce71
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Introduction to Spiritual Ecology | Free Book
-date: 2024-10-25 13:56:50
-updated: 2024-10-26 12:20:26
+date: 2024-10-22T20:50:33.987Z
+updated: 2024-10-26T16:40:46.766Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d762b93f89835d0f04df7aaf8e7db041e2a00ddf785765cee1148609ec02c7b.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d762b93f89835d0f04df7aaf8e7db0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

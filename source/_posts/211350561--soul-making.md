@@ -1,7 +1,7 @@
 ---
 title: Soul Making | Free Book
-date: 2024-10-24 11:17:53
-updated: 2024-10-26 12:21:56
+date: 2024-10-25T02:35:31.847Z
+updated: 2024-10-26T17:46:50.220Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f6513c632631f36b07b2c80c0a5598f6d8081578781622da5e218b41525b90b.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f6513c632631f36b07b2c80c0a5598
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

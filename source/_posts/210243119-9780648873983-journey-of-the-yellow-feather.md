@@ -1,7 +1,7 @@
 ---
 title: Journey of the Yellow Feather | Free Book
-date: 2024-10-25 21:43:23
-updated: 2024-10-26 10:47:41
+date: 2024-10-23T18:24:08.191Z
+updated: 2024-10-27T03:05:28.118Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d5fbc1e520a19e4fa435d4dcb693e9305408f81475317163bf8b43cbb0f7301d.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d5fbc1e520a19e4fa435d4dcb693e93
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

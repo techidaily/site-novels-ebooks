@@ -1,7 +1,7 @@
 ---
 title: The Five Lessons Of Life | Free Book
-date: 2024-10-24 13:57:21
-updated: 2024-10-26 10:56:37
+date: 2024-10-20T21:46:34.864Z
+updated: 2024-10-26T18:22:06.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7235fda0fd6cec460cf39ffe4c453ae23d7bd82688793118394fb44b8cc3c21.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7235fda0fd6cec460cf39ffe4c453a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

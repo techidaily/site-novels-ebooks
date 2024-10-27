@@ -1,7 +1,7 @@
 ---
 title: Mystery School in Hyperspace | Free Book
-date: 2024-10-24 13:14:59
-updated: 2024-10-26 11:37:26
+date: 2024-10-26T03:31:21.742Z
+updated: 2024-10-26T20:13:46.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2cc09caa418fdb18ee0e5cb1ae603ef59ddd96933a7bbded1055ce86f9921e9.jpg
@@ -217,3 +217,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2cc09caa418fdb18ee0e5cb1ae603e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

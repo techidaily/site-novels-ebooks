@@ -1,7 +1,7 @@
 ---
 title: Poems to Measure What you Treasure in Your Life | Free Book
-date: 2024-10-24 13:34:16
-updated: 2024-10-26 12:54:57
+date: 2024-10-19T17:31:24.305Z
+updated: 2024-10-27T02:13:51.187Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f54f4cf1b5ad3016db05e5efb5269425c7f10b476c941f6079272b14f3f283a6.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f54f4cf1b5ad3016db05e5efb526942
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

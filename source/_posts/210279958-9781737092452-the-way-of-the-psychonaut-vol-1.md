@@ -1,7 +1,7 @@
 ---
 title: The Way of the Psychonaut Vol. 1 | Free Book
-date: 2024-10-25 19:22:59
-updated: 2024-10-26 12:55:11
+date: 2024-10-21T18:02:23.764Z
+updated: 2024-10-27T04:47:48.794Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1acc457c3e7441def49cf1570df6bc457f7393f4973b27cbbdb4f12920d096bf.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1acc457c3e7441def49cf1570df6bc4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

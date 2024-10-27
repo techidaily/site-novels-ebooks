@@ -1,7 +1,7 @@
 ---
 title: Angels, Demons & Gods of the New Millennium | Free Book
-date: 2024-10-24 10:42:21
-updated: 2024-10-26 11:31:58
+date: 2024-10-21T23:24:05.339Z
+updated: 2024-10-27T01:00:22.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3bed9982fda6ed86f509b62ef5d08e1b98bfb2e7cd5b4968d703e42ec6ee285f.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3bed9982fda6ed86f509b62ef5d08e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

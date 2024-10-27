@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Astrology | Free Book
-date: 2024-10-24 22:14:26
-updated: 2024-10-26 12:59:19
+date: 2024-10-23T03:40:00.394Z
+updated: 2024-10-26T22:53:29.341Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/448a2bc1e20fde08d0fd246e45080c2ba4de4a75c9027c8a165d917a0bd364f3.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/448a2bc1e20fde08d0fd246e45080c2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

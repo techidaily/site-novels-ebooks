@@ -1,7 +1,7 @@
 ---
 title: Exponiendo Prácticas  Espiritualistas Curativas | Free Book
-date: 2024-10-23 15:16:48
-updated: 2024-10-26 10:48:24
+date: 2024-10-19T17:30:15.228Z
+updated: 2024-10-27T00:19:51.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16bf771912f41cfd7c64405bd43f05ee5796c74073303d5a4f299240871864d5.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16bf771912f41cfd7c64405bd43f05e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

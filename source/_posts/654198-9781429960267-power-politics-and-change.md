@@ -1,7 +1,7 @@
 ---
 title: Power, Politics, and Change | Free Book
-date: 2024-10-24 18:46:10
-updated: 2024-10-26 10:33:56
+date: 2024-10-19T23:43:00.620Z
+updated: 2024-10-26T23:33:12.697Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c3a6b3f642e99d068873296a7152f261e3122f3765bd5a3f8e1335ee0a6daf1.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c3a6b3f642e99d068873296a7152f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

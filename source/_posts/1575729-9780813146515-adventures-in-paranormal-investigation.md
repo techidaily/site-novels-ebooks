@@ -1,7 +1,7 @@
 ---
 title: Adventures in Paranormal Investigation | Free Book
-date: 2024-10-24 14:23:32
-updated: 2024-10-26 11:54:29
+date: 2024-10-23T21:31:22.091Z
+updated: 2024-10-26T22:44:55.608Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/beba7d5141dc496b249fbb2eb47d640db793a764419eaac5153daa777cdc8c46.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/beba7d5141dc496b249fbb2eb47d640
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

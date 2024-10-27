@@ -1,7 +1,7 @@
 ---
 title: The Infinite Wisdom of the Akashic Records | Free Book
-date: 2024-10-24 21:28:12
-updated: 2024-10-26 11:42:14
+date: 2024-10-24T17:51:24.704Z
+updated: 2024-10-27T05:40:58.984Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/87d1094e07d299e64e6619b59cb136122cdab6d3fe003ab8ba88fb97f8f590bc.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/87d1094e07d299e64e6619b59cb1361
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

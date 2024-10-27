@@ -1,7 +1,7 @@
 ---
 title: "Aries 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-25 20:15:51
-updated: 2024-10-26 12:54:55
+date: 2024-10-21T05:16:44.851Z
+updated: 2024-10-26T17:30:55.441Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b462986fa6dde0b99e5b27352521962322d92f64215f8374bdc70bfdcf00a745.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b462986fa6dde0b99e5b27352521962
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

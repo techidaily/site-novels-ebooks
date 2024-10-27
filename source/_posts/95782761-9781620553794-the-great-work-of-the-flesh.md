@@ -1,7 +1,7 @@
 ---
 title: The Great Work of the Flesh | Free Book
-date: 2024-10-23 16:11:46
-updated: 2024-10-26 11:42:31
+date: 2024-10-19T17:06:09.779Z
+updated: 2024-10-26T18:34:01.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15f558f2cf9ae3be6f842c2660b75f6edba1bb165a8e26b75e508aecfd20bdbf.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15f558f2cf9ae3be6f842c2660b75f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

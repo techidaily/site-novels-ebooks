@@ -1,7 +1,7 @@
 ---
 title: Healing Psychedelics | Free Book
-date: 2024-10-25 22:56:30
-updated: 2024-10-26 11:54:56
+date: 2024-10-20T22:41:59.034Z
+updated: 2024-10-27T05:34:02.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34f08baea6e95446fcea5b78a5c87e304f0fd6a2f42c9819c191d017804b2cd8.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34f08baea6e95446fcea5b78a5c87e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

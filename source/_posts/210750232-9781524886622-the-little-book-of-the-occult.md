@@ -1,7 +1,7 @@
 ---
 title: The Little Book of the Occult | Free Book
-date: 2024-10-23 22:53:31
-updated: 2024-10-26 11:18:16
+date: 2024-10-20T04:55:36.697Z
+updated: 2024-10-27T03:41:57.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c2bc5411e9acb16fe239043b998625fcf5974e736c944e0db10e468a133c1752.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c2bc5411e9acb16fe239043b998625f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

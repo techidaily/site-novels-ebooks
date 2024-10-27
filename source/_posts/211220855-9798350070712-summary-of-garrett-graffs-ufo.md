@@ -1,7 +1,7 @@
 ---
 title: Summary of Garrett Graff's UFO | Free Book
-date: 2024-10-24 12:48:49
-updated: 2024-10-26 10:25:39
+date: 2024-10-22T23:34:22.000Z
+updated: 2024-10-26T20:15:27.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bad88cf7abbfed051cfe3dd7c3d5cb3938dcd5f4e051929b3b2fb65c2fa0fe92.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bad88cf7abbfed051cfe3dd7c3d5cb3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

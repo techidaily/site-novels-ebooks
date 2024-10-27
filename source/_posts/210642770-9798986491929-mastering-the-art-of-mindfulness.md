@@ -1,7 +1,7 @@
 ---
 title: Mastering the Art of Mindfulness | Free Book
-date: 2024-10-23 21:59:47
-updated: 2024-10-26 11:24:59
+date: 2024-10-24T20:24:35.248Z
+updated: 2024-10-26T19:51:49.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e9eb32e74b30bec5e1f4a2938eb733da8274f082f5154f37f55f0d49faa86d2d.jpg
@@ -220,3 +220,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e9eb32e74b30bec5e1f4a2938eb733d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Clairvoyance in Time: Past & Future | Free Book"
-date: 2024-10-25 20:56:29
-updated: 2024-10-26 12:44:26
+date: 2024-10-26T01:57:21.552Z
+updated: 2024-10-27T01:57:40.248Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aad1e6e224a45acf7e7ffa40220b336e429b03aae589ed4c514c44d90a006a0c.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aad1e6e224a45acf7e7ffa40220b336
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

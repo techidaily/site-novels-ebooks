@@ -1,7 +1,7 @@
 ---
 title: Sacred Forest Bathing | Free Book
-date: 2024-10-23 19:45:38
-updated: 2024-10-26 12:25:21
+date: 2024-10-21T16:23:56.716Z
+updated: 2024-10-26T17:42:07.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0490c7e8ae3b408164926f0e36e3c2bde511fdaa13c7c7691d7eaab428afa408.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0490c7e8ae3b408164926f0e36e3c2b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

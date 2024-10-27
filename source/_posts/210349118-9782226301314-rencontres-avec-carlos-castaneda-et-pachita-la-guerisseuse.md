@@ -1,7 +1,7 @@
 ---
 title: Rencontres avec Carlos Castaneda et Pachita la guérisseuse | Free Book
-date: 2024-10-24 22:14:14
-updated: 2024-10-26 11:52:50
+date: 2024-10-24T19:21:25.739Z
+updated: 2024-10-27T03:25:14.944Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b607962f70e48351849733e9f700c4abf9ffa0e13ab77040225b6dd95d997a3.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b607962f70e48351849733e9f700c4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

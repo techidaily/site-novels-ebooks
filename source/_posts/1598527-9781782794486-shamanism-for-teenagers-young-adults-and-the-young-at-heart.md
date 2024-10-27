@@ -1,7 +1,7 @@
 ---
 title: Shamanism for Teenagers, Young Adults and The Young At Heart | Free Book
-date: 2024-10-25 15:58:54
-updated: 2024-10-26 11:27:28
+date: 2024-10-22T01:30:47.016Z
+updated: 2024-10-26T19:48:29.499Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f75b88fdd0d4a0d2d3d1ec1e9ede0bde2bd5d5e77d00b9045e8b6ae5f2f668a.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f75b88fdd0d4a0d2d3d1ec1e9ede0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

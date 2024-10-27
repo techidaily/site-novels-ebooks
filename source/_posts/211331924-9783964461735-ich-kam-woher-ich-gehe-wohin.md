@@ -1,7 +1,7 @@
 ---
 title: Ich kam - woher? Ich gehe - wohin? | Free Book
-date: 2024-10-23 21:11:59
-updated: 2024-10-26 12:12:26
+date: 2024-10-21T00:45:03.219Z
+updated: 2024-10-26T18:08:04.591Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/078bbf32dba5b7e29009eda245eeb8499c7abc34061ceeae26e4befcb35725d6.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/078bbf32dba5b7e29009eda245eeb84
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

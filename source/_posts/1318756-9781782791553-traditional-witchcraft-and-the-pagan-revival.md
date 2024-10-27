@@ -1,7 +1,7 @@
 ---
 title: Traditional Witchcraft and the Pagan Revival | Free Book
-date: 2024-10-25 10:18:27
-updated: 2024-10-26 11:40:30
+date: 2024-10-22T18:44:44.498Z
+updated: 2024-10-27T04:37:43.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc6f83c5ec73b78080d210f54c11c3bf2f7ffc4673e903984968c93858785704.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc6f83c5ec73b78080d210f54c11c3b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Haunted Aberdeen & District | Free Book
-date: 2024-10-25 20:34:20
-updated: 2024-10-26 11:12:46
+date: 2024-10-21T21:58:11.879Z
+updated: 2024-10-26T23:15:19.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e565e38715b67fbb27657f0b8788cd202c130933b7769a9a9503614a6753996e.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e565e38715b67fbb27657f0b8788cd2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

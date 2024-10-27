@@ -1,7 +1,7 @@
 ---
 title: Secret Chamber Revisited (2nd ed.) | Free Book
-date: 2024-10-24 23:32:39
-updated: 2024-10-26 10:51:56
+date: 2024-10-24T00:17:10.629Z
+updated: 2024-10-26T23:25:23.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/122bc1da0377e79e28d65893b20116f2a137790bebfa34a881f25fd6c1cd4b72.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/122bc1da0377e79e28d65893b20116f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

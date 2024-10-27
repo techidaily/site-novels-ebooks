@@ -1,7 +1,7 @@
 ---
 title: The Mystical Hebrew Alphabet | Free Book
-date: 2024-10-25 10:51:54
-updated: 2024-10-26 11:30:23
+date: 2024-10-20T19:47:16.687Z
+updated: 2024-10-27T04:03:04.821Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8148f2e7d996569be6f391d0150dcfe77d305bbbed836ea91f02ded0c65eec13.jpg
@@ -238,3 +238,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8148f2e7d996569be6f391d0150dcfe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

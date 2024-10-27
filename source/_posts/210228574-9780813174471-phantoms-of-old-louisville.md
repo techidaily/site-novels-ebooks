@@ -1,7 +1,7 @@
 ---
 title: Phantoms of Old Louisville | Free Book
-date: 2024-10-25 10:24:24
-updated: 2024-10-26 12:41:50
+date: 2024-10-25T02:33:32.763Z
+updated: 2024-10-26T16:35:19.267Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/266bf1336af79eb354ccf14d13182995be3626047932c5b392cdf8b796fe544c.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/266bf1336af79eb354ccf14d1318299
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

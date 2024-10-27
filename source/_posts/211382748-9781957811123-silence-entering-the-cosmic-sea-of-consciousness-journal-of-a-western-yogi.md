@@ -1,7 +1,7 @@
 ---
 title: "Silence: Entering the Cosmic Sea of Consciousness: Journal of a Western Yogi | Free Book"
-date: 2024-10-25 12:18:42
-updated: 2024-10-26 11:51:55
+date: 2024-10-22T19:39:43.933Z
+updated: 2024-10-26T20:51:03.918Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9631081f38cd43100f936e570610e9ac84cdaf5f212528b2518968d2302b13b0.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9631081f38cd43100f936e570610e9a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

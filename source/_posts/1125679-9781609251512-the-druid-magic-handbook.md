@@ -1,7 +1,7 @@
 ---
 title: The Druid Magic Handbook | Free Book
-date: 2024-10-25 20:52:28
-updated: 2024-10-26 12:26:17
+date: 2024-10-23T20:44:23.790Z
+updated: 2024-10-26T20:08:05.054Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83f932de845b6a9d44ce5f77661ee3933fe7ce6a7901bebd6044428e9eff28dd.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83f932de845b6a9d44ce5f77661ee39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

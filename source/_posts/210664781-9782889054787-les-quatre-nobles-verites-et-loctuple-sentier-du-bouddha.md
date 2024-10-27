@@ -1,7 +1,7 @@
 ---
 title: Les quatre Nobles Vérités et l'Octuple Sentier du Bouddha | Free Book
-date: 2024-10-24 23:46:58
-updated: 2024-10-26 12:30:15
+date: 2024-10-25T17:20:13.173Z
+updated: 2024-10-26T19:36:40.393Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/818a0cc3c4266d2c022dba4a6079cbb43357ee2ebbbb03a8fef12e3560524334.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/818a0cc3c4266d2c022dba4a6079cbb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

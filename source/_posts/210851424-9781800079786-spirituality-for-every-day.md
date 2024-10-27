@@ -1,7 +1,7 @@
 ---
 title: Spirituality for Every Day | Free Book
-date: 2024-10-25 10:30:36
-updated: 2024-10-26 11:48:34
+date: 2024-10-23T04:28:08.797Z
+updated: 2024-10-27T00:36:10.193Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/548022674ebe52fc16cee6c3d0aa77730f769a6e5137ef06446c2f90ecf735b2.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/548022674ebe52fc16cee6c3d0aa777
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

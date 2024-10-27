@@ -1,7 +1,7 @@
 ---
 title: The Twelve Rays Practical Applications | Free Book
-date: 2024-10-23 18:26:35
-updated: 2024-10-26 11:27:56
+date: 2024-10-20T17:58:26.899Z
+updated: 2024-10-27T04:53:01.273Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8753b37222b881f256a6fa5886391ed68258b0bcef56a1320116dce2649224c.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8753b37222b881f256a6fa5886391e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

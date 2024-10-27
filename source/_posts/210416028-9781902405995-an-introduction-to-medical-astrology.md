@@ -1,7 +1,7 @@
 ---
 title: An Introduction to Medical Astrology | Free Book
-date: 2024-10-25 15:14:33
-updated: 2024-10-26 11:22:10
+date: 2024-10-21T19:22:09.669Z
+updated: 2024-10-27T04:33:03.414Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d145c65d9b00523bc3fe6926e0c63ea52a6e0f44786264d86821e443e476fcd5.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d145c65d9b00523bc3fe6926e0c63ea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

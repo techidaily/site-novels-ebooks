@@ -1,7 +1,7 @@
 ---
 title: The Afterlife Healing Circle | Free Book
-date: 2024-10-24 10:39:39
-updated: 2024-10-26 10:27:28
+date: 2024-10-20T20:50:10.328Z
+updated: 2024-10-26T21:19:17.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4d74d869eddde687486fb3b01083b192289c8347f8bb2784805ed94b9955a43.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4d74d869eddde687486fb3b01083b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

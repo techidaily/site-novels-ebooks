@@ -1,7 +1,7 @@
 ---
 title: The Realness of Witch-craft in America | Free Book
-date: 2024-10-25 23:35:37
-updated: 2024-10-26 11:16:13
+date: 2024-10-19T16:05:07.898Z
+updated: 2024-10-27T00:08:23.308Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/623db1175904c7fa2aa0329dda0ee8a11e2d8adfbfcdd16fe711ba7c42bbc732.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/623db1175904c7fa2aa0329dda0ee8a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Beginner's Guide to Kabbalah | Free Book
-date: 2024-10-24 20:26:46
-updated: 2024-10-26 10:43:22
+date: 2024-10-22T21:47:45.650Z
+updated: 2024-10-26T16:25:25.157Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb608d3f181a080e672d969e1e79ae1718631de2b677c4209837de0e4c714026.jpg
@@ -225,3 +225,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb608d3f181a080e672d969e1e79ae1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

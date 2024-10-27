@@ -1,7 +1,7 @@
 ---
 title: Transcendent Wisdom of the Maya | Free Book
-date: 2024-10-23 15:58:10
-updated: 2024-10-26 10:52:11
+date: 2024-10-24T19:08:41.449Z
+updated: 2024-10-26T16:08:39.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8fe342fd625e873a2ea83a159fafc7d7dd.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

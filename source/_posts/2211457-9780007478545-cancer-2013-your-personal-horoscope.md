@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2013: Your Personal Horoscope | Free Book"
-date: 2024-10-23 19:47:55
-updated: 2024-10-26 11:12:25
+date: 2024-10-22T21:03:52.673Z
+updated: 2024-10-27T03:15:17.980Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/742937055943f7a0c924b391d2d57313735ace3e395aa307ede6a304517b2eeb.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/742937055943f7a0c924b391d2d5731
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

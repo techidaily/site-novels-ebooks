@@ -1,7 +1,7 @@
 ---
 title: The Raptured Saints and the Left Behind | Free Book
-date: 2024-10-24 18:47:56
-updated: 2024-10-26 10:21:10
+date: 2024-10-23T01:40:16.131Z
+updated: 2024-10-26T17:05:24.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47ae7254274f0eb2d3f2268bb9dd2d793b2f81e97d9be075e592a073afdbf1e1.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47ae7254274f0eb2d3f2268bb9dd2d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

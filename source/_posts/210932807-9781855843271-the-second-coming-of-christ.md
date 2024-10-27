@@ -1,7 +1,7 @@
 ---
 title: The Second Coming of Christ | Free Book
-date: 2024-10-24 11:19:45
-updated: 2024-10-26 12:18:52
+date: 2024-10-19T16:12:56.203Z
+updated: 2024-10-26T17:28:04.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ecec8864f0aafde1529045e7033954f794a84620f8a2c6f84adc4f5e575d4933.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ecec8864f0aafde1529045e7033954f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

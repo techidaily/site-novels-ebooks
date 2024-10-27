@@ -1,7 +1,7 @@
 ---
 title: The Diary of a Gatekeeper (2nd ed.) | Free Book
-date: 2024-10-23 14:40:35
-updated: 2024-10-26 10:39:59
+date: 2024-10-22T20:24:00.147Z
+updated: 2024-10-27T03:46:22.226Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b4b3837c498c4b6ea08cca981cf999cd98fb43201118c75625969d190f29457a.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b4b3837c498c4b6ea08cca981cf999c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

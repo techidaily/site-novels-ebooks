@@ -1,7 +1,7 @@
 ---
 title: Magical Knowledge II - The Initiate | Free Book
-date: 2024-10-23 17:40:50
-updated: 2024-10-26 12:32:20
+date: 2024-10-20T16:09:12.868Z
+updated: 2024-10-26T19:16:55.518Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4dcad0425d8b6757ce3a03e46bf11de5a32f0a86d69b6560ff3d2352028a0ed6.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4dcad0425d8b6757ce3a03e46bf11de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Quantum Human Design | Free Book
-date: 2024-10-25 11:20:31
-updated: 2024-10-26 11:48:39
+date: 2024-10-22T21:24:13.409Z
+updated: 2024-10-27T05:26:39.769Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62b01ff8bf22ceca9dce2b1916acae4911f5cfff7fcb7afaff75d480c6067b37.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62b01ff8bf22ceca9dce2b1916acae4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

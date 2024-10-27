@@ -1,7 +1,7 @@
 ---
 title: Thrusting Against Negative Forces | Free Book
-date: 2024-10-23 19:28:32
-updated: 2024-10-26 10:50:52
+date: 2024-10-26T03:25:38.696Z
+updated: 2024-10-26T22:49:20.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26ebbf464b2831d7f52d4e20e33d18b6ac0b6e2d00bd4c2156231894e005f833.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26ebbf464b2831d7f52d4e20e33d18b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Sacred Messengers of Shamanic Africa | Free Book
-date: 2024-10-25 12:26:48
-updated: 2024-10-26 10:26:54
+date: 2024-10-22T21:26:13.762Z
+updated: 2024-10-26T22:15:56.923Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb79f11c207025b76ed7cc60ea46d55439aac3f17670ef038172dd931d51139e.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb79f11c207025b76ed7cc60ea46d55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

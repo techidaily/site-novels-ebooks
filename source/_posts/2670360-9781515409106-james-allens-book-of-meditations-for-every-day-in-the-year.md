@@ -1,7 +1,7 @@
 ---
 title: James Allen’s Book of Meditations for Every Day in the Year | Free Book
-date: 2024-10-25 21:52:58
-updated: 2024-10-26 10:53:34
+date: 2024-10-25T01:06:36.652Z
+updated: 2024-10-26T17:29:22.119Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/431b78da32e0855ad6bee0cfcd331b1845a58f80f7038fd5dcd0edd8d6ac3eb4.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/431b78da32e0855ad6bee0cfcd331b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

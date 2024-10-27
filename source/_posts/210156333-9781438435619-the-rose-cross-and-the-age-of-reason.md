@@ -1,7 +1,7 @@
 ---
 title: The Rose Cross and the Age of Reason | Free Book
-date: 2024-10-25 17:35:15
-updated: 2024-10-26 11:15:54
+date: 2024-10-25T23:40:20.485Z
+updated: 2024-10-26T17:55:55.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b406d84e721d83a47adb80c11d18633c33590171a789cba7dceaedf198b0165d.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b406d84e721d83a47adb80c11d18633
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

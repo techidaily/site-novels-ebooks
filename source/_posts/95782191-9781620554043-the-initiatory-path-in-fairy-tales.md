@@ -1,7 +1,7 @@
 ---
 title: The Initiatory Path in Fairy Tales | Free Book
-date: 2024-10-25 18:45:29
-updated: 2024-10-26 11:48:29
+date: 2024-10-22T23:22:21.645Z
+updated: 2024-10-26T18:16:24.917Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d2ac17098b91046bcec4feb7de8c2430feb0183694f038a24a84bca4d88c593.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d2ac17098b91046bcec4feb7de8c24
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Seeker's Guide to The Secret Teachings of All Ages | Free Book
-date: 2024-10-23 18:38:30
-updated: 2024-10-26 10:34:49
+date: 2024-10-26T03:16:49.823Z
+updated: 2024-10-26T18:34:11.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c421bd904470c681d9dc70160d87b3ad2fbe924db3545b9d7717d7f11f6bb1b.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c421bd904470c681d9dc70160d87b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

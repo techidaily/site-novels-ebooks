@@ -1,7 +1,7 @@
 ---
 title: The Patient in Room Nine Says He's God | Free Book
-date: 2024-10-25 19:22:42
-updated: 2024-10-26 10:30:59
+date: 2024-10-26T01:47:31.122Z
+updated: 2024-10-27T02:53:35.620Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e9e213324616d22558c6c0d50271bc786f94f095e1329734a68c3564a6105cc.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e9e213324616d22558c6c0d50271bc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

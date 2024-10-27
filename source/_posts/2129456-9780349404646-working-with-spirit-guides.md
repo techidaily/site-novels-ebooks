@@ -1,7 +1,7 @@
 ---
 title: Working With Spirit Guides | Free Book
-date: 2024-10-23 14:37:49
-updated: 2024-10-26 10:15:33
+date: 2024-10-25T04:10:11.396Z
+updated: 2024-10-27T04:33:03.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9529dbc4bce2c54ac5d77d1368901f6496172db9138ebd3878da91300390d61.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9529dbc4bce2c54ac5d77d1368901f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

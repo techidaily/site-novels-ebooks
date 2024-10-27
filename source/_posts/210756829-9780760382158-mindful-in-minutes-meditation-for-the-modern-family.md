@@ -1,7 +1,7 @@
 ---
 title: "Mindful in Minutes: Meditation for the Modern Family | Free Book"
-date: 2024-10-23 20:18:37
-updated: 2024-10-26 11:27:19
+date: 2024-10-20T23:52:41.130Z
+updated: 2024-10-27T05:51:40.927Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c67a9f13739ba4ee0c04cd7338d54d047c199e110f33608a3c06d953bd895a58.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c67a9f13739ba4ee0c04cd7338d54d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

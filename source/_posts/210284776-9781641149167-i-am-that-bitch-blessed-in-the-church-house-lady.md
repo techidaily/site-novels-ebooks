@@ -1,7 +1,7 @@
 ---
 title: I am that B.I.T.C.H. (Blessed In The Church House) Lady | Free Book
-date: 2024-10-23 16:14:23
-updated: 2024-10-26 10:17:44
+date: 2024-10-25T03:41:16.314Z
+updated: 2024-10-26T19:50:24.044Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/edacb3739b6dc5cfb2e14829f8a2e9306875c529f01bf6c0f9b1a1bec2fe9577.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/edacb3739b6dc5cfb2e14829f8a2e93
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Arcanos Maiores do Tarot: o seu significado sem recorrer à memória. | Free Book"
-date: 2024-10-25 19:10:14
-updated: 2024-10-26 11:29:17
+date: 2024-10-20T01:32:12.277Z
+updated: 2024-10-26T17:09:48.090Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a76bbbbe94ef8ffb5571409573b2a05fa94e90bb4b7799ae78a6eb9c863c754.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a76bbbbe94ef8ffb5571409573b2a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

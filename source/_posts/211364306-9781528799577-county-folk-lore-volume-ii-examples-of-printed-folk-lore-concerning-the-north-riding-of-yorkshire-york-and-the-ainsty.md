@@ -1,7 +1,7 @@
 ---
 title: County Folk-Lore - Volume II - Examples of Printed Folk-Lore Concerning the North Riding of Yorkshire, York and the Ainsty | Free Book
-date: 2024-10-23 20:37:10
-updated: 2024-10-26 10:33:57
+date: 2024-10-24T17:30:19.744Z
+updated: 2024-10-26T17:26:11.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ce29dc588d9c59556d612222b5205e2dc9cc1664df6131562c89288d33a96e5.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ce29dc588d9c59556d612222b5205e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

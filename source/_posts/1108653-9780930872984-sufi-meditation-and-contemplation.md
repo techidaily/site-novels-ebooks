@@ -1,7 +1,7 @@
 ---
 title: Sufi Meditation and Contemplation | Free Book
-date: 2024-10-24 23:30:24
-updated: 2024-10-26 10:25:28
+date: 2024-10-25T06:00:52.035Z
+updated: 2024-10-27T05:54:01.668Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3f3450127cb9fdd02c30f839a23f74b132320867009c689e448f3d407e1cd13.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3f3450127cb9fdd02c30f839a23f74
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

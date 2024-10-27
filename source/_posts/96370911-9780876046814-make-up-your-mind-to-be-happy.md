@@ -1,7 +1,7 @@
 ---
 title: Make Up Your Mind to Be Happy | Free Book
-date: 2024-10-25 12:43:26
-updated: 2024-10-26 11:35:20
+date: 2024-10-20T01:14:40.056Z
+updated: 2024-10-27T04:15:12.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6390825bfede81050f5295315166d3340a.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

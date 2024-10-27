@@ -1,7 +1,7 @@
 ---
 title: Don Juan and the Power of Medicine Dreaming (2nd ed.) | Free Book
-date: 2024-10-24 15:52:51
-updated: 2024-10-26 11:27:20
+date: 2024-10-23T04:32:54.125Z
+updated: 2024-10-26T16:53:06.025Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba6865797bf6575a68e51083ac4bee2c58dc2c54f2416f2a7094ee47811d73e3.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba6865797bf6575a68e51083ac4bee2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

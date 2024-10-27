@@ -1,7 +1,7 @@
 ---
 title: Tales and Legends of the Devil | Free Book
-date: 2024-10-24 13:24:18
-updated: 2024-10-26 12:25:38
+date: 2024-10-22T00:31:05.797Z
+updated: 2024-10-27T02:35:58.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/620c400366ccceacfd73c402b50c53137878ce22cb1827927b621baa62668d69.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/620c400366ccceacfd73c402b50c531
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

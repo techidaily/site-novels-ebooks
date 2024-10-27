@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Guia Sobre Como Meditar Para Pessoas Ocupadas Para Curar Depressão, Ansiedade E Estresse | Free Book"
-date: 2024-10-23 21:16:36
-updated: 2024-10-26 11:26:28
+date: 2024-10-20T18:26:59.568Z
+updated: 2024-10-27T03:08:32.743Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/396b289b17dbc4d6f8642fdfd2f79f080d1945dd2a76261357c4ae3df0e56ab0.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/396b289b17dbc4d6f8642fdfd2f79f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

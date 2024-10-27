@@ -1,7 +1,7 @@
 ---
 title: "The Tiger in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-24 12:33:55
-updated: 2024-10-26 12:20:58
+date: 2024-10-25T03:53:21.840Z
+updated: 2024-10-26T21:37:01.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bca6a68a27fa25047116f09eafc6959250205f16a5059d2b0f9bb068bdbc341e.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bca6a68a27fa25047116f09eafc6959
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

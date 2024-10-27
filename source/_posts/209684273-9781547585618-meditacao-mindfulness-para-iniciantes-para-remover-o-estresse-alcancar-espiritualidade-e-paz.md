@@ -1,7 +1,7 @@
 ---
 title: "Meditação : Mindfulness Para Iniciantes Para Remover O Estresse (Alcançar Espiritualidade E Paz) | Free Book"
-date: 2024-10-24 16:37:42
-updated: 2024-10-26 12:27:16
+date: 2024-10-21T22:22:00.080Z
+updated: 2024-10-27T03:41:45.692Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b00b21f70e237e4e8802409743d8638d9fc4f5225064b4674fd7be6a42a75ad2.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b00b21f70e237e4e8802409743d8638
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

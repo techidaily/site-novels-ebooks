@@ -1,7 +1,7 @@
 ---
 title: Wisdom from Your Spirit Guides | Free Book
-date: 2024-10-25 17:46:59
-updated: 2024-10-26 11:53:37
+date: 2024-10-23T17:48:36.712Z
+updated: 2024-10-26T20:47:45.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c95a2efa9b1ad59da3451db41c4fdcb1868ee8811758ec5a44ecec56c7fd362b.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c95a2efa9b1ad59da3451db41c4fdcb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

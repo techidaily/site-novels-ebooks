@@ -1,7 +1,7 @@
 ---
 title: Sri Yantra Bhavana Upanishad | Free Book
-date: 2024-10-24 20:23:32
-updated: 2024-10-26 12:36:10
+date: 2024-10-19T22:07:29.157Z
+updated: 2024-10-26T23:43:40.858Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b753b07558eef1fdd40a690f8889a4edd8e755d5a108b413f70378a70376d44c.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b753b07558eef1fdd40a690f8889a4e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

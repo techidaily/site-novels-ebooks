@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Cómo Vencer El Miedo, La Ira Y La Depresión | Free Book"
-date: 2024-10-25 13:41:52
-updated: 2024-10-26 11:58:52
+date: 2024-10-24T02:36:41.089Z
+updated: 2024-10-26T16:23:55.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c137e2e3b509d5839fa5914a76daaf0391b3438fee290f2302d918bba58898dd.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c137e2e3b509d5839fa5914a76daaf0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

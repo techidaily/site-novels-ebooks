@@ -1,7 +1,7 @@
 ---
 title: Chinese Astrology Plain & Simple | Free Book
-date: 2024-10-25 14:26:26
-updated: 2024-10-26 10:43:38
+date: 2024-10-26T04:18:16.250Z
+updated: 2024-10-26T23:27:14.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a47cf6f06edf1304c8c63d3876f090f86f5bf1ea7d15d77af0d5764f8485905b.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a47cf6f06edf1304c8c63d3876f090f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

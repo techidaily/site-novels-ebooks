@@ -1,7 +1,7 @@
 ---
 title: "Wicca: A comprehensive guide to the Old Religion in the modern world | Free Book"
-date: 2024-10-24 22:59:22
-updated: 2024-10-26 11:42:21
+date: 2024-10-25T20:42:09.443Z
+updated: 2024-10-26T17:33:45.582Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ecc15414c7d5101a96a43cc8d0c135c9dd7013c0e1089cbd37afd0847fbf4ee.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ecc15414c7d5101a96a43cc8d0c135
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

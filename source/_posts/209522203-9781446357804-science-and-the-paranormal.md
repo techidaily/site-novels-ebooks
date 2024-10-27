@@ -1,7 +1,7 @@
 ---
 title: Science and the Paranormal | Free Book
-date: 2024-10-25 23:28:42
-updated: 2024-10-26 11:14:21
+date: 2024-10-23T20:34:35.475Z
+updated: 2024-10-27T05:39:26.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab92e8f7ae83eff9fa9cf9dc2548969f44b3c16c5167045230da20955f821e31.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab92e8f7ae83eff9fa9cf9dc2548969
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: السلام الداخلي - القوانين الخمسة لحياة مطمئنة | Free Book
-date: 2024-10-23 22:41:49
-updated: 2024-10-26 10:21:46
+date: 2024-10-24T23:31:15.867Z
+updated: 2024-10-27T02:38:02.295Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/06af12ff386f294a11572f4b8494688f0ceb99640932e70f1e820f68519cfecd.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/06af12ff386f294a11572f4b8494688
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

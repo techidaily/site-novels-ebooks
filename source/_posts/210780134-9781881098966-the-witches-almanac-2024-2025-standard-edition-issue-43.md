@@ -1,7 +1,7 @@
 ---
 title: The Witches' Almanac 2024-2025 Standard Edition Issue 43 | Free Book
-date: 2024-10-23 23:54:49
-updated: 2024-10-26 12:55:13
+date: 2024-10-23T05:37:46.428Z
+updated: 2024-10-27T00:36:07.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c789356586fa520f8bae1f32e61db2cf8bcb4d4a130f51fecaaf29a26f32730.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c789356586fa520f8bae1f32e61db2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

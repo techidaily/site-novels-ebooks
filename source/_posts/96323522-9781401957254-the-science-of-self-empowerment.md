@@ -1,7 +1,7 @@
 ---
 title: The Science of Self-Empowerment | Free Book
-date: 2024-10-25 22:43:42
-updated: 2024-10-26 10:53:38
+date: 2024-10-19T22:08:51.801Z
+updated: 2024-10-27T01:05:25.551Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc95324fa154e7d769cae63fdb8bae584f5ad79.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc9532
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

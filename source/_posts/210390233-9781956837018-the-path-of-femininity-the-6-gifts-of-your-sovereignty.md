@@ -1,7 +1,7 @@
 ---
 title: The Path of Femininity; The 6 Gifts of Your Sovereignty | Free Book
-date: 2024-10-24 15:13:23
-updated: 2024-10-26 12:50:31
+date: 2024-10-23T02:26:08.012Z
+updated: 2024-10-27T01:59:08.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/113d72f5d42e64e193a8bc8c4fffa0f0db0587436736c9a78760976bcacedbcd.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/113d72f5d42e64e193a8bc8c4fffa0f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

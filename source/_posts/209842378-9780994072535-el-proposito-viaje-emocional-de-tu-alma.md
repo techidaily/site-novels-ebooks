@@ -1,7 +1,7 @@
 ---
 title: "El propósito: Viaje emocional de tu alma | Free Book"
-date: 2024-10-24 13:15:42
-updated: 2024-10-26 10:51:26
+date: 2024-10-25T16:58:32.648Z
+updated: 2024-10-27T05:09:23.159Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15286bbb56d5fdf84bcf57fed27e51b74bda4b537c0d2a8df87c48c46c8b8daf.jpg
@@ -207,3 +207,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15286bbb56d5fdf84bcf57fed27e51b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

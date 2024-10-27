@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Ancient Past | Free Book
-date: 2024-10-25 16:49:44
-updated: 2024-10-26 11:52:26
+date: 2024-10-20T16:18:46.893Z
+updated: 2024-10-26T16:16:01.261Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b25966eaac163ef155ccf1924fc3bdb20f42023901b77e65caa70a1cd629406.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b25966eaac163ef155ccf1924fc3bd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

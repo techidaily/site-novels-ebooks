@@ -1,7 +1,7 @@
 ---
 title: The Key to the True Kabbalah | Free Book
-date: 2024-10-24 13:28:20
-updated: 2024-10-26 10:49:20
+date: 2024-10-22T18:44:24.554Z
+updated: 2024-10-27T05:21:20.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40ebc962bfb10316422aab8e775a6246b6456c935f26f893ffc318020fc7d85c.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40ebc962bfb10316422aab8e775a624
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

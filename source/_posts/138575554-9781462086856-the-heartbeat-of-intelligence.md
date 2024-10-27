@@ -1,7 +1,7 @@
 ---
 title: The Heartbeat of Intelligence | Free Book
-date: 2024-10-23 12:31:40
-updated: 2024-10-26 12:55:21
+date: 2024-10-21T18:58:22.611Z
+updated: 2024-10-27T04:42:28.156Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fbee189e9787a6b3df46fb24bd51bf398cac4d126251ab070421746082386522.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fbee189e9787a6b3df46fb24bd51bf3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

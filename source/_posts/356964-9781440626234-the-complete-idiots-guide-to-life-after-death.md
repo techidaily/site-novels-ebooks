@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Life After Death | Free Book
-date: 2024-10-23 13:44:33
-updated: 2024-10-26 11:34:54
+date: 2024-10-24T16:16:53.249Z
+updated: 2024-10-27T03:17:18.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/64c0ebf0cafc0c99ec7ce3b39049949af824ce9178cb40ac889c090500b46c8c.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/64c0ebf0cafc0c99ec7ce3b39049949
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

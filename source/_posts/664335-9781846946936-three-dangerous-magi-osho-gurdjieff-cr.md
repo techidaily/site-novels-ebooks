@@ -1,7 +1,7 @@
 ---
 title: "Three Dangerous Magi: Osho Gurdjieff Cr | Free Book"
-date: 2024-10-25 12:39:36
-updated: 2024-10-26 12:37:23
+date: 2024-10-25T02:15:38.478Z
+updated: 2024-10-26T22:35:27.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/658868c08c80c3da965511ef4f78e4afdfb3a9da350638a5ba5bd6c212b38988.jpg
@@ -119,3 +119,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/658868c08c80c3da965511ef4f78e4a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

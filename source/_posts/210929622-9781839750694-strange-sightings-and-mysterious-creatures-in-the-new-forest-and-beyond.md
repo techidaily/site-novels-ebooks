@@ -1,7 +1,7 @@
 ---
 title: Strange Sightings and Mysterious Creatures in the New Forest and Beyond | Free Book
-date: 2024-10-25 22:43:59
-updated: 2024-10-26 12:53:34
+date: 2024-10-22T02:27:20.916Z
+updated: 2024-10-27T00:45:49.472Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cbb913b010a047e49785c97fcd7b864c43289684a9b834d76e4de441f65ff9c2.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cbb913b010a047e49785c97fcd7b864
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

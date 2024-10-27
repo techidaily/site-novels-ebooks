@@ -1,7 +1,7 @@
 ---
 title: The Heart Speaks to the Mind | Free Book
-date: 2024-10-24 20:49:54
-updated: 2024-10-26 11:29:53
+date: 2024-10-20T19:48:10.785Z
+updated: 2024-10-26T18:55:54.177Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c88efb7d942e5f2ab0d6a2ca09ef11dd25df2a8d6e2d437d37236c9d03f40fad.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c88efb7d942e5f2ab0d6a2ca09ef11d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

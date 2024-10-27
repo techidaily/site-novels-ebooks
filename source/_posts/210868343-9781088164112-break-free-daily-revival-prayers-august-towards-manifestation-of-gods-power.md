@@ -1,7 +1,7 @@
 ---
 title: Break-free - Daily Revival Prayers - AUGUST - Towards MANIFESTATION OF GODS POWER | Free Book
-date: 2024-10-24 14:32:29
-updated: 2024-10-26 10:39:13
+date: 2024-10-23T17:51:59.112Z
+updated: 2024-10-26T17:25:05.380Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92b8e2c7df22201d6ff0513463da681de3d6cfaa4259cd3e503b777c2f7097b7.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92b8e2c7df22201d6ff0513463da681
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

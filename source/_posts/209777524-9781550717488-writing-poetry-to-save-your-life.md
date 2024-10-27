@@ -1,7 +1,7 @@
 ---
 title: Writing Poetry To Save Your Life | Free Book
-date: 2024-10-23 14:47:45
-updated: 2024-10-26 10:42:22
+date: 2024-10-24T20:45:38.875Z
+updated: 2024-10-26T20:24:40.450Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f62e730c80710b71bb1d144debb62eefbf83dbff7ba3eedca9891a2cb7c9a430.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f62e730c80710b71bb1d144debb62ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

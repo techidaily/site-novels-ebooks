@@ -1,7 +1,7 @@
 ---
 title: The 36 Stratagems of Personal Growth | Free Book
-date: 2024-10-23 22:59:37
-updated: 2024-10-26 12:13:59
+date: 2024-10-25T17:15:36.879Z
+updated: 2024-10-26T18:31:32.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e9012af793c08d4d514c3e724e033b71a3e66465a2c1b0a957dc9d970779d49.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e9012af793c08d4d514c3e724e033b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

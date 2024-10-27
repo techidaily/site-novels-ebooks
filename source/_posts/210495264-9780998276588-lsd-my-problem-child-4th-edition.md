@@ -1,7 +1,7 @@
 ---
 title: LSD My Problem Child (4th Edition) | Free Book
-date: 2024-10-25 15:43:31
-updated: 2024-10-26 11:51:23
+date: 2024-10-21T03:45:54.951Z
+updated: 2024-10-27T02:10:02.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14da4182e16fef16c218db78cb511994f2a6c32a2b89d8dacff07ef8b5391815.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14da4182e16fef16c218db78cb51199
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

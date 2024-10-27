@@ -1,7 +1,7 @@
 ---
 title: Réveillez le créatif qui dort en vous | Free Book
-date: 2024-10-23 15:22:32
-updated: 2024-10-26 11:36:11
+date: 2024-10-22T16:34:44.448Z
+updated: 2024-10-27T03:40:37.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c594748821225cc4a9d28907a489a5f8cc90d29a63e571b94514c544f95c329.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c594748821225cc4a9d28907a489a5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

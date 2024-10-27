@@ -1,7 +1,7 @@
 ---
 title: Ayurveda for Obesity and Gut Health | Free Book
-date: 2024-10-23 14:23:48
-updated: 2024-10-26 10:38:43
+date: 2024-10-19T23:43:36.551Z
+updated: 2024-10-27T03:08:39.274Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f55008e4a0d2c0e56a31f062bc31fb3b54f846966be79f5781318d9f5283883d.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f55008e4a0d2c0e56a31f062bc31fb3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

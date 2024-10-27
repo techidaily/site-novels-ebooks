@@ -1,7 +1,7 @@
 ---
 title: The Psychic Self-Defense Personal Training Manual | Free Book
-date: 2024-10-24 15:57:18
-updated: 2024-10-26 11:15:12
+date: 2024-10-21T18:08:05.928Z
+updated: 2024-10-27T04:18:15.963Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f8b8b3bea55de42b5c1128e35d9d3607ed4e163fe518030179939900eb059b40.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f8b8b3bea55de42b5c1128e35d9d360
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

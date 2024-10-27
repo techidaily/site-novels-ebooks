@@ -1,7 +1,7 @@
 ---
 title: Bottoming Out the Universe | Free Book
-date: 2024-10-23 21:39:19
-updated: 2024-10-26 10:57:13
+date: 2024-10-22T18:36:37.591Z
+updated: 2024-10-26T18:45:58.638Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4227956791d6b458189c0f9e0cb95b5a8b7b0cf94ee7f0dfd58309eeba70c5bc.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4227956791d6b458189c0f9e0cb95b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

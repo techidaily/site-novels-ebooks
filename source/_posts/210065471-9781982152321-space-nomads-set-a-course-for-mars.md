@@ -1,7 +1,7 @@
 ---
 title: "Space Nomads: Set a Course for Mars | Free Book"
-date: 2024-10-23 14:54:11
-updated: 2024-10-26 11:35:19
+date: 2024-10-24T18:39:20.863Z
+updated: 2024-10-27T01:04:13.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2527c8b586aafe79e347e48a8882f072c4cee76cc8fb007f4b5bc54ca618a472.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2527c8b586aafe79e347e48a8882f07
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Art of Mandala Meditation | Free Book
-date: 2024-10-25 13:59:12
-updated: 2024-10-26 10:17:16
+date: 2024-10-20T02:10:17.957Z
+updated: 2024-10-26T16:07:38.661Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b7c9d9d8cb6f41d8b5c0229bbc39dd60b64f6fe9162059b3773d3f9b933f1a5.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b7c9d9d8cb6f41d8b5c0229bbc39dd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

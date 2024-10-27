@@ -1,7 +1,7 @@
 ---
 title: Mysteries and Secrets of Time | Free Book
-date: 2024-10-25 10:24:11
-updated: 2024-10-26 12:38:41
+date: 2024-10-21T01:31:43.300Z
+updated: 2024-10-27T04:42:42.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98f9f07468bd4e99b8dac551c35bda61af16099b3c2f12cf7efd51cd2f27f54f.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98f9f07468bd4e99b8dac551c35bda6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

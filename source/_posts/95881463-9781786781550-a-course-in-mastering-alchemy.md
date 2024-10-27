@@ -1,7 +1,7 @@
 ---
 title: A Course in Mastering Alchemy | Free Book
-date: 2024-10-23 10:33:26
-updated: 2024-10-26 12:44:26
+date: 2024-10-25T18:44:43.343Z
+updated: 2024-10-27T04:04:34.596Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/363678b0d4d68b57ef3f735eb4fcec20f0c7257b84738b91022dd03846cc52bd.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/363678b0d4d68b57ef3f735eb4fcec2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

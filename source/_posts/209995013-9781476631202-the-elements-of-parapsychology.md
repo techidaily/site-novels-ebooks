@@ -1,7 +1,7 @@
 ---
 title: The Elements of Parapsychology | Free Book
-date: 2024-10-23 11:25:31
-updated: 2024-10-26 12:22:29
+date: 2024-10-21T16:00:55.745Z
+updated: 2024-10-26T19:13:09.903Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/164cc92392e412054b30f5d8f8a131fd376db70f9e9895f76b9d6c18b630f0bd.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/164cc92392e412054b30f5d8f8a131f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Guided Meditations For Overthinking, Anxiety, Depression & Mindfulness: Beginners Scripts For Deep Sleep, Insomnia, Self-Healing, Relaxation, Overthinking, Chakra Healing& Awakening | Free Book"
-date: 2024-10-25 22:28:10
-updated: 2024-10-26 11:39:18
+date: 2024-10-24T22:33:19.333Z
+updated: 2024-10-26T23:44:42.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f123726012cc5e878e9d367caa83e4e6a6e93cdae93885f3b778c0a6a9344299.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f123726012cc5e878e9d367caa83e4e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

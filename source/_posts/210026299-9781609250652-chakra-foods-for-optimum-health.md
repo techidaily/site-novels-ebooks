@@ -1,7 +1,7 @@
 ---
 title: Chakra Foods for Optimum Health | Free Book
-date: 2024-10-23 12:22:42
-updated: 2024-10-26 10:45:31
+date: 2024-10-22T17:05:42.494Z
+updated: 2024-10-26T20:39:14.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74144e3333fcdebe43f47982bf375d9e80915c15c467ef22dffbcc06b3458d0f.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74144e3333fcdebe43f47982bf375d9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

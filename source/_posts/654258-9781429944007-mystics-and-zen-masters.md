@@ -1,7 +1,7 @@
 ---
 title: Mystics and Zen Masters | Free Book
-date: 2024-10-23 20:42:32
-updated: 2024-10-26 10:49:36
+date: 2024-10-19T22:07:55.506Z
+updated: 2024-10-27T04:30:23.069Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/114181deedddc566f67fb43e9deb0be19e140d2bba44afd3685f13bce96d1f39.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/114181deedddc566f67fb43e9deb0be
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

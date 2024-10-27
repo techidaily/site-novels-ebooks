@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Witchcraft Trials in Orkney and Shetland (Folklore History Series) | Free Book
-date: 2024-10-23 15:36:22
-updated: 2024-10-26 10:20:30
+date: 2024-10-24T04:01:34.515Z
+updated: 2024-10-26T23:11:57.040Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bcd8454f1b5a0dfb323be1e612e2b75d537a30d6f4f4bcdfd2982aade8f73cb7.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bcd8454f1b5a0dfb323be1e612e2b75
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Telepathy - Genuine and Fraudulent - With a Preface by Sir Oliver Lodge | Free Book
-date: 2024-10-24 13:23:28
-updated: 2024-10-26 11:29:42
+date: 2024-10-22T23:23:00.573Z
+updated: 2024-10-27T03:53:51.040Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82440e59605dfeb5932cc3b8d0b9b5e59285a5e11c53b23d1a26faadcb839850.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82440e59605dfeb5932cc3b8d0b9b5e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

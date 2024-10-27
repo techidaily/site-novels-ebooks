@@ -1,7 +1,7 @@
 ---
 title: The Meditation Handbook | Free Book
-date: 2024-10-25 11:30:28
-updated: 2024-10-26 11:11:35
+date: 2024-10-25T20:25:49.226Z
+updated: 2024-10-27T05:11:11.218Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c2e68b198b77597cdd526f2367d2f33014c360ae4e671c688339b4a578928613.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c2e68b198b77597cdd526f2367d2f33
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

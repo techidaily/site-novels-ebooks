@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2024-10-25 14:33:45
-updated: 2024-10-26 12:14:10
+date: 2024-10-25T03:42:44.027Z
+updated: 2024-10-26T19:04:07.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

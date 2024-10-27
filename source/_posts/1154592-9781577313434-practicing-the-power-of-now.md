@@ -1,7 +1,7 @@
 ---
 title: Practicing the Power of Now | Free Book
-date: 2024-10-23 13:40:31
-updated: 2024-10-26 10:59:55
+date: 2024-10-19T21:57:20.590Z
+updated: 2024-10-26T17:07:00.551Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e56425d1b8518eec43c3a5e57f837aba8e566be137e2228447af5d3360cf8e14.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e56425d1b8518eec43c3a5e57f837ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

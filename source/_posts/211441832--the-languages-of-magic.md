@@ -1,7 +1,7 @@
 ---
 title: The Languages of Magic | Free Book
-date: 2024-10-23 16:58:52
-updated: 2024-10-26 10:40:15
+date: 2024-10-19T20:49:03.185Z
+updated: 2024-10-26T20:21:09.083Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5a207dcc02135b677cae809179caa5e57bd724401e192d9757f1128aaaf307a.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5a207dcc02135b677cae809179caa5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

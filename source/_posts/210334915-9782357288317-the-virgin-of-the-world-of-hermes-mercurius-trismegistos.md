@@ -1,7 +1,7 @@
 ---
 title: The Virgin of the World of Hermes Mercurius Trismegistos | Free Book
-date: 2024-10-25 12:58:16
-updated: 2024-10-26 11:16:17
+date: 2024-10-23T05:50:58.618Z
+updated: 2024-10-26T19:06:51.451Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a8812fce5099f550b6cdf7ab46381eedb1621881ecaa2b503abf7633f70ea4d.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a8812fce5099f550b6cdf7ab46381e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

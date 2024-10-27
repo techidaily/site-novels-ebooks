@@ -1,7 +1,7 @@
 ---
 title: "Goth Magick: An Enchanted Grimoire | Free Book"
-date: 2024-10-24 15:37:41
-updated: 2024-10-26 12:18:18
+date: 2024-10-21T22:10:42.868Z
+updated: 2024-10-27T03:53:27.383Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2c05b5f78257e16375d447b0812691fd079712973f967dbfee35e704027a8eb.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2c05b5f78257e16375d447b0812691
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

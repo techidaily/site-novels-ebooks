@@ -1,7 +1,7 @@
 ---
 title: MAXIMIZING YOUR ENNEAGRAM TYPE A WORKBOOK | Free Book
-date: 2024-10-23 18:44:49
-updated: 2024-10-26 12:10:35
+date: 2024-10-23T02:14:57.390Z
+updated: 2024-10-26T17:36:31.813Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ea40cfb976cb3b95c9f8cb9b78757daa93c4988836a189dafe1bb2b36614655.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ea40cfb976cb3b95c9f8cb9b78757d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

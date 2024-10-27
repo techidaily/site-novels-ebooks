@@ -1,7 +1,7 @@
 ---
 title: The Writings of Austin Osman Spare | Free Book
-date: 2024-10-23 17:11:14
-updated: 2024-10-26 11:23:56
+date: 2024-10-25T02:22:25.781Z
+updated: 2024-10-27T04:29:49.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fddb605b8de7d9694a86a8c03ce2339aae1a26a60f864974118324beecc75c32.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fddb605b8de7d9694a86a8c03ce2339
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

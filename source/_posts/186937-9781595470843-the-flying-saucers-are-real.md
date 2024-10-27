@@ -1,7 +1,7 @@
 ---
 title: The Flying Saucers Are Real | Free Book
-date: 2024-10-23 13:25:23
-updated: 2024-10-26 10:12:26
+date: 2024-10-24T18:10:43.605Z
+updated: 2024-10-26T16:14:20.894Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/451ff2667760787109ed0f71787d1c4937f01cf4b3193b52069a621cea7cdecf.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/451ff2667760787109ed0f71787d1c4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

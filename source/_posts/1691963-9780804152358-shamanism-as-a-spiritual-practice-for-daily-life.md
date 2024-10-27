@@ -1,7 +1,7 @@
 ---
 title: Shamanism As a Spiritual Practice for Daily Life | Free Book
-date: 2024-10-23 23:26:21
-updated: 2024-10-26 11:57:43
+date: 2024-10-22T05:39:33.701Z
+updated: 2024-10-27T03:33:43.438Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f59a8d6a9c29297c08bfbf026edceaa766e972036415d664f10393f62043f5b7.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f59a8d6a9c29297c08bfbf026edceaa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

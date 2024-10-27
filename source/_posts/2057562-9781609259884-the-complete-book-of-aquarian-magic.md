@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Aquarian Magic | Free Book
-date: 2024-10-24 17:37:26
-updated: 2024-10-26 10:12:27
+date: 2024-10-22T19:08:23.240Z
+updated: 2024-10-27T02:09:04.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d679f6f0c7fba229c82f66777d7931a6bc76916727d43fc096a4ba87b63d17f.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d679f6f0c7fba229c82f66777d7931
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

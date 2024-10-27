@@ -1,7 +1,7 @@
 ---
 title: Самые жуткие и мистические места на планете и тайны их жителей (Samye zhutkie i misticheskie mesta na planete i tajny ih zhitelej) | Free Book
-date: 2024-10-24 17:44:37
-updated: 2024-10-26 11:23:24
+date: 2024-10-21T22:54:21.611Z
+updated: 2024-10-26T20:53:51.300Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1af1dc71867c50c6c3b99cd105badab9b7c6bff949a1a05f93d12ade14de588b.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1af1dc71867c50c6c3b99cd105badab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

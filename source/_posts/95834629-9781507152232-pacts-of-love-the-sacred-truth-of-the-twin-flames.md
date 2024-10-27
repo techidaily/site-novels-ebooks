@@ -1,7 +1,7 @@
 ---
 title: Pacts of Love - The Sacred Truth of the Twin Flames | Free Book
-date: 2024-10-24 18:17:20
-updated: 2024-10-26 12:14:29
+date: 2024-10-20T18:40:20.529Z
+updated: 2024-10-26T23:45:23.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d59b112478f35b035197d9c695c92caacf2effdb34cc2e1231f4e9dd4d9e89f.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d59b112478f35b035197d9c695c92c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

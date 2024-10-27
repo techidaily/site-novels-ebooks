@@ -1,7 +1,7 @@
 ---
 title: From the Prison to the Palace | Free Book
-date: 2024-10-25 19:57:53
-updated: 2024-10-26 10:25:35
+date: 2024-10-24T23:26:57.614Z
+updated: 2024-10-27T05:32:56.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00b7ff38de31a2c548461d80719250c2925b33abc31f5f68d678026750f6f11d.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00b7ff38de31a2c548461d80719250c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

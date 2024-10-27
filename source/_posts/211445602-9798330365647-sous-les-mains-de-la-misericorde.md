@@ -1,7 +1,7 @@
 ---
 title: Sous les Mains   de la  Miséricorde | Free Book
-date: 2024-10-25 11:31:23
-updated: 2024-10-26 12:47:40
+date: 2024-10-22T03:06:40.738Z
+updated: 2024-10-26T16:45:16.241Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99288cda875ed60caa1f9a96139e4cf9aa7bf449eebef5d3e19945ff6c5b30ac.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99288cda875ed60caa1f9a96139e4cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

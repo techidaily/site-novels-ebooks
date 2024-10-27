@@ -1,7 +1,7 @@
 ---
 title: "Beat Stress With Meditation: Teach Yourself | Free Book"
-date: 2024-10-23 19:22:17
-updated: 2024-10-26 11:59:20
+date: 2024-10-24T17:48:15.905Z
+updated: 2024-10-27T03:52:51.458Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc2b77391e3612e70d6a29e0c31c14d9e46369ed791755ec48857d5c03a4922e.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc2b77391e3612e70d6a29e0c31c14d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Open the Mind Exercise the Soul | Free Book
-date: 2024-10-24 23:26:39
-updated: 2024-10-26 10:30:14
+date: 2024-10-23T21:10:15.444Z
+updated: 2024-10-27T00:07:02.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a96e7444173c689109925210e8d4d27d238201e26b07a1f0d3e5d7f1df9ba18b.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a96e7444173c689109925210e8d4d27
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Awakening of Purpose Through Passion and Pain | Free Book
-date: 2024-10-25 20:29:23
-updated: 2024-10-26 10:18:48
+date: 2024-10-24T17:25:41.767Z
+updated: 2024-10-26T22:11:07.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93b914cd54dc580831af58d306c92958559ddfbce202e1c6aa4701b29560917d.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93b914cd54dc580831af58d306c9295
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

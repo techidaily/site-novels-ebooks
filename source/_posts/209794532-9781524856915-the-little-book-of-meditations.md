@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Meditations | Free Book
-date: 2024-10-23 23:58:48
-updated: 2024-10-26 11:25:27
+date: 2024-10-21T20:47:44.137Z
+updated: 2024-10-27T05:29:25.535Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4952d1f7755caf6d1ad4ccaa06e51e2aa1a62ddc8ae2cc290112e95678b587d3.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4952d1f7755caf6d1ad4ccaa06e51e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

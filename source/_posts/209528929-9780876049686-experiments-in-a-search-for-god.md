@@ -1,7 +1,7 @@
 ---
 title: Experiments in a Search For God | Free Book
-date: 2024-10-25 16:55:53
-updated: 2024-10-26 10:14:16
+date: 2024-10-23T05:51:08.567Z
+updated: 2024-10-27T05:46:39.246Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/46526ae23bbe8f1634b72ca8a72804a4cb06e6c98496ee5220cd720929b3800f.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/46526ae23bbe8f1634b72ca8a72804a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

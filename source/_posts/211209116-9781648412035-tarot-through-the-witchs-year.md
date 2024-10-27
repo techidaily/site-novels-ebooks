@@ -1,7 +1,7 @@
 ---
 title: Tarot Through the Witch's Year | Free Book
-date: 2024-10-23 16:37:58
-updated: 2024-10-26 10:32:43
+date: 2024-10-22T05:53:48.550Z
+updated: 2024-10-27T04:40:15.021Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/52f666ef8b635fcb91ab1702954a9476d0e4f6c5febd90ac5c21d46010d2e3ca.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/52f666ef8b635fcb91ab1702954a947
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

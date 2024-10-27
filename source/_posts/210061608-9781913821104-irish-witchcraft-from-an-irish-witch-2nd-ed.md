@@ -1,7 +1,7 @@
 ---
 title: Irish Witchcraft from an Irish Witch (2nd ed.) | Free Book
-date: 2024-10-23 19:19:20
-updated: 2024-10-26 10:34:36
+date: 2024-10-25T19:21:35.167Z
+updated: 2024-10-26T22:14:31.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cfd9598f296fda83554685e4fe4aaca19d69a833a6edfb07fb5e95136b84db71.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cfd9598f296fda83554685e4fe4aaca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

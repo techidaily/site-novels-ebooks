@@ -1,7 +1,7 @@
 ---
 title: Blues Ain't Nothing But a Good Soul Feeling Bad | Free Book
-date: 2024-10-23 21:41:35
-updated: 2024-10-26 12:36:41
+date: 2024-10-23T18:33:24.987Z
+updated: 2024-10-26T20:15:50.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72137bf8b98516b23bba814873e5a39319652ca882bef0cb0b2808cacb97f8f6.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72137bf8b98516b23bba814873e5a39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

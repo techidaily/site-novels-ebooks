@@ -1,7 +1,7 @@
 ---
 title: "Inspired Meditations: Book I | Free Book"
-date: 2024-10-24 17:49:23
-updated: 2024-10-26 10:11:45
+date: 2024-10-22T16:01:46.244Z
+updated: 2024-10-27T05:51:35.164Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d9b63f063956ff39c4a36cb772b2874cd9fce056e83cb3f1e83e586f383c098.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d9b63f063956ff39c4a36cb772b287
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

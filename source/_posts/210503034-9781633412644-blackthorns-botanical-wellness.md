@@ -1,7 +1,7 @@
 ---
 title: Blackthorn's Botanical Wellness | Free Book
-date: 2024-10-23 23:32:38
-updated: 2024-10-26 10:35:25
+date: 2024-10-24T02:27:42.412Z
+updated: 2024-10-27T02:40:31.317Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c5e17519b4e28f86dd8a2c189c2b7363cc413a43b965387aa3f379e2901612c.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c5e17519b4e28f86dd8a2c189c2b73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

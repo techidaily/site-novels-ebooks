@@ -1,7 +1,7 @@
 ---
 title: How to Meditate Like a Buddhist | Free Book
-date: 2024-10-23 20:59:43
-updated: 2024-10-26 12:20:57
+date: 2024-10-22T18:28:30.937Z
+updated: 2024-10-26T18:45:40.848Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb327cfe239dc1e6370d343037cb4970b87aed37655c52d1410dda7089dceac.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb327cfe239dc1e6370d343037cb49
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

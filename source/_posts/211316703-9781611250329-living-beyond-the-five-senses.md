@@ -1,7 +1,7 @@
 ---
 title: Living Beyond the Five Senses | Free Book
-date: 2024-10-23 13:14:25
-updated: 2024-10-26 12:46:45
+date: 2024-10-21T05:22:37.696Z
+updated: 2024-10-27T04:11:47.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34445d20aa5d043fe5e0c6f674d12529d76d115ed776116d4080f9044d6e7a5f.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34445d20aa5d043fe5e0c6f674d1252
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

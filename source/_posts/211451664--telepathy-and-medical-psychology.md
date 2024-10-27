@@ -1,7 +1,7 @@
 ---
 title: Telepathy and Medical Psychology | Free Book
-date: 2024-10-24 23:43:40
-updated: 2024-10-26 12:32:57
+date: 2024-10-25T02:58:25.074Z
+updated: 2024-10-26T20:17:09.153Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b00407ee613ea4c982b7bf9b79d3c719ee14e64907bfdccd79c63b0df7f4b310.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b00407ee613ea4c982b7bf9b79d3c71
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

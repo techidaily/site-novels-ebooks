@@ -1,7 +1,7 @@
 ---
 title: The Kundalini Book of Living and Dying | Free Book
-date: 2024-10-24 12:30:24
-updated: 2024-10-26 11:45:45
+date: 2024-10-20T02:38:47.509Z
+updated: 2024-10-27T01:59:34.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20ea98d5cf350c6f43dadc9fb8d49ff175c9d076b3380246bbdc6f6fa0fc5b35.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20ea98d5cf350c6f43dadc9fb8d49ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Power of Life Coaching Volume 4 | Free Book
-date: 2024-10-25 17:38:30
-updated: 2024-10-26 11:52:19
+date: 2024-10-22T04:59:04.154Z
+updated: 2024-10-26T17:15:58.646Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0cf0be758be70c8f185d1390799efbeb9b249d29e3ff19a60b43ba5d3314d57a.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0cf0be758be70c8f185d1390799efbe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mysteriorum Libri Quinque | Free Book
-date: 2024-10-23 13:39:31
-updated: 2024-10-26 11:31:29
+date: 2024-10-19T17:26:34.246Z
+updated: 2024-10-27T04:38:56.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da41471f7478800beb2f8998a92a2c927db13052251c32ae18dd69468ce376b1.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da41471f7478800beb2f8998a92a2c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

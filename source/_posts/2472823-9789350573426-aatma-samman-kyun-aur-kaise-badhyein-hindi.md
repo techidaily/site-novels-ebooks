@@ -1,7 +1,7 @@
 ---
 title: AATMA SAMMAN KYUN AUR KAISE BADHYEIN (Hindi) | Free Book
-date: 2024-10-23 16:57:11
-updated: 2024-10-26 12:58:23
+date: 2024-10-21T19:59:46.390Z
+updated: 2024-10-27T00:23:16.572Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59a0ddb75f6b9f4523aca446dad2ea6a5299a47519571b2fdf59bb92fe033071.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59a0ddb75f6b9f4523aca446dad2ea6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: What Time Is It In Your Life? It's Time to...Take Back Your Power and Testify! | Free Book
-date: 2024-10-23 21:53:39
-updated: 2024-10-26 10:44:27
+date: 2024-10-22T16:20:10.358Z
+updated: 2024-10-26T18:04:50.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f226311bea92e4407287b8d720be09ea02258415b1749b2fc9e026dd7b4b85bf.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f226311bea92e4407287b8d720be09e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

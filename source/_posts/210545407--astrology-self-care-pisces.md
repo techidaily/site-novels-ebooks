@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Pisces | Free Book"
-date: 2024-10-25 10:25:35
-updated: 2024-10-26 10:35:10
+date: 2024-10-23T18:04:51.780Z
+updated: 2024-10-26T21:31:28.667Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/4904b6964d40a61a725558d6d356a730920a313d0cc47de766d045bdd4797fb6.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4904b6964d40a61a725558d6d356a73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

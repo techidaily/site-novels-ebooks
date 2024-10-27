@@ -1,7 +1,7 @@
 ---
 title: Secret History of the Wild, Wild West | Free Book
-date: 2024-10-23 18:45:33
-updated: 2024-10-26 12:22:44
+date: 2024-10-20T00:13:30.588Z
+updated: 2024-10-27T00:45:13.904Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abd92de2a21469975217fca9cf641155daa4811992d25a716edec41bc2cfb205.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abd92de2a21469975217fca9cf64115
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Luz que consuela a los afligidos | Free Book
-date: 2024-10-23 17:54:59
-updated: 2024-10-26 12:59:59
+date: 2024-10-20T00:53:08.400Z
+updated: 2024-10-26T21:11:17.419Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8468438f4456010b860ae1513f3e16f66b82b4337aab6ba9b74f4062112d9d3b.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8468438f4456010b860ae1513f3e16f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

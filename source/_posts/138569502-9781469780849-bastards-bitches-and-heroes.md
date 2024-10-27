@@ -1,7 +1,7 @@
 ---
 title: Bastards, Bitches, and Heroes | Free Book
-date: 2024-10-24 10:10:48
-updated: 2024-10-26 10:30:40
+date: 2024-10-25T20:58:49.126Z
+updated: 2024-10-27T02:12:23.138Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bac69b561f44ee56e553ab669fbcd1c39760003f1b029e93c1c3b9f94b7d3d31.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bac69b561f44ee56e553ab669fbcd1c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

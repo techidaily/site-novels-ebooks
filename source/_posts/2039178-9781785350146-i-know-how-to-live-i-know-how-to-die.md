@@ -1,7 +1,7 @@
 ---
 title: I Know How To Live, I Know How To Die | Free Book
-date: 2024-10-24 23:52:32
-updated: 2024-10-26 11:30:35
+date: 2024-10-20T01:51:34.219Z
+updated: 2024-10-26T22:23:03.162Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b29a796945dcc8b7c035d78f7b342762c97897670c78c650e90758fd818c0591.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b29a796945dcc8b7c035d78f7b34276
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

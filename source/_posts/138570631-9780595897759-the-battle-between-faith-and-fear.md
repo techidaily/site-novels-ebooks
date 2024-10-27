@@ -1,7 +1,7 @@
 ---
 title: The Battle Between Faith and Fear | Free Book
-date: 2024-10-25 11:33:42
-updated: 2024-10-26 11:22:31
+date: 2024-10-25T16:35:09.165Z
+updated: 2024-10-26T20:00:04.329Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba6c7808c95ffdcbad0c944f378a2323b0e7a027015143c596f95b3b5aaf27f1.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba6c7808c95ffdcbad0c944f378a232
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

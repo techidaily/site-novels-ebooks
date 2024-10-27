@@ -1,7 +1,7 @@
 ---
 title: Cultural Encyclopedia of LSD, 2d ed. | Free Book
-date: 2024-10-23 10:34:50
-updated: 2024-10-26 10:54:58
+date: 2024-10-22T00:55:37.350Z
+updated: 2024-10-26T16:30:17.273Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afc8c71910adc18450e637fd6ab5a48f80c082a5595f22b023e3293ffa2e6d09.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afc8c71910adc18450e637fd6ab5a48
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

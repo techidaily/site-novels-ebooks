@@ -1,7 +1,7 @@
 ---
 title: Discovering the Life Plan | Free Book
-date: 2024-10-23 13:39:14
-updated: 2024-10-26 12:31:27
+date: 2024-10-20T18:09:48.431Z
+updated: 2024-10-27T04:26:45.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b3559f45942c667da0d0a08c1641df27707dc18bca73068c6c537c3ba1f2a3b.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b3559f45942c667da0d0a08c1641df
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

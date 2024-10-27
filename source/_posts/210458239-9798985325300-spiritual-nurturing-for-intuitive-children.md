@@ -1,7 +1,7 @@
 ---
 title: Spiritual Nurturing for Intuitive Children | Free Book
-date: 2024-10-23 20:42:56
-updated: 2024-10-26 11:57:52
+date: 2024-10-23T16:20:25.081Z
+updated: 2024-10-27T02:34:51.318Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3006c1be525e16ab8ef989649a89cf484ce11b07b7c0fe92aa3e5a75c0f512e.jpg
@@ -210,3 +210,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3006c1be525e16ab8ef989649a89cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

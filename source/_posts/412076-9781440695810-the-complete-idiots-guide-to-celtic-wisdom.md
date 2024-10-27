@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Celtic Wisdom | Free Book
-date: 2024-10-24 13:16:36
-updated: 2024-10-26 12:57:55
+date: 2024-10-19T20:59:43.012Z
+updated: 2024-10-27T05:00:33.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1abc6f16ba3554761a83f3544d4e1e00b2f2aec1585d955a86e0a8ff31cb10d.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1abc6f16ba3554761a83f3544d4e1e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

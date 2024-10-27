@@ -1,7 +1,7 @@
 ---
 title: A Tai Chi Imagery Workbook | Free Book
-date: 2024-10-24 15:43:15
-updated: 2024-10-26 11:32:39
+date: 2024-10-25T01:00:08.855Z
+updated: 2024-10-27T00:47:39.156Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a754002f08fb793a14ea96a4654b15f029ddb54157356219e04edf337c26e0ae.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a754002f08fb793a14ea96a4654b15f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

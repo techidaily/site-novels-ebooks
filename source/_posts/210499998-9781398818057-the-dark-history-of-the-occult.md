@@ -1,7 +1,7 @@
 ---
 title: The Dark History of the Occult | Free Book
-date: 2024-10-23 18:19:19
-updated: 2024-10-26 12:42:30
+date: 2024-10-25T21:32:23.456Z
+updated: 2024-10-26T17:42:33.207Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/77254be50bf0ca1ada0ab88358ff38a7101ea73bc653b9be65483d0385d0dd9d.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/77254be50bf0ca1ada0ab88358ff38a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

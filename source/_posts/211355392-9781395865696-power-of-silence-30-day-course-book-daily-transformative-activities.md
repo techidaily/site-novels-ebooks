@@ -1,7 +1,7 @@
 ---
 title: Power of Silence 30 Day Course Book Daily Transformative Activities | Free Book
-date: 2024-10-25 11:36:50
-updated: 2024-10-26 12:44:25
+date: 2024-10-22T19:40:26.731Z
+updated: 2024-10-27T01:44:49.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a079806491c00d3f03dea7d490a7f3cad6f3e4a995a14afd47addf94fc6cde41.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a079806491c00d3f03dea7d490a7f3c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

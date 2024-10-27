@@ -1,7 +1,7 @@
 ---
 title: The Chintamani Crystal Matrix | Free Book
-date: 2024-10-24 21:24:24
-updated: 2024-10-26 11:19:30
+date: 2024-10-20T20:38:28.060Z
+updated: 2024-10-26T21:32:28.002Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/678c17d4cc564d3411e35e40727709ae7e89de8fdb38d7a6d5ad195a7a37cbfd.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/678c17d4cc564d3411e35e40727709a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

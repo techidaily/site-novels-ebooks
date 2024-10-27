@@ -1,7 +1,7 @@
 ---
 title: Master Your Mind and Energy to Heal Your Body | Free Book
-date: 2024-10-24 23:19:48
-updated: 2024-10-26 12:29:30
+date: 2024-10-26T03:46:30.147Z
+updated: 2024-10-26T23:52:14.805Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0fc793cd36bdf4809a7549bf43eaf3853318336aa015464ed8caaccd16830aa.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0fc793cd36bdf4809a7549bf43eaf3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

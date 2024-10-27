@@ -1,7 +1,7 @@
 ---
 title: Astrology and Your Past Lives | Free Book
-date: 2024-10-23 23:16:36
-updated: 2024-10-26 12:18:20
+date: 2024-10-22T23:19:30.978Z
+updated: 2024-10-26T18:55:45.051Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c2285efaf8abcd0db148740eb625323acd4715766d07d6f9539db8eada05c18d.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c2285efaf8abcd0db148740eb625323
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

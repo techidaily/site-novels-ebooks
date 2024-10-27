@@ -1,7 +1,7 @@
 ---
 title: Initiation Into Hermetics | Free Book
-date: 2024-10-24 22:38:22
-updated: 2024-10-26 10:24:32
+date: 2024-10-26T03:37:04.893Z
+updated: 2024-10-27T05:14:45.099Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fd0dfd2423b0a787db74d779fb23a2af9262d0afeb93e5315112e501c62ec8b.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fd0dfd2423b0a787db74d779fb23a2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

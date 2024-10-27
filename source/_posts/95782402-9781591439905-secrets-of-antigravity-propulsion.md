@@ -1,7 +1,7 @@
 ---
 title: Secrets of Antigravity Propulsion | Free Book
-date: 2024-10-24 21:21:35
-updated: 2024-10-26 12:14:49
+date: 2024-10-23T04:57:09.502Z
+updated: 2024-10-26T18:28:59.518Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df19291f1184d29f950960af3a566fea30c3d433e457ee7698d9b0068ffdea7e.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df19291f1184d29f950960af3a566fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

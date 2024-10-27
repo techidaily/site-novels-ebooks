@@ -1,7 +1,7 @@
 ---
 title: For I shall praise Him once more | Free Book
-date: 2024-10-23 23:55:27
-updated: 2024-10-26 10:33:55
+date: 2024-10-20T00:09:59.343Z
+updated: 2024-10-26T19:42:32.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74349087fbe1dabef1abe68c09dd6cc231583e7532dbb77d2e5b3f9fb5fb2d1b.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74349087fbe1dabef1abe68c09dd6cc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

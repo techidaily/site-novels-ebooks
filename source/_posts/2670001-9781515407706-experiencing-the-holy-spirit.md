@@ -1,7 +1,7 @@
 ---
 title: Experiencing the Holy Spirit | Free Book
-date: 2024-10-24 18:43:50
-updated: 2024-10-26 11:26:35
+date: 2024-10-19T18:58:46.499Z
+updated: 2024-10-27T04:25:59.474Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b08f59b3cbf07002bcb8841690215837f45477f4fa61b5ac6433318b246839cf.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b08f59b3cbf07002bcb884169021583
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

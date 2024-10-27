@@ -1,7 +1,7 @@
 ---
 title: The Astrological Imagination | Free Book
-date: 2024-10-25 13:50:37
-updated: 2024-10-26 11:38:33
+date: 2024-10-25T01:46:03.376Z
+updated: 2024-10-26T19:33:19.288Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cb1edd2406ebe491743e4cf72b3c2cc2f4a5c63f3d6dbcf051cbb3a370fcd5c7.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cb1edd2406ebe491743e4cf72b3c2cc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

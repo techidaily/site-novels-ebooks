@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Transcendental Mind (Condensed Classics) | Free Book
-date: 2024-10-24 19:47:16
-updated: 2024-10-26 10:19:13
+date: 2024-10-23T04:09:12.670Z
+updated: 2024-10-27T03:09:28.852Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/69964f8f8448801c1ec705463d05997454bcee1c301d825ce2dc0556a47a0bd5.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/69964f8f8448801c1ec705463d05997
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

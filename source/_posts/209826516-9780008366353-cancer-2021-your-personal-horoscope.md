@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2021: Your Personal Horoscope | Free Book"
-date: 2024-10-25 12:20:17
-updated: 2024-10-26 11:59:20
+date: 2024-10-25T23:54:54.963Z
+updated: 2024-10-26T16:19:46.193Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/64a9dcd6c0a91d1901fddf0dcaa08ed4eee2e745ad36b7c470e93a205c092a57.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/64a9dcd6c0a91d1901fddf0dcaa08ed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

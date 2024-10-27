@@ -1,7 +1,7 @@
 ---
 title: The Leaping Hare Wellness Almanac | Free Book
-date: 2024-10-23 19:24:32
-updated: 2024-10-26 11:10:15
+date: 2024-10-21T16:05:33.308Z
+updated: 2024-10-26T17:19:47.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f3760048e9c5f57ac9623ba0015441e0c50048eac778a25740534569ed61bb.jpg
@@ -206,3 +206,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f3760048e9c5f57ac9623ba001544
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

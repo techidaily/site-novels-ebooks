@@ -1,7 +1,7 @@
 ---
 title: Reiki the Ultimate Guide, Vol. 3 | Free Book
-date: 2024-10-24 14:15:50
-updated: 2024-10-26 12:44:58
+date: 2024-10-20T04:27:57.473Z
+updated: 2024-10-26T18:42:52.603Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d5d3364d737f712b61e732a7f174d6a567efe79657de745e28edc032afba97e4.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d5d3364d737f712b61e732a7f174d6a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

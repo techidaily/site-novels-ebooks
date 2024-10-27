@@ -1,7 +1,7 @@
 ---
 title: E-Mails to My Grandchildren | Free Book
-date: 2024-10-24 14:23:28
-updated: 2024-10-26 10:49:50
+date: 2024-10-22T16:59:56.775Z
+updated: 2024-10-26T19:34:03.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dee3b22afe80d750b967be8de41c9069a8617ae1cfd802205647d57f50b5266d.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dee3b22afe80d750b967be8de41c906
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

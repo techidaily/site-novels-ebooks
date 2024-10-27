@@ -1,7 +1,7 @@
 ---
 title: Developing Supersensible Perception | Free Book
-date: 2024-10-25 19:37:56
-updated: 2024-10-26 10:34:54
+date: 2024-10-23T17:52:27.515Z
+updated: 2024-10-27T02:31:40.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e16ee5f7181d047482c3596706147a2cabb110c599f7a1fa1ddef152434f0abc.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e16ee5f7181d047482c3596706147a2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

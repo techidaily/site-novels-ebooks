@@ -1,7 +1,7 @@
 ---
 title: Poop! Random Words, Musings and Insight | Free Book
-date: 2024-10-25 18:46:53
-updated: 2024-10-26 12:50:37
+date: 2024-10-20T00:44:07.344Z
+updated: 2024-10-26T20:20:37.197Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/909cb57c08def06430fd0738d662fc7af42a49a2a475616d5a23281e55254764.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/909cb57c08def06430fd0738d662fc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

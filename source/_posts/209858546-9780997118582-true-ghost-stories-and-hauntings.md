@@ -1,7 +1,7 @@
 ---
 title: True Ghost Stories and Hauntings | Free Book
-date: 2024-10-24 11:38:16
-updated: 2024-10-26 10:49:39
+date: 2024-10-20T01:14:13.181Z
+updated: 2024-10-26T19:04:52.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82b8ae38d37ac02ab9919c492bcf8e8d9496cd3f28e8e88d95e8ac83d3f81d71.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82b8ae38d37ac02ab9919c492bcf8e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

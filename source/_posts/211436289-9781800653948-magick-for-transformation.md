@@ -1,7 +1,7 @@
 ---
 title: Magick for Transformation | Free Book
-date: 2024-10-23 13:32:47
-updated: 2024-10-26 10:32:44
+date: 2024-10-24T21:34:04.118Z
+updated: 2024-10-27T02:21:52.803Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/025f8856acdef52c6fa00064bdfa3bf58d03d738b1a817cb45556b5beca0a83f.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/025f8856acdef52c6fa00064bdfa3bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

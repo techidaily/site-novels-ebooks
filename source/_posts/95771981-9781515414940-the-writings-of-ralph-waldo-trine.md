@@ -1,7 +1,7 @@
 ---
 title: The Writings of Ralph Waldo Trine | Free Book
-date: 2024-10-25 22:45:22
-updated: 2024-10-26 10:31:29
+date: 2024-10-25T22:21:04.969Z
+updated: 2024-10-27T04:20:20.978Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/13a5faf70dc1e94149e996d078a123dde47d573cb614e491ce3dbd164205935b.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/13a5faf70dc1e94149e996d078a123d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

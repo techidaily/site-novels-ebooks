@@ -1,7 +1,7 @@
 ---
 title: "ALZHEIMER'S: Don's Faithful Journey | Free Book"
-date: 2024-10-25 11:14:10
-updated: 2024-10-26 12:22:14
+date: 2024-10-23T19:50:04.942Z
+updated: 2024-10-26T18:12:53.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a8b80bf15fcac7702b18e21f5cdf875613b6e2f251cc9b475bbe312b0d3bf0d.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a8b80bf15fcac7702b18e21f5cdf87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

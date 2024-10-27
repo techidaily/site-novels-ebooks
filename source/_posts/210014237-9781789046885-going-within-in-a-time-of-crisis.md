@@ -1,7 +1,7 @@
 ---
 title: Going Within in a Time of Crisis | Free Book
-date: 2024-10-25 12:15:21
-updated: 2024-10-26 11:25:10
+date: 2024-10-25T20:13:40.582Z
+updated: 2024-10-26T17:48:34.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/008e7f0b08e3b9292d6bf1ccd0b1ad585b863c57f572f81ae4adf04232b4d6bb.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/008e7f0b08e3b9292d6bf1ccd0b1ad5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

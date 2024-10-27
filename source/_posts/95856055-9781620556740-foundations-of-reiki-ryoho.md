@@ -1,7 +1,7 @@
 ---
 title: Foundations of Reiki Ryoho | Free Book
-date: 2024-10-24 13:14:18
-updated: 2024-10-26 10:10:14
+date: 2024-10-20T19:17:37.981Z
+updated: 2024-10-26T23:15:42.496Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f94650bd023111b04c38c6657a335b98adf999a1a5a3baa5d6dd420f4848cb69.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f94650bd023111b04c38c6657a335b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Healing with Light Frequencies (2nd ed.) | Free Book
-date: 2024-10-23 21:53:40
-updated: 2024-10-26 12:33:53
+date: 2024-10-22T16:43:19.882Z
+updated: 2024-10-26T22:34:41.077Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5619da041a8cdd9dbca0c77f0be9b9ad8e197494fdda9898a1046ef10ece1006.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5619da041a8cdd9dbca0c77f0be9b9a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

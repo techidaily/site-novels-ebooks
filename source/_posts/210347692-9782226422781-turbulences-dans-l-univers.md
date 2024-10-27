@@ -1,7 +1,7 @@
 ---
 title: Turbulences dans l univers | Free Book
-date: 2024-10-24 12:56:10
-updated: 2024-10-26 10:10:21
+date: 2024-10-25T04:08:37.142Z
+updated: 2024-10-27T02:14:22.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e724f18cbe70e4b5598c00fd10e1d18dfe0c9a989c85c0d551793e7c7a4dae5.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e724f18cbe70e4b5598c00fd10e1d1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

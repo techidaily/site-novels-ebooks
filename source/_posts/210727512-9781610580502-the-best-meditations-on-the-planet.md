@@ -1,7 +1,7 @@
 ---
 title: The Best Meditations on the Planet | Free Book
-date: 2024-10-23 10:42:57
-updated: 2024-10-26 12:43:28
+date: 2024-10-25T17:46:34.857Z
+updated: 2024-10-26T18:35:40.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09d1db39f258a85a5c28c94e0d6fdfcb02a6635525d9dc7d947dd454cad1fb9e.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09d1db39f258a85a5c28c94e0d6fdfc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

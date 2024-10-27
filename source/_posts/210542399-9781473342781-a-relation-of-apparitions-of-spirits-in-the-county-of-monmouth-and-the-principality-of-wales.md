@@ -1,7 +1,7 @@
 ---
 title: A Relation of Apparitions of Spirits in the County of Monmouth and the Principality of Wales | Free Book
-date: 2024-10-24 13:10:23
-updated: 2024-10-26 12:10:38
+date: 2024-10-20T17:39:44.189Z
+updated: 2024-10-27T04:16:46.651Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e580dff01f6aa7735de5301becfe07e7d272f00e130f467fc57b9645a902a01d.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e580dff01f6aa7735de5301becfe07e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

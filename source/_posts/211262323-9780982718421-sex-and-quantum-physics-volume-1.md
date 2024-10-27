@@ -1,7 +1,7 @@
 ---
 title: Sex and Quantum Physics Volume 1 | Free Book
-date: 2024-10-23 17:43:18
-updated: 2024-10-26 11:11:31
+date: 2024-10-20T02:52:05.952Z
+updated: 2024-10-27T00:48:40.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c91dc835bfa13f60b276c9dc219a33008cf8fc51272e19844690186bfde76b08.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c91dc835bfa13f60b276c9dc219a330
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

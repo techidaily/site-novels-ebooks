@@ -1,7 +1,7 @@
 ---
 title: The Art & Signs of Spiritual Awakening | Free Book
-date: 2024-10-23 16:59:31
-updated: 2024-10-26 10:28:51
+date: 2024-10-25T02:27:48.328Z
+updated: 2024-10-27T00:30:59.443Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/968569d02a683e3c221e8e95aeaffe48b9877d90c257fadd1ad293820219b555.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/968569d02a683e3c221e8e95aeaffe4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

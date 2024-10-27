@@ -1,7 +1,7 @@
 ---
 title: The Toltec Path of Recapitulation | Free Book
-date: 2024-10-24 21:28:55
-updated: 2024-10-26 10:11:29
+date: 2024-10-22T22:07:41.405Z
+updated: 2024-10-26T22:56:19.025Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/017861bfa8a4197b52e04435cb641b124a2a42781d608d1940f7dbee90deed30.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/017861bfa8a4197b52e04435cb641b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

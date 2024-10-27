@@ -1,7 +1,7 @@
 ---
 title: Practical Magick | Free Book
-date: 2024-10-24 15:10:13
-updated: 2024-10-26 12:51:34
+date: 2024-10-23T19:08:03.757Z
+updated: 2024-10-27T05:46:18.921Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3dad03fb8ea01e90aec622587499746332d4d009b625444be4b16eef069594ea.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3dad03fb8ea01e90aec622587499746
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

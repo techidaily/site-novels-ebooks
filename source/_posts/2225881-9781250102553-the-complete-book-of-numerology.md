@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Numerology | Free Book
-date: 2024-10-24 10:15:16
-updated: 2024-10-26 12:59:20
+date: 2024-10-20T19:42:23.284Z
+updated: 2024-10-27T05:33:21.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/873833508779193bcac1c659d29c5ee562ece2660c5659bbfaff72daac690d85.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/873833508779193bcac1c659d29c5ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

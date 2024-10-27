@@ -1,7 +1,7 @@
 ---
 title: The Hidden Power of Your Past Lives | Free Book
-date: 2024-10-24 22:19:44
-updated: 2024-10-26 12:52:58
+date: 2024-10-26T04:06:13.586Z
+updated: 2024-10-26T17:19:38.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62aa2c4fad2fb18652d4bbb2f3a4f956a9f72cc5450503b32dd0bcd5ad95c57c.jpg
@@ -238,3 +238,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62aa2c4fad2fb18652d4bbb2f3a4f95
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

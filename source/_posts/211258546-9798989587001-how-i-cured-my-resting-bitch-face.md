@@ -1,7 +1,7 @@
 ---
 title: How I Cured My Resting Bitch Face | Free Book
-date: 2024-10-25 22:32:18
-updated: 2024-10-26 10:37:48
+date: 2024-10-25T00:46:47.512Z
+updated: 2024-10-27T02:18:03.189Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ef1a62ccf5ea0b32b8a64b797ed0bfbaf319d5bfa526bba0993fa96452150bf.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ef1a62ccf5ea0b32b8a64b797ed0bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

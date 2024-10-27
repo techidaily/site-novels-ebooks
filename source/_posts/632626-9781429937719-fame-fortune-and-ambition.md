@@ -1,7 +1,7 @@
 ---
 title: Fame, Fortune, and Ambition | Free Book
-date: 2024-10-23 20:42:30
-updated: 2024-10-26 12:47:56
+date: 2024-10-21T05:57:17.613Z
+updated: 2024-10-26T20:15:31.259Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f671c2ef5630cf965a509ccf977633f51e09f87f300aaa79dd97802a8535241f.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f671c2ef5630cf965a509ccf977633f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

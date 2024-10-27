@@ -1,7 +1,7 @@
 ---
 title: Teen Spirit Guide to Working with Mediumship | Free Book
-date: 2024-10-23 13:32:55
-updated: 2024-10-26 11:30:39
+date: 2024-10-26T03:46:09.797Z
+updated: 2024-10-27T02:26:28.159Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cb3e03676410007e02aefad9c993f0171e38e76e8f29376ed1ba893982b35dc9.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cb3e03676410007e02aefad9c993f01
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

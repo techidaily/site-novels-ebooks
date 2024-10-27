@@ -1,7 +1,7 @@
 ---
 title: "Your Chinese Horoscope 2017: What the Year of the Rooster holds in store for you | Free Book"
-date: 2024-10-25 15:47:43
-updated: 2024-10-26 11:14:56
+date: 2024-10-22T20:33:07.862Z
+updated: 2024-10-26T21:19:37.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb6132ad8553671bd06aff3ce04217e6d57369f39d0550af6f297a5e015413bc.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb6132ad8553671bd06aff3ce04217e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Working of Karma In Life After Death | Free Book
-date: 2024-10-24 20:56:32
-updated: 2024-10-26 10:28:42
+date: 2024-10-26T05:20:49.522Z
+updated: 2024-10-27T00:57:21.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d2d7f74e5f82b7adf682f6d720094c908acac2e37f2c7e865d5f0bc66bc35dd.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d2d7f74e5f82b7adf682f6d720094c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

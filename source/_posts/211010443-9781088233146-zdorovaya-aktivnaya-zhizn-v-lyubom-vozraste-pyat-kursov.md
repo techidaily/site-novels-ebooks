@@ -1,7 +1,7 @@
 ---
 title: "Здоровая Активная Жизнь в Любом Возрасте: Пять курсов | Free Book"
-date: 2024-10-23 15:24:11
-updated: 2024-10-26 10:40:27
+date: 2024-10-24T21:08:32.059Z
+updated: 2024-10-27T02:27:21.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b76a7089a259be1645dbaaa8167d4e43ee2657afbf2da8f47da11b716d905824.jpg
@@ -208,3 +208,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b76a7089a259be1645dbaaa8167d4e4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

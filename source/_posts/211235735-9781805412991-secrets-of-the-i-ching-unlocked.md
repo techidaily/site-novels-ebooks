@@ -1,7 +1,7 @@
 ---
 title: Secrets of the I Ching Unlocked | Free Book
-date: 2024-10-23 23:17:47
-updated: 2024-10-26 11:47:53
+date: 2024-10-24T18:10:59.114Z
+updated: 2024-10-27T00:38:53.538Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a06d4f21c6009f8fc351be17bdc64539ab3bb3a2af78c355e3ed04a67721b826.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a06d4f21c6009f8fc351be17bdc6453
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

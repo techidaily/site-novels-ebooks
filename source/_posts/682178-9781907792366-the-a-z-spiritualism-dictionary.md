@@ -1,7 +1,7 @@
 ---
 title: The A-Z Spiritualism Dictionary | Free Book
-date: 2024-10-25 14:15:25
-updated: 2024-10-26 12:28:51
+date: 2024-10-24T21:05:56.927Z
+updated: 2024-10-26T18:40:31.848Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dba49ab8369ae07b7eabfbe5a3b95c8da7dbaba8e792840809cecc66c4dac34f.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dba49ab8369ae07b7eabfbe5a3b95c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

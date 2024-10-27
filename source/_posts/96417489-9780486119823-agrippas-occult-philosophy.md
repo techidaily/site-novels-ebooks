@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2024-10-25 11:39:43
-updated: 2024-10-26 10:34:41
+date: 2024-10-23T03:03:53.595Z
+updated: 2024-10-27T03:20:26.890Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

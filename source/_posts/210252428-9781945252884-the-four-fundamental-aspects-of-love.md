@@ -1,7 +1,7 @@
 ---
 title: The Four Fundamental Aspects of Love | Free Book
-date: 2024-10-24 16:39:45
-updated: 2024-10-26 11:17:14
+date: 2024-10-23T00:35:54.335Z
+updated: 2024-10-27T04:07:35.898Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c1c500b0d4c59753e76747dc900bf97d2b0284a8f5356c431ace600580e4a6fe.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c1c500b0d4c59753e76747dc900bf97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

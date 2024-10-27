@@ -1,7 +1,7 @@
 ---
 title: The Subconscious Renaissance | Free Book
-date: 2024-10-25 10:30:15
-updated: 2024-10-26 12:49:48
+date: 2024-10-26T00:55:44.348Z
+updated: 2024-10-27T03:05:58.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f1645b004e9acb6e00276968d863f4db1ec53fc4f90fa42abf3aee36f75f9080.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f1645b004e9acb6e00276968d863f4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

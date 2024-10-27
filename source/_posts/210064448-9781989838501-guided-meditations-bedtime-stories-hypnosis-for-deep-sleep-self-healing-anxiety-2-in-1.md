@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations, Bedtime Stories & Hypnosis For Deep Sleep, Self-Healing& Anxiety (2 In 1) | Free Book
-date: 2024-10-24 18:40:43
-updated: 2024-10-26 12:33:53
+date: 2024-10-22T20:50:34.919Z
+updated: 2024-10-27T01:58:10.178Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b224bce6842514b34fc2c54403b027197cf84a64a99b335131c62cb6858228f9.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b224bce6842514b34fc2c54403b0271
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

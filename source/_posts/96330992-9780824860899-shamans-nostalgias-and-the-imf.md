@@ -1,7 +1,7 @@
 ---
 title: Shamans, Nostalgias, and the IMF | Free Book
-date: 2024-10-25 10:41:13
-updated: 2024-10-26 10:20:16
+date: 2024-10-20T23:44:23.231Z
+updated: 2024-10-26T21:34:00.689Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2363d581d42094f58090872f835c4b61aa822c64594c77ffd2615b241c42a00.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2363d581d42094f58090872f835c4b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

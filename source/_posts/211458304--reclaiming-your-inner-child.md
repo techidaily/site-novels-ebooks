@@ -1,7 +1,7 @@
 ---
 title: Reclaiming Your Inner Child | Free Book
-date: 2024-10-25 14:40:12
-updated: 2024-10-26 10:16:25
+date: 2024-10-19T22:19:49.608Z
+updated: 2024-10-26T19:38:41.675Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85b81ea4ad6b67063ee62794dd6e19ea928d3ce73437660df465320b404ff682.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85b81ea4ad6b67063ee62794dd6e19e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

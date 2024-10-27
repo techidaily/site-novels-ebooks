@@ -1,7 +1,7 @@
 ---
 title: The Nature Of Consciousness | Free Book
-date: 2024-10-23 16:55:19
-updated: 2024-10-26 10:42:12
+date: 2024-10-19T19:25:22.048Z
+updated: 2024-10-26T21:25:18.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e3b2fd9f0e2177686a3858915cba9b68fc666796da64298bafaeabd11701d06.jpg
@@ -215,3 +215,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e3b2fd9f0e2177686a3858915cba9b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

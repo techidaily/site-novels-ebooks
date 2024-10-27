@@ -1,7 +1,7 @@
 ---
 title: Как расшифровать голос Бога - 5 способов | Free Book
-date: 2024-10-25 19:24:36
-updated: 2024-10-26 11:16:52
+date: 2024-10-23T17:28:11.753Z
+updated: 2024-10-26T18:18:06.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f63062b9d892fd48981c09c0de81884fc18665c7b60e93c6c74bef11fc204c72.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f63062b9d892fd48981c09c0de81884
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

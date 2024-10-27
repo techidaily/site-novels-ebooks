@@ -1,7 +1,7 @@
 ---
 title: 8 Minute Meditation Expanded | Free Book
-date: 2024-10-24 14:52:48
-updated: 2024-10-26 11:51:44
+date: 2024-10-21T23:19:47.414Z
+updated: 2024-10-26T18:08:56.502Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ee5e5451556ba0278d76ac115d2d252624434c77c373373ecb238fc8c3044cc.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ee5e5451556ba0278d76ac115d2d25
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Meditations with Animals | Free Book
-date: 2024-10-24 19:59:27
-updated: 2024-10-26 11:36:56
+date: 2024-10-25T04:06:56.781Z
+updated: 2024-10-27T01:20:30.755Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd1dd8f1bb70b2efb4952503b0bcd2b574a565c937687aa89fdec6010f1b8ab9.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd1dd8f1bb70b2efb4952503b0bcd2b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

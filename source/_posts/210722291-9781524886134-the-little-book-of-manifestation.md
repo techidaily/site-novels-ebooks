@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Manifestation | Free Book
-date: 2024-10-25 17:55:17
-updated: 2024-10-26 10:52:20
+date: 2024-10-19T17:59:44.848Z
+updated: 2024-10-26T20:34:43.565Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d47b8021c8e386b27670972f3a5dac4398dae58abd5900e5f52b1a36040e2635.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d47b8021c8e386b27670972f3a5dac4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

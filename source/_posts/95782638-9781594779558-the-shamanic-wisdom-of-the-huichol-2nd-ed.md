@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Wisdom of the Huichol (2nd ed.) | Free Book
-date: 2024-10-25 23:56:55
-updated: 2024-10-26 12:18:53
+date: 2024-10-26T05:11:27.564Z
+updated: 2024-10-26T20:28:43.336Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2409ceb9a71d553470f7bb3115a303fffad0cc04701576b23271df5edfc568af.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2409ceb9a71d553470f7bb3115a303f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

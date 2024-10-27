@@ -1,7 +1,7 @@
 ---
 title: Good Living in Hard Times | Free Book
-date: 2024-10-24 20:38:43
-updated: 2024-10-26 11:16:48
+date: 2024-10-25T18:38:42.905Z
+updated: 2024-10-26T18:21:05.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6401be6f880457177531229f05748f0108c13b90d03645fde3e47ea5142d5041.jpg
@@ -118,3 +118,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6401be6f880457177531229f05748f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

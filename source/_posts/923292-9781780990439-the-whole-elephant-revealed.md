@@ -1,7 +1,7 @@
 ---
 title: The Whole Elephant Revealed | Free Book
-date: 2024-10-23 16:13:59
-updated: 2024-10-26 12:45:36
+date: 2024-10-25T00:05:31.358Z
+updated: 2024-10-27T03:13:36.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2951496d6ce188f6742fad307da760acee6e265f10d07bacd6e2aa7fb307bcc9.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2951496d6ce188f6742fad307da760a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

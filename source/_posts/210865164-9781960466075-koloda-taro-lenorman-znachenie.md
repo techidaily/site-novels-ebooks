@@ -1,7 +1,7 @@
 ---
 title: Колода Таро Ленорман Значение | Free Book
-date: 2024-10-24 22:17:23
-updated: 2024-10-26 12:21:15
+date: 2024-10-24T23:22:38.274Z
+updated: 2024-10-26T16:34:36.071Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c836fd375b7b70107b7835f0c2e69611174c32730bb359de65f51c6c116259a3.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c836fd375b7b70107b7835f0c2e6961
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

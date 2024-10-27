@@ -1,7 +1,7 @@
 ---
 title: The Wild Longing of the Human Heart | Free Book
-date: 2024-10-24 12:40:51
-updated: 2024-10-26 10:53:10
+date: 2024-10-20T17:12:45.426Z
+updated: 2024-10-26T23:53:52.228Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89f16fd7535cb39e8afccb8526be54b56bd137030f729d3f5df76e3c46ce0a67.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89f16fd7535cb39e8afccb8526be54b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

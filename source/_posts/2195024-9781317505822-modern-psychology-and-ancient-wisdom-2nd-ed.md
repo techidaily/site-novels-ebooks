@@ -1,7 +1,7 @@
 ---
 title: Modern Psychology and Ancient Wisdom (2nd ed.) | Free Book
-date: 2024-10-25 16:43:22
-updated: 2024-10-26 12:43:13
+date: 2024-10-22T21:57:33.445Z
+updated: 2024-10-26T21:27:15.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ffde9c7a8be0bbbb7ef71c735a3bfef168b1b9f7b1690ebcc5c9c213311544e.jpg
@@ -232,3 +232,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ffde9c7a8be0bbbb7ef71c735a3bfe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

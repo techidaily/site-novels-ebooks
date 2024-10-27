@@ -1,7 +1,7 @@
 ---
 title: The Book of Runic Astrology | Free Book
-date: 2024-10-25 10:17:18
-updated: 2024-10-26 11:59:18
+date: 2024-10-23T17:41:46.786Z
+updated: 2024-10-26T23:27:29.408Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1af7490d0c4cee4a968619e083c928e4e7680b5795894c47266dcee6f591262.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1af7490d0c4cee4a968619e083c928
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

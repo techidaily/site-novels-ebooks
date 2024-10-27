@@ -1,7 +1,7 @@
 ---
 title: El libro de los pensamientos Volumen 2 | Free Book
-date: 2024-10-24 19:24:15
-updated: 2024-10-26 11:16:33
+date: 2024-10-26T02:12:46.828Z
+updated: 2024-10-27T00:31:37.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/307e00298f1e8ecfdecfcb0d409cc6fb8b22d78784020def061163a3ad57e73b.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/307e00298f1e8ecfdecfcb0d409cc6f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Doctrine and Practice of Yoga | Free Book
-date: 2024-10-23 11:17:28
-updated: 2024-10-26 10:17:52
+date: 2024-10-22T22:42:42.497Z
+updated: 2024-10-26T18:35:35.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cac2134892d6a342245d804626c3124da1e8ed3727ecbd643759deb055962423.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cac2134892d6a342245d804626c3124
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

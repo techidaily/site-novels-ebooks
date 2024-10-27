@@ -1,7 +1,7 @@
 ---
 title: Understanding Our Mind | Free Book
-date: 2024-10-24 18:23:52
-updated: 2024-10-26 11:16:22
+date: 2024-10-21T03:56:43.846Z
+updated: 2024-10-27T01:22:50.778Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca583141811290d62e7fc857df17fc8ab575eb0cd6fe91506c563b0970bd0731.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca583141811290d62e7fc857df17fc8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Home Course In Nutrition | Free Book
-date: 2024-10-23 21:31:43
-updated: 2024-10-26 11:44:56
+date: 2024-10-24T16:44:36.920Z
+updated: 2024-10-27T02:49:27.658Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db9d60b618be121ad1beada51c0919592244ec6b92dad5352abadf3662b3565d.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db9d60b618be121ad1beada51c09195
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

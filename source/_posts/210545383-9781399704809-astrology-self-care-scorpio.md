@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Scorpio | Free Book"
-date: 2024-10-25 14:12:24
-updated: 2024-10-26 12:28:15
+date: 2024-10-24T00:14:13.009Z
+updated: 2024-10-26T16:49:14.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/954f5201d44b10935c30fa7e3bf139b4bfe31cbc636cef6b53aa413612804a3e.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/954f5201d44b10935c30fa7e3bf139b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Journey to Inner Power | Free Book
-date: 2024-10-25 23:40:33
-updated: 2024-10-26 12:55:34
+date: 2024-10-21T20:44:39.442Z
+updated: 2024-10-26T20:20:49.041Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/580c9dbc6ce04bf0490dcdf822e407747f7c163959ad7a5cc796b423eb7470ab.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/580c9dbc6ce04bf0490dcdf822e4077
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

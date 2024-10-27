@@ -1,7 +1,7 @@
 ---
 title: John Dee's Natural Philosophy | Free Book
-date: 2024-10-25 14:15:33
-updated: 2024-10-26 12:28:24
+date: 2024-10-20T01:09:58.186Z
+updated: 2024-10-26T23:28:20.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/13a35d363ea994bd785c8510c5e960bec63ca217400314998a40bd4ccefd9365.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/13a35d363ea994bd785c8510c5e960b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

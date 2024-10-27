@@ -1,7 +1,7 @@
 ---
 title: Heliocentric Astrology or Essentials of Astronomy and Solar Mentality with Tables of Ephemeris to 1913 | Free Book
-date: 2024-10-23 19:47:21
-updated: 2024-10-26 12:24:38
+date: 2024-10-20T22:36:09.627Z
+updated: 2024-10-26T19:45:40.071Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ddf3a7db9c9c163c126380b1561fbbe6f4afe2fc987918ffcdf61435057f6219.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ddf3a7db9c9c163c126380b1561fbbe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

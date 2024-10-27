@@ -1,7 +1,7 @@
 ---
 title: The Soul-Discovery Journalbook | Free Book
-date: 2024-10-23 23:10:20
-updated: 2024-10-26 12:32:29
+date: 2024-10-24T04:04:21.999Z
+updated: 2024-10-26T22:27:40.791Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bf16c7d8d2011bc0a996a7d6c8cb5d620e955c4d76c77dbf2e01494334b55a2b.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bf16c7d8d2011bc0a996a7d6c8cb5d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

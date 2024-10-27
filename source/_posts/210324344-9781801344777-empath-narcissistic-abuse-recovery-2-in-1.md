@@ -1,7 +1,7 @@
 ---
 title: Empath & Narcissistic Abuse Recovery (2 in 1) | Free Book
-date: 2024-10-23 13:21:39
-updated: 2024-10-26 12:12:36
+date: 2024-10-23T02:00:41.500Z
+updated: 2024-10-26T17:38:09.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f35858d6def3de7f43de23b81f9fdf11ebca31ac070808bbe578ba89a4321926.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f35858d6def3de7f43de23b81f9fdf1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

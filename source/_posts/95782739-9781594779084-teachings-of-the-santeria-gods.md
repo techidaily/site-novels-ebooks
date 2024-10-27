@@ -1,7 +1,7 @@
 ---
 title: Teachings of the Santería Gods | Free Book
-date: 2024-10-24 20:23:51
-updated: 2024-10-26 10:40:56
+date: 2024-10-24T18:40:35.977Z
+updated: 2024-10-26T16:02:29.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0a6a701c8b039302a8807e02bd6b9aa174079f3c389abd5750c832fa3f7328d.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0a6a701c8b039302a8807e02bd6b9a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

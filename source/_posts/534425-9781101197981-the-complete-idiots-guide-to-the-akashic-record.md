@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to the Akashic Record | Free Book
-date: 2024-10-24 22:31:49
-updated: 2024-10-26 11:53:13
+date: 2024-10-23T20:17:25.374Z
+updated: 2024-10-26T22:13:18.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a52c56e0824622b80b4a0d37c4922946b62e363f766abbb0d63daee4b458430.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a52c56e0824622b80b4a0d37c49229
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

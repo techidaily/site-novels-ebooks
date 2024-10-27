@@ -1,7 +1,7 @@
 ---
 title: The Intelligence of the Cosmos | Free Book
-date: 2024-10-23 11:49:40
-updated: 2024-10-26 10:37:15
+date: 2024-10-22T16:17:27.569Z
+updated: 2024-10-27T03:56:56.755Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b1a1d9bc0d469b7e99a77a0fc5df73766e11c0a9ebfa786e22ebf532f2dcc39.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b1a1d9bc0d469b7e99a77a0fc5df73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - The Urban Ovate | Free Book
-date: 2024-10-24 11:43:35
-updated: 2024-10-26 11:21:43
+date: 2024-10-25T19:35:56.680Z
+updated: 2024-10-27T04:26:05.308Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c36f3a0a0e86e57344e5634863e29392d9797429a841d9bdaddf5190e835fbce.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c36f3a0a0e86e57344e5634863e2939
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

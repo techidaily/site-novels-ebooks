@@ -1,7 +1,7 @@
 ---
 title: Eastern Stories and Legends | Free Book
-date: 2024-10-25 16:46:48
-updated: 2024-10-26 11:29:42
+date: 2024-10-19T23:34:54.458Z
+updated: 2024-10-27T05:46:03.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62858e70b48f46418bc63c5b49ed5b145067889e2d9d74d9a8344143ebd1aa55.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62858e70b48f46418bc63c5b49ed5b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Crystals for Energy Healing | Free Book
-date: 2024-10-23 16:56:25
-updated: 2024-10-26 10:18:16
+date: 2024-10-23T02:32:31.427Z
+updated: 2024-10-27T02:12:36.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38efdc830d17c2e6059c9118230cdc79047cedbe83982890c0935fc5a89744ef.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38efdc830d17c2e6059c9118230cdc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

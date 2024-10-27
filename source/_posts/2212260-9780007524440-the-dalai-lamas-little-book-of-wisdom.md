@@ -1,7 +1,7 @@
 ---
 title: The Dalai Lama’s Little Book of Wisdom | Free Book
-date: 2024-10-24 20:34:57
-updated: 2024-10-26 10:22:22
+date: 2024-10-21T16:48:48.570Z
+updated: 2024-10-26T18:52:31.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/511c0937f5408500d9687ed4beb52ebe4f4096a929e2db59856dffd74cc35bcc.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/511c0937f5408500d9687ed4beb52eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Book of Blessings and Rituals | Free Book
-date: 2024-10-25 18:13:59
-updated: 2024-10-26 11:35:20
+date: 2024-10-21T20:59:52.785Z
+updated: 2024-10-26T20:43:41.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f86d7dd56e47668bc4dc8495fde65f64c65841430b1331d01cedfe6cd66660d.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f86d7dd56e47668bc4dc8495fde65f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

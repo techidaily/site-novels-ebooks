@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2024-10-25 11:12:18
-updated: 2024-10-26 10:21:34
+date: 2024-10-20T18:50:55.974Z
+updated: 2024-10-26T19:24:30.742Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

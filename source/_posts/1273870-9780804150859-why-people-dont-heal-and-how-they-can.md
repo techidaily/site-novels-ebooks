@@ -1,7 +1,7 @@
 ---
 title: Why People Don't Heal and How They Can | Free Book
-date: 2024-10-23 12:43:20
-updated: 2024-10-26 10:18:23
+date: 2024-10-24T01:07:29.218Z
+updated: 2024-10-27T00:03:37.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f32ad411b190813ee22a8f0ff971e40ec7006283412e80d1ec6ede6f9a4d407.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f32ad411b190813ee22a8f0ff971e4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

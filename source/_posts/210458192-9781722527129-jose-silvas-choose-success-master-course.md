@@ -1,7 +1,7 @@
 ---
 title: José Silva's Choose Success Master Course | Free Book
-date: 2024-10-23 13:49:15
-updated: 2024-10-26 11:24:48
+date: 2024-10-23T02:25:09.767Z
+updated: 2024-10-27T04:12:50.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0c309ea59fe63f0c868dfa98a8c85f0652093f847e97c5f3bc3c60266340002.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0c309ea59fe63f0c868dfa98a8c85f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

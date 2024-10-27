@@ -1,7 +1,7 @@
 ---
 title: Mastery Through Accomplishment | Free Book
-date: 2024-10-23 10:49:55
-updated: 2024-10-26 12:15:21
+date: 2024-10-25T05:56:42.384Z
+updated: 2024-10-26T19:23:40.057Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/987daf5eece5fe177ba94c4e93dca26d24a403ff9337c2d27ccd09f197299bd2.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/987daf5eece5fe177ba94c4e93dca26
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

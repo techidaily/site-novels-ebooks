@@ -1,7 +1,7 @@
 ---
 title: Travels on the Northern Parth of Initiation | Free Book
-date: 2024-10-23 11:15:41
-updated: 2024-10-26 11:53:32
+date: 2024-10-23T22:16:06.420Z
+updated: 2024-10-27T05:21:14.047Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/31474a118872a4050d29f38cd4b162b89c2ee0a339c522301173d5fdff967cfe.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/31474a118872a4050d29f38cd4b162b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

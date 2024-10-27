@@ -1,7 +1,7 @@
 ---
 title: Destiny, Freedom, and the Soul | Free Book
-date: 2024-10-23 15:10:13
-updated: 2024-10-26 11:43:32
+date: 2024-10-26T05:53:12.248Z
+updated: 2024-10-26T16:29:40.713Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ecfeb6fdb1725a524f4e731419f67145c1f73012f8430968eaf346e3c7d8fd10.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ecfeb6fdb1725a524f4e731419f6714
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

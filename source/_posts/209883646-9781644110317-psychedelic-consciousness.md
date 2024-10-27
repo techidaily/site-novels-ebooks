@@ -1,7 +1,7 @@
 ---
 title: Psychedelic Consciousness | Free Book
-date: 2024-10-24 20:39:53
-updated: 2024-10-26 10:42:41
+date: 2024-10-24T20:30:56.265Z
+updated: 2024-10-26T19:06:44.116Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/36bac8c2ad4c7d452fb93061b9c585303a936ad6a9b49d44953878b55727a3f5.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/36bac8c2ad4c7d452fb93061b9c5853
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

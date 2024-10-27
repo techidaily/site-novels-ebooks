@@ -1,7 +1,7 @@
 ---
 title: The Crazy Wisdom of Ganesh Baba | Free Book
-date: 2024-10-23 10:15:37
-updated: 2024-10-26 12:23:50
+date: 2024-10-21T03:34:01.779Z
+updated: 2024-10-26T21:00:32.862Z
 categories:
   - Biography & Autobiography
 thumbnail: https://thmb-001-ebook.techidaily.com/2dc904a926695c29ee93903e6b7489d44023c163d624b534b750586a8c1bf579.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2dc904a926695c29ee93903e6b7489d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

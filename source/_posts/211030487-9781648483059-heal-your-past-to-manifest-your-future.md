@@ -1,7 +1,7 @@
 ---
 title: Heal Your Past to Manifest Your Future | Free Book
-date: 2024-10-24 13:13:19
-updated: 2024-10-26 12:33:41
+date: 2024-10-25T03:17:31.686Z
+updated: 2024-10-26T22:41:17.024Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d2d82c445eb45402ce61a0d30ece978ccf5960e8070d569d1695fba6ae5a553.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d2d82c445eb45402ce61a0d30ece97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

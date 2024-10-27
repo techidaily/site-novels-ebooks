@@ -1,7 +1,7 @@
 ---
 title: "Radical Enlightenment: My Guy On The 9th Floor | Free Book"
-date: 2024-10-24 16:20:21
-updated: 2024-10-26 10:12:21
+date: 2024-10-21T03:16:52.105Z
+updated: 2024-10-26T20:04:05.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89095f8d635970c357854328a39e87e42162f49eae1280fe2790afc07ab8f87c.jpg
@@ -229,3 +229,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89095f8d635970c357854328a39e87e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

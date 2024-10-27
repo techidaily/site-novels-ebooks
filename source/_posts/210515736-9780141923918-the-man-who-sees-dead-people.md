@@ -1,7 +1,7 @@
 ---
 title: The Man Who Sees Dead People | Free Book
-date: 2024-10-24 10:39:58
-updated: 2024-10-26 10:48:59
+date: 2024-10-22T19:51:23.766Z
+updated: 2024-10-27T01:17:27.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b654f008ce2311691c31ca58b1d636a075a79c73f72aa552dfcd56aa1c592f8.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b654f008ce2311691c31ca58b1d636
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

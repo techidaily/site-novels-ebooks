@@ -1,7 +1,7 @@
 ---
 title: Got Inspiration? 365 Days of Inspiration for You! | Free Book
-date: 2024-10-25 22:34:43
-updated: 2024-10-26 10:15:30
+date: 2024-10-23T17:35:58.839Z
+updated: 2024-10-26T22:26:51.753Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d0460b3ed0421199b51b1c6b199fa14b76ef3be82287b96ccc3f5bc34b56550.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d0460b3ed0421199b51b1c6b199fa1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2024-10-25 22:50:37
-updated: 2024-10-26 12:10:41
+date: 2024-10-21T20:36:13.460Z
+updated: 2024-10-27T00:48:50.391Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

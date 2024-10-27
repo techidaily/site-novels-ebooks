@@ -1,7 +1,7 @@
 ---
 title: Miracles, Angels & Afterlife | Free Book
-date: 2024-10-24 13:29:30
-updated: 2024-10-26 10:43:17
+date: 2024-10-20T20:01:12.990Z
+updated: 2024-10-26T22:40:53.917Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1928f516edbe450a8636b7ca521b4d6624cb9160746c5a4f780e7feaf79a9c2a.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1928f516edbe450a8636b7ca521b4d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

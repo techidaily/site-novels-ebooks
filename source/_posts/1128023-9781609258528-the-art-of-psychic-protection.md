@@ -1,7 +1,7 @@
 ---
 title: The Art of Psychic Protection | Free Book
-date: 2024-10-23 18:18:30
-updated: 2024-10-26 10:42:26
+date: 2024-10-23T03:54:15.794Z
+updated: 2024-10-27T05:10:55.258Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea08d64c501d35f651970d1fd0cfe10aa3850cd71d52bcbd48160e3722af02b1.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea08d64c501d35f651970d1fd0cfe10
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

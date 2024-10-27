@@ -1,7 +1,7 @@
 ---
 title: Divine Masters, Ancient Wisdom | Free Book
-date: 2024-10-24 16:46:33
-updated: 2024-10-26 12:28:29
+date: 2024-10-24T04:14:18.756Z
+updated: 2024-10-27T02:15:53.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b100c73f33e8da805eb40f8f84d6605f1f69f727dd683b89823b9b1f7e54b081.jpg
@@ -231,3 +231,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b100c73f33e8da805eb40f8f84d6605
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

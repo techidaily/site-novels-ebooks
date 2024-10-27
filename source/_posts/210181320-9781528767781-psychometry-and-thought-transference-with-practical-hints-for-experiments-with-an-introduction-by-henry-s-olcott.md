@@ -1,7 +1,7 @@
 ---
 title: Psychometry and Thought-Transference with Practical Hints for Experiments - With an Introduction by Henry S. Olcott | Free Book
-date: 2024-10-25 21:18:36
-updated: 2024-10-26 10:25:27
+date: 2024-10-20T00:38:08.569Z
+updated: 2024-10-27T03:01:59.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a84ab955788fcfe98815eb4b969e8204106e7fd85f25c4bda80bb7fbe821ba0.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a84ab955788fcfe98815eb4b969e82
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

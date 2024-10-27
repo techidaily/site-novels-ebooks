@@ -1,7 +1,7 @@
 ---
 title: My Damascus Road Experience | Free Book
-date: 2024-10-23 10:41:57
-updated: 2024-10-26 10:34:52
+date: 2024-10-25T05:00:39.263Z
+updated: 2024-10-26T16:54:39.406Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ea5da1ba038c7b80c4055670d1e25e02fb4aebc9dceec20e941bc7791b22e43.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ea5da1ba038c7b80c4055670d1e25e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

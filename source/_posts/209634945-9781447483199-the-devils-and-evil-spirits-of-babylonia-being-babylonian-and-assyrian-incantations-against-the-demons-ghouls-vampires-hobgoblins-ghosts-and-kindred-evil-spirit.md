@@ -1,7 +1,7 @@
 ---
 title: The Devils And Evil Spirits Of Babylonia, Being Babylonian And Assyrian Incantations Against The Demons, Ghouls, Vampires, Hobgoblins, Ghosts, And Kindred Evil Spirits, Which Attack Mankind. Volume II | Free Book
-date: 2024-10-23 20:19:15
-updated: 2024-10-26 11:49:38
+date: 2024-10-24T01:37:46.836Z
+updated: 2024-10-27T01:47:35.470Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ad8d5dcf99f904d7049110f20de0e2f173decd7701a050938eab922f673a7c9.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ad8d5dcf99f904d7049110f20de0e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

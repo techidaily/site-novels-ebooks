@@ -1,7 +1,7 @@
 ---
 title: Astronaut Gods of the Maya | Free Book
-date: 2024-10-24 13:13:46
-updated: 2024-10-26 12:23:16
+date: 2024-10-25T04:48:09.711Z
+updated: 2024-10-26T23:25:55.002Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfc23f05e1fdc53acf2700b7c7caafe16ebaf92f4a492594e9278dd28c621b49.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfc23f05e1fdc53acf2700b7c7caafe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

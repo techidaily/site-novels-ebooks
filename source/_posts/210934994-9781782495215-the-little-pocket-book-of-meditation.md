@@ -1,7 +1,7 @@
 ---
 title: The Little Pocket Book of Meditation | Free Book
-date: 2024-10-23 17:29:46
-updated: 2024-10-26 10:24:48
+date: 2024-10-21T16:17:24.629Z
+updated: 2024-10-27T05:21:24.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da1c215083fe189458b9b1d72ee6b6a88a828822d62b37985c4a500c3d253720.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da1c215083fe189458b9b1d72ee6b6a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

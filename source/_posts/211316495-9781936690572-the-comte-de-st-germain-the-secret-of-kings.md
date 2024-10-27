@@ -1,7 +1,7 @@
 ---
 title: THE COMTE DE ST. GERMAIN  The Secret of kings | Free Book
-date: 2024-10-23 13:14:30
-updated: 2024-10-26 10:50:48
+date: 2024-10-24T02:08:47.155Z
+updated: 2024-10-27T05:31:20.195Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91d9010dbab44dabe7da2d5b9e0ea4dd49c72e74972db64ad685825418544e0a.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91d9010dbab44dabe7da2d5b9e0ea4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

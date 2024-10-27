@@ -1,7 +1,7 @@
 ---
 title: The Caribbean Contribution - Stories from Notting Hill Methodist Church | Free Book
-date: 2024-10-23 16:43:30
-updated: 2024-10-26 11:47:43
+date: 2024-10-21T22:37:35.540Z
+updated: 2024-10-27T06:00:24.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a4917ef17c5bb4ff3d87b9b253475b0df8645ba035619ff08c2aa1ce619c29e.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a4917ef17c5bb4ff3d87b9b253475b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Shadow That Seeks the Sun | Free Book
-date: 2024-10-25 14:56:31
-updated: 2024-10-26 12:17:53
+date: 2024-10-21T01:36:21.742Z
+updated: 2024-10-26T16:20:27.327Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a37b917534b310b475674091971928aa980df4345079b9836a75d0cedadff623.jpg
@@ -215,3 +215,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a37b917534b310b475674091971928a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

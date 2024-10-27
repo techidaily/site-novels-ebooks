@@ -1,7 +1,7 @@
 ---
 title: Britain's Paranormal Forests | Free Book
-date: 2024-10-24 11:43:35
-updated: 2024-10-26 12:13:56
+date: 2024-10-23T02:34:55.682Z
+updated: 2024-10-26T16:03:14.675Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6d35df642010cbb5be9cbf0e0812ea16c2796acc7d6611f5233097aa4e89fc9.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6d35df642010cbb5be9cbf0e0812ea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Return of the Children of Light | Free Book
-date: 2024-10-23 10:48:35
-updated: 2024-10-26 11:57:45
+date: 2024-10-23T01:52:27.569Z
+updated: 2024-10-27T03:51:52.882Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5822e2ad5f4d779b81ffb04381164fb81bc45a8ca133a3f991a1f8a846f644c8.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5822e2ad5f4d779b81ffb04381164fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

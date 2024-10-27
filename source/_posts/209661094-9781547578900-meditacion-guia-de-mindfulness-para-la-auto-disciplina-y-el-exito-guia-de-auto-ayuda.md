@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Guía De Mindfulness Para La Auto Disciplina Y El Éxito (Guía De Auto Ayuda) | Free Book"
-date: 2024-10-25 23:27:28
-updated: 2024-10-26 11:15:22
+date: 2024-10-21T20:51:01.338Z
+updated: 2024-10-26T21:14:40.041Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e5e6d9c80e691b658279dcb01b66eaa93e92c0f740c83a7bfb509d17ea1f7c8.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e5e6d9c80e691b658279dcb01b66ea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Journey of Robert Monroe | Free Book
-date: 2024-10-25 18:55:39
-updated: 2024-10-26 12:21:24
+date: 2024-10-20T03:54:57.662Z
+updated: 2024-10-27T00:54:36.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e20bdcfa85ad1e65242e8228484d27f19963444f5c5adb4e3c97a7357a8b7de6.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e20bdcfa85ad1e65242e8228484d27f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

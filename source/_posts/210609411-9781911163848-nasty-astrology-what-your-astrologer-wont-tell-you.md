@@ -1,7 +1,7 @@
 ---
 title: "Nasty Astrology: What your astrologer won't tell you! | Free Book"
-date: 2024-10-25 17:12:16
-updated: 2024-10-26 12:33:35
+date: 2024-10-24T21:40:58.566Z
+updated: 2024-10-26T17:47:41.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4260dffc325ad1d7fc87f549a6ac832ad90896e388dcef4871945dcca7c93cae.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4260dffc325ad1d7fc87f549a6ac832
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

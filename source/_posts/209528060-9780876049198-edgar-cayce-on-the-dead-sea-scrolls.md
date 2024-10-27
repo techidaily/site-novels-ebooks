@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Dead Sea Scrolls | Free Book
-date: 2024-10-23 12:24:38
-updated: 2024-10-26 12:27:45
+date: 2024-10-20T00:55:49.671Z
+updated: 2024-10-27T03:25:43.801Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b88680e49118f8ed69f2354dae650aa1a971f98fbd9d969d58e55053d0c17804.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b88680e49118f8ed69f2354dae650aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

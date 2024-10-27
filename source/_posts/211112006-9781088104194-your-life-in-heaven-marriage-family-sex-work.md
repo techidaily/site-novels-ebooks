@@ -1,7 +1,7 @@
 ---
 title: Your Life in Heaven. Marriage, Family, Sex, Work | Free Book
-date: 2024-10-24 21:34:45
-updated: 2024-10-26 12:56:39
+date: 2024-10-25T23:02:48.034Z
+updated: 2024-10-27T00:42:15.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7b91271394f8e14f084692238c79de932fe8b3ce99ef27dcde223d287fd492d.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7b91271394f8e14f084692238c79de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

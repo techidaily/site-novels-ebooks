@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Breathing | Free Book
-date: 2024-10-25 18:33:59
-updated: 2024-10-26 11:42:49
+date: 2024-10-22T02:16:13.725Z
+updated: 2024-10-26T17:57:05.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccb07601186a5690aae569fe150ddf100dac14722fb0d325c9b40dd701ebceda.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccb07601186a5690aae569fe150ddf1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Struggle and How We Slayed the Dragon | Free Book
-date: 2024-10-23 15:46:59
-updated: 2024-10-26 11:31:58
+date: 2024-10-20T23:48:46.365Z
+updated: 2024-10-27T00:12:02.486Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2efa67d38c66431d044bf377ac885133c3ae0246d478e322fb3f22d7e5ca0c3a.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2efa67d38c66431d044bf377ac88513
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

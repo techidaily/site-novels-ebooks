@@ -1,7 +1,7 @@
 ---
 title: "Grandma Says: Wake Up, World! | Free Book"
-date: 2024-10-25 21:43:53
-updated: 2024-10-26 11:44:42
+date: 2024-10-20T02:34:20.779Z
+updated: 2024-10-26T22:44:25.744Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0fab6d8f84aab27478b49f2ba656b2dc475f592b5af6b9d88550b2dc90850ae.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0fab6d8f84aab27478b49f2ba656b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

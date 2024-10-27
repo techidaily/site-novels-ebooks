@@ -1,7 +1,7 @@
 ---
 title: Occultism and Common-Sense | Free Book
-date: 2024-10-23 18:21:12
-updated: 2024-10-26 11:16:43
+date: 2024-10-22T18:32:18.282Z
+updated: 2024-10-26T19:06:24.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f76c00498c937420f1ad822a64995c646c553c3df69a401d422d640d876729cd.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f76c00498c937420f1ad822a64995c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

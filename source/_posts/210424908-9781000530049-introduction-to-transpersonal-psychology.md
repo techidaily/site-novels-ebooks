@@ -1,7 +1,7 @@
 ---
 title: Introduction to Transpersonal Psychology | Free Book
-date: 2024-10-23 14:37:15
-updated: 2024-10-26 10:19:38
+date: 2024-10-20T19:49:36.151Z
+updated: 2024-10-26T23:37:37.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ebc945b962cf3f9b59e2be9876847a807daa4b4aacba5353eec84af046906e97.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ebc945b962cf3f9b59e2be9876847a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Absolute Best Little Book of Poetry | Free Book
-date: 2024-10-25 16:27:59
-updated: 2024-10-26 12:42:29
+date: 2024-10-22T22:19:42.361Z
+updated: 2024-10-26T19:09:45.677Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ffca1195ebbc135aed65e3cd11ebda8c19a6a0f915d3ed6712af4cffde672c85.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ffca1195ebbc135aed65e3cd11ebda8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

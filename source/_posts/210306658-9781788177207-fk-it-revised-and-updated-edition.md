@@ -1,7 +1,7 @@
 ---
 title: F**k It (Revised and Updated Edition) | Free Book
-date: 2024-10-25 23:28:59
-updated: 2024-10-26 11:15:19
+date: 2024-10-24T23:10:36.393Z
+updated: 2024-10-27T02:32:14.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b33f142166ad99346df8c5642c6d20de976d8572307d0e7903db9a283cc4e127.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b33f142166ad99346df8c5642c6d20d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

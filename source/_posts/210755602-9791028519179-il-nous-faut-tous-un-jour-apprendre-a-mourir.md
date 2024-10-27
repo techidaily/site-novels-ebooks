@@ -1,7 +1,7 @@
 ---
 title: Il nous faut tous un jour apprendre à mourir | Free Book
-date: 2024-10-23 10:21:18
-updated: 2024-10-26 11:42:55
+date: 2024-10-22T23:56:00.851Z
+updated: 2024-10-26T19:36:52.124Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b645e170f84008c0ff0775c702b7d4f4e65a0ba106dd07efba7ae9fd3b2afdb.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b645e170f84008c0ff0775c702b7d4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

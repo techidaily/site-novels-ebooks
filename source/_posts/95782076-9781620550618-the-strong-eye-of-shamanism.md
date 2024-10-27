@@ -1,7 +1,7 @@
 ---
 title: The Strong Eye of Shamanism | Free Book
-date: 2024-10-25 23:19:44
-updated: 2024-10-26 12:50:13
+date: 2024-10-23T05:20:54.854Z
+updated: 2024-10-27T03:57:31.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62311d2cc79e9f78315879d09e842c338218e713b2c13254cac26d34f19c4833.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62311d2cc79e9f78315879d09e842c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

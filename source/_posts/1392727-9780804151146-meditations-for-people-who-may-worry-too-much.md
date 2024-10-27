@@ -1,7 +1,7 @@
 ---
 title: Meditations for People Who (May) Worry Too Much | Free Book
-date: 2024-10-25 19:13:18
-updated: 2024-10-26 11:45:18
+date: 2024-10-22T00:20:39.558Z
+updated: 2024-10-27T01:43:31.823Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a99554259f34566b8bad89096df5e660aa5a5f735190f236607e3bfc6d7a1e7.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a99554259f34566b8bad89096df5e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

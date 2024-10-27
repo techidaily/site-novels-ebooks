@@ -1,7 +1,7 @@
 ---
 title: The Things You Would Have Said | Free Book
-date: 2024-10-23 23:25:57
-updated: 2024-10-26 11:33:24
+date: 2024-10-24T19:31:01.411Z
+updated: 2024-10-26T23:31:33.518Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b91e82e288270900bacd51468f51a63977c9a109a37ee185c0aa3c504d4c3391.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b91e82e288270900bacd51468f51a63
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Meditations from Conversations With God, Book 2 | Free Book
-date: 2024-10-25 23:24:10
-updated: 2024-10-26 12:56:48
+date: 2024-10-21T00:13:47.162Z
+updated: 2024-10-26T19:10:57.151Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a15625040bfd293f365ae7be34f18edb9cbfd54af8d9bfd79f19bdb4acb24c8a.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a15625040bfd293f365ae7be34f18ed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

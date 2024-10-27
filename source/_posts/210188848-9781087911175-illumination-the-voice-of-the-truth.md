@@ -1,7 +1,7 @@
 ---
 title: ILLUMINATION - The Voice of The Truth. | Free Book
-date: 2024-10-25 10:14:47
-updated: 2024-10-26 10:58:30
+date: 2024-10-25T23:55:54.949Z
+updated: 2024-10-26T17:23:24.217Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c8e0b8065c1c2e3615fc1c0a71b980f023b1f72cd5e0f1a6246f80c5d445ee8.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c8e0b8065c1c2e3615fc1c0a71b980
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

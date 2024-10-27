@@ -1,7 +1,7 @@
 ---
 title: Listening Circles, Seeding Life | Free Book
-date: 2024-10-24 10:58:52
-updated: 2024-10-26 12:16:26
+date: 2024-10-19T17:58:04.099Z
+updated: 2024-10-27T00:20:42.288Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccc53ba3e16706f7d4810321d3a9f7314f1b59e217ee74376a544794a3dd767f.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccc53ba3e16706f7d4810321d3a9f73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

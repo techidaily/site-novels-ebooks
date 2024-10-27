@@ -1,7 +1,7 @@
 ---
 title: Shadow Work Journal for Self-Love | Free Book
-date: 2024-10-24 19:27:11
-updated: 2024-10-26 10:36:15
+date: 2024-10-25T02:57:11.464Z
+updated: 2024-10-26T22:28:11.602Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4db3bcfb3eddb9ef0105d63b2997a384a7e0979b2f77fa488bcfe6462080c13c.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4db3bcfb3eddb9ef0105d63b2997a38
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

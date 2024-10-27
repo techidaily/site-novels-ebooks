@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Healing | Free Book
-date: 2024-10-25 18:35:23
-updated: 2024-10-26 10:49:16
+date: 2024-10-23T02:44:22.226Z
+updated: 2024-10-26T20:09:13.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/507981cb3e9e5b5408c44ffa11a7abc32e49f0b3d76d3640da1635d46da837ac.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/507981cb3e9e5b5408c44ffa11a7abc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

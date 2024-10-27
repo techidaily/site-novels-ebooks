@@ -1,7 +1,7 @@
 ---
 title: Voyage to Curiosity's Father | Free Book
-date: 2024-10-24 20:46:18
-updated: 2024-10-26 10:22:18
+date: 2024-10-20T16:02:43.351Z
+updated: 2024-10-26T22:55:42.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5503a4ad7259023c21e05cac3683e4da8ed5c707df5cd9809719b31b9bea438b.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5503a4ad7259023c21e05cac3683e4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

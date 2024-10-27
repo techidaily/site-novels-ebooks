@@ -1,7 +1,7 @@
 ---
 title: Conversations with Blanchie | Free Book
-date: 2024-10-23 12:46:23
-updated: 2024-10-26 10:50:23
+date: 2024-10-23T16:43:16.305Z
+updated: 2024-10-26T23:16:01.323Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ecc7a047727af88f4abed31943a52293dadf18e7455b8e6ad41da28570612a4b.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ecc7a047727af88f4abed31943a5229
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

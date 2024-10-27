@@ -1,7 +1,7 @@
 ---
 title: Floating in Quiet Darkness | Free Book
-date: 2024-10-24 12:18:55
-updated: 2024-10-26 12:50:40
+date: 2024-10-21T22:31:31.648Z
+updated: 2024-10-26T19:27:45.945Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1bdc6a08b7f459d2175e8a114e42d8be1b74a9ee1e733fb779458e3a361c1db8.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1bdc6a08b7f459d2175e8a114e42d8b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

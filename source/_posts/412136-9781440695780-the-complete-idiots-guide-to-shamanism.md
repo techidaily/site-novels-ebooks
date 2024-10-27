@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Shamanism | Free Book
-date: 2024-10-25 13:12:15
-updated: 2024-10-26 10:29:42
+date: 2024-10-26T05:25:17.097Z
+updated: 2024-10-26T19:17:01.662Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63965f08980bc1f310f9eb9ecf0f859424baab2e7c52efc6738b9c25c8b293df.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63965f08980bc1f310f9eb9ecf0f859
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

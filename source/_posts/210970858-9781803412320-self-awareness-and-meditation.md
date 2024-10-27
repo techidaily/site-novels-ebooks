@@ -1,7 +1,7 @@
 ---
 title: Self-Awareness and Meditation | Free Book
-date: 2024-10-25 14:23:29
-updated: 2024-10-26 10:35:35
+date: 2024-10-21T00:20:21.319Z
+updated: 2024-10-26T20:27:01.684Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34b627118fded325e566326da4c66fc5ea362eef54055e1498fd0aaa9e39b2fe.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34b627118fded325e566326da4c66fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Little Book of Crystal Tips & Cures | Free Book
-date: 2024-10-24 19:24:46
-updated: 2024-10-26 11:54:29
+date: 2024-10-23T01:54:38.317Z
+updated: 2024-10-26T18:35:51.214Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6cbf9aadfe7339ddc044b60f53b65d00618bc70527cae59adcd242a1897613d.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6cbf9aadfe7339ddc044b60f53b65d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Ansiedade : Liberte-se Da Ansiedade E Da Depressão | Free Book"
-date: 2024-10-25 16:40:41
-updated: 2024-10-26 12:39:31
+date: 2024-10-22T17:26:10.505Z
+updated: 2024-10-26T19:28:07.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6aedbb922d8f6cb92a5406571ec12e770d9bb876e0c11501725798e1fc8ea6aa.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6aedbb922d8f6cb92a5406571ec12e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

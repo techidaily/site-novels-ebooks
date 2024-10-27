@@ -1,7 +1,7 @@
 ---
 title: Buckland's Book of Saxon Witchcraft | Free Book
-date: 2024-10-25 15:59:34
-updated: 2024-10-26 10:19:44
+date: 2024-10-23T23:28:11.388Z
+updated: 2024-10-26T19:11:11.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5dfadeacefa077c6415f5cd849fc162ff1545366dcef473e6bc3bf428f288932.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5dfadeacefa077c6415f5cd849fc162
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

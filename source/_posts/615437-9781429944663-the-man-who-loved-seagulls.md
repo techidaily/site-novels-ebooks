@@ -1,7 +1,7 @@
 ---
 title: The Man Who Loved Seagulls | Free Book
-date: 2024-10-25 13:52:38
-updated: 2024-10-26 12:33:48
+date: 2024-10-26T04:08:44.962Z
+updated: 2024-10-26T22:17:43.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aef8e4658637987f3943e69436fd8feffb33d2ad238817f5925508023cb7db0c.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aef8e4658637987f3943e69436fd8fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

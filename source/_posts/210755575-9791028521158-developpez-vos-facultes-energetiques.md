@@ -1,7 +1,7 @@
 ---
 title: Développez vos facultés énergétiques | Free Book
-date: 2024-10-25 23:31:32
-updated: 2024-10-26 10:32:15
+date: 2024-10-21T23:01:27.775Z
+updated: 2024-10-27T04:27:21.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/320afa8984fc970dd52a3e3ce1f581ab9bb1ad77d213671fbeeff12dc59736a9.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/320afa8984fc970dd52a3e3ce1f581a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

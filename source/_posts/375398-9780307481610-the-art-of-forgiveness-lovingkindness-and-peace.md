@@ -1,7 +1,7 @@
 ---
 title: The Art of Forgiveness, Lovingkindness, and Peace | Free Book
-date: 2024-10-25 22:19:17
-updated: 2024-10-26 11:37:19
+date: 2024-10-22T05:32:21.650Z
+updated: 2024-10-26T17:01:50.510Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b3d25489ccd4781625e073c52fdca9d6cf5f400886876c5d0af98a86fba34fe.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b3d25489ccd4781625e073c52fdca9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

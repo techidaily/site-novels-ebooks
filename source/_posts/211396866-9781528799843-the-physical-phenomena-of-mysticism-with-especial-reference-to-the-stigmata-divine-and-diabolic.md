@@ -1,7 +1,7 @@
 ---
 title: The Physical Phenomena of Mysticism - With Especial Reference to the Stigmata, Divine and Diabolic | Free Book
-date: 2024-10-24 14:44:36
-updated: 2024-10-26 10:30:44
+date: 2024-10-20T03:17:30.231Z
+updated: 2024-10-26T23:07:31.616Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/06b7b8cbac52fa390e54a2ae45ce1345ab1dc753d8141bce716147788966a4e9.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/06b7b8cbac52fa390e54a2ae45ce134
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

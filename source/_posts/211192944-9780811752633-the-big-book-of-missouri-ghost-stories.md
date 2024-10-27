@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Missouri Ghost Stories | Free Book
-date: 2024-10-25 20:39:55
-updated: 2024-10-26 10:49:57
+date: 2024-10-20T02:28:48.408Z
+updated: 2024-10-27T05:53:22.489Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/030bf687fde977b434598bb45a87faeb23b2f2fb871a5e988560a04d9cf5d83e.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/030bf687fde977b434598bb45a87fae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Twelve Positive Habits of Spiritually Centered People | Free Book
-date: 2024-10-24 11:54:26
-updated: 2024-10-26 10:39:40
+date: 2024-10-25T02:53:42.942Z
+updated: 2024-10-26T17:36:31.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0dc5e8a4419d42c2789c123e0a81a0c80f58dff88c9b27bd198e1402ac789fb.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0dc5e8a4419d42c2789c123e0a81a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

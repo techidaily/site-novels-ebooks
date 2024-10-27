@@ -1,7 +1,7 @@
 ---
 title: The Intention Experiment | Free Book
-date: 2024-10-25 22:54:44
-updated: 2024-10-26 10:43:14
+date: 2024-10-22T23:11:41.789Z
+updated: 2024-10-26T20:03:21.329Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2cabe2843971c35488255f184f2b30fd84ad81343ab1f5fa3fa3ae25924f268c.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2cabe2843971c35488255f184f2b30f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

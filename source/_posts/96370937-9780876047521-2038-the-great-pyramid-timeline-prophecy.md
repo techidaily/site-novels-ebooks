@@ -1,7 +1,7 @@
 ---
 title: 2038 The Great Pyramid Timeline Prophecy | Free Book
-date: 2024-10-23 15:31:19
-updated: 2024-10-26 11:23:53
+date: 2024-10-22T16:43:22.476Z
+updated: 2024-10-26T16:07:42.805Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1eb900475374970b6dbc69b5f89cf7563d3.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

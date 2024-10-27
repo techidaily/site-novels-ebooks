@@ -1,7 +1,7 @@
 ---
 title: Enriqueça na caminhada para o  Mundo da Era de Ouro (com Comentários de Meditação) | Free Book
-date: 2024-10-24 15:14:12
-updated: 2024-10-26 11:51:23
+date: 2024-10-22T22:56:47.718Z
+updated: 2024-10-26T22:34:37.448Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9eca266f66c6c3a9506ebc6eff6b0798ea44afa665879da684588328056b6d81.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9eca266f66c6c3a9506ebc6eff6b079
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

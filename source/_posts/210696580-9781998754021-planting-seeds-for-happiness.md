@@ -1,7 +1,7 @@
 ---
 title: Planting Seeds for Happiness | Free Book
-date: 2024-10-23 12:39:51
-updated: 2024-10-26 10:12:38
+date: 2024-10-23T20:21:20.230Z
+updated: 2024-10-26T20:44:51.526Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234acded997f35c0dfead6e0c9df559b9c9eaa663fd10b2e7b86a7f7b7f809f4.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234acded997f35c0dfead6e0c9df559
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

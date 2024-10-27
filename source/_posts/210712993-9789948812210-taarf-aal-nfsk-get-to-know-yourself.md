@@ -1,7 +1,7 @@
 ---
 title: تعرّف على نفسك - Get to Know Yourself | Free Book
-date: 2024-10-25 22:36:51
-updated: 2024-10-26 11:39:27
+date: 2024-10-20T19:26:05.236Z
+updated: 2024-10-26T16:19:04.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bad648284fbdebf9a278a38fb4ea275110a25070ec3de56b6f18a400ebb8bba3.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bad648284fbdebf9a278a38fb4ea275
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

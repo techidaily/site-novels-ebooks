@@ -1,7 +1,7 @@
 ---
 title: "Liderazgo: Poderosas Habilidades De Liderazgo Para Influir Y Mejorar La Comunicación | Free Book"
-date: 2024-10-24 23:35:58
-updated: 2024-10-26 11:43:53
+date: 2024-10-21T19:06:31.299Z
+updated: 2024-10-26T22:59:50.601Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/39292098a47f6ae258f1350792a294e322dcb85c4ecb1f1f3a25cc5efa72c0fb.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/39292098a47f6ae258f1350792a294e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

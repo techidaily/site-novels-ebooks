@@ -1,7 +1,7 @@
 ---
 title: Ancient Aliens in the Bible | Free Book
-date: 2024-10-25 22:53:16
-updated: 2024-10-26 12:59:39
+date: 2024-10-23T01:42:10.369Z
+updated: 2024-10-26T22:48:14.062Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d71b4b6d779ef2ce5a0baafb52cfadb7ed920d824490fec1cd6259b4c8bcd8fa.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d71b4b6d779ef2ce5a0baafb52cfadb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

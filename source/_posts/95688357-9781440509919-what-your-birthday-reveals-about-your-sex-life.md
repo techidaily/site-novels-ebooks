@@ -1,7 +1,7 @@
 ---
 title: What Your Birthday Reveals about Your Sex Life | Free Book
-date: 2024-10-25 22:49:34
-updated: 2024-10-26 10:47:17
+date: 2024-10-19T16:00:35.950Z
+updated: 2024-10-26T19:16:41.746Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb6680def89512f81d936dc780fbfc7a022a54cfb22a0548e07c1e987a34083b.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb6680def89512f81d936dc780fbfc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Stargate Conspiracy | Free Book
-date: 2024-10-24 10:41:24
-updated: 2024-10-26 11:25:17
+date: 2024-10-20T16:30:56.945Z
+updated: 2024-10-26T17:36:13.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2aa00ed81e11f862d799c39c4b9f2141fb84f1bb82b6ce9da1078d1d095a9482.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2aa00ed81e11f862d799c39c4b9f214
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

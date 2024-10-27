@@ -1,7 +1,7 @@
 ---
 title: Una Mente Plena a Través de la Guía de Meditación Diaria | Free Book
-date: 2024-10-23 15:37:59
-updated: 2024-10-26 11:32:35
+date: 2024-10-23T01:40:55.051Z
+updated: 2024-10-26T16:17:06.298Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3895cd8da96cadf554ca383776ba475c5f620cc7a70b0d85690c4b5a648b9059.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3895cd8da96cadf554ca383776ba475
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

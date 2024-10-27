@@ -1,7 +1,7 @@
 ---
 title: Healing Through Sound, Colour and Movement | Free Book
-date: 2024-10-23 11:45:31
-updated: 2024-10-26 11:53:29
+date: 2024-10-20T21:41:27.539Z
+updated: 2024-10-26T20:57:25.341Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ac8cc34e37104aed20ac4df0dd96b8b94d2abf6079a7cc8e330e32f05476325.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ac8cc34e37104aed20ac4df0dd96b8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

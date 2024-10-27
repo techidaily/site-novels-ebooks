@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Técnicas Sencillas De Relajación | Free Book"
-date: 2024-10-25 13:25:58
-updated: 2024-10-26 12:33:27
+date: 2024-10-23T18:07:19.658Z
+updated: 2024-10-27T05:54:13.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20656e9483caff2022e38afb956e46d25233ce7e83248778c374408141779dd8.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20656e9483caff2022e38afb956e46d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

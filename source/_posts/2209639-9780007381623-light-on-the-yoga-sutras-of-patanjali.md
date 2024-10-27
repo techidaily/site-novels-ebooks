@@ -1,7 +1,7 @@
 ---
 title: Light on the Yoga Sutras of Patanjali | Free Book
-date: 2024-10-25 11:30:55
-updated: 2024-10-26 12:30:55
+date: 2024-10-25T04:00:12.842Z
+updated: 2024-10-27T03:32:15.485Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ef2f5ead682b0114550246670cb2d0cec7aa4d526b15cefbd185aaeffe54d35.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ef2f5ead682b0114550246670cb2d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

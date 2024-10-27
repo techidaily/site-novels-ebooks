@@ -1,7 +1,7 @@
 ---
 title: The Tarot Architect | Free Book
-date: 2024-10-24 10:44:50
-updated: 2024-10-26 10:31:58
+date: 2024-10-25T20:08:52.538Z
+updated: 2024-10-27T05:46:18.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5677c72d93017aa40acb98ba6e219a7ff846c1d78b3010bd19ab9803df2e31fa.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5677c72d93017aa40acb98ba6e219a7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

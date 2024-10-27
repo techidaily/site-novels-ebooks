@@ -1,7 +1,7 @@
 ---
 title: The Stone of the Philosophers | Free Book
-date: 2024-10-24 11:53:21
-updated: 2024-10-26 11:40:37
+date: 2024-10-24T04:31:07.392Z
+updated: 2024-10-27T04:04:44.213Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/143d53edfd1bd1c2ddfc435d9e18b70c3c818edfb97d63e0afdffbdbcc428d77.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/143d53edfd1bd1c2ddfc435d9e18b70
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

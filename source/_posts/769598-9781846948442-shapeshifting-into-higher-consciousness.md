@@ -1,7 +1,7 @@
 ---
 title: Shapeshifting into Higher Consciousness | Free Book
-date: 2024-10-23 16:23:29
-updated: 2024-10-26 10:37:32
+date: 2024-10-24T03:16:49.953Z
+updated: 2024-10-26T16:14:48.030Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e019849d4d9923b02efbe3dbf4b74fe2f1a4967990fa4bab98be41b13d6485ff.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e019849d4d9923b02efbe3dbf4b74fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

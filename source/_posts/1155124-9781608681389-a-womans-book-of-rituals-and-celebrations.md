@@ -1,7 +1,7 @@
 ---
 title: A Woman's Book of Rituals and Celebrations | Free Book
-date: 2024-10-25 15:29:47
-updated: 2024-10-26 12:46:29
+date: 2024-10-24T17:29:51.604Z
+updated: 2024-10-26T19:36:04.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4ad18745e241f10bf52a7b78f8fc2eb831ea321ec92b8ff30c216a7d899fc647.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4ad18745e241f10bf52a7b78f8fc2eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

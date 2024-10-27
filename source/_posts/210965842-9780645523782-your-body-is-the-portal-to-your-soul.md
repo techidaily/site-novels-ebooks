@@ -1,7 +1,7 @@
 ---
 title: Your Body Is the Portal to Your Soul | Free Book
-date: 2024-10-25 17:19:12
-updated: 2024-10-26 10:50:33
+date: 2024-10-24T23:34:55.893Z
+updated: 2024-10-26T19:47:16.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fce86814c5c6357b49beedfd06504fa41683586d2173053ecedb179f39b35f4d.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fce86814c5c6357b49beedfd06504fa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

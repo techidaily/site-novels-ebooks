@@ -1,7 +1,7 @@
 ---
 title: Simple Herbal & Aromatherapy Recipes for your Body, Mind & Soul | Free Book
-date: 2024-10-24 21:57:12
-updated: 2024-10-26 10:35:55
+date: 2024-10-19T17:37:04.930Z
+updated: 2024-10-26T18:12:32.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/342dea392724c5a9bdb831043f330218fae3081886adf834db52bf8e7730765e.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/342dea392724c5a9bdb831043f33021
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

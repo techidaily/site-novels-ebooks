@@ -1,7 +1,7 @@
 ---
 title: BEYOND MIND--THE MILELA THEORY, CHETANA YOGA-The next step in Human Evolution (2nd ed.) | Free Book
-date: 2024-10-23 19:59:22
-updated: 2024-10-26 11:17:18
+date: 2024-10-21T22:58:34.178Z
+updated: 2024-10-26T21:46:09.538Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9041d64be957cd308ff30c7089559c65f41cd56373374b376793b70c8050c371.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9041d64be957cd308ff30c7089559c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

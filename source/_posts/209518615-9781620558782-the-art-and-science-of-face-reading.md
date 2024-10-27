@@ -1,7 +1,7 @@
 ---
 title: The Art and Science of Face Reading | Free Book
-date: 2024-10-24 16:44:28
-updated: 2024-10-26 12:59:33
+date: 2024-10-21T18:30:08.472Z
+updated: 2024-10-26T21:18:11.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88f2d8519060ccde8c2bc3a31439fbb7ec120df33d0f481dbb4b8c11d71e63eb.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88f2d8519060ccde8c2bc3a31439fbb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: How Tamson Got the Third Degree | Free Book
-date: 2024-10-24 18:35:49
-updated: 2024-10-26 11:50:19
+date: 2024-10-23T20:33:43.226Z
+updated: 2024-10-26T19:51:55.904Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c7655a2c2ad17f495e29490ca0334e37ad0362a66ebe30f52004427360ce411.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c7655a2c2ad17f495e29490ca0334e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

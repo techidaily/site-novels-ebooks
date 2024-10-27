@@ -1,7 +1,7 @@
 ---
 title: ART HOPE The Way To Creative Wellness | Free Book
-date: 2024-10-24 23:28:40
-updated: 2024-10-26 10:41:22
+date: 2024-10-23T17:32:10.410Z
+updated: 2024-10-27T04:28:38.613Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e6ddcb911c436e0bc13d5043b5d5c7f6d3e83c4d162ed1e7bed1fbfa62b34cb4.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e6ddcb911c436e0bc13d5043b5d5c7f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

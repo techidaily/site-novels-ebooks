@@ -1,7 +1,7 @@
 ---
 title: Spiritual Treatment for the Troubled Soul | Free Book
-date: 2024-10-23 14:15:14
-updated: 2024-10-26 12:29:14
+date: 2024-10-22T19:04:20.134Z
+updated: 2024-10-27T02:12:16.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/96cac92005df2692aa9107529af40d67dd4bcb2abf5aee0dfe5e19926b034598.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/96cac92005df2692aa9107529af40d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

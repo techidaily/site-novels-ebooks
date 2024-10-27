@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Philosophy for the New World | Free Book
-date: 2024-10-25 14:10:49
-updated: 2024-10-26 10:47:26
+date: 2024-10-19T17:06:43.915Z
+updated: 2024-10-27T00:19:16.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21bfba785e4264389ad860fda5a4a74aeb03f704e30772f2d31d534bd8cae892.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21bfba785e4264389ad860fda5a4a74
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

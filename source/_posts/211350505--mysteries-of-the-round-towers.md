@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Round Towers | Free Book
-date: 2024-10-25 16:55:50
-updated: 2024-10-26 11:45:49
+date: 2024-10-20T21:38:55.809Z
+updated: 2024-10-26T16:17:20.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ef12f84c7fc4f54131b40fe26309aed27efb68263dea389261de1b276a13d7fe.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ef12f84c7fc4f54131b40fe26309aed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

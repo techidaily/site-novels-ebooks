@@ -1,7 +1,7 @@
 ---
 title: Who Cares What the Numbers Say | Free Book
-date: 2024-10-24 14:13:19
-updated: 2024-10-26 11:54:12
+date: 2024-10-26T05:48:47.073Z
+updated: 2024-10-27T03:38:04.982Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a671d9ff9a4e2a11b1c7ba433f36da853fd3c2f596526352c6377e8cb8a10f67.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a671d9ff9a4e2a11b1c7ba433f36da8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

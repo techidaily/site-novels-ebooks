@@ -1,7 +1,7 @@
 ---
 title: The Book of Courage I Woke Up When I Supposed to Be Asleep | Free Book
-date: 2024-10-23 19:47:35
-updated: 2024-10-26 12:35:16
+date: 2024-10-21T23:31:59.205Z
+updated: 2024-10-27T04:07:23.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28311721ede4099fa0a64dec10a4bdd62c817ac0a434f7aea0c93ae7bbd0314c.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28311721ede4099fa0a64dec10a4bdd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

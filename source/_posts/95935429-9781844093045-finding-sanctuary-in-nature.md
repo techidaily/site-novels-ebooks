@@ -1,7 +1,7 @@
 ---
 title: Finding Sanctuary in Nature | Free Book
-date: 2024-10-25 10:47:17
-updated: 2024-10-26 12:29:51
+date: 2024-10-24T23:42:44.553Z
+updated: 2024-10-26T23:40:53.890Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94a4fb31a4d7edb6ba0063df2c9bfb2351b7a1a69755786d69be85a9b6092472.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94a4fb31a4d7edb6ba0063df2c9bfb2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

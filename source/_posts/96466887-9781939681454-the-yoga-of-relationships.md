@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-10-25 11:58:39
-updated: 2024-10-26 11:21:55
+date: 2024-10-21T17:17:03.031Z
+updated: 2024-10-27T01:50:46.314Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

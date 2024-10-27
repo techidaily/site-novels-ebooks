@@ -1,7 +1,7 @@
 ---
 title: Астрология для жизни. Магия Луны (Astrologija dlja zhizni. Magija Luny) | Free Book
-date: 2024-10-23 22:17:11
-updated: 2024-10-26 10:35:40
+date: 2024-10-21T03:26:48.369Z
+updated: 2024-10-27T04:51:11.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19f412b2e7fed7096a74d1d3d967370b2025a66333ade26083ac1a1baaa44b8c.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19f412b2e7fed7096a74d1d3d967370
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

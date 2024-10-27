@@ -1,7 +1,7 @@
 ---
 title: The Sworn Book of Honorius | Free Book
-date: 2024-10-23 20:52:11
-updated: 2024-10-26 11:55:41
+date: 2024-10-25T03:31:02.479Z
+updated: 2024-10-27T05:17:44.973Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9482eba9ae7cd38a087750d35d3952e21357702df39adeaad69db743df6ebe4.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9482eba9ae7cd38a087750d35d3952
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

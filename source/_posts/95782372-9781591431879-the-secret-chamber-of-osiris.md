@@ -1,7 +1,7 @@
 ---
 title: The Secret Chamber of Osiris | Free Book
-date: 2024-10-25 21:12:10
-updated: 2024-10-26 10:10:22
+date: 2024-10-24T00:07:45.518Z
+updated: 2024-10-27T02:19:51.768Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d6a592d33000754e10b36d64253f8ff60701aa02f377cc4e35ae1d1f04d7859.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d6a592d33000754e10b36d64253f8f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

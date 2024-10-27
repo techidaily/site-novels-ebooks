@@ -1,7 +1,7 @@
 ---
 title: Haunted Litchfield County | Free Book
-date: 2024-10-23 17:59:46
-updated: 2024-10-26 12:22:26
+date: 2024-10-20T02:45:28.857Z
+updated: 2024-10-26T21:29:23.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1325f8703d3659f968bc994e1f48090354d1476da85e4eb2965d5f904f7fe55.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1325f8703d3659f968bc994e1f4809
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

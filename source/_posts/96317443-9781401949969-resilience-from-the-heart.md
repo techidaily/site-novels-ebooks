@@ -1,7 +1,7 @@
 ---
 title: Resilience from the Heart | Free Book
-date: 2024-10-24 16:14:54
-updated: 2024-10-26 10:10:13
+date: 2024-10-21T20:02:38.699Z
+updated: 2024-10-26T19:29:55.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a6a9c46cf51a6a0f75acb81ca1e951a8696723846a9908552d65fb73d064c5a.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a6a9c46cf51a6a0f75acb81ca1e951
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

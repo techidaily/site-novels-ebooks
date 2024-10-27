@@ -1,7 +1,7 @@
 ---
 title: Psychic Kids | Free Book
-date: 2024-10-24 16:20:53
-updated: 2024-10-26 12:32:57
+date: 2024-10-22T05:47:14.105Z
+updated: 2024-10-26T20:45:50.397Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d08e59546a77a974c68429498b39e432f30da47ff580a65baddd5006162bb115.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d08e59546a77a974c68429498b39e43
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

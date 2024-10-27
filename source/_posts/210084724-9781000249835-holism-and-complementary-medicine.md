@@ -1,7 +1,7 @@
 ---
 title: Holism and Complementary Medicine | Free Book
-date: 2024-10-23 11:24:23
-updated: 2024-10-26 10:52:33
+date: 2024-10-23T18:37:51.905Z
+updated: 2024-10-27T03:47:30.232Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b691a32bfcc977ee1203f4473c8ca067bcab4d897cef765e57117cb742e8d341.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b691a32bfcc977ee1203f4473c8ca06
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

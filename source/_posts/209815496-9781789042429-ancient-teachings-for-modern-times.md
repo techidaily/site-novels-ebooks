@@ -1,7 +1,7 @@
 ---
 title: Ancient Teachings for Modern Times | Free Book
-date: 2024-10-25 16:31:33
-updated: 2024-10-26 12:11:51
+date: 2024-10-22T21:23:40.717Z
+updated: 2024-10-26T20:55:41.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/071829217ad6b7f4a12f28a0c0c72d6ac2c09bffd4d0c88a8170e2833d573603.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/071829217ad6b7f4a12f28a0c0c72d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

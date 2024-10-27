@@ -1,7 +1,7 @@
 ---
 title: The Cycle of Cosmic Catastrophes | Free Book
-date: 2024-10-23 15:56:23
-updated: 2024-10-26 11:53:50
+date: 2024-10-24T19:29:02.050Z
+updated: 2024-10-27T00:53:56.232Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6321a449ecd1171925001d38afc06fb6663ec45103470dc54b2a8be51805e990.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6321a449ecd1171925001d38afc06fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

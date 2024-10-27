@@ -1,7 +1,7 @@
 ---
 title: The Universe Has Your Back | Free Book
-date: 2024-10-23 18:31:15
-updated: 2024-10-26 11:38:34
+date: 2024-10-19T16:57:04.174Z
+updated: 2024-10-27T04:34:19.434Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2732858506d05bc559802f42fd3228415c050e1110850fd11e201c0b19b2028.jpg
@@ -237,3 +237,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2732858506d05bc559802f42fd3228
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

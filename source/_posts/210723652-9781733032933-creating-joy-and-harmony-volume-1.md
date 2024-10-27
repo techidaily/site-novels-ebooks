@@ -1,7 +1,7 @@
 ---
 title: Creating Joy and Harmony - Volume 1 | Free Book
-date: 2024-10-25 22:15:22
-updated: 2024-10-26 10:12:59
+date: 2024-10-22T21:21:34.878Z
+updated: 2024-10-26T21:45:26.050Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e46ac9e3db1e925695996bdc0ef2a56e2a34b7ecdb0e504f0834f0c33a56739a.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e46ac9e3db1e925695996bdc0ef2a56
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

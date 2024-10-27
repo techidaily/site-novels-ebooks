@@ -1,7 +1,7 @@
 ---
 title: Meditations of the Heart | Free Book
-date: 2024-10-24 21:25:40
-updated: 2024-10-26 11:23:17
+date: 2024-10-26T00:09:56.690Z
+updated: 2024-10-27T03:53:35.074Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f907da10df481f8b792880af365adbc9eaf8ab7a220ae2e94ead1160e11e386.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f907da10df481f8b792880af365adb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Your Birthday | Free Book
-date: 2024-10-23 20:22:59
-updated: 2024-10-26 12:26:57
+date: 2024-10-21T20:54:22.031Z
+updated: 2024-10-26T22:39:14.958Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/954cf8bf37572065f86086c309d95f9b2ee0f25b3723203e439c5d6ce09acf63.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/954cf8bf37572065f86086c309d95f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

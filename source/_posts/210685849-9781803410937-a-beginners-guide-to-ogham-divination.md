@@ -1,7 +1,7 @@
 ---
 title: A Beginner's Guide to Ogham Divination | Free Book
-date: 2024-10-25 15:12:37
-updated: 2024-10-26 12:27:57
+date: 2024-10-20T00:31:34.117Z
+updated: 2024-10-27T02:35:37.852Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca1703b9bc0c2978859fdbe757f5de7993d8cdcd725d92d2376491696db7ee30.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca1703b9bc0c2978859fdbe757f5de7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

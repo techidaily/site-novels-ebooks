@@ -1,7 +1,7 @@
 ---
 title: The Mysteries of Magic - A Digest of the Writings of Eliphas Levi | Free Book
-date: 2024-10-24 20:25:55
-updated: 2024-10-26 11:11:15
+date: 2024-10-21T03:13:36.034Z
+updated: 2024-10-26T22:26:07.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/919e9e5a79228378fe6e0c1ce3ebf18156bbc25cce84235f0f900c316532e8da.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/919e9e5a79228378fe6e0c1ce3ebf18
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

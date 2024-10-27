@@ -1,7 +1,7 @@
 ---
 title: Meditación para Principiantes | Free Book
-date: 2024-10-24 23:59:26
-updated: 2024-10-26 11:31:41
+date: 2024-10-22T21:36:13.103Z
+updated: 2024-10-26T19:45:18.757Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35bfe132892a1ecedc8b60f6a99d8734f31e7b1fb4b0a6fa3107b7dad1ab9da3.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35bfe132892a1ecedc8b60f6a99d873
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

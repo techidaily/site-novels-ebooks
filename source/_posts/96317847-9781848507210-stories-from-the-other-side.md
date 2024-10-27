@@ -1,7 +1,7 @@
 ---
 title: Stories from the Other Side | Free Book
-date: 2024-10-23 14:54:59
-updated: 2024-10-26 10:17:53
+date: 2024-10-24T22:25:19.705Z
+updated: 2024-10-26T16:42:55.522Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a44611615474af793bfb24f78449e6425107cce13.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a4461161
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

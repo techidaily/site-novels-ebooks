@@ -1,7 +1,7 @@
 ---
 title: Mother Earth is Calling You | Free Book
-date: 2024-10-23 11:11:34
-updated: 2024-10-26 12:37:15
+date: 2024-10-22T22:09:33.664Z
+updated: 2024-10-27T00:25:44.427Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da2ab3f61ab49ebec6e6ecf1d0cf31ad0ea5ea13b747e4ffbe203d7b5c322329.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da2ab3f61ab49ebec6e6ecf1d0cf31a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

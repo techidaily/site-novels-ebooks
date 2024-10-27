@@ -1,7 +1,7 @@
 ---
 title: RAJA YOGA - YOGA AS MEDITATION! | Free Book
-date: 2024-10-25 21:26:29
-updated: 2024-10-26 10:39:39
+date: 2024-10-24T00:09:43.002Z
+updated: 2024-10-27T00:31:54.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc2c74738829bcae71eafc85d7dee6fd9ad361c1cb2be10b0a1166c0b87c02b.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc2c74738829bcae71eafc85d7dee6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Tarot & Astrology Handbook | Free Book
-date: 2024-10-24 21:38:42
-updated: 2024-10-26 12:38:45
+date: 2024-10-25T03:49:04.167Z
+updated: 2024-10-26T17:24:08.288Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b043771b22dba9c9dee3a5369cab1eb88272f6877d030ec3be9c6631e3c804e5.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b043771b22dba9c9dee3a5369cab1eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

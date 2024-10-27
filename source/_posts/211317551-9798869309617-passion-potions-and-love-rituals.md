@@ -1,7 +1,7 @@
 ---
 title: Passion Potions and Love Rituals | Free Book
-date: 2024-10-25 10:18:26
-updated: 2024-10-26 12:46:41
+date: 2024-10-20T18:43:20.130Z
+updated: 2024-10-27T01:18:34.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a0e671bd76feea378d05bd89aefe4d0b7f11326b4abe226270d99b00050d345.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a0e671bd76feea378d05bd89aefe4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

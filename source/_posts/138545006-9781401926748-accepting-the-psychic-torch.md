@@ -1,7 +1,7 @@
 ---
 title: Accepting the Psychic Torch | Free Book
-date: 2024-10-24 20:32:24
-updated: 2024-10-26 10:16:45
+date: 2024-10-22T02:19:09.217Z
+updated: 2024-10-26T17:31:02.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fbd74eb102bfa450da3371f3b4445c95653da972f787aa7ae84565a3fc6bbe4.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fbd74eb102bfa450da3371f3b4445c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

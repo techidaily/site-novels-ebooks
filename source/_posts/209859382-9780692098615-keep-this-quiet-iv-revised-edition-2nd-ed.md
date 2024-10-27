@@ -1,7 +1,7 @@
 ---
 title: Keep This Quiet! IV, revised edition (2nd ed.) | Free Book
-date: 2024-10-24 16:17:18
-updated: 2024-10-26 10:22:30
+date: 2024-10-21T18:33:19.978Z
+updated: 2024-10-27T05:09:21.727Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa27695710fa0ebe4e42ea4df69acc0efa7ae517cb5576c37d6aeadd50426484.jpg
@@ -209,3 +209,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa27695710fa0ebe4e42ea4df69acc0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

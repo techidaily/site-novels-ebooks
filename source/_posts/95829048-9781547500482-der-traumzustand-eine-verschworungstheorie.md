@@ -1,7 +1,7 @@
 ---
 title: Der Traumzustand - Eine Verschwörungstheorie | Free Book
-date: 2024-10-25 13:35:14
-updated: 2024-10-26 10:13:17
+date: 2024-10-22T00:56:06.398Z
+updated: 2024-10-26T18:16:20.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f487874b4a391833a20073b5e23a8e48d187bded44fc2a0e562833e5808e331.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f487874b4a391833a20073b5e23a8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

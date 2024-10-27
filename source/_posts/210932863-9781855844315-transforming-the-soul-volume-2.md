@@ -1,7 +1,7 @@
 ---
 title: "Transforming The Soul: Volume 2 | Free Book"
-date: 2024-10-24 17:36:29
-updated: 2024-10-26 12:53:40
+date: 2024-10-25T22:04:09.071Z
+updated: 2024-10-26T18:23:04.084Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16360d25dfc49f8d28d74d269190664176282c3d9e17e3048f397d28e11e41db.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16360d25dfc49f8d28d74d269190664
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

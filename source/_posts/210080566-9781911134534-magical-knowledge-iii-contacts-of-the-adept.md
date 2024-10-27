@@ -1,7 +1,7 @@
 ---
 title: Magical Knowledge III - Contacts of the Adept | Free Book
-date: 2024-10-25 21:56:53
-updated: 2024-10-26 11:34:11
+date: 2024-10-24T01:22:54.050Z
+updated: 2024-10-27T04:00:36.957Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd00a61990fe02714cf39ee54a39deb7f8969c930e9dc67ae752bd9b77745102.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd00a61990fe02714cf39ee54a39deb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

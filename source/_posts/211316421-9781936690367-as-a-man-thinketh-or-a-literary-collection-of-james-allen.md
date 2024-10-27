@@ -1,7 +1,7 @@
 ---
 title: As A Man Thinketh or a Literary Collection of James Allen | Free Book
-date: 2024-10-25 15:41:54
-updated: 2024-10-26 12:16:50
+date: 2024-10-22T22:07:38.440Z
+updated: 2024-10-27T01:28:39.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/248ff0a7b9e07af0e32caa646619f524d734dd6393cb6417da0eed8a4ef7b576.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/248ff0a7b9e07af0e32caa646619f52
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

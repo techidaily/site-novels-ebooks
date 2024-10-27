@@ -1,7 +1,7 @@
 ---
 title: You Are a Great and Powerful Wizard | Free Book
-date: 2024-10-25 21:25:27
-updated: 2024-10-26 10:15:46
+date: 2024-10-25T03:00:57.829Z
+updated: 2024-10-26T21:47:58.398Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3531a386d52c83389bee5138d3ff3c97f5367875a493a47f6ec9eff20c3e6c4.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3531a386d52c83389bee5138d3ff3c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

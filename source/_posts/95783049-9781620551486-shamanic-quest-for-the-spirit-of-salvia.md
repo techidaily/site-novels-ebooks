@@ -1,7 +1,7 @@
 ---
 title: Shamanic Quest for the Spirit of Salvia | Free Book
-date: 2024-10-24 13:59:53
-updated: 2024-10-26 12:57:44
+date: 2024-10-23T22:14:25.770Z
+updated: 2024-10-26T21:02:04.231Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/701c9a199194850d2b7bac700cfdedd9a9d9d0b14fc4ec22b7550894ab273c45.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/701c9a199194850d2b7bac700cfdedd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

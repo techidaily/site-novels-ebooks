@@ -1,7 +1,7 @@
 ---
 title: Into Your Soul - A Beginner's Guide to Past Life Regression | Free Book
-date: 2024-10-24 21:37:13
-updated: 2024-10-26 12:24:52
+date: 2024-10-23T17:09:39.906Z
+updated: 2024-10-26T22:43:08.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2cb1c5b14c1c659f3433c100df4671ac63e3753650aa665f4bbe513dcc22c6ad.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2cb1c5b14c1c659f3433c100df4671a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

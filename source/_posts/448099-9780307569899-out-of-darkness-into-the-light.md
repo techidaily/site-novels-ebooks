@@ -1,7 +1,7 @@
 ---
 title: Out of Darkness into the Light | Free Book
-date: 2024-10-23 14:34:19
-updated: 2024-10-26 12:14:46
+date: 2024-10-23T21:19:16.234Z
+updated: 2024-10-26T18:50:56.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccb55f18a2426205e9ffece4097b7b532a48e8b999c71477468dfcceb80229e8.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccb55f18a2426205e9ffece4097b7b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: O's Little Guide to Finding Your True Purpose | Free Book
-date: 2024-10-23 20:16:31
-updated: 2024-10-26 11:36:52
+date: 2024-10-24T23:20:51.776Z
+updated: 2024-10-26T21:07:11.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6166d40c3199f5b7e54d87278b9a61dc48f87d1fba6b82ff1472329f43825d0a.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6166d40c3199f5b7e54d87278b9a61d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

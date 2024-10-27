@@ -1,7 +1,7 @@
 ---
 title: Quand la fragilité change tout | Free Book
-date: 2024-10-24 14:33:13
-updated: 2024-10-26 10:57:15
+date: 2024-10-25T05:40:02.508Z
+updated: 2024-10-27T01:44:26.425Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac89e49519f473600e05040ae420f8e6b51abe598c8a3ae340d71f83dd9e37d4.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac89e49519f473600e05040ae420f8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Pleiadian Initiations of Light | Free Book
-date: 2024-10-23 20:10:54
-updated: 2024-10-26 11:19:35
+date: 2024-10-19T17:58:38.552Z
+updated: 2024-10-26T21:39:54.017Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32e3f412c0c82be634d03d722d22ed92c051eb52c8648077ded501c44ff8ba97.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32e3f412c0c82be634d03d722d22ed9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

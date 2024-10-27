@@ -1,7 +1,7 @@
 ---
 title: The Little Encyclopedia of Mermaids | Free Book
-date: 2024-10-24 20:54:55
-updated: 2024-10-26 10:30:51
+date: 2024-10-22T05:41:37.205Z
+updated: 2024-10-26T21:40:46.720Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6d8c2185b1635a051c6502a53758aecf8912a892b104af17cf6e194071444a4.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6d8c2185b1635a051c6502a53758ae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Conversations with History | Free Book
-date: 2024-10-23 23:53:53
-updated: 2024-10-26 12:22:33
+date: 2024-10-21T18:14:39.390Z
+updated: 2024-10-26T16:57:35.941Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00ea87cac6bf77ef22d79ea38fb21edfce8369c7ed5d0c5d6128af4ea9730083.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00ea87cac6bf77ef22d79ea38fb21ed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

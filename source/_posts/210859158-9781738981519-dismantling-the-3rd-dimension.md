@@ -1,7 +1,7 @@
 ---
 title: Dismantling the 3rd Dimension | Free Book
-date: 2024-10-23 17:38:12
-updated: 2024-10-26 11:33:56
+date: 2024-10-20T22:22:03.649Z
+updated: 2024-10-26T21:41:31.433Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/458db3028bf16b246b73947659842681790b1e510be08b4caa188b543a3f2cd4.jpg
@@ -259,3 +259,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/458db3028bf16b246b7394765984268
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

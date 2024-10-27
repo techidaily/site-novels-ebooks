@@ -1,7 +1,7 @@
 ---
 title: Know Yourself, Forget Yourself | Free Book
-date: 2024-10-24 12:54:29
-updated: 2024-10-26 10:17:21
+date: 2024-10-24T00:48:31.980Z
+updated: 2024-10-26T23:41:53.542Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6805e0950c7ed0c6b5c3348e4b9898e9b909fd4d81457c29b4f3465976379950.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6805e0950c7ed0c6b5c3348e4b9898e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

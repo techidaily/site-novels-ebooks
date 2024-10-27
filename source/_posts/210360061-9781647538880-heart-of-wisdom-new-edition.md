@@ -1,7 +1,7 @@
 ---
 title: Heart Of Wisdom - New Edition | Free Book
-date: 2024-10-23 12:35:32
-updated: 2024-10-26 11:38:23
+date: 2024-10-21T22:46:09.797Z
+updated: 2024-10-27T01:13:00.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b72060ec2b7b6601945be04003cb9833108d322cc08ba16f36d524667cde705e.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b72060ec2b7b6601945be04003cb983
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

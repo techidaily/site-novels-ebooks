@@ -1,7 +1,7 @@
 ---
 title: Apples of Gold in Settings of Silver | Free Book
-date: 2024-10-25 20:42:10
-updated: 2024-10-26 10:50:13
+date: 2024-10-21T03:21:35.974Z
+updated: 2024-10-26T20:28:34.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93c80fdcd9bf7da4f48db04f4aff37b9fe16a5889a0e4b45ff9f876cbce8513c.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93c80fdcd9bf7da4f48db04f4aff37b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

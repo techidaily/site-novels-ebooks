@@ -1,7 +1,7 @@
 ---
 title: Witchcraft of New England Explained by Modern Spiritualism | Free Book
-date: 2024-10-25 13:19:54
-updated: 2024-10-26 12:44:57
+date: 2024-10-26T02:14:19.907Z
+updated: 2024-10-26T23:57:49.112Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ad34035362bf3fc99e25c7274a35213dff14c060883e2c0c9c9e41aa49ed1d1.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ad34035362bf3fc99e25c7274a3521
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

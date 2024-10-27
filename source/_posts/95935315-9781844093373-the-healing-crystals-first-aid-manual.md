@@ -1,7 +1,7 @@
 ---
 title: The Healing Crystals First Aid Manual | Free Book
-date: 2024-10-23 17:36:45
-updated: 2024-10-26 12:48:51
+date: 2024-10-24T01:07:41.714Z
+updated: 2024-10-27T05:19:02.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72b9d90114b95739ff6703061e7f187a9c45c7c38a5650824a4429a90153fd6b.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72b9d90114b95739ff6703061e7f187
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

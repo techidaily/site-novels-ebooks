@@ -1,7 +1,7 @@
 ---
 title: A Little Bit of Mindfulness | Free Book
-date: 2024-10-25 19:13:12
-updated: 2024-10-26 11:19:40
+date: 2024-10-25T04:52:28.150Z
+updated: 2024-10-26T21:45:30.264Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a5aa08047d6a51bf07d13040567d84d2c653a7667e35443db6b81e18a40ef5ef.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a5aa08047d6a51bf07d13040567d84d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

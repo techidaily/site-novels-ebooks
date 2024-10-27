@@ -1,7 +1,7 @@
 ---
 title: The Dream and Human Societies | Free Book
-date: 2024-10-23 18:45:38
-updated: 2024-10-26 12:59:50
+date: 2024-10-23T01:55:22.811Z
+updated: 2024-10-26T19:00:34.035Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7fb0d0caf64abe33f09d4b009a16075369ebc6591f474d18a3d61a1f879ace53.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7fb0d0caf64abe33f09d4b009a16075
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

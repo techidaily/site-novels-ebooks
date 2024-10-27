@@ -1,7 +1,7 @@
 ---
 title: Stumbling Down the Shamanic Path | Free Book
-date: 2024-10-25 11:46:41
-updated: 2024-10-26 10:20:26
+date: 2024-10-26T03:34:38.197Z
+updated: 2024-10-26T16:56:13.610Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adcabf1bf61de9bc23546efe03c9422137d290c1b832b152fae1f6e34dd87d3c.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adcabf1bf61de9bc23546efe03c9422
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

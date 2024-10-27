@@ -1,7 +1,7 @@
 ---
 title: Thomas Berry, Dreamer of the Earth | Free Book
-date: 2024-10-23 16:50:48
-updated: 2024-10-26 10:55:10
+date: 2024-10-21T00:19:17.012Z
+updated: 2024-10-26T20:20:36.531Z
 categories:
   - Nature
 thumbnail: https://thmb-001-ebook.techidaily.com/31e9b6721168225c6017956d5275f8282336fa9476b4333b92c02074ba0f9c66.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/31e9b6721168225c6017956d5275f82
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "The Courage to Love: Surviving and Thriving in Your Relationship | Free Book"
-date: 2024-10-25 20:15:58
-updated: 2024-10-26 10:17:26
+date: 2024-10-21T05:52:21.224Z
+updated: 2024-10-26T22:54:05.148Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1fc3788c5e6b26e7aa124d51639980bfd88441b145f11a004d721eaba0202a5e.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1fc3788c5e6b26e7aa124d51639980b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

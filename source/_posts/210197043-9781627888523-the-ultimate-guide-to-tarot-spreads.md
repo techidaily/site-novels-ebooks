@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Tarot Spreads | Free Book
-date: 2024-10-24 16:51:12
-updated: 2024-10-26 10:26:20
+date: 2024-10-19T17:42:38.836Z
+updated: 2024-10-26T16:42:46.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1407ff6fa0041e8ae207e04df94393a3345bf83a65b04b8c1c449a2db529680f.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1407ff6fa0041e8ae207e04df94393a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

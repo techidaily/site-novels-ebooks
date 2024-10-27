@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - The Triple Goddess | Free Book
-date: 2024-10-25 19:28:22
-updated: 2024-10-26 12:57:56
+date: 2024-10-24T01:42:02.848Z
+updated: 2024-10-27T03:04:39.097Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/97c5e6040b09ef375a4cd80c52b864f029d20dbbcc7a24558b29fbda459889f9.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/97c5e6040b09ef375a4cd80c52b864f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

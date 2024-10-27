@@ -1,7 +1,7 @@
 ---
 title: Conversations with Ernest | Free Book
-date: 2024-10-25 20:56:19
-updated: 2024-10-26 10:17:41
+date: 2024-10-23T01:56:00.801Z
+updated: 2024-10-27T02:19:27.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7fa9924d67e1df19adf4e14f96964501ff3a3c7d554dea64137ac0731a7d24f9.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7fa9924d67e1df19adf4e14f9696450
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

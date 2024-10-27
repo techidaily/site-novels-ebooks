@@ -1,7 +1,7 @@
 ---
 title: A Seven-Day Trip with the Earth | Free Book
-date: 2024-10-25 15:30:17
-updated: 2024-10-26 12:49:10
+date: 2024-10-23T16:40:30.842Z
+updated: 2024-10-27T01:31:38.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9dfaf42e612ffc82b9f5417b950feb6f2b9b1a300cc8eb02cdcfdb09c62ee48.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9dfaf42e612ffc82b9f5417b950feb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

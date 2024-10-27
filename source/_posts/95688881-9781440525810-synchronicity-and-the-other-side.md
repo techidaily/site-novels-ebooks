@@ -1,7 +1,7 @@
 ---
 title: Synchronicity and the Other Side | Free Book
-date: 2024-10-23 10:45:40
-updated: 2024-10-26 11:47:44
+date: 2024-10-19T18:03:54.103Z
+updated: 2024-10-26T18:14:39.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa436cc12327648519f243a866282d619c61ade922e876a0719d352ca8fb6baa.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa436cc12327648519f243a866282d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

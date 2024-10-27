@@ -1,7 +1,7 @@
 ---
 title: The Science of Premonitions | Free Book
-date: 2024-10-25 14:46:34
-updated: 2024-10-26 12:42:47
+date: 2024-10-23T23:40:35.527Z
+updated: 2024-10-26T17:24:38.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a7d17a46566b6821732244e42059611ad6589cd77aa6034e7bd3e414f3301d7.jpg
@@ -208,3 +208,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a7d17a46566b6821732244e4205961
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

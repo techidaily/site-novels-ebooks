@@ -1,7 +1,7 @@
 ---
 title: Quaker Quicks - A Simple Faith in a Complicated World | Free Book
-date: 2024-10-25 15:17:46
-updated: 2024-10-26 12:33:15
+date: 2024-10-20T19:40:08.535Z
+updated: 2024-10-26T19:42:15.451Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fabd960c634136a0128ac86f3fbd8323be67ad8679e0843de60353c855e002dd.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fabd960c634136a0128ac86f3fbd832
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Demon of Brownsville Road | Free Book
-date: 2024-10-25 23:54:30
-updated: 2024-10-26 10:18:58
+date: 2024-10-23T05:28:01.917Z
+updated: 2024-10-26T17:23:09.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1201b8d9b86c2dfb1f86d230ffd7d8d47c9869b7041ec30ab75b93456aa70551.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1201b8d9b86c2dfb1f86d230ffd7d8d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

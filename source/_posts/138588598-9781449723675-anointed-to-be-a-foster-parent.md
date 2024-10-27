@@ -1,7 +1,7 @@
 ---
 title: Anointed to Be a Foster Parent | Free Book
-date: 2024-10-23 18:14:26
-updated: 2024-10-26 10:19:38
+date: 2024-10-20T23:18:13.927Z
+updated: 2024-10-27T00:06:49.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac8130323235ec61143435fd730c57f45a1491c047679da198c6733a89af0fb3.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac8130323235ec61143435fd730c57f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

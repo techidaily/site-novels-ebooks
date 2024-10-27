@@ -1,7 +1,7 @@
 ---
 title: The Complete Guide to the Tarot | Free Book
-date: 2024-10-25 14:57:25
-updated: 2024-10-26 10:37:38
+date: 2024-10-25T17:10:04.078Z
+updated: 2024-10-27T02:12:19.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac9ec24947c7b1b858680ba45bc4f0e2bb787a0c3bad3339f2847808cf7d969a.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac9ec24947c7b1b858680ba45bc4f0e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

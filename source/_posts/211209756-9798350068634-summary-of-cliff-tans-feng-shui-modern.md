@@ -1,7 +1,7 @@
 ---
 title: Summary of Cliff Tan's Feng Shui Modern | Free Book
-date: 2024-10-24 10:12:59
-updated: 2024-10-26 12:44:40
+date: 2024-10-22T22:05:50.540Z
+updated: 2024-10-26T17:27:06.262Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5cd8bc5641c951ad607c4b74332088366dc899393aee0cd561166a730854145a.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5cd8bc5641c951ad607c4b743320883
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

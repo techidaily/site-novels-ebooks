@@ -1,7 +1,7 @@
 ---
 title: "The 4 C Heart: Curls, Kinks, & Knots of My Dry, Thirsty Single Soul: Words for Seasons | Free Book"
-date: 2024-10-25 22:26:59
-updated: 2024-10-26 12:19:47
+date: 2024-10-24T21:58:03.504Z
+updated: 2024-10-27T02:18:03.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22e691312d75120e704cc2d6b67e80c794914fb829f5b1e85a794b6ad5dfcb32.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22e691312d75120e704cc2d6b67e80c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

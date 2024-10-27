@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Fairy Herbs for Fairy Magic | Free Book
-date: 2024-10-23 16:28:54
-updated: 2024-10-26 11:40:16
+date: 2024-10-22T03:13:36.883Z
+updated: 2024-10-27T05:28:12.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a02a743c3e97ddd122b16a0d5090a5ad7e507c8da02073c4a4bd3d255b7081cb.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a02a743c3e97ddd122b16a0d5090a5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

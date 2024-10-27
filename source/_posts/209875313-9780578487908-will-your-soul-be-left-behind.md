@@ -1,7 +1,7 @@
 ---
 title: Will Your Soul Be Left Behind? | Free Book
-date: 2024-10-25 21:31:41
-updated: 2024-10-26 10:33:43
+date: 2024-10-25T00:43:19.221Z
+updated: 2024-10-26T21:05:06.177Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da81d6c8f58f78e77c1468174bae9e3451429848dd558bc32b0cbc6c4890a1f2.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da81d6c8f58f78e77c1468174bae9e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

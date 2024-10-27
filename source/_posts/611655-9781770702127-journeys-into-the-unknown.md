@@ -1,7 +1,7 @@
 ---
 title: Journeys into the Unknown | Free Book
-date: 2024-10-25 22:15:15
-updated: 2024-10-26 11:36:26
+date: 2024-10-21T23:08:10.085Z
+updated: 2024-10-26T19:04:39.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90a8608658f81bc5df6a380ac28deb7084df4f96f6100fc8e9af9d5d9100aa87.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90a8608658f81bc5df6a380ac28deb7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

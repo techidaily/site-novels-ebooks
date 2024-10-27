@@ -1,7 +1,7 @@
 ---
 title: Meditação - Aprenda A Como Meditar Para Paz Interior E Felicidade | Free Book
-date: 2024-10-23 21:49:36
-updated: 2024-10-26 11:15:41
+date: 2024-10-22T19:14:40.415Z
+updated: 2024-10-26T16:13:03.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd8e432ed0c4c3f8bbbe7cc55d0d822bf54ee56617d795be48371b7b21efdc33.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd8e432ed0c4c3f8bbbe7cc55d0d822
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

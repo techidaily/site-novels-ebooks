@@ -1,7 +1,7 @@
 ---
 title: African Goddess Initiation | Free Book
-date: 2024-10-25 12:43:59
-updated: 2024-10-26 10:17:52
+date: 2024-10-25T02:12:40.999Z
+updated: 2024-10-26T22:48:52.168Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90b822cf8384871b9efac961a43e3b5549f280262d7ffa90a4873d3fcb54316f.jpg
@@ -224,3 +224,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90b822cf8384871b9efac961a43e3b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

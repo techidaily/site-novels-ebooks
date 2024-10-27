@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Consciousness | Free Book
-date: 2024-10-25 23:55:17
-updated: 2024-10-26 12:24:54
+date: 2024-10-22T23:37:56.207Z
+updated: 2024-10-26T17:18:33.887Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f59a48527673701b3eb82b25e3bd45f162386b56434293a6d9d4ecdc7651886.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f59a48527673701b3eb82b25e3bd45
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

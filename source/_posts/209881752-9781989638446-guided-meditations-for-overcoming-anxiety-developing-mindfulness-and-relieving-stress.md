@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations for Overcoming Anxiety, Developing Mindfulness and Relieving Stress | Free Book
-date: 2024-10-25 17:58:28
-updated: 2024-10-26 12:34:30
+date: 2024-10-24T19:17:46.272Z
+updated: 2024-10-26T23:56:35.001Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cdffcbc927adac038e9fdd112cdc8b2e8e229ef290e4053e839b7acfdbdff7b.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cdffcbc927adac038e9fdd112cdc8b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

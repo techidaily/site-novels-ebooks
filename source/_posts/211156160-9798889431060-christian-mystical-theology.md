@@ -1,7 +1,7 @@
 ---
 title: Christian Mystical Theology | Free Book
-date: 2024-10-25 22:10:49
-updated: 2024-10-26 11:41:17
+date: 2024-10-25T20:08:28.686Z
+updated: 2024-10-26T22:10:20.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b35feb063719f27b9a14735243b03918d47cd66951af0be37edd7943c2e81e2.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b35feb063719f27b9a14735243b039
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

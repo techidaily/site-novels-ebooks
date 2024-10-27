@@ -1,7 +1,7 @@
 ---
 title: Perché essere felici è importante | Free Book
-date: 2024-10-23 12:32:19
-updated: 2024-10-26 12:44:27
+date: 2024-10-21T22:29:54.305Z
+updated: 2024-10-26T19:11:06.147Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9283590ac7761f2fd8533e7f2dbfd5ae35b30c071624279465845e24b72e2f60.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9283590ac7761f2fd8533e7f2dbfd5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

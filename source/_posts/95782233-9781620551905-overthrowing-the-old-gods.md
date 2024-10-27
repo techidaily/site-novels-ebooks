@@ -1,7 +1,7 @@
 ---
 title: Overthrowing the Old Gods | Free Book
-date: 2024-10-24 16:16:15
-updated: 2024-10-26 12:25:49
+date: 2024-10-20T05:06:11.056Z
+updated: 2024-10-27T01:39:40.113Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14c861e29c3ee14f95555ed167387ffa0aced0eb95514dd0d94c7b51a0fd8642.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14c861e29c3ee14f95555ed167387ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

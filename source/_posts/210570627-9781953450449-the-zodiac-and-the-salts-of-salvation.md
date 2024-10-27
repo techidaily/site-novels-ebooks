@@ -1,7 +1,7 @@
 ---
 title: The Zodiac and the Salts of Salvation | Free Book
-date: 2024-10-23 12:21:51
-updated: 2024-10-26 12:39:30
+date: 2024-10-21T23:04:16.115Z
+updated: 2024-10-26T23:13:57.152Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d1962460dd98ec91578a59b2b12c611a799791fc6fccb53f31265b64144deb7.jpg
@@ -205,3 +205,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d1962460dd98ec91578a59b2b12c61
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

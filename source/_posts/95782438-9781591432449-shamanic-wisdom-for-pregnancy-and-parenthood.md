@@ -1,7 +1,7 @@
 ---
 title: Shamanic Wisdom for Pregnancy and Parenthood | Free Book
-date: 2024-10-25 17:23:40
-updated: 2024-10-26 10:58:54
+date: 2024-10-20T01:14:54.715Z
+updated: 2024-10-26T22:16:22.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ae3c973a0c1b58b22c07db0885867629cd123b1d4d410631de62d93168954fe.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ae3c973a0c1b58b22c07db08858676
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

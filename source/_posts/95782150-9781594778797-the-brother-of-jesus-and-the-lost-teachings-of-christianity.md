@@ -1,7 +1,7 @@
 ---
 title: The Brother of Jesus and the Lost Teachings of Christianity | Free Book
-date: 2024-10-25 21:20:47
-updated: 2024-10-26 11:17:11
+date: 2024-10-26T03:25:36.643Z
+updated: 2024-10-26T17:05:28.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16685a598ea3f2f9e52f55a756d93024bda56bb8c7f9fcf7214ce35b75533e8f.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16685a598ea3f2f9e52f55a756d9302
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

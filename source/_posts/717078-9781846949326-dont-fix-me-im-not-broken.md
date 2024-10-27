@@ -1,7 +1,7 @@
 ---
 title: Don't Fix Me; I'm Not Broken | Free Book
-date: 2024-10-23 15:38:54
-updated: 2024-10-26 10:13:59
+date: 2024-10-24T05:24:55.252Z
+updated: 2024-10-26T22:12:08.754Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3dba63327330e65ab45fb76b9be0ad544a4ce41d737ccb3447578b1cd2ca6cac.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3dba63327330e65ab45fb76b9be0ad5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Devils and Demons | Free Book
-date: 2024-10-23 17:14:27
-updated: 2024-10-26 11:35:24
+date: 2024-10-22T01:37:34.385Z
+updated: 2024-10-27T01:41:52.184Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f1dda7f1a206b85f509c4a3f00e631d3a986134b49bbf0c89a7917ec962b3be8.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f1dda7f1a206b85f509c4a3f00e631d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

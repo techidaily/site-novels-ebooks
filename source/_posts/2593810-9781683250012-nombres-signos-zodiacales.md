@@ -1,7 +1,7 @@
 ---
 title: Nombres & signos zodiacales | Free Book
-date: 2024-10-24 15:11:36
-updated: 2024-10-26 10:54:57
+date: 2024-10-22T23:49:18.530Z
+updated: 2024-10-26T17:01:56.343Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26da381681ef720c85f9688bd7e1fd3d91fb79c49eeee93ffb92805238cf100b.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26da381681ef720c85f9688bd7e1fd3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

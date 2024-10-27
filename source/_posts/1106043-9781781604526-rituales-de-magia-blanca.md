@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-10-24 10:20:17
-updated: 2024-10-26 11:24:14
+date: 2024-10-23T20:52:30.183Z
+updated: 2024-10-26T16:35:38.288Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70e85709dafdfd03d0b5255645800421939511960c22d20b7e4228edbc0cf791.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70e85709dafdfd03d0b525564580042
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

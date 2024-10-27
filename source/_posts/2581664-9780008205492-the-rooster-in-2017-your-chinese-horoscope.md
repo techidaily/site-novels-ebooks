@@ -1,7 +1,7 @@
 ---
 title: "The Rooster in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 21:53:35
-updated: 2024-10-26 11:56:31
+date: 2024-10-25T19:58:24.308Z
+updated: 2024-10-26T18:17:42.060Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9990043ada87373155e4b28e4fec0753b804a025ad61b11a3adcbcbf60994519.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9990043ada87373155e4b28e4fec075
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

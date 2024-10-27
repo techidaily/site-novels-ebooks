@@ -1,7 +1,7 @@
 ---
 title: Ruth's Fables and Other Stories | Free Book
-date: 2024-10-25 23:22:28
-updated: 2024-10-26 12:45:16
+date: 2024-10-25T17:26:33.771Z
+updated: 2024-10-27T03:04:22.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/529caf7a6d5eb583c5d4ad646d07bf77e845bd503e355ac4c10111029da7641f.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/529caf7a6d5eb583c5d4ad646d07bf7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

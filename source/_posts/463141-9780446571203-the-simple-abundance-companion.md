@@ -1,7 +1,7 @@
 ---
 title: The Simple Abundance Companion | Free Book
-date: 2024-10-25 16:58:56
-updated: 2024-10-26 12:32:49
+date: 2024-10-23T05:48:30.714Z
+updated: 2024-10-26T17:14:24.424Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a894abf24a53ff0cdf5ff040d04aa1c1775c0e99d9a4a897c78fc7b8d13544c7.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a894abf24a53ff0cdf5ff040d04aa1c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

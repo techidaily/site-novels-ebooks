@@ -1,7 +1,7 @@
 ---
 title: The Struggle for Your Mind | Free Book
-date: 2024-10-24 13:11:57
-updated: 2024-10-26 12:57:20
+date: 2024-10-24T18:59:30.412Z
+updated: 2024-10-26T22:01:14.917Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e80c867f6ba18bec40c1af1f1330e955ec2063d097fa12a50050850808cca797.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e80c867f6ba18bec40c1af1f1330e95
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

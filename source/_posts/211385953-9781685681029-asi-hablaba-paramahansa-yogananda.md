@@ -1,7 +1,7 @@
 ---
 title: Así hablaba Paramahansa Yogananda | Free Book
-date: 2024-10-24 16:52:58
-updated: 2024-10-26 10:11:54
+date: 2024-10-21T00:11:29.931Z
+updated: 2024-10-26T23:05:51.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dabc7a8e01d6821819395fa1fe3ec8e0882773e7b8385f8ab5e39077171ecd0a.jpg
@@ -469,3 +469,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dabc7a8e01d6821819395fa1fe3ec8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

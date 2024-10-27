@@ -1,7 +1,7 @@
 ---
 title: O's Little Guide to Starting Over | Free Book
-date: 2024-10-24 22:45:37
-updated: 2024-10-26 11:33:27
+date: 2024-10-26T03:44:13.257Z
+updated: 2024-10-26T18:37:51.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ae8bad4f68c81063f0c4ab18da86fc9bac4608ccd420bc300c02ee5f1162bc6.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ae8bad4f68c81063f0c4ab18da86fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

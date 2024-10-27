@@ -1,7 +1,7 @@
 ---
 title: The Upside Down Mountain | Free Book
-date: 2024-10-23 19:17:16
-updated: 2024-10-26 12:23:50
+date: 2024-10-19T21:05:03.526Z
+updated: 2024-10-27T02:37:41.445Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a4bff240b8247181fccc76179ee123f83b378ed3d4bcbe831ad3971b76d2790.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a4bff240b8247181fccc76179ee123
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

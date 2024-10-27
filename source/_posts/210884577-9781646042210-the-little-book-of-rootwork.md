@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Rootwork | Free Book
-date: 2024-10-23 16:24:36
-updated: 2024-10-26 10:56:41
+date: 2024-10-21T16:36:36.795Z
+updated: 2024-10-27T00:53:44.854Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8749ed38f060bb4102a4d7748ba33075001a1b89efa2f18962415086f4c5e76a.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8749ed38f060bb4102a4d7748ba3307
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

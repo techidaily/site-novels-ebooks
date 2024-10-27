@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Crystals | Free Book
-date: 2024-10-24 21:25:57
-updated: 2024-10-26 11:54:23
+date: 2024-10-20T16:33:06.278Z
+updated: 2024-10-27T04:56:33.409Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d939b45a5ec1ed6bdcd602c53da68cfc40128fb39db0143c86982b98e048d3f0.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d939b45a5ec1ed6bdcd602c53da68cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

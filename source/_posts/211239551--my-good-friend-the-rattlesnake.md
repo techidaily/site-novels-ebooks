@@ -1,7 +1,7 @@
 ---
 title: My Good Friend the Rattlesnake | Free Book
-date: 2024-10-23 20:13:38
-updated: 2024-10-26 10:25:43
+date: 2024-10-22T00:33:46.012Z
+updated: 2024-10-26T23:04:42.286Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2048669981ee21a987928721ca1288b9e792751a4661c00077b0f8bbfaff1f21.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2048669981ee21a987928721ca1288b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Light Through My Tunnel | Free Book
-date: 2024-10-23 10:30:33
-updated: 2024-10-26 12:18:16
+date: 2024-10-25T20:52:57.172Z
+updated: 2024-10-26T22:27:05.795Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd8821b600ea8c90c331c7a1cb6d951aa69558a52b71a69fa5c392545816286b.jpg
@@ -219,3 +219,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd8821b600ea8c90c331c7a1cb6d951
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

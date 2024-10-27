@@ -1,7 +1,7 @@
 ---
 title: I Don't Know What to Believe | Free Book
-date: 2024-10-25 16:59:14
-updated: 2024-10-26 10:53:19
+date: 2024-10-24T05:34:59.609Z
+updated: 2024-10-27T04:38:22.906Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152bb6c16e86aeec1f648f85b672402b361fa.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

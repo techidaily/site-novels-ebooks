@@ -1,7 +1,7 @@
 ---
 title: Unconditional Forgiveness | Free Book
-date: 2024-10-24 23:52:12
-updated: 2024-10-26 12:42:40
+date: 2024-10-20T04:33:58.680Z
+updated: 2024-10-26T21:44:16.109Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17bb53d217d9820e7e932b3630e43de6d2d9bba855eee965144e717df59d0321.jpg
@@ -213,3 +213,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17bb53d217d9820e7e932b3630e43de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

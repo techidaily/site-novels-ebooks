@@ -1,7 +1,7 @@
 ---
 title: Extreme Weight Loss Hypnosis | Free Book
-date: 2024-10-24 12:23:38
-updated: 2024-10-26 12:33:11
+date: 2024-10-20T21:02:47.343Z
+updated: 2024-10-27T04:50:45.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71ed05e0e638556b5785642369285a186a7197be65b3dcf54dbd151ca797372e.jpg
@@ -223,3 +223,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71ed05e0e638556b5785642369285a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

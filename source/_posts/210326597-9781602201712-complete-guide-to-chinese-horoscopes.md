@@ -1,7 +1,7 @@
 ---
 title: Complete Guide to Chinese Horoscopes | Free Book
-date: 2024-10-24 14:44:50
-updated: 2024-10-26 11:25:16
+date: 2024-10-20T20:39:02.969Z
+updated: 2024-10-26T18:32:10.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/366795d056807e19fdd4852f8950d8ef470cad12f857ffb5ae6517b19a9e1a81.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/366795d056807e19fdd4852f8950d8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

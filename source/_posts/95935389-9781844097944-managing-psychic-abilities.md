@@ -1,7 +1,7 @@
 ---
 title: Managing Psychic Abilities | Free Book
-date: 2024-10-24 23:20:15
-updated: 2024-10-26 11:11:53
+date: 2024-10-24T03:21:41.545Z
+updated: 2024-10-26T18:44:01.746Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb6b3511e9d3a1e85102c0852212d6af24f85d4e9381a88ed1a816909b1c6c57.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb6b3511e9d3a1e85102c0852212d6a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

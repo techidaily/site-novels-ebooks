@@ -1,7 +1,7 @@
 ---
 title: Perfekte WORTE, perfekte WERKE und perfekte WUNDER | Free Book
-date: 2024-10-24 14:37:49
-updated: 2024-10-26 10:31:24
+date: 2024-10-22T04:29:05.630Z
+updated: 2024-10-26T23:19:57.169Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/001ddd369fa94dd2a04768c65c4190a56030bf5a35e6fd4ab2af1fd2d1d544aa.jpg
@@ -237,3 +237,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/001ddd369fa94dd2a04768c65c4190a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

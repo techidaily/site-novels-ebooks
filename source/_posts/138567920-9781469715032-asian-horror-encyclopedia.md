@@ -1,7 +1,7 @@
 ---
 title: Asian Horror Encyclopedia | Free Book
-date: 2024-10-24 12:40:21
-updated: 2024-10-26 12:47:15
+date: 2024-10-25T22:25:55.173Z
+updated: 2024-10-26T16:46:42.487Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb1c2bb6581760d011e941786e956906a358578c756d8baaf4fffda6514518b5.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb1c2bb6581760d011e941786e95690
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret Language of Your Name | Free Book
-date: 2024-10-24 19:30:53
-updated: 2024-10-26 10:13:46
+date: 2024-10-22T23:19:40.052Z
+updated: 2024-10-26T20:37:54.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/350b9ee145f781c8376e23f561346460bdc4a261337c7330e018ea61dd68f52a.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/350b9ee145f781c8376e23f56134646
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

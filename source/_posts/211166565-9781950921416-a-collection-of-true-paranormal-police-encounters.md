@@ -1,7 +1,7 @@
 ---
 title: A Collection of True Paranormal Police Encounters | Free Book
-date: 2024-10-25 13:59:59
-updated: 2024-10-26 10:43:43
+date: 2024-10-19T18:03:52.927Z
+updated: 2024-10-27T00:17:17.264Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/733a59ff7eaa063399bd9e2838433eeeab2374fd775b193c10306bb3034f2b96.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/733a59ff7eaa063399bd9e2838433ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

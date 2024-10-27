@@ -1,7 +1,7 @@
 ---
 title: Healing Plants and Animals from a Distance | Free Book
-date: 2024-10-25 13:12:39
-updated: 2024-10-26 11:33:18
+date: 2024-10-19T23:44:00.754Z
+updated: 2024-10-27T05:55:58.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9f2598ba75f01a5143b82cefb14f9aaf9cc9b26ee2d93b53be5a1afcc768f44.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9f2598ba75f01a5143b82cefb14f9a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

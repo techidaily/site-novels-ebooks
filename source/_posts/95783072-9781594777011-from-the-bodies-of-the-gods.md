@@ -1,7 +1,7 @@
 ---
 title: From the Bodies of the Gods | Free Book
-date: 2024-10-24 20:52:17
-updated: 2024-10-26 12:40:17
+date: 2024-10-22T05:47:49.008Z
+updated: 2024-10-26T19:09:13.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4595ce222f3781fb0226a9e91638b32a8f35c1f772b7af8cc4c2ceeee5d21a2e.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4595ce222f3781fb0226a9e91638b32
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

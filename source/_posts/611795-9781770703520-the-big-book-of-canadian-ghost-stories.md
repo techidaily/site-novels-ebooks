@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Canadian Ghost Stories | Free Book
-date: 2024-10-23 16:44:57
-updated: 2024-10-26 10:14:50
+date: 2024-10-26T05:02:55.356Z
+updated: 2024-10-27T03:35:24.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/723d5c01c5e3f913cc00cffec8167d9eafb081b27b6058d8b2679a210571436b.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/723d5c01c5e3f913cc00cffec8167d9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

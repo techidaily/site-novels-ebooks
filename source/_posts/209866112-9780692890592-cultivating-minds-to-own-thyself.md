@@ -1,7 +1,7 @@
 ---
 title: Cultivating Minds To Own Thyself | Free Book
-date: 2024-10-25 18:28:50
-updated: 2024-10-26 11:19:13
+date: 2024-10-19T18:03:20.917Z
+updated: 2024-10-26T19:09:17.178Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6bf87ceb4efe5eb3b4462265eb387de00d60999cd21ac4c423094a7f1084d0f6.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6bf87ceb4efe5eb3b4462265eb387de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

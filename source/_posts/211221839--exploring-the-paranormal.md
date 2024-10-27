@@ -1,7 +1,7 @@
 ---
 title: Exploring the Paranormal | Free Book
-date: 2024-10-24 17:14:30
-updated: 2024-10-26 12:49:37
+date: 2024-10-25T20:54:48.437Z
+updated: 2024-10-27T04:18:33.333Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e9d0bfeb7d5b4a1cd52e685c028701f967e4685e6522c3384fac6f9f010e039c.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e9d0bfeb7d5b4a1cd52e685c028701f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

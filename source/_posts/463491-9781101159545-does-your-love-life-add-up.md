@@ -1,7 +1,7 @@
 ---
 title: Does Your Love Life Add Up? | Free Book
-date: 2024-10-25 23:56:27
-updated: 2024-10-26 12:20:28
+date: 2024-10-23T17:25:49.417Z
+updated: 2024-10-26T19:13:18.595Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccdab29f6fbffb6b5eaed57ffddb3e6d8fbf031f7a2accabdddf07ec18e6eb2e.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccdab29f6fbffb6b5eaed57ffddb3e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Lasciapassare per il Flipside | Free Book
-date: 2024-10-25 13:26:51
-updated: 2024-10-26 10:31:14
+date: 2024-10-24T19:47:26.574Z
+updated: 2024-10-26T21:27:24.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18a676b09ad8732af370a20ca7feee5d58c0db31a379d0137da6ead471ac9afd.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18a676b09ad8732af370a20ca7feee5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

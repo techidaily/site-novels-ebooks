@@ -1,7 +1,7 @@
 ---
 title: The Cloud Upon the Sanctuary | Free Book
-date: 2024-10-23 19:40:32
-updated: 2024-10-26 12:39:58
+date: 2024-10-24T04:24:39.027Z
+updated: 2024-10-26T16:30:28.800Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/022c48013301e0b08cf997119bda67d912db780c14eb369996725f3cf2bfc3bb.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/022c48013301e0b08cf997119bda67d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

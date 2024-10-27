@@ -1,7 +1,7 @@
 ---
 title: A Sacred Way to Gain Freedom from Multi-Generational Curses | Free Book
-date: 2024-10-25 12:51:59
-updated: 2024-10-26 10:12:28
+date: 2024-10-22T22:22:11.383Z
+updated: 2024-10-26T16:06:01.084Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7128649b8ecf40a2d6b45503357f5704829f2e9f3a7ae7695a475429f6483bfd.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7128649b8ecf40a2d6b45503357f570
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

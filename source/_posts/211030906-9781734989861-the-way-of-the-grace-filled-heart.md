@@ -1,7 +1,7 @@
 ---
 title: The Way of the Grace-filled Heart | Free Book
-date: 2024-10-24 18:29:15
-updated: 2024-10-26 12:37:22
+date: 2024-10-23T04:23:56.228Z
+updated: 2024-10-27T05:57:16.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b5b780517d4e3c0f5978e500b0c53aa506735fa4c92ddcacad3cb486d3a0aeae.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b5b780517d4e3c0f5978e500b0c53aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

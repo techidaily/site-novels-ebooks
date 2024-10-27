@@ -1,7 +1,7 @@
 ---
 title: The Ghost That Closed Down The Town | Free Book
-date: 2024-10-24 11:12:10
-updated: 2024-10-26 11:51:48
+date: 2024-10-21T20:39:13.104Z
+updated: 2024-10-26T17:25:07.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14abed541367d847f90affc753fefa36e3cde904401269078a4bf0d2b2a21fbc.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14abed541367d847f90affc753fefa3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

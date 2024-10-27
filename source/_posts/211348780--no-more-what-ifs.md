@@ -1,7 +1,7 @@
 ---
 title: No More What Ifs | Free Book
-date: 2024-10-23 13:21:49
-updated: 2024-10-26 11:47:59
+date: 2024-10-23T02:02:59.598Z
+updated: 2024-10-27T02:34:34.166Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba052dbefe86e924a9eb02c06194bf587f792b0990dfcec31adf1ab758260037.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba052dbefe86e924a9eb02c06194bf5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

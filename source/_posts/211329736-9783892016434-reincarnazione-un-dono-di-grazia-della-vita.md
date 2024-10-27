@@ -1,7 +1,7 @@
 ---
 title: Reincarnazione. Un dono di grazia della vita | Free Book
-date: 2024-10-25 20:38:47
-updated: 2024-10-26 10:40:49
+date: 2024-10-22T22:48:24.428Z
+updated: 2024-10-27T05:22:35.212Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/768bb1559f17a031888ee9bdb07be68673a36929ea096c32fff82c1b3867f081.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/768bb1559f17a031888ee9bdb07be68
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

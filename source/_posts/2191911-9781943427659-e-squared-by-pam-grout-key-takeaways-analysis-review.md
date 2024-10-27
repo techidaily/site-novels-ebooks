@@ -1,7 +1,7 @@
 ---
 title: "E-Squared: by Pam Grout | Key Takeaways, Analysis & Review | Free Book"
-date: 2024-10-23 22:58:35
-updated: 2024-10-26 10:30:17
+date: 2024-10-24T01:36:49.672Z
+updated: 2024-10-27T03:34:01.634Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/11570ba9fbe68be133889e7e40bb63c87fdf0d9ae11ed10a9c1d68d98180b26a.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/11570ba9fbe68be133889e7e40bb63c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

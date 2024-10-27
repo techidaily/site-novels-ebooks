@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - Trees of the Goddess | Free Book
-date: 2024-10-24 13:21:57
-updated: 2024-10-26 12:42:29
+date: 2024-10-24T04:00:08.609Z
+updated: 2024-10-27T01:23:05.268Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d644ff40ae76a950046ec1dee9831b37584418cc678c22ee52dc621525465c47.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d644ff40ae76a950046ec1dee9831b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

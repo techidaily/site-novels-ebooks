@@ -1,7 +1,7 @@
 ---
 title: Meeting Place of the Dead | Free Book
-date: 2024-10-25 13:39:42
-updated: 2024-10-26 12:37:46
+date: 2024-10-22T19:08:57.846Z
+updated: 2024-10-27T00:52:15.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4bd71aea2ea873bf2dbe1d778f26f21b9a6fc7f87de6cc55316f59c4b10acbd.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4bd71aea2ea873bf2dbe1d778f26f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

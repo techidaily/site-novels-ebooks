@@ -1,7 +1,7 @@
 ---
 title: The Hidden Teaching Beyond Yoga | Free Book
-date: 2024-10-23 16:56:17
-updated: 2024-10-26 12:52:59
+date: 2024-10-21T16:14:54.823Z
+updated: 2024-10-27T05:01:12.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75cbc2f615c8594eaadf24484132d205fcc95e67953e880c63b165cc9770d848.jpg
@@ -224,3 +224,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75cbc2f615c8594eaadf24484132d20
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

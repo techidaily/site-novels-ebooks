@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry of the Earth | Free Book
-date: 2024-10-23 14:58:25
-updated: 2024-10-26 11:37:19
+date: 2024-10-21T02:30:39.589Z
+updated: 2024-10-27T03:05:59.976Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a62a2003d805d826f3aabb672b669753f110cfdbf1120d51629ae9c695f20945.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a62a2003d805d826f3aabb672b66975
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

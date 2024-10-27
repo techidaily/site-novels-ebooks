@@ -1,7 +1,7 @@
 ---
 title: The Witch's Way Home | Free Book
-date: 2024-10-25 11:22:51
-updated: 2024-10-26 10:31:53
+date: 2024-10-21T19:19:13.810Z
+updated: 2024-10-27T00:46:48.257Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fee77bee1fdeacc2d7fce19d0dad10fd9bec8a6e12ec0a59651a4cff620d700a.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fee77bee1fdeacc2d7fce19d0dad10f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

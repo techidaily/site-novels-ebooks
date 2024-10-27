@@ -1,7 +1,7 @@
 ---
 title: Eliphas Lévi and the French Occult Revival | Free Book
-date: 2024-10-24 17:24:30
-updated: 2024-10-26 10:58:25
+date: 2024-10-20T04:53:30.488Z
+updated: 2024-10-26T21:14:06.529Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d615fed2bb8b86cd85b8daa36212a8a0b0ebd6669325576ee2879a0c77e45a1b.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d615fed2bb8b86cd85b8daa36212a8a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

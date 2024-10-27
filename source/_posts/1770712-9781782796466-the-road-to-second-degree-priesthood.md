@@ -1,7 +1,7 @@
 ---
 title: The Road to Second Degree Priesthood | Free Book
-date: 2024-10-23 18:32:36
-updated: 2024-10-26 12:19:42
+date: 2024-10-22T20:32:45.609Z
+updated: 2024-10-27T05:29:59.351Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8fd4bd802c0c96912e7e8bfdc367f4056bd7114504cc62d90df28c9a600f32a3.jpg
@@ -120,3 +120,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8fd4bd802c0c96912e7e8bfdc367f40
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

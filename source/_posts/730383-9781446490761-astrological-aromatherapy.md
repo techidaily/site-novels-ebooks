@@ -1,7 +1,7 @@
 ---
 title: Astrological Aromatherapy | Free Book
-date: 2024-10-25 23:41:33
-updated: 2024-10-26 11:19:45
+date: 2024-10-25T05:38:46.239Z
+updated: 2024-10-27T01:55:37.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84f5a3447b9d8ced5561630b38ad2f29077fc6e86a7901ae8940cf12fdbf70ad.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84f5a3447b9d8ced5561630b38ad2f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

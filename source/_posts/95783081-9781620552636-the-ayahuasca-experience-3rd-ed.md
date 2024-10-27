@@ -1,7 +1,7 @@
 ---
 title: The Ayahuasca Experience (3rd ed.) | Free Book
-date: 2024-10-24 22:23:11
-updated: 2024-10-26 12:49:43
+date: 2024-10-23T18:13:15.208Z
+updated: 2024-10-26T18:49:46.689Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4dc28c065e43220ac6c40f9137e190756fd4149fe986e0d0720140edbd9f7d44.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4dc28c065e43220ac6c40f9137e1907
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

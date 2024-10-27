@@ -1,7 +1,7 @@
 ---
 title: Physical Body Ascension to the New Earth | Free Book
-date: 2024-10-25 23:12:43
-updated: 2024-10-26 11:32:54
+date: 2024-10-19T16:50:27.323Z
+updated: 2024-10-26T22:17:26.695Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a37b400efc9eb10b0a7ffd3d364af86ddfa47efa352e5675625a1ea59ab52543.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a37b400efc9eb10b0a7ffd3d364af86
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

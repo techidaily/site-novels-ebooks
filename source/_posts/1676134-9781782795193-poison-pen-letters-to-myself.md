@@ -1,7 +1,7 @@
 ---
 title: Poison Pen Letters to Myself | Free Book
-date: 2024-10-23 15:17:52
-updated: 2024-10-26 12:57:59
+date: 2024-10-22T17:35:21.783Z
+updated: 2024-10-26T21:22:26.194Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/802fcafb978ec4394dd39001b0ff41fcf3546a432b27421192bbe2eb65a6f5e3.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/802fcafb978ec4394dd39001b0ff41f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

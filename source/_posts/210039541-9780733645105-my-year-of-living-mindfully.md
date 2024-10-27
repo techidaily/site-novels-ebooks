@@ -1,7 +1,7 @@
 ---
 title: My Year of Living Mindfully | Free Book
-date: 2024-10-25 11:54:53
-updated: 2024-10-26 11:33:22
+date: 2024-10-21T19:03:01.008Z
+updated: 2024-10-26T21:54:19.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4fedc47dd890bf1d59341b623d77e8c042249784e5a98a93a3902571b6f63e2.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4fedc47dd890bf1d59341b623d77e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Vagus Nerve Exercises To Rewire Your Brain | Free Book
-date: 2024-10-23 15:25:29
-updated: 2024-10-26 10:49:36
+date: 2024-10-21T00:43:03.057Z
+updated: 2024-10-26T16:50:54.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33582385739ff13a50d674149882779b62ef67fd361a6c7874e19056ad1cc33a.jpg
@@ -217,3 +217,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33582385739ff13a50d674149882779
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "The Monkey in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-24 22:44:13
-updated: 2024-10-26 12:44:25
+date: 2024-10-22T21:36:49.513Z
+updated: 2024-10-27T02:50:21.451Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/25a85cfcc877edffeec5bceca2f440eae7e13e08316c91cb3dc14710d517063a.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25a85cfcc877edffeec5bceca2f440e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Not Sparing the Child: Human Sacrifice in the Ancient World and Beyond | Free Book"
-date: 2024-10-25 10:35:45
-updated: 2024-10-26 11:56:17
+date: 2024-10-21T22:51:48.660Z
+updated: 2024-10-26T23:15:01.424Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cfce9a3fbd839c683bed7ff1c5c0099bbf7d7f2de7a18d10958beb7f020cb6fc.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cfce9a3fbd839c683bed7ff1c5c0099
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

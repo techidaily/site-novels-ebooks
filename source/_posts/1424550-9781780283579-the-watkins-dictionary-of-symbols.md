@@ -1,7 +1,7 @@
 ---
 title: The Watkins Dictionary of Symbols | Free Book
-date: 2024-10-23 12:51:49
-updated: 2024-10-26 11:27:12
+date: 2024-10-19T16:17:21.538Z
+updated: 2024-10-27T02:44:58.230Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22ccac8fc42cbdfd5e458a4c32736c89e5ec7eaf16f59f7d866f4827ff8e6b1c.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22ccac8fc42cbdfd5e458a4c32736c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

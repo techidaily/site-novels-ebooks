@@ -1,7 +1,7 @@
 ---
 title: Thirteen Pathways of Occult Herbalism | Free Book
-date: 2024-10-25 13:21:28
-updated: 2024-10-26 11:29:50
+date: 2024-10-19T18:43:49.429Z
+updated: 2024-10-26T20:28:17.448Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01e7487fd169f1de6f02fc9bf6fb12865ca2cf1a0a7904787504da15dfd45ce5.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01e7487fd169f1de6f02fc9bf6fb128
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

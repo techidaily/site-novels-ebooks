@@ -1,7 +1,7 @@
 ---
 title: Adventures Beyond the Body | Free Book
-date: 2024-10-25 13:48:29
-updated: 2024-10-26 10:50:21
+date: 2024-10-23T00:22:37.521Z
+updated: 2024-10-27T03:43:24.532Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0d756a8506dc8f6a0c944a842853c3eed48ac2bfa5ddf23b6d65a4b4bf87f57.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0d756a8506dc8f6a0c944a842853c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

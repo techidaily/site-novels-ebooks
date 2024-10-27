@@ -1,7 +1,7 @@
 ---
 title: What, If Anything, Is Out There? | Free Book
-date: 2024-10-25 18:49:45
-updated: 2024-10-26 11:28:50
+date: 2024-10-24T02:38:04.468Z
+updated: 2024-10-26T22:58:01.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eead72c812cec2c4012cd02be8c44a90db0184f42f2a000d47bc7a84b95b3bcc.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eead72c812cec2c4012cd02be8c44a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

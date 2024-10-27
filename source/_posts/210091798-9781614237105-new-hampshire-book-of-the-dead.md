@@ -1,7 +1,7 @@
 ---
 title: New Hampshire Book of the Dead | Free Book
-date: 2024-10-25 17:53:43
-updated: 2024-10-26 12:32:10
+date: 2024-10-21T04:42:52.807Z
+updated: 2024-10-27T03:14:00.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b4ae2f9a3e4d477026b2f5a91239ace2b0cda41dadd2abd313ec82a07501c7ba.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b4ae2f9a3e4d477026b2f5a91239ace
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

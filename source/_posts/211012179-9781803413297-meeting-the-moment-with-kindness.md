@@ -1,7 +1,7 @@
 ---
 title: Meeting the Moment with Kindness | Free Book
-date: 2024-10-25 19:30:43
-updated: 2024-10-26 11:47:35
+date: 2024-10-20T20:48:55.911Z
+updated: 2024-10-27T00:27:27.162Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/13277e1fc6c98118c8d7a1fdf3619873dc0b0bc6330b8937ba301a78c9c5d507.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/13277e1fc6c98118c8d7a1fdf361987
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

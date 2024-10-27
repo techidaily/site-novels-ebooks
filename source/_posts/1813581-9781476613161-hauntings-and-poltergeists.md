@@ -1,7 +1,7 @@
 ---
 title: Hauntings and Poltergeists | Free Book
-date: 2024-10-24 10:12:37
-updated: 2024-10-26 12:40:49
+date: 2024-10-24T22:41:55.431Z
+updated: 2024-10-26T19:01:24.553Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9cebab9b03a8e895a2faf1ef0abdb349027de8ea970d349d65c3072f29ac3587.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9cebab9b03a8e895a2faf1ef0abdb34
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

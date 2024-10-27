@@ -1,7 +1,7 @@
 ---
 title: Faire les bons choix grâce au Yi-King | Free Book
-date: 2024-10-23 22:34:50
-updated: 2024-10-26 11:47:59
+date: 2024-10-21T02:10:43.142Z
+updated: 2024-10-26T16:23:13.787Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bf547add26f87467678c1951070e53347340d21b7cddb9c37a0b3f1df020ec32.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bf547add26f87467678c1951070e533
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

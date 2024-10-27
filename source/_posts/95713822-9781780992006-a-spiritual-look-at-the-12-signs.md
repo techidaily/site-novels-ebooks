@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Look at the 12 Signs | Free Book
-date: 2024-10-23 17:24:27
-updated: 2024-10-26 11:36:57
+date: 2024-10-21T17:54:41.039Z
+updated: 2024-10-27T01:54:56.393Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51d983ff89367e346823e0710fbb963eff770d0c90ada7a7e649fe8b5d35d9b9.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51d983ff89367e346823e0710fbb963
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

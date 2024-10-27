@@ -1,7 +1,7 @@
 ---
 title: Bringing Forth Soul Consciousness | Free Book
-date: 2024-10-25 12:36:51
-updated: 2024-10-26 10:38:53
+date: 2024-10-25T00:46:24.757Z
+updated: 2024-10-26T17:27:57.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4457db8c995ba41be1a0b922924235ca68ae7d57fb5427c93c9515ce0bef51d9.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4457db8c995ba41be1a0b922924235c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

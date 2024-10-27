@@ -1,7 +1,7 @@
 ---
 title: La conciencia sin fronteras | Free Book
-date: 2024-10-25 17:21:40
-updated: 2024-10-26 11:14:55
+date: 2024-10-23T22:43:15.577Z
+updated: 2024-10-26T17:18:21.877Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a7e9e667c68edd63eea13c287cb3788c9e95edc81822723a9d9e9681334771f.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a7e9e667c68edd63eea13c287cb378
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

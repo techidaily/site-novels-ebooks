@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations for Sleep, Relaxation, Stress Reduction and Anxiety Relief | Free Book
-date: 2024-10-24 11:50:59
-updated: 2024-10-26 12:35:45
+date: 2024-10-20T17:17:32.302Z
+updated: 2024-10-26T18:08:16.536Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee2ef24baf5678b230c7028c616d15ec56c75e305f6513cf48ebc93d102d62c.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee2ef24baf5678b230c7028c616d15
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

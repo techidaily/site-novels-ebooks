@@ -1,7 +1,7 @@
 ---
 title: Plaidoyer pour une dimension psychologique et spirituelle de la retraite | Free Book
-date: 2024-10-24 17:41:31
-updated: 2024-10-26 11:58:52
+date: 2024-10-24T04:01:47.164Z
+updated: 2024-10-26T18:03:25.262Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8c2fe6287e47ed73e2f5530fa8641edc9b524d939769acf4c8d0f39fd2c5427.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8c2fe6287e47ed73e2f5530fa8641e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

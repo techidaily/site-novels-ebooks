@@ -1,7 +1,7 @@
 ---
 title: The Soul Searcher's Handbook | Free Book
-date: 2024-10-23 19:47:12
-updated: 2024-10-26 11:44:51
+date: 2024-10-23T21:23:49.455Z
+updated: 2024-10-26T18:26:58.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a6d03cbd77875e601dec927ce791952cc42a80ed788a71f39efbb2c7c758835.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a6d03cbd77875e601dec927ce79195
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

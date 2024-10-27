@@ -1,7 +1,7 @@
 ---
 title: Shamanic Egyptian Astrology | Free Book
-date: 2024-10-24 11:39:24
-updated: 2024-10-26 10:30:25
+date: 2024-10-24T19:53:15.645Z
+updated: 2024-10-26T18:17:52.150Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd14aebebf4cf86bc3a55df1c5792b5327314cda6719f0cb16df00eea2384dea.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd14aebebf4cf86bc3a55df1c5792b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

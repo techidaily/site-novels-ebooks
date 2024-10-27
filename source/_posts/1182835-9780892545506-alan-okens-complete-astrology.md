@@ -1,7 +1,7 @@
 ---
 title: Alan Oken's Complete Astrology | Free Book
-date: 2024-10-23 21:50:51
-updated: 2024-10-26 12:34:32
+date: 2024-10-19T16:43:59.434Z
+updated: 2024-10-27T05:25:41.210Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bb920259896a89ca947d8d0c5f478fc866e9d694453acfd3c4d2c146cb002ec.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bb920259896a89ca947d8d0c5f478f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

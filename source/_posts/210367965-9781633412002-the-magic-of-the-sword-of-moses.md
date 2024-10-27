@@ -1,7 +1,7 @@
 ---
 title: The Magic of the Sword of Moses | Free Book
-date: 2024-10-24 23:20:47
-updated: 2024-10-26 12:58:13
+date: 2024-10-26T03:11:00.694Z
+updated: 2024-10-26T17:54:37.685Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d40e72f489d1f0d0d298332a3ce534a0e043fc8ba6d488dadd052d0e1b24efe.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d40e72f489d1f0d0d298332a3ce534
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

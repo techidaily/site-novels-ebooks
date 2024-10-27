@@ -1,7 +1,7 @@
 ---
 title: Traditional Chinese Medicine Approaches to Cancer | Free Book
-date: 2024-10-25 17:59:42
-updated: 2024-10-26 12:15:26
+date: 2024-10-21T20:41:45.853Z
+updated: 2024-10-26T17:43:03.493Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6436b073e08586b62b01f056f268545573507020c7d8c323fbf4c3bfaa5b82f7.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6436b073e08586b62b01f056f268545
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Reincarnation and Karma, An Introduction | Free Book
-date: 2024-10-23 17:12:16
-updated: 2024-10-26 11:15:49
+date: 2024-10-23T18:13:28.918Z
+updated: 2024-10-26T23:05:44.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be2dbafded21e5d559f15aae581e2f574144eef30ff2154b6f2f27aa896f2ea7.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be2dbafded21e5d559f15aae581e2f5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

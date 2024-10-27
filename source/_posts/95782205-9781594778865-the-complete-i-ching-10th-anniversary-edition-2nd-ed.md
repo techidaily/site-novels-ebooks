@@ -1,7 +1,7 @@
 ---
 title: The Complete I Ching — 10th Anniversary Edition (2nd ed.) | Free Book
-date: 2024-10-23 13:30:39
-updated: 2024-10-26 12:45:58
+date: 2024-10-19T17:41:04.091Z
+updated: 2024-10-27T00:46:44.397Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/978a4f6f48c672c8989f38aeca5e54735212dd80b74aa0a655e6182113d9b087.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/978a4f6f48c672c8989f38aeca5e547
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

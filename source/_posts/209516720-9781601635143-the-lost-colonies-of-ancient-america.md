@@ -1,7 +1,7 @@
 ---
 title: The Lost Colonies of Ancient America | Free Book
-date: 2024-10-25 20:46:20
-updated: 2024-10-26 11:15:22
+date: 2024-10-21T20:35:35.517Z
+updated: 2024-10-27T04:29:51.076Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee8c6ef68ce195d2a94a2a15066064a6215fafb2d8f013202a0490e630aa489f.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee8c6ef68ce195d2a94a2a15066064a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

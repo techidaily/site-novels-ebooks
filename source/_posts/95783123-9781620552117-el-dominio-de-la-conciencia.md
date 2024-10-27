@@ -1,7 +1,7 @@
 ---
 title: El Dominio de la Conciencia | Free Book
-date: 2024-10-24 12:25:11
-updated: 2024-10-26 11:44:50
+date: 2024-10-25T16:38:32.325Z
+updated: 2024-10-26T23:34:56.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/feb74ccda546b45486188f3598721bc3903435843b90e04980b6dddfd3839f52.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/feb74ccda546b45486188f3598721bc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

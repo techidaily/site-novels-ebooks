@@ -1,7 +1,7 @@
 ---
 title: The Zenned Out Guide to Understanding Chakras | Free Book
-date: 2024-10-24 12:54:58
-updated: 2024-10-26 10:28:26
+date: 2024-10-23T00:53:27.230Z
+updated: 2024-10-26T16:51:32.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d90d8064796758c0f8234c488f4b735ba3a12f2bdb46156bda2d8d16d7ee09c7.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d90d8064796758c0f8234c488f4b735
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

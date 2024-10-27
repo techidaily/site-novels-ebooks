@@ -1,7 +1,7 @@
 ---
 title: Experiencing the Body in Yoga Practice | Free Book
-date: 2024-10-24 22:54:51
-updated: 2024-10-26 12:14:40
+date: 2024-10-20T22:35:53.146Z
+updated: 2024-10-26T19:36:46.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3057b257699ce3e0a39282d4d74d06e3bb543414815505c7a52829d8bfad84f8.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3057b257699ce3e0a39282d4d74d06e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

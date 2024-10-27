@@ -1,7 +1,7 @@
 ---
 title: The Stories Behind Astrology | Free Book
-date: 2024-10-23 20:30:40
-updated: 2024-10-26 10:41:34
+date: 2024-10-20T03:17:04.602Z
+updated: 2024-10-26T19:26:04.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d04d08f37eec0a1e457bf2b86563932d723d743b8f42f8ba650c696652b294b.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d04d08f37eec0a1e457bf2b8656393
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

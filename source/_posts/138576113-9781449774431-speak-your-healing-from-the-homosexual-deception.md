@@ -1,7 +1,7 @@
 ---
 title: Speak Your Healing from the Homosexual Deception | Free Book
-date: 2024-10-23 21:55:27
-updated: 2024-10-26 12:27:36
+date: 2024-10-25T18:33:57.514Z
+updated: 2024-10-26T20:44:02.994Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04ed4eb6a48f8ca04828d1ae30560857e1358d0bac52fd80b44dad4d1343cbd2.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04ed4eb6a48f8ca04828d1ae3056085
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

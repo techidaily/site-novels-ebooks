@@ -1,7 +1,7 @@
 ---
 title: Pleiadian Earth Energy Astrology | Free Book
-date: 2024-10-25 15:45:16
-updated: 2024-10-26 12:57:39
+date: 2024-10-25T18:14:56.885Z
+updated: 2024-10-26T21:52:23.190Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f837c73a5b5cbb387aa00617c1483ea3929cdabddc21a51963cc11d8e1dfe3bf.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f837c73a5b5cbb387aa00617c1483ea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

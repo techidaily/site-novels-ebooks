@@ -1,7 +1,7 @@
 ---
 title: Secret Societies of the Middle Ages | Free Book
-date: 2024-10-24 18:40:48
-updated: 2024-10-26 12:42:22
+date: 2024-10-23T22:41:09.114Z
+updated: 2024-10-26T22:02:10.499Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b775347a9552b96b09b72b89bf9a5e980fd2777.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b77534
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

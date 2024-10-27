@@ -1,7 +1,7 @@
 ---
 title: From Mindfulness to Insight | Free Book
-date: 2024-10-23 20:54:50
-updated: 2024-10-26 12:54:37
+date: 2024-10-21T20:12:58.487Z
+updated: 2024-10-27T05:26:18.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40f1655a225b06ebcc8f1d4d9b742df83545de02ef486de18a85042b08528884.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40f1655a225b06ebcc8f1d4d9b742df
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

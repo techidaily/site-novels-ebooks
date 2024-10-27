@@ -1,7 +1,7 @@
 ---
 title: Positive Affirmations For Women | Free Book
-date: 2024-10-24 12:31:36
-updated: 2024-10-26 12:23:13
+date: 2024-10-23T05:42:48.163Z
+updated: 2024-10-27T00:57:37.240Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18eae33a48152d200162d1b3106562e92006d544e78033de559654b3c0d0d9ef.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18eae33a48152d200162d1b3106562e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: Pasos sencillos para lograr el poder de la atención plena | Free Book"
-date: 2024-10-24 20:38:38
-updated: 2024-10-26 11:14:42
+date: 2024-10-22T05:57:46.996Z
+updated: 2024-10-26T22:29:31.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/203d9c8ab4ef879d1738517df106a37d97724f93ff3dae8e3015f553f625afde.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/203d9c8ab4ef879d1738517df106a37
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

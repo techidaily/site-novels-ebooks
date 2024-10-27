@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Positive Actions | Free Book
-date: 2024-10-24 11:37:22
-updated: 2024-10-26 11:47:43
+date: 2024-10-21T16:42:29.576Z
+updated: 2024-10-26T18:54:53.661Z
 categories:
   - Religion
 thumbnail: https://thmb-001-ebook.techidaily.com/a814c438f6ec905d900fd59851c662e9a7c9867ec8859c9dad6f8eb1c75d8a86.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a814c438f6ec905d900fd59851c662e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

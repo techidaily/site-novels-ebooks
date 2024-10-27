@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Meditation for Pain Relief | Free Book
-date: 2024-10-23 14:39:20
-updated: 2024-10-26 12:21:31
+date: 2024-10-20T17:20:14.044Z
+updated: 2024-10-26T22:01:16.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0c12b4f4e1d2d26f6574278981e921a529d8be6d92d916626204e36a2b0b48d.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0c12b4f4e1d2d26f6574278981e921
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

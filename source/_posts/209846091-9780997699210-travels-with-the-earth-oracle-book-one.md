@@ -1,7 +1,7 @@
 ---
 title: Travels with the Earth Oracle - Book One | Free Book
-date: 2024-10-24 11:14:46
-updated: 2024-10-26 11:29:33
+date: 2024-10-25T19:43:27.074Z
+updated: 2024-10-27T01:51:42.757Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98903c8c81a7993faf4d2e36fc64f14bfff1e284496686b01524dc144068a2ea.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98903c8c81a7993faf4d2e36fc64f14
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

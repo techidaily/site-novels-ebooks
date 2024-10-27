@@ -1,7 +1,7 @@
 ---
 title: The Book of Enoch Prophet | Free Book
-date: 2024-10-23 18:31:24
-updated: 2024-10-26 10:25:16
+date: 2024-10-26T02:29:18.616Z
+updated: 2024-10-27T06:02:41.215Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3a343f776fcf0393f695157d4f2d567b7464b602b3eb6494021cffbdf7e4584.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3a343f776fcf0393f695157d4f2d56
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

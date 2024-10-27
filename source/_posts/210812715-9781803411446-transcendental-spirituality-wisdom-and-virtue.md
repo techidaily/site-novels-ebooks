@@ -1,7 +1,7 @@
 ---
 title: Transcendental Spirituality, Wisdom and Virtue | Free Book
-date: 2024-10-25 12:46:32
-updated: 2024-10-26 10:53:10
+date: 2024-10-20T04:26:19.020Z
+updated: 2024-10-26T16:31:16.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9900ad017c8a3df891bd6fb9438dfb8aba74056f704ff32969f032b43e066cde.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9900ad017c8a3df891bd6fb9438dfb8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

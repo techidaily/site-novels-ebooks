@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Crystals, New Edition | Free Book
-date: 2024-10-23 18:44:58
-updated: 2024-10-26 11:38:58
+date: 2024-10-20T17:55:24.062Z
+updated: 2024-10-27T04:36:17.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/58e083804c293122a448e3747614b291d96da884af6a06b2bfe5342386970000.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/58e083804c293122a448e3747614b29
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

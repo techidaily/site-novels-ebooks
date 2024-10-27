@@ -1,7 +1,7 @@
 ---
 title: "Haunted Britain and Ireland: Over 100 of the Scariest Places to Visit in the UK and Ireland | Free Book"
-date: 2024-10-24 14:51:48
-updated: 2024-10-26 11:47:32
+date: 2024-10-24T20:49:45.352Z
+updated: 2024-10-27T00:53:35.353Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6aaef9260fdfd7d1b58ba03e0be0c22b0b374ec2b31a7ce371648b59c68a7e16.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6aaef9260fdfd7d1b58ba03e0be0c22
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

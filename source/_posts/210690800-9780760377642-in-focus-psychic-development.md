@@ -1,7 +1,7 @@
 ---
 title: In Focus Psychic Development | Free Book
-date: 2024-10-25 12:27:44
-updated: 2024-10-26 11:58:57
+date: 2024-10-22T23:29:31.192Z
+updated: 2024-10-26T17:20:01.467Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e44847469aaa757197323a095cc2be9c6975d94959af06e8953834010b139eb6.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e44847469aaa757197323a095cc2be9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

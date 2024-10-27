@@ -1,7 +1,7 @@
 ---
 title: Dogs and Cats Have Souls Too | Free Book
-date: 2024-10-25 16:27:26
-updated: 2024-10-26 10:58:23
+date: 2024-10-24T03:10:05.031Z
+updated: 2024-10-26T21:50:56.258Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed14ab31929e6908e37d6cb47a02a4ccb4410eeddc4a8f3e46b5893f9feaed8.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed14ab31929e6908e37d6cb47a02a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Truth About Your Healing | Free Book
-date: 2024-10-25 20:20:39
-updated: 2024-10-26 12:57:50
+date: 2024-10-20T05:33:24.672Z
+updated: 2024-10-27T01:04:55.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e784a7cc19f5babf98dcfc5fc17a93cd54a00d78ba5fcddac06a2353ec03e286.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e784a7cc19f5babf98dcfc5fc17a93c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

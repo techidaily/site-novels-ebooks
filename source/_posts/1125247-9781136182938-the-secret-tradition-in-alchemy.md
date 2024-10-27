@@ -1,7 +1,7 @@
 ---
 title: The Secret Tradition in Alchemy | Free Book
-date: 2024-10-23 13:56:44
-updated: 2024-10-26 12:22:11
+date: 2024-10-22T00:22:30.535Z
+updated: 2024-10-27T00:35:44.435Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4c1e018374522df453471ed417710b28f74d6d64b63caae97b324fc99bb231ac.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4c1e018374522df453471ed417710b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

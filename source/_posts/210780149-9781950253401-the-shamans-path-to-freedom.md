@@ -1,7 +1,7 @@
 ---
 title: The Shaman's Path to Freedom | Free Book
-date: 2024-10-25 17:25:10
-updated: 2024-10-26 12:55:53
+date: 2024-10-22T22:09:38.799Z
+updated: 2024-10-26T18:19:34.874Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98d103f6be36adc0d114f0d20f5e2dcd538d558f9ebbd3474c6726af1b19742d.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98d103f6be36adc0d114f0d20f5e2dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

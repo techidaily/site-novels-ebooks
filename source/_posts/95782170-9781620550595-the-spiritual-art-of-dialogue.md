@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Art of Dialogue | Free Book
-date: 2024-10-25 14:11:35
-updated: 2024-10-26 10:21:37
+date: 2024-10-23T23:14:57.183Z
+updated: 2024-10-27T05:56:06.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/027c83adc86f7d02b97023677ddd0a8215bc1d3ad8ff9663e16bee959f8f0cf4.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/027c83adc86f7d02b97023677ddd0a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

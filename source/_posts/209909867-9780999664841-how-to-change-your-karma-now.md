@@ -1,7 +1,7 @@
 ---
 title: How To Change Your Karma Now | Free Book
-date: 2024-10-24 18:42:18
-updated: 2024-10-26 11:16:47
+date: 2024-10-24T23:54:51.280Z
+updated: 2024-10-26T19:24:20.169Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa9634e9bbea2b09fd2fa8b7059b813f198424ea5df6f163be4bdc095781df92.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa9634e9bbea2b09fd2fa8b7059b813
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Gemstones | Free Book
-date: 2024-10-23 15:49:27
-updated: 2024-10-26 10:21:38
+date: 2024-10-24T00:52:49.524Z
+updated: 2024-10-26T18:45:44.150Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f225d0d0229bd9e024bdf62c1ca8a8bedab256adcb99b891e54e436a8e65d80.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f225d0d0229bd9e024bdf62c1ca8a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

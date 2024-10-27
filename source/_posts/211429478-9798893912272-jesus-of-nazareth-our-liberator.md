@@ -1,7 +1,7 @@
 ---
 title: Jesus Of Nazareth Our Liberator | Free Book
-date: 2024-10-25 18:22:38
-updated: 2024-10-26 12:55:28
+date: 2024-10-23T01:46:02.425Z
+updated: 2024-10-26T17:49:53.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391db38881f78f9e5e3453dd68e3404d520386b45b6e8b9c00783e6ba3d12ea9.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391db38881f78f9e5e3453dd68e3404
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

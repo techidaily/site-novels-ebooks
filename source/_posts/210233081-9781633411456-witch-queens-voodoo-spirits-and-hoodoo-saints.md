@@ -1,7 +1,7 @@
 ---
 title: Witch Queens, Voodoo Spirits, and Hoodoo Saints | Free Book
-date: 2024-10-25 11:10:51
-updated: 2024-10-26 11:41:55
+date: 2024-10-21T17:59:58.440Z
+updated: 2024-10-27T02:07:08.500Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6035376ffd96b16438c36f0d891447da1c50276bb9fbc877e8de3516e3740a5b.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6035376ffd96b16438c36f0d891447d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

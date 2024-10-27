@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Angels | Free Book
-date: 2024-10-23 17:37:11
-updated: 2024-10-26 10:31:23
+date: 2024-10-23T16:07:07.329Z
+updated: 2024-10-27T05:50:58.258Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b5264ead11ff5c9ac1a34b23997c70d3d1cfa12f41442a75bfc1845aeb89fea2.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b5264ead11ff5c9ac1a34b23997c70d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

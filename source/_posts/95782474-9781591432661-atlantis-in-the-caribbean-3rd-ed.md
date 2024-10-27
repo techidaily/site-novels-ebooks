@@ -1,7 +1,7 @@
 ---
 title: Atlantis in the Caribbean (3rd ed.) | Free Book
-date: 2024-10-25 23:40:36
-updated: 2024-10-26 11:22:35
+date: 2024-10-26T04:34:39.272Z
+updated: 2024-10-27T00:42:14.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17f51ef4c1e953109461435f16219776431f3ea658d445bcc2eb9c38be0c2a24.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17f51ef4c1e953109461435f1621977
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

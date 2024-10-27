@@ -1,7 +1,7 @@
 ---
 title: 50 Mindful Steps to Self-Esteem | Free Book
-date: 2024-10-24 17:23:56
-updated: 2024-10-26 10:51:53
+date: 2024-10-20T16:35:32.720Z
+updated: 2024-10-27T05:22:48.447Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/577d3e9942f90f0a8e2172712d0b3aaf35ee9b113f369c0a802f0995aa51de59.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/577d3e9942f90f0a8e2172712d0b3aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

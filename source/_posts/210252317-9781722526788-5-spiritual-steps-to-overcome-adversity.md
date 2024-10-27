@@ -1,7 +1,7 @@
 ---
 title: 5 Spiritual Steps to Overcome Adversity | Free Book
-date: 2024-10-24 19:31:52
-updated: 2024-10-26 12:46:24
+date: 2024-10-21T01:59:58.684Z
+updated: 2024-10-26T20:46:09.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d08334c5ce1b275b6029f517993eb405011550ba6c095e3c32c459200def8708.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d08334c5ce1b275b6029f517993eb40
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

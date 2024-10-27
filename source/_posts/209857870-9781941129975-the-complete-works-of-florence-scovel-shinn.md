@@ -1,7 +1,7 @@
 ---
 title: The Complete Works Of Florence Scovel Shinn | Free Book
-date: 2024-10-23 22:50:34
-updated: 2024-10-26 10:56:19
+date: 2024-10-19T22:45:39.028Z
+updated: 2024-10-26T22:53:07.073Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4aa29b99a9862e6a29881221e816de30967cd6a944b0517ca1c058b09c135aac.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4aa29b99a9862e6a29881221e816de3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

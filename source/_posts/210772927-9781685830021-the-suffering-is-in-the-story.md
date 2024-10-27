@@ -1,7 +1,7 @@
 ---
 title: The Suffering is in the Story | Free Book
-date: 2024-10-24 22:15:54
-updated: 2024-10-26 12:37:24
+date: 2024-10-20T21:04:57.878Z
+updated: 2024-10-26T16:27:49.085Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4bcaf71a4c7a617b069b909278ce42dca53f2a318576c3349282b49810535ac3.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4bcaf71a4c7a617b069b909278ce42d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

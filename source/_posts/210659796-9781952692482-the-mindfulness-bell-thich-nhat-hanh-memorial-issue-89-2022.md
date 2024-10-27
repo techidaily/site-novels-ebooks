@@ -1,7 +1,7 @@
 ---
 title: "The Mindfulness Bell: Thich Nhat Hanh Memorial Issue 89, 2022 | Free Book"
-date: 2024-10-23 22:27:16
-updated: 2024-10-26 10:26:19
+date: 2024-10-24T23:45:19.811Z
+updated: 2024-10-26T17:16:49.089Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb6e8dfa055f94f1c548f0f720baf19fd72f15d1919bc626367939534b2c35c6.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb6e8dfa055f94f1c548f0f720baf19
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

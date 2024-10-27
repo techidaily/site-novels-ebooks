@@ -1,7 +1,7 @@
 ---
 title: Judy Hall's Crystal Companion | Free Book
-date: 2024-10-23 23:36:29
-updated: 2024-10-26 11:26:18
+date: 2024-10-21T21:45:07.931Z
+updated: 2024-10-26T23:12:31.867Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75afe1b7ce8c9217f595f80ef72b802d16c246655837739c334d6a2883aca51e.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75afe1b7ce8c9217f595f80ef72b802
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

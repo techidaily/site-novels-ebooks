@@ -1,7 +1,7 @@
 ---
 title: The Little Book of True Ghost Stories | Free Book
-date: 2024-10-25 14:27:55
-updated: 2024-10-26 10:19:23
+date: 2024-10-20T21:32:05.704Z
+updated: 2024-10-26T19:43:49.802Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b82d715656d886d75eb7f0c43b08eaac0a991a3c740f449fca6ac6bd643888bb.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b82d715656d886d75eb7f0c43b08eaa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

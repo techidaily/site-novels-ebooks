@@ -1,7 +1,7 @@
 ---
 title: No Endings, Only Beginnings | Free Book
-date: 2024-10-24 14:34:12
-updated: 2024-10-26 12:38:33
+date: 2024-10-24T16:47:01.584Z
+updated: 2024-10-27T00:36:19.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/017b96258fc4aeede54feab0fbf98184ddc5063537b0aee2e6d5bfd2106020ac.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/017b96258fc4aeede54feab0fbf9818
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

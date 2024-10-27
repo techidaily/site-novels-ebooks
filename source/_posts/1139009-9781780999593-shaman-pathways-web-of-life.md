@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - Web of Life | Free Book
-date: 2024-10-24 12:28:30
-updated: 2024-10-26 10:59:34
+date: 2024-10-21T03:03:36.662Z
+updated: 2024-10-26T18:31:22.005Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94f263d90c416077f2b6382345ccc875166af66ac0663c61c07b49e6dc666658.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94f263d90c416077f2b6382345ccc87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

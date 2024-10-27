@@ -1,7 +1,7 @@
 ---
 title: Reflections on Creating Your Luminous Life | Free Book
-date: 2024-10-25 22:21:16
-updated: 2024-10-26 12:39:45
+date: 2024-10-22T20:41:17.498Z
+updated: 2024-10-27T01:34:36.162Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/429c0974e9831938d53673796ff91943580e1fd6e79d7e4fb4f56c9004d50ae8.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/429c0974e9831938d53673796ff9194
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

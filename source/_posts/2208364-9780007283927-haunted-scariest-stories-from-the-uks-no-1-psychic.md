@@ -1,7 +1,7 @@
 ---
 title: "Haunted: Scariest stories from the UK's no. 1 psychic | Free Book"
-date: 2024-10-24 10:41:40
-updated: 2024-10-26 10:55:38
+date: 2024-10-21T03:40:48.583Z
+updated: 2024-10-27T05:07:34.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d31314853b73b1cc984734ceb63262deb9a01afdd7dbe497c77a3d81ac5f0db.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d31314853b73b1cc984734ceb63262
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

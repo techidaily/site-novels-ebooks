@@ -1,7 +1,7 @@
 ---
 title: When Believing in God Is Not Enough | Free Book
-date: 2024-10-24 19:10:47
-updated: 2024-10-26 12:10:15
+date: 2024-10-23T19:47:07.823Z
+updated: 2024-10-26T23:33:08.831Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adce2686e0999c88c5340b2202eabaf75f72a6fa7c2a3433b31cd9f1135b93a6.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adce2686e0999c88c5340b2202eabaf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

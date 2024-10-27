@@ -1,7 +1,7 @@
 ---
 title: The Compassionate Activist | Free Book
-date: 2024-10-23 19:15:42
-updated: 2024-10-26 12:13:18
+date: 2024-10-21T21:48:40.636Z
+updated: 2024-10-27T05:02:30.987Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4dcd663991df1dad9395d230fe3cca237a085d67f6cae8f5636c9a896d51044.jpg
@@ -254,3 +254,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4dcd663991df1dad9395d230fe3cca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

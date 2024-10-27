@@ -1,7 +1,7 @@
 ---
 title: Choice Centered Relating and the Tarot | Free Book
-date: 2024-10-24 20:55:10
-updated: 2024-10-26 11:58:17
+date: 2024-10-20T02:32:03.774Z
+updated: 2024-10-27T02:30:28.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9f0afb8b7c4c6126cc1e1b3d2b845fb93e698c6cd14bc1367ba7988c2494853.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9f0afb8b7c4c6126cc1e1b3d2b845f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

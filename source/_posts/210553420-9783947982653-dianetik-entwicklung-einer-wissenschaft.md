@@ -1,7 +1,7 @@
 ---
 title: Dianetik - Entwicklung einer Wissenschaft | Free Book
-date: 2024-10-23 13:37:34
-updated: 2024-10-26 12:41:17
+date: 2024-10-22T16:59:21.284Z
+updated: 2024-10-27T04:24:20.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/468db5fd31d04dea09583f26c7cc0f16a17f54cdcc00ed6e87f5bb234445a810.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/468db5fd31d04dea09583f26c7cc0f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

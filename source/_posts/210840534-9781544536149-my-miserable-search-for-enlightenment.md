@@ -1,7 +1,7 @@
 ---
 title: My Miserable Search for Enlightenment | Free Book
-date: 2024-10-25 14:25:32
-updated: 2024-10-26 12:52:24
+date: 2024-10-25T00:33:43.362Z
+updated: 2024-10-26T23:34:27.161Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1df8ef8f97e3ea882451d7fdd6848f8cfd2e0212c4a24479aee9e9fd273f79c7.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1df8ef8f97e3ea882451d7fdd6848f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

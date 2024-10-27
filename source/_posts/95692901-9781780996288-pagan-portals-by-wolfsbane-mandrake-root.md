@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - By Wolfsbane & Mandrake Root | Free Book
-date: 2024-10-23 15:16:59
-updated: 2024-10-26 12:35:38
+date: 2024-10-20T05:28:05.362Z
+updated: 2024-10-26T20:11:35.623Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03ed8a4a4906618a4f150ce8127b2c512246fe62616d41b4539e68564f5b10cd.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03ed8a4a4906618a4f150ce8127b2c5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

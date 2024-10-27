@@ -1,7 +1,7 @@
 ---
 title: Les grands enseignements cosmiques de Jésus de Nazareth avec des explications de Gabriele | Free Book
-date: 2024-10-24 11:28:38
-updated: 2024-10-26 10:11:20
+date: 2024-10-22T21:34:57.450Z
+updated: 2024-10-26T19:47:20.947Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5a2bfca4bbcdefda21e2b5c4bf64c6dfeb1ac835e4fa49a9996b12625077a57.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5a2bfca4bbcdefda21e2b5c4bf64c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

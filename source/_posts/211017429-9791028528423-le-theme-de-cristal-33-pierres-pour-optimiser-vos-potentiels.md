@@ -1,7 +1,7 @@
 ---
 title: "Le thème de cristal : 33 pierres pour optimiser vos potentiels | Free Book"
-date: 2024-10-24 15:11:12
-updated: 2024-10-26 10:19:28
+date: 2024-10-24T22:58:55.276Z
+updated: 2024-10-26T18:21:12.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a36fe7c5c08a149bc64807fcf78bd343cef4fdea69003d8ef2ce14468e4f6e72.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a36fe7c5c08a149bc64807fcf78bd34
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Dreams of the Reiki Shaman | Free Book
-date: 2024-10-25 21:16:47
-updated: 2024-10-26 11:58:31
+date: 2024-10-25T21:07:06.914Z
+updated: 2024-10-26T19:00:13.137Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79c8d03e82799eae2381f0d5f164e207f3ab5be599449523a3deb17655856898.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79c8d03e82799eae2381f0d5f164e20
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Prophecies of Nostradamus | Free Book
-date: 2024-10-24 15:39:14
-updated: 2024-10-26 12:13:33
+date: 2024-10-26T00:18:24.733Z
+updated: 2024-10-27T05:38:03.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d543e5164ad6741536ae417d4184e1e16b744268aae33ae2f8b6034003e7831b.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d543e5164ad6741536ae417d4184e1e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

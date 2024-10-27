@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書009：人體之玄機奧秘──探索內鍵感應神通之大智慧（玄機篇）: The Great Tao of Spiritual Science Series 09 | Free Book"
-date: 2024-10-24 23:38:35
-updated: 2024-10-26 10:13:17
+date: 2024-10-26T01:33:18.532Z
+updated: 2024-10-26T23:34:32.873Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe339367c289c8fdad20ec1247cb15442ab9183e1f0dc6b143ed5f3aba166392.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe339367c289c8fdad20ec1247cb154
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

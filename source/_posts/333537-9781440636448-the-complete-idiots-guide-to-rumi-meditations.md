@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Rumi Meditations | Free Book
-date: 2024-10-25 18:41:37
-updated: 2024-10-26 11:24:46
+date: 2024-10-21T18:11:13.566Z
+updated: 2024-10-27T02:06:00.376Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cfa3b00ac9e37cd18c1ae4867b72b5f300f7e5953086afd51a4ab05f07736ef.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cfa3b00ac9e37cd18c1ae4867b72b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

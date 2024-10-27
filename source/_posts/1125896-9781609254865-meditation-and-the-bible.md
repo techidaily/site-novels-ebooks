@@ -1,7 +1,7 @@
 ---
 title: Meditation and the Bible | Free Book
-date: 2024-10-24 10:42:30
-updated: 2024-10-26 10:19:34
+date: 2024-10-23T01:10:15.202Z
+updated: 2024-10-27T05:12:44.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a21a8d5bd4688f2d38d89548b7ee983ade29940b00b01e9b949efc893bf6dcca.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a21a8d5bd4688f2d38d89548b7ee983
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

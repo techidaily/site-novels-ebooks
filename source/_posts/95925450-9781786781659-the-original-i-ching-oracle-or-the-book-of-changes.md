@@ -1,7 +1,7 @@
 ---
 title: The Original I Ching Oracle or The Book of Changes | Free Book
-date: 2024-10-23 14:17:24
-updated: 2024-10-26 10:23:54
+date: 2024-10-26T05:36:23.938Z
+updated: 2024-10-26T23:00:59.620Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfb07dfc6d3ab19291a3959f7766591e93bdc2105de72ff4ef40e09ae361f9e2.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfb07dfc6d3ab19291a3959f7766591
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

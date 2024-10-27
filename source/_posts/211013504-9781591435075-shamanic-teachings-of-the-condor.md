@@ -1,7 +1,7 @@
 ---
 title: Shamanic Teachings of the Condor | Free Book
-date: 2024-10-23 13:56:45
-updated: 2024-10-26 12:40:49
+date: 2024-10-21T19:45:39.193Z
+updated: 2024-10-26T21:33:20.081Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/975a803f002073f1292e342543797e6e95dc0dc06535efbc068abd7480823b40.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/975a803f002073f1292e342543797e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Лучший врач - ваше подсознание. (Luchshij vrach - vashe podsoznanie.) | Free Book
-date: 2024-10-25 19:57:58
-updated: 2024-10-26 11:27:31
+date: 2024-10-25T20:04:05.755Z
+updated: 2024-10-26T17:59:53.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78116a3b0b1a834467e51f5987c7db78eba0f1f8a3d119d084884d83b14a1329.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78116a3b0b1a834467e51f5987c7db7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

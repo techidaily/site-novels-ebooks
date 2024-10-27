@@ -1,7 +1,7 @@
 ---
 title: The Teachings Of Atlantis - Secrets of the Cosmos | Free Book
-date: 2024-10-23 20:22:53
-updated: 2024-10-26 10:14:34
+date: 2024-10-19T16:10:38.790Z
+updated: 2024-10-26T21:27:46.870Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a7012fff129c2e2e9bbee9de251fd92462ce82dd5c0629e2e5fd2ce1619f0d2.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a7012fff129c2e2e9bbee9de251fd9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

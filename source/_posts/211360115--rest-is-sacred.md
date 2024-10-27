@@ -1,7 +1,7 @@
 ---
 title: Rest Is Sacred | Free Book
-date: 2024-10-25 19:47:32
-updated: 2024-10-26 10:15:36
+date: 2024-10-24T21:56:55.922Z
+updated: 2024-10-27T00:24:52.728Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f8daf9d1944b21f8cf9006ad766039891add8356c9a0d5ea92558c5b65c4e98.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f8daf9d1944b21f8cf9006ad766039
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Life Between Heaven and Earth | Free Book
-date: 2024-10-23 21:30:55
-updated: 2024-10-26 10:44:30
+date: 2024-10-22T02:26:54.470Z
+updated: 2024-10-26T17:33:22.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c131c9ca736ad30e729ccd1a53a106f24f15b0f2127d7cbe3d75379f1a6c36b8.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c131c9ca736ad30e729ccd1a53a106f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Neptune, the 12th house, and Pisces - 2nd Edition | Free Book
-date: 2024-10-23 13:13:28
-updated: 2024-10-26 10:11:51
+date: 2024-10-24T21:52:12.056Z
+updated: 2024-10-26T21:57:21.241Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbfe3be466fb4857e62f86401bd7c1027bf4ece7a7d98276d7c1d23a285a4d50.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbfe3be466fb4857e62f86401bd7c10
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

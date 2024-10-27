@@ -1,7 +1,7 @@
 ---
 title: "Hope Leans Forward: Braving Your Way toward Simplicity, Awakening, and Peace | Free Book"
-date: 2024-10-25 11:57:44
-updated: 2024-10-26 12:28:19
+date: 2024-10-24T16:24:50.708Z
+updated: 2024-10-27T00:04:37.547Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0d98843c49a5075ec7fa36fbb49b95132fb79cda0c8354413cb2a2a0fc45f61.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0d98843c49a5075ec7fa36fbb49b95
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

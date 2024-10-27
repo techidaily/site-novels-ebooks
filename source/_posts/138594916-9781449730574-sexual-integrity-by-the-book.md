@@ -1,7 +1,7 @@
 ---
 title: Sexual Integrity by the Book | Free Book
-date: 2024-10-23 11:28:36
-updated: 2024-10-26 12:48:35
+date: 2024-10-19T16:35:12.001Z
+updated: 2024-10-26T16:31:32.565Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5201ac310b308089b6153d4c90bc8ecf84ffa88a555b2fdd9c318dbe61358fed.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5201ac310b308089b6153d4c90bc8ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

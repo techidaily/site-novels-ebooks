@@ -1,7 +1,7 @@
 ---
 title: Church-Folk Some Messed-Up-Folk | Free Book
-date: 2024-10-24 20:19:45
-updated: 2024-10-26 12:13:42
+date: 2024-10-20T18:06:13.935Z
+updated: 2024-10-26T16:28:24.714Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6816c16465ac79a359bc878d3c0a0e819108dd4d081da9049490df723db7e7cc.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6816c16465ac79a359bc878d3c0a0e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

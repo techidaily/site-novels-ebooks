@@ -1,7 +1,7 @@
 ---
 title: The Power of the Infinity Symbol | Free Book
-date: 2024-10-25 22:43:19
-updated: 2024-10-26 11:34:33
+date: 2024-10-20T17:49:29.643Z
+updated: 2024-10-27T01:25:54.991Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/293e14cd0790692821fd6c7b60139a8f6b3d3b668f171d1ccf843660b5cd8fc5.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/293e14cd0790692821fd6c7b60139a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

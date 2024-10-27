@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書010：謙卑踏上靈性的道路──人生是靈魂修煉的道場（處世篇）: The Great Tao of Spiritual Science Series 10 | Free Book"
-date: 2024-10-23 15:12:19
-updated: 2024-10-26 10:55:30
+date: 2024-10-22T03:01:16.345Z
+updated: 2024-10-27T05:25:19.872Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd474f5b0ce4e75053dfce80f47dc739716062e888b12d7a069ec8616d0e387a.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd474f5b0ce4e75053dfce80f47dc73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

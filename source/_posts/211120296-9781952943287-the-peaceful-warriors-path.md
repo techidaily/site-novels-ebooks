@@ -1,7 +1,7 @@
 ---
 title: The Peaceful Warriors Path | Free Book
-date: 2024-10-23 19:20:20
-updated: 2024-10-26 11:27:16
+date: 2024-10-20T23:07:04.240Z
+updated: 2024-10-26T16:25:42.361Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0ada57a88855fa423b7ebdb7327262499318307762494784b59bf4441f779e8.jpg
@@ -256,3 +256,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0ada57a88855fa423b7ebdb7327262
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

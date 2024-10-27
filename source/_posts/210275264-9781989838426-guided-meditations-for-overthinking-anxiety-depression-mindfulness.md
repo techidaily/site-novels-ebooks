@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations For Overthinking, Anxiety, Depression& Mindfulness | Free Book
-date: 2024-10-25 13:10:39
-updated: 2024-10-26 12:34:41
+date: 2024-10-22T23:13:51.352Z
+updated: 2024-10-26T18:07:50.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15264dde01fb3110577c8245068bf48d1d2032901f4ee07008217fbeb2b81e0e.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15264dde01fb3110577c8245068bf48
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

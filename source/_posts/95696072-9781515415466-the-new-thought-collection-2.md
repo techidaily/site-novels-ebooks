@@ -1,7 +1,7 @@
 ---
 title: The New Thought Collection #2 | Free Book
-date: 2024-10-23 23:26:45
-updated: 2024-10-26 12:36:10
+date: 2024-10-23T18:54:02.712Z
+updated: 2024-10-27T02:36:57.693Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b439ce4127d1f00f133ce9c6c14e240836833817808baa83922a9913cc97732d.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b439ce4127d1f00f133ce9c6c14e240
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

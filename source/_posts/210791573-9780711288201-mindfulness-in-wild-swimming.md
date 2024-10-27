@@ -1,7 +1,7 @@
 ---
 title: Mindfulness in Wild Swimming | Free Book
-date: 2024-10-23 22:42:50
-updated: 2024-10-26 12:12:13
+date: 2024-10-21T00:52:00.528Z
+updated: 2024-10-27T03:31:27.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f259df77c6720f3b29715c11f3a3e81e02f42a5acdc25b3a97f490bfe4c6c781.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f259df77c6720f3b29715c11f3a3e81
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

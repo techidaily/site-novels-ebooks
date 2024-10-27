@@ -1,7 +1,7 @@
 ---
 title: Coma and Near-Death Experience | Free Book
-date: 2024-10-23 12:48:11
-updated: 2024-10-26 12:24:37
+date: 2024-10-19T17:19:41.891Z
+updated: 2024-10-26T18:36:59.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c7d87bd0729fd177bbcbfb1101f53bbab2a3eeb897de2a2a39e68867567bf50.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c7d87bd0729fd177bbcbfb1101f53b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

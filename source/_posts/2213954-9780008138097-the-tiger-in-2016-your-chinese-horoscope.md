@@ -1,7 +1,7 @@
 ---
 title: "The Tiger in 2016: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 11:37:55
-updated: 2024-10-26 11:56:32
+date: 2024-10-19T21:59:54.447Z
+updated: 2024-10-26T17:40:10.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d941a1629ba178d94ddaf2e4dfb47aebcd5cb131f0c562244cdf49bd0e25aad.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d941a1629ba178d94ddaf2e4dfb47a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

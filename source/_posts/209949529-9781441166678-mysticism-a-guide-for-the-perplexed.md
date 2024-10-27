@@ -1,7 +1,7 @@
 ---
 title: "Mysticism: A Guide for the Perplexed | Free Book"
-date: 2024-10-24 10:27:56
-updated: 2024-10-26 10:49:13
+date: 2024-10-20T21:14:04.550Z
+updated: 2024-10-26T22:02:06.549Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da66c8cc93d29861c94a9cd90753d132a928a245eff2c251ab75b0031f0929fe.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da66c8cc93d29861c94a9cd90753d13
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

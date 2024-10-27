@@ -1,7 +1,7 @@
 ---
 title: God's People, Pets, Poems and Sobriety | Free Book
-date: 2024-10-23 17:30:18
-updated: 2024-10-26 11:25:51
+date: 2024-10-19T19:43:42.996Z
+updated: 2024-10-26T17:05:10.700Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/326ee99b2cae847fdb7a3b6ea3611783d9593243ce6cdfc65ffda263d5449c22.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/326ee99b2cae847fdb7a3b6ea361178
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

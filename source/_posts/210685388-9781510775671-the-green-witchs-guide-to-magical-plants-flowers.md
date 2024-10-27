@@ -1,7 +1,7 @@
 ---
 title: The Green Witch's Guide to Magical Plants & Flowers | Free Book
-date: 2024-10-24 14:41:13
-updated: 2024-10-26 11:53:52
+date: 2024-10-25T18:40:39.733Z
+updated: 2024-10-27T03:13:06.481Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34206d14ab1245e33c955b7f85190374e4f1228edfbb7f96f9407e927b5982f0.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34206d14ab1245e33c955b7f8519037
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

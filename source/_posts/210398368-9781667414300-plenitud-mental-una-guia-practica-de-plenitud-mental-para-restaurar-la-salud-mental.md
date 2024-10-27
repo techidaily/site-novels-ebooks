@@ -1,7 +1,7 @@
 ---
 title: "Plenitud mental: Una guía práctica de plenitud mental para restaurar la salud mental | Free Book"
-date: 2024-10-25 22:30:52
-updated: 2024-10-26 11:30:55
+date: 2024-10-19T22:14:35.602Z
+updated: 2024-10-26T16:42:59.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a30966651df0a5fc176ce68488a9ad9f8200d7cd57f8b30322d32c49eda43e94.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a30966651df0a5fc176ce68488a9ad9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

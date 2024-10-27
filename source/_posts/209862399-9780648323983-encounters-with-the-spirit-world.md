@@ -1,7 +1,7 @@
 ---
 title: Encounters with the Spirit World | Free Book
-date: 2024-10-25 17:29:43
-updated: 2024-10-26 11:23:57
+date: 2024-10-21T20:23:30.762Z
+updated: 2024-10-26T18:27:14.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5c58e6b176382a4b10b56812cffb152c24a71e49b487b805476835ed91e7129.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5c58e6b176382a4b10b56812cffb15
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: What Does It Mean To Be Human? | Free Book
-date: 2024-10-23 13:10:48
-updated: 2024-10-26 11:51:27
+date: 2024-10-25T16:15:54.414Z
+updated: 2024-10-26T17:31:02.540Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02dd45ad43db2c63e8ca5454276962ad663f26cff7cbfaba6403719fdd5954dc.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02dd45ad43db2c63e8ca5454276962a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

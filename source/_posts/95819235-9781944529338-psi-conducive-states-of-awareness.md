@@ -1,7 +1,7 @@
 ---
 title: Psi-Conducive States of Awareness | Free Book
-date: 2024-10-23 21:10:31
-updated: 2024-10-26 11:39:45
+date: 2024-10-25T04:45:11.532Z
+updated: 2024-10-26T19:17:56.040Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f89176e1cd5ea458edaa0230e1c3225ec7b6ecf1c1bf070fc9e6ec160f7e349d.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f89176e1cd5ea458edaa0230e1c3225
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

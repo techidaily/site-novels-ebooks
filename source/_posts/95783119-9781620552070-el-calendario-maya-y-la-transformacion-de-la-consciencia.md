@@ -1,7 +1,7 @@
 ---
 title: El Calendario Maya y la Transformación de la Consciencia | Free Book
-date: 2024-10-25 22:58:48
-updated: 2024-10-26 12:40:28
+date: 2024-10-20T05:21:33.945Z
+updated: 2024-10-26T19:01:18.985Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72bc24fc9cd9f0d6b66decb3e7ab9c6f7ccd48267f9de3b2164357509c72f21a.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72bc24fc9cd9f0d6b66decb3e7ab9c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

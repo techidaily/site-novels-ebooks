@@ -1,7 +1,7 @@
 ---
 title: Sacred Number and the Origins of Civilization | Free Book
-date: 2024-10-25 12:49:47
-updated: 2024-10-26 10:23:18
+date: 2024-10-20T01:49:37.317Z
+updated: 2024-10-27T04:36:30.549Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfe32411c460f9b5643c586f924c21a1ddaf260ab9bb291efd167aea33ee6940.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfe32411c460f9b5643c586f924c21a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

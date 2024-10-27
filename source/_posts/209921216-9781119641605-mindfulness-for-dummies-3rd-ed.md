@@ -1,7 +1,7 @@
 ---
 title: Mindfulness For Dummies (3rd ed.) | Free Book
-date: 2024-10-24 15:26:18
-updated: 2024-10-26 10:58:22
+date: 2024-10-21T03:01:26.264Z
+updated: 2024-10-26T21:48:26.737Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18d7424236b35095e6b93adfb39cb8b5920ec1539784ffa4c8816fc1e19f5616.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18d7424236b35095e6b93adfb39cb8b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

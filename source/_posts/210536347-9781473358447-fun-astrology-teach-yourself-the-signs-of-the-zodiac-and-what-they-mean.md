@@ -1,7 +1,7 @@
 ---
 title: Fun Astrology - Teach Yourself the Signs of the Zodiac and What They Mean | Free Book
-date: 2024-10-24 10:32:52
-updated: 2024-10-26 12:44:47
+date: 2024-10-19T18:03:50.456Z
+updated: 2024-10-27T01:46:32.259Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/040ec88641d5663d74a6b5790a140f899131df98c5fb9f8110ee6c32d485f5dc.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/040ec88641d5663d74a6b5790a140f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

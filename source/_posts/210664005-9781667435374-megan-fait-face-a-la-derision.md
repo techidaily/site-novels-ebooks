@@ -1,7 +1,7 @@
 ---
 title: Megan fait face à la dérision | Free Book
-date: 2024-10-25 19:18:13
-updated: 2024-10-26 10:35:39
+date: 2024-10-25T16:44:40.557Z
+updated: 2024-10-27T02:53:48.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f32cc90ad733b9327f3a9bf5ba6550ec9b38649aca151cc187f7ee2687206f0.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f32cc90ad733b9327f3a9bf5ba6550
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

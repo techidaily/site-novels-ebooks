@@ -1,7 +1,7 @@
 ---
 title: Building the Bridge Inward through Meditation | Free Book
-date: 2024-10-24 20:45:58
-updated: 2024-10-26 10:41:28
+date: 2024-10-21T01:48:09.430Z
+updated: 2024-10-26T19:07:31.862Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8fcab1f1db58ddfc0c3428630b06ab2ca810369a1fad5b584b7e2cb8e629bf31.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8fcab1f1db58ddfc0c3428630b06ab2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

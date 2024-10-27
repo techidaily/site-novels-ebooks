@@ -1,7 +1,7 @@
 ---
 title: The Qigong Workbook for Anxiety | Free Book
-date: 2024-10-25 12:39:17
-updated: 2024-10-26 11:14:46
+date: 2024-10-23T05:48:53.271Z
+updated: 2024-10-27T04:41:57.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c197394e0f9d463f1ca8786c2c0b9eb29e4ffe1def874ec83339d858654ff5a4.jpg
@@ -210,3 +210,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c197394e0f9d463f1ca8786c2c0b9eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

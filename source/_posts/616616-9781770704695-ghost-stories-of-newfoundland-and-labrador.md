@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories of Newfoundland and Labrador | Free Book
-date: 2024-10-23 15:45:35
-updated: 2024-10-26 10:12:24
+date: 2024-10-19T23:59:47.860Z
+updated: 2024-10-26T17:37:09.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f93ac92a87b70f200ba90f54c964430d43339cdee8b11384a7c817f66e67f79.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f93ac92a87b70f200ba90f54c96443
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

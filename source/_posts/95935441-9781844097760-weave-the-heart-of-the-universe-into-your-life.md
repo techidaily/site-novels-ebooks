@@ -1,7 +1,7 @@
 ---
 title: Weave the Heart of the Universe into Your Life | Free Book
-date: 2024-10-24 23:45:28
-updated: 2024-10-26 12:48:40
+date: 2024-10-22T22:09:29.736Z
+updated: 2024-10-26T18:19:08.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/57e3df5bdf1fe719e2b57a474224287e42572eb764889d3c522ca34c61aabbb6.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/57e3df5bdf1fe719e2b57a474224287
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

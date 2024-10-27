@@ -1,7 +1,7 @@
 ---
 title: The Haitian Vodou Handbook | Free Book
-date: 2024-10-24 13:59:13
-updated: 2024-10-26 12:47:55
+date: 2024-10-25T18:28:53.776Z
+updated: 2024-10-27T03:36:10.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/619bcb7995259bef0bf6eb863018f9ff7f198b771d6b494825f52852f9e8ce9c.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/619bcb7995259bef0bf6eb863018f9f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

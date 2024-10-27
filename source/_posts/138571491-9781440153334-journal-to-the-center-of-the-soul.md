@@ -1,7 +1,7 @@
 ---
 title: Journal to the Center of the Soul | Free Book
-date: 2024-10-24 14:56:11
-updated: 2024-10-26 12:22:11
+date: 2024-10-20T01:26:52.546Z
+updated: 2024-10-27T01:01:20.820Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82484db63eab1c65a4e0e3cc0a6de52c5af23414721dc52f053f93e66f8eba9f.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82484db63eab1c65a4e0e3cc0a6de52
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

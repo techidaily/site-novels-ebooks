@@ -1,7 +1,7 @@
 ---
 title: The Blue Day Book Illustrated Edition | Free Book
-date: 2024-10-23 18:29:27
-updated: 2024-10-26 12:28:48
+date: 2024-10-21T16:21:49.699Z
+updated: 2024-10-27T06:01:24.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6fe690f43fd951fd0c640dda1718b29dc750aa4032f44dc36703827f8a16bd4b.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6fe690f43fd951fd0c640dda1718b29
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

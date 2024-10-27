@@ -1,7 +1,7 @@
 ---
 title: The Christian Book of Mystical Verse | Free Book
-date: 2024-10-25 15:50:47
-updated: 2024-10-26 12:38:47
+date: 2024-10-25T02:00:05.938Z
+updated: 2024-10-27T04:00:53.209Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f5c9d72b7e02b02fc8334e2c75f3da6c9155b5dd7c9cbbff8029a5d3843aebb.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f5c9d72b7e02b02fc8334e2c75f3da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

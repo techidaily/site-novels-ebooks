@@ -1,7 +1,7 @@
 ---
 title: Stepping Into a Healthy Relationship | Free Book
-date: 2024-10-25 13:21:16
-updated: 2024-10-26 10:26:41
+date: 2024-10-26T00:58:08.267Z
+updated: 2024-10-26T23:37:18.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37d2ace05c341cd97f4bfc1e45403b616a6abac2864fc1ffa34cfea9985103ac.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37d2ace05c341cd97f4bfc1e45403b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

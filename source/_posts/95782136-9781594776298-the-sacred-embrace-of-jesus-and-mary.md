@@ -1,7 +1,7 @@
 ---
 title: The Sacred Embrace of Jesus and Mary | Free Book
-date: 2024-10-23 12:43:43
-updated: 2024-10-26 10:55:24
+date: 2024-10-25T03:27:47.161Z
+updated: 2024-10-27T01:19:08.184Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/906b31da1eb43e08c7af6866ef832edca2311516810a9c8dcb929bb71feb4ba7.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/906b31da1eb43e08c7af6866ef832ed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

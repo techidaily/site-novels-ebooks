@@ -1,7 +1,7 @@
 ---
 title: Mindfulness para gestantes | Free Book
-date: 2024-10-23 20:50:45
-updated: 2024-10-26 12:20:13
+date: 2024-10-21T01:13:44.805Z
+updated: 2024-10-27T04:06:58.192Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b311ce05cc95f837c35d7ed6bfcc96ce1851b60d4d018cc157ee12e98a7245d3.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b311ce05cc95f837c35d7ed6bfcc96c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

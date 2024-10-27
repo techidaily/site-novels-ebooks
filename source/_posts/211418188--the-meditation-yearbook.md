@@ -1,7 +1,7 @@
 ---
 title: The Meditation Yearbook | Free Book
-date: 2024-10-23 18:25:30
-updated: 2024-10-26 12:21:35
+date: 2024-10-25T02:12:46.757Z
+updated: 2024-10-26T16:14:07.190Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f96bda864f76a6b94ab3dc00755d991914fc9ee1c20d4a260bd3df0c134c1c84.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f96bda864f76a6b94ab3dc00755d991
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mindfulness and Reverence | Free Book
-date: 2024-10-24 15:12:35
-updated: 2024-10-26 11:40:34
+date: 2024-10-24T16:01:00.319Z
+updated: 2024-10-26T18:19:16.267Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f7993bfcd5190db537ed1da8f670ef2071e0014655e8a4340479453a84407fa.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f7993bfcd5190db537ed1da8f670ef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

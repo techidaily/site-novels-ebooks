@@ -1,7 +1,7 @@
 ---
 title: John Dee's Actions with Spirits (Volumes 1 and 2) | Free Book
-date: 2024-10-24 20:35:52
-updated: 2024-10-26 10:50:53
+date: 2024-10-24T02:04:58.498Z
+updated: 2024-10-26T17:28:36.952Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8b53f81e60d96a0f59eef7e1ee21b01a94628d859fa153262b2b4ca95bca75d.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8b53f81e60d96a0f59eef7e1ee21b0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

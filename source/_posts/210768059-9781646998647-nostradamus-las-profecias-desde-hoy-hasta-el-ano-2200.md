@@ -1,7 +1,7 @@
 ---
 title: Nostradamus - Las profecías desde hoy hasta el año 2200 | Free Book
-date: 2024-10-24 15:49:42
-updated: 2024-10-26 10:10:29
+date: 2024-10-24T05:25:46.188Z
+updated: 2024-10-27T05:46:03.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56bcbec2d7618eb6b844ecde6b1a9563ee7bc6d919bd7e688da98f883a1efef8.jpg
@@ -206,3 +206,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56bcbec2d7618eb6b844ecde6b1a956
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

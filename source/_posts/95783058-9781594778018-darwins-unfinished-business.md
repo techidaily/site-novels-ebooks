@@ -1,7 +1,7 @@
 ---
 title: Darwin's Unfinished Business | Free Book
-date: 2024-10-24 21:45:17
-updated: 2024-10-26 12:20:26
+date: 2024-10-22T00:29:22.791Z
+updated: 2024-10-26T22:17:35.872Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42d547715d699a6c65ebadaf74c6ad0411eefa87c510b938a1964ef9a26aff7c.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42d547715d699a6c65ebadaf74c6ad0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

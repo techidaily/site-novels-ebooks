@@ -1,7 +1,7 @@
 ---
 title: Something More Than Hope/Something More Than Everything | Free Book
-date: 2024-10-25 21:14:56
-updated: 2024-10-26 12:25:16
+date: 2024-10-22T22:44:29.525Z
+updated: 2024-10-27T02:44:50.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe91c03913d64b2ac7b4a34f23a2cce22fd22de8b68e1d55b6c5f6df5858f72b.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe91c03913d64b2ac7b4a34f23a2cce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

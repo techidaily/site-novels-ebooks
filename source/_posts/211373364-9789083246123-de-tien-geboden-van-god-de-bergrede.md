@@ -1,7 +1,7 @@
 ---
 title: De Tien Geboden van God & De Bergrede | Free Book
-date: 2024-10-25 21:40:53
-updated: 2024-10-26 10:57:13
+date: 2024-10-23T21:15:12.398Z
+updated: 2024-10-26T18:02:59.525Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f075c5310904b7f4f0bbf09a41b43771a6fe2493db7527a45a67ba7c5b6ef786.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f075c5310904b7f4f0bbf09a41b4377
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

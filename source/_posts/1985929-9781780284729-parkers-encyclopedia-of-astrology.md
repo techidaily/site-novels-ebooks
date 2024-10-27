@@ -1,7 +1,7 @@
 ---
 title: Parkers' Encyclopedia of Astrology | Free Book
-date: 2024-10-25 22:42:24
-updated: 2024-10-26 12:51:18
+date: 2024-10-20T01:40:34.015Z
+updated: 2024-10-27T05:46:45.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b4b409a0cb78c7433b3fd36c73eef371e3ae309c1a90ca5db98199f059623523.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b4b409a0cb78c7433b3fd36c73eef37
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

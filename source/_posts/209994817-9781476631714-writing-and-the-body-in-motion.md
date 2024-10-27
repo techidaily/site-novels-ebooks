@@ -1,7 +1,7 @@
 ---
 title: Writing and the Body in Motion | Free Book
-date: 2024-10-24 13:32:32
-updated: 2024-10-26 10:36:41
+date: 2024-10-24T21:20:41.786Z
+updated: 2024-10-26T21:57:42.097Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a2980c01aa191ea2f807f331448925098fe15cd54115215f2ea8a12e3a43e21.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a2980c01aa191ea2f807f331448925
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

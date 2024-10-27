@@ -1,7 +1,7 @@
 ---
 title: The New Diplomatic Strategies of Sir Winston Churchill | Free Book
-date: 2024-10-24 14:31:12
-updated: 2024-10-26 11:20:49
+date: 2024-10-21T21:06:12.546Z
+updated: 2024-10-26T18:26:53.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/645987610e055392520eeb7595acaeb1d559dde77d0d560de5ec923de3ad13e6.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/645987610e055392520eeb7595acaeb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

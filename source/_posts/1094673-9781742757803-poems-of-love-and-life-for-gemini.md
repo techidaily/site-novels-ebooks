@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Gemini | Free Book
-date: 2024-10-23 20:31:40
-updated: 2024-10-26 11:30:44
+date: 2024-10-22T18:22:54.240Z
+updated: 2024-10-26T18:00:40.881Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40a1b3b8c6469d826380d017714140453e1d024170a3fd583992a38a1f16fb7c.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40a1b3b8c6469d826380d0177141404
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

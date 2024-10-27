@@ -1,7 +1,7 @@
 ---
 title: Simboli di Guarigione degli Antichi Slavi. Glagolitico. Arte Terapia | Free Book
-date: 2024-10-23 18:28:48
-updated: 2024-10-26 10:42:40
+date: 2024-10-24T22:17:27.489Z
+updated: 2024-10-27T04:32:45.952Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95a27aa2dbbbd74d7cd2ce93c08400b9ba7025947ad3d920d8aec15e84facc66.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95a27aa2dbbbd74d7cd2ce93c08400b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

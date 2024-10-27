@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Um Guia Iniciante Para Curar Sua Alma E Encontrar A Paz (Espiritualidade Para Iniciantes) | Free Book"
-date: 2024-10-23 19:59:38
-updated: 2024-10-26 12:36:13
+date: 2024-10-19T21:16:22.654Z
+updated: 2024-10-27T02:54:31.965Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9399431a1bba5a8bac524f8cf5bc137f1e418b25ef53f5018d29f6373bdfb18.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9399431a1bba5a8bac524f8cf5bc13
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

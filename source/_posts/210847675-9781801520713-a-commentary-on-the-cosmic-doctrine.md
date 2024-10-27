@@ -1,7 +1,7 @@
 ---
 title: A Commentary on 'The Cosmic Doctrine' | Free Book
-date: 2024-10-25 16:39:48
-updated: 2024-10-26 11:41:16
+date: 2024-10-23T22:03:52.971Z
+updated: 2024-10-27T02:21:01.749Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa1a03d372361f1ad9e1d1dd2692f76b52cdc81c69395285ae5d210da59af118.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa1a03d372361f1ad9e1d1dd2692f76
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

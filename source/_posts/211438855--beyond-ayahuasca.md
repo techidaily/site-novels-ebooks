@@ -1,7 +1,7 @@
 ---
 title: Beyond Ayahuasca | Free Book
-date: 2024-10-23 13:50:31
-updated: 2024-10-26 10:56:13
+date: 2024-10-26T02:06:48.060Z
+updated: 2024-10-27T02:19:00.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9b674aff9fa3d364c94acc670afa4e80538bc6474b0fbd0dc6910df7a982605.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9b674aff9fa3d364c94acc670afa4e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

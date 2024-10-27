@@ -1,7 +1,7 @@
 ---
 title: The Celtic Way of Prayer | Free Book
-date: 2024-10-23 21:49:26
-updated: 2024-10-26 11:43:46
+date: 2024-10-22T16:03:21.427Z
+updated: 2024-10-27T01:36:28.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3bd92a686849a9a4765181fd0fe9f76060dcb1e4706cddd31b1829df96bcfbee.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3bd92a686849a9a4765181fd0fe9f76
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

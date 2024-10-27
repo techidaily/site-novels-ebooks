@@ -1,7 +1,7 @@
 ---
 title: Slave Species of the Gods (2nd ed.) | Free Book
-date: 2024-10-24 18:46:19
-updated: 2024-10-26 10:23:49
+date: 2024-10-22T02:25:58.610Z
+updated: 2024-10-27T05:25:54.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fc411952de3a177e42abb2163a5eaa59c7cc7c23dfd3aaffc43fda3eb4f6510.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fc411952de3a177e42abb2163a5eaa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

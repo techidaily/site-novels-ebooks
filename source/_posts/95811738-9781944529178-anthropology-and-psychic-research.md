@@ -1,7 +1,7 @@
 ---
 title: Anthropology and Psychic Research | Free Book
-date: 2024-10-24 16:28:53
-updated: 2024-10-26 12:17:23
+date: 2024-10-23T23:44:45.713Z
+updated: 2024-10-27T05:30:02.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d281ede0e14b9f7f72064e78332c3e089c5737b0e3a26e0715040030292e8e52.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d281ede0e14b9f7f72064e78332c3e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

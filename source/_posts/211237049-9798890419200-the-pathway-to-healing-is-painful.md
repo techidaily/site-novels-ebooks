@@ -1,7 +1,7 @@
 ---
 title: The Pathway to Healing Is Painful | Free Book
-date: 2024-10-25 19:57:14
-updated: 2024-10-26 12:51:37
+date: 2024-10-24T20:40:14.823Z
+updated: 2024-10-26T23:19:11.033Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c1fecc28156f3bbab1211f2ac0170786380dc70942743d490b0f1c077a22e30.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c1fecc28156f3bbab1211f2ac01707
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

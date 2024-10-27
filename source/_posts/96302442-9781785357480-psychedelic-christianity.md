@@ -1,7 +1,7 @@
 ---
 title: Psychedelic Christianity | Free Book
-date: 2024-10-23 21:28:49
-updated: 2024-10-26 11:41:42
+date: 2024-10-25T02:43:02.452Z
+updated: 2024-10-27T04:10:39.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa971e1302d09f828ab982f10496b06679701f4523c14229a92a3fc225308608.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa971e1302d09f828ab982f10496b06
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: DBT Workbook For Clinicians-The DBT Clinician's Guide to Holistic Healing, Integrating Mind, Body, and Emotion (2nd ed.) | Free Book
-date: 2024-10-25 19:26:34
-updated: 2024-10-26 12:58:31
+date: 2024-10-25T17:08:13.164Z
+updated: 2024-10-26T22:04:51.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/033f52a30e8ea759ed904fd129c7aa92db6ed3f6c34c0981c4302d9e917f79c9.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/033f52a30e8ea759ed904fd129c7aa9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

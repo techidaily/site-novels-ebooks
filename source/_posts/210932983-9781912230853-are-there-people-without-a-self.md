@@ -1,7 +1,7 @@
 ---
 title: Are There People Without a Self? | Free Book
-date: 2024-10-24 23:51:16
-updated: 2024-10-26 11:12:14
+date: 2024-10-25T01:07:08.313Z
+updated: 2024-10-26T21:17:24.166Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/940aa25fbb5b87db15ff34b4a78b2bc74bfac83831e3dd5fc4882340e7c748f0.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/940aa25fbb5b87db15ff34b4a78b2bc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

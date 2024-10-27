@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-care | Free Book
-date: 2024-10-24 16:55:18
-updated: 2024-10-26 11:22:49
+date: 2024-10-20T19:44:27.021Z
+updated: 2024-10-27T00:18:48.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db1f84ec22351b42e6dd7ab30de6ea1ec2dc35d0998050cf5b23ab068b7dc28d.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db1f84ec22351b42e6dd7ab30de6ea1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

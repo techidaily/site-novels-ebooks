@@ -1,7 +1,7 @@
 ---
 title: Light Messages from the Pleiades | Free Book
-date: 2024-10-23 17:50:50
-updated: 2024-10-26 12:54:53
+date: 2024-10-26T05:48:40.365Z
+updated: 2024-10-27T02:31:58.767Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc0ab826bbc2496350497a0718a325d368f87da548f080639d98756bcff022f1.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc0ab826bbc2496350497a0718a325d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

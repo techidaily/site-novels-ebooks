@@ -1,7 +1,7 @@
 ---
 title: Comprendre et aider mon enfant différent avec les écrans | Free Book
-date: 2024-10-25 23:44:44
-updated: 2024-10-26 11:45:18
+date: 2024-10-24T17:53:11.017Z
+updated: 2024-10-26T22:12:33.997Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e1576b57038a084df880c05602566fbc88c23163c935d2c814ae270cec59f85.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e1576b57038a084df880c05602566f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

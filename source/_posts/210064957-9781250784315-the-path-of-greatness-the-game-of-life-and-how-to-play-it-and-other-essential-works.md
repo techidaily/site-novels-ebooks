@@ -1,7 +1,7 @@
 ---
 title: "The Path of Greatness: The Game of Life and How to Play It and Other Essential Works | Free Book"
-date: 2024-10-24 17:44:29
-updated: 2024-10-26 11:19:23
+date: 2024-10-23T05:47:42.178Z
+updated: 2024-10-26T21:36:30.798Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cdc7ee66ab6cadb12c66d2502fadeb3a8529f70b684655c82a2aafbebf8d2c0.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cdc7ee66ab6cadb12c66d2502fadeb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

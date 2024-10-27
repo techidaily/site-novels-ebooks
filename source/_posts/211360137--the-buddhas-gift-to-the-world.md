@@ -1,7 +1,7 @@
 ---
 title: The Buddha's Gift to the World | Free Book
-date: 2024-10-25 14:27:20
-updated: 2024-10-26 11:37:38
+date: 2024-10-25T22:23:53.043Z
+updated: 2024-10-26T20:07:28.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e1470d860f868fd39a18465dd2a80fde8c952711f199744d8115b1c8fa912f2.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e1470d860f868fd39a18465dd2a80f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

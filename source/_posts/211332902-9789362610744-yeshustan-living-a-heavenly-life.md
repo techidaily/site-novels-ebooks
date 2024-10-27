@@ -1,7 +1,7 @@
 ---
 title: Yeshustan Living A Heavenly Life | Free Book
-date: 2024-10-24 10:41:42
-updated: 2024-10-26 10:27:35
+date: 2024-10-22T22:59:53.138Z
+updated: 2024-10-26T19:27:54.516Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ca16e5e377d42fbbf08bf0b00ba6b3c957bc9e49e604534dca4347896cac360.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ca16e5e377d42fbbf08bf0b00ba6b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

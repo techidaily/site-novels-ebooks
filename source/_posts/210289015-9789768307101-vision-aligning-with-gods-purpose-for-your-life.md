@@ -1,7 +1,7 @@
 ---
 title: "VISION: Aligning With God's Purpose For Your Life | Free Book"
-date: 2024-10-23 10:35:11
-updated: 2024-10-26 11:14:20
+date: 2024-10-20T19:08:17.017Z
+updated: 2024-10-26T19:43:07.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eab49f6bb3b41e47000b0e352eb390b2f4f5d8684430f0a3548aa0c53ec71bf0.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eab49f6bb3b41e47000b0e352eb390b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

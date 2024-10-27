@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of Ghosts and Hauntings | Free Book
-date: 2024-10-24 13:13:41
-updated: 2024-10-26 11:16:46
+date: 2024-10-25T03:30:05.086Z
+updated: 2024-10-26T16:37:45.268Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae5161f490d60ab3e914ea7dec3a4ebf92c000d9c59b199d0f559d5991cdf324.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae5161f490d60ab3e914ea7dec3a4eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

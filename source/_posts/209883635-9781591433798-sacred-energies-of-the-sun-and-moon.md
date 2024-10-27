@@ -1,7 +1,7 @@
 ---
 title: Sacred Energies of the Sun and Moon | Free Book
-date: 2024-10-24 18:50:19
-updated: 2024-10-26 10:12:34
+date: 2024-10-21T05:31:50.366Z
+updated: 2024-10-27T00:53:35.742Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bdfd427cddb550ab9f11cef3b90b0da66aed76b175b508cc324124959a6d10e2.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bdfd427cddb550ab9f11cef3b90b0da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

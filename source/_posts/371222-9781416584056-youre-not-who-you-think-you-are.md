@@ -1,7 +1,7 @@
 ---
 title: You're Not Who You Think You Are | Free Book
-date: 2024-10-25 23:53:19
-updated: 2024-10-26 12:24:38
+date: 2024-10-25T04:31:34.335Z
+updated: 2024-10-26T23:21:39.772Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4688bb93400c38c88e038edacaa770b0c14f56e6192c2180fc508df07db3f7b.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4688bb93400c38c88e038edacaa770
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

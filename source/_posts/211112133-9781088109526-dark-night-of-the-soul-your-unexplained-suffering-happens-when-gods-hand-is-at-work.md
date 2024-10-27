@@ -1,7 +1,7 @@
 ---
 title: Dark Night of the Soul. Your Unexplained Suffering Happens When God's Hand is at Work | Free Book
-date: 2024-10-23 23:37:58
-updated: 2024-10-26 11:14:45
+date: 2024-10-20T18:50:47.657Z
+updated: 2024-10-26T16:55:47.980Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/146725f64f79485dff8aff008cb2d914477f293326304cbd7799cf46dca3a64f.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/146725f64f79485dff8aff008cb2d91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

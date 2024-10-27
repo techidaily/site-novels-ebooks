@@ -1,7 +1,7 @@
 ---
 title: Notes from the Second Dimension | Free Book
-date: 2024-10-23 13:38:34
-updated: 2024-10-26 10:38:18
+date: 2024-10-19T16:49:40.569Z
+updated: 2024-10-27T05:40:15.316Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ffa6bfd1ac92cca19a784715a26815c7d5c297038d104b9f6d1afe9e9aa6bd36.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ffa6bfd1ac92cca19a784715a26815c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

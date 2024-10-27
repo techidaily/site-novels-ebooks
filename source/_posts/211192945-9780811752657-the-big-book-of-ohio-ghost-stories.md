@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Ohio Ghost Stories | Free Book
-date: 2024-10-25 20:11:38
-updated: 2024-10-26 12:35:30
+date: 2024-10-22T17:26:55.170Z
+updated: 2024-10-26T23:08:04.750Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47bcd42d74f58f5b4b09a61b8b2cd2e9d7bbac91e59af0f0423313cf52f6ea53.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47bcd42d74f58f5b4b09a61b8b2cd2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: 7 Questions About Life After Life | Free Book
-date: 2024-10-25 21:49:56
-updated: 2024-10-26 10:30:47
+date: 2024-10-21T03:34:42.699Z
+updated: 2024-10-27T01:45:41.204Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0ebccb6c24f5a03ecd047e5cb2fd469f4b57c8637da10c9bab489294e8d09e8.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0ebccb6c24f5a03ecd047e5cb2fd46
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Las Enfermedades comienzan y terminan en tu mente | Free Book
-date: 2024-10-23 23:26:33
-updated: 2024-10-26 10:19:52
+date: 2024-10-23T16:45:34.324Z
+updated: 2024-10-26T23:25:40.502Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9cabfeca0b3675329c9fc224cae2aa14f94cd7f47d7f8a8904b2e85d51d973f3.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9cabfeca0b3675329c9fc224cae2aa1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

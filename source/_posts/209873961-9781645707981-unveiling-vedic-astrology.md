@@ -1,7 +1,7 @@
 ---
 title: Unveiling Vedic Astrology | Free Book
-date: 2024-10-23 12:35:45
-updated: 2024-10-26 12:11:44
+date: 2024-10-25T22:57:45.474Z
+updated: 2024-10-26T18:15:58.884Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf9b3ad6fc5a38fab11f3ccc40566a9423dc9496699a5da4a587a2eed48d55d7.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf9b3ad6fc5a38fab11f3ccc40566a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

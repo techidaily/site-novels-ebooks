@@ -1,7 +1,7 @@
 ---
 title: Unsolved Mysteries of the Sea | Free Book
-date: 2024-10-23 17:42:53
-updated: 2024-10-26 10:43:39
+date: 2024-10-19T18:20:35.321Z
+updated: 2024-10-26T22:43:31.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b736eec006f7395c8a3849e9bc6ec37ce5327aa063c4f8a263bc82a1fa3ed77b.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b736eec006f7395c8a3849e9bc6ec37
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

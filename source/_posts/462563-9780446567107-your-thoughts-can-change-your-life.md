@@ -1,7 +1,7 @@
 ---
 title: Your Thoughts Can Change Your Life | Free Book
-date: 2024-10-25 17:58:33
-updated: 2024-10-26 11:36:27
+date: 2024-10-24T02:43:39.084Z
+updated: 2024-10-26T21:45:14.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/87ba14fd2cdb53282a38df8f296fe50c53c130b33fdedc2830eb7e77c9d70e22.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/87ba14fd2cdb53282a38df8f296fe50
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

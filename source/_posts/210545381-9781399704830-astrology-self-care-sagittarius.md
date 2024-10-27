@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Sagittarius | Free Book"
-date: 2024-10-24 12:39:31
-updated: 2024-10-26 11:32:52
+date: 2024-10-19T17:07:17.690Z
+updated: 2024-10-26T17:17:22.683Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6bb190825713de650948793cd4120fc506bef825d7aec16ff00e104b0fab8ec6.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6bb190825713de650948793cd4120fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

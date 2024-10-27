@@ -1,7 +1,7 @@
 ---
 title: Astrology for Real Relationships | Free Book
-date: 2024-10-25 11:44:34
-updated: 2024-10-26 10:38:10
+date: 2024-10-21T20:22:59.846Z
+updated: 2024-10-26T21:36:35.753Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f1cbfaa4cfd89f800941f767e8b6a574b47b2f85ac2a7337f75fa7aa8e952b1b.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f1cbfaa4cfd89f800941f767e8b6a57
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

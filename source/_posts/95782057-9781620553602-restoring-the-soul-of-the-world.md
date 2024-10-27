@@ -1,7 +1,7 @@
 ---
 title: Restoring the Soul of the World | Free Book
-date: 2024-10-25 13:52:10
-updated: 2024-10-26 12:20:43
+date: 2024-10-22T21:16:11.773Z
+updated: 2024-10-27T02:54:39.498Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d5317105c0d3771be0f28ec9ad6ef567285b39c3c771570b6a13cf2c1a6f2c6d.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d5317105c0d3771be0f28ec9ad6ef56
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

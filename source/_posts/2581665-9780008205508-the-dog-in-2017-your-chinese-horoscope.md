@@ -1,7 +1,7 @@
 ---
 title: "The Dog in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 23:51:24
-updated: 2024-10-26 12:33:28
+date: 2024-10-25T17:42:32.882Z
+updated: 2024-10-26T16:23:56.090Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdbb51f333e37317cdeb8dd42826ed64475232eea0d315c1fbdd324308e1da1.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdbb51f333e37317cdeb8dd42826ed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

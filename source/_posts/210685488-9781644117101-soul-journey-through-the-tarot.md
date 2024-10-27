@@ -1,7 +1,7 @@
 ---
 title: Soul Journey through the Tarot | Free Book
-date: 2024-10-25 22:54:36
-updated: 2024-10-26 11:43:37
+date: 2024-10-23T18:45:43.998Z
+updated: 2024-10-27T05:08:11.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90ac967613e5df14f6ed3fbe1ae18294ee53bcbfff52123dc7f79782632c2d96.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90ac967613e5df14f6ed3fbe1ae1829
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Fifty Years of Psychical Research | Free Book
-date: 2024-10-23 14:40:39
-updated: 2024-10-26 10:39:37
+date: 2024-10-24T01:37:43.486Z
+updated: 2024-10-26T16:54:03.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2163593613e23d23e162d5f4e1237cd05c.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Haunted Southern California | Free Book
-date: 2024-10-24 15:27:59
-updated: 2024-10-26 10:32:55
+date: 2024-10-20T18:32:33.983Z
+updated: 2024-10-26T17:33:04.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32baf1a0f38713f52171fcf2f215f6307d1ac4875e43148c223abf5f781b5414.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32baf1a0f38713f52171fcf2f215f63
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

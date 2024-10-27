@@ -1,7 +1,7 @@
 ---
 title: Chemistry of Aromatherapeutic Oils (3rd ed.) | Free Book
-date: 2024-10-25 10:42:41
-updated: 2024-10-26 10:18:20
+date: 2024-10-24T23:05:25.901Z
+updated: 2024-10-27T03:24:01.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79321b9248062bcca7b5065e72da96c8eb8a5a6b9b992d2477a72d2538d668bc.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79321b9248062bcca7b5065e72da96c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

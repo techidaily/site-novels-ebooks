@@ -1,7 +1,7 @@
 ---
 title: Les Premiers Entretiens de Gurdjieff 1914-1931 | Free Book
-date: 2024-10-24 12:46:20
-updated: 2024-10-26 12:19:45
+date: 2024-10-21T21:03:47.583Z
+updated: 2024-10-27T01:54:37.581Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/596526c8157a5aa74b1a32f6e76cd765610370e4b7a4ef48b26dd778943e853b.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/596526c8157a5aa74b1a32f6e76cd76
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

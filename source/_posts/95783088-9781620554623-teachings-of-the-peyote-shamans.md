@@ -1,7 +1,7 @@
 ---
 title: Teachings of the Peyote Shamans | Free Book
-date: 2024-10-23 10:17:24
-updated: 2024-10-26 11:56:49
+date: 2024-10-23T19:29:36.058Z
+updated: 2024-10-26T18:23:19.609Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f678311e8f306c71ba29bf1f78c753af4dabaae223f4d99bf78374f457a73e8.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f678311e8f306c71ba29bf1f78c753
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

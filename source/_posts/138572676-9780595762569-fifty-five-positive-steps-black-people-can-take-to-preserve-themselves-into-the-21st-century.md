@@ -1,7 +1,7 @@
 ---
 title: Fifty-Five Positive Steps Black People Can Take to Preserve Themselves into the 21St Century | Free Book
-date: 2024-10-24 21:29:50
-updated: 2024-10-26 12:41:49
+date: 2024-10-23T01:40:54.400Z
+updated: 2024-10-26T16:40:48.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1204be80453be03b9152087fe787e6f86c0e134a17abbbafdd6a6d982caf5d08.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1204be80453be03b9152087fe787e6f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書007：大道靈學探討與研究之機緣（體驗篇）: The Great Tao of Spiritual Science Series 07 | Free Book"
-date: 2024-10-23 17:48:13
-updated: 2024-10-26 12:34:51
+date: 2024-10-22T03:15:15.919Z
+updated: 2024-10-27T02:56:48.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14ea7f8d6f97231f8863b1f4ea26968fde794e0f60fba721739c59f77444b608.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14ea7f8d6f97231f8863b1f4ea26968
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Modern Witch's Guide to Magickal Self-Care | Free Book
-date: 2024-10-23 12:18:27
-updated: 2024-10-26 10:35:19
+date: 2024-10-21T03:47:28.563Z
+updated: 2024-10-27T02:45:48.528Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b93b0a144a2a676c9a8e5badf26c211d1b568331789cbbeca0e1d1b04d1100a9.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b93b0a144a2a676c9a8e5badf26c211
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

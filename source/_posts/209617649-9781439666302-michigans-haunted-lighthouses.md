@@ -1,7 +1,7 @@
 ---
 title: Michigan's Haunted Lighthouses | Free Book
-date: 2024-10-24 10:11:26
-updated: 2024-10-26 11:39:10
+date: 2024-10-26T00:52:14.180Z
+updated: 2024-10-26T17:55:21.818Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6c71fcfc741588869968823dc64a697533f2f4bf2f7f76204c9718720c44d58e.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6c71fcfc741588869968823dc64a697
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

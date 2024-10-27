@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Spellbook & Candle | Free Book
-date: 2024-10-25 22:55:30
-updated: 2024-10-26 12:56:45
+date: 2024-10-24T19:38:50.560Z
+updated: 2024-10-27T04:03:49.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/96bf07e709198fc577aa6a57d8d08296455f9c01804f8d9a6cc58c160e8dfea8.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/96bf07e709198fc577aa6a57d8d0829
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Holland's Grimoire of Magickal Correspondence | Free Book
-date: 2024-10-25 19:53:39
-updated: 2024-10-26 11:47:32
+date: 2024-10-23T18:23:51.959Z
+updated: 2024-10-26T18:12:06.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e8d1b457ea050a7cc9098bcf32c3b74ba49e8cae925b4e27d5a97f3ff3625c5.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e8d1b457ea050a7cc9098bcf32c3b7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

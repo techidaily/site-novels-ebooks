@@ -1,7 +1,7 @@
 ---
 title: The Deeper the Sorrow, The Stronger the Spirit | Free Book
-date: 2024-10-24 22:24:31
-updated: 2024-10-26 10:59:58
+date: 2024-10-26T02:54:35.614Z
+updated: 2024-10-26T20:08:49.715Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f266c181e1efca159e99083d01ce21e1b790545e5ff8334f6e94352843f01c6.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f266c181e1efca159e99083d01ce21
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

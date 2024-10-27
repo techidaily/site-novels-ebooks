@@ -1,7 +1,7 @@
 ---
 title: Perfeita exatamente como eu sou | Free Book
-date: 2024-10-25 12:53:44
-updated: 2024-10-26 11:57:15
+date: 2024-10-20T20:28:43.067Z
+updated: 2024-10-26T17:38:13.217Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38caa27b7b9a21f8a3b8f607e08cc25c4ebc8ec1e927c6f406b41eca7301c7fc.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38caa27b7b9a21f8a3b8f607e08cc25
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

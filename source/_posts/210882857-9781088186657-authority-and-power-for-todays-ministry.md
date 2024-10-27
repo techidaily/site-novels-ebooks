@@ -1,7 +1,7 @@
 ---
 title: AUTHORITY AND POWER FOR TODAY'S MINISTRY | Free Book
-date: 2024-10-25 15:20:46
-updated: 2024-10-26 12:34:51
+date: 2024-10-19T18:36:49.898Z
+updated: 2024-10-26T16:07:21.597Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d2276cde65bab203bc139f28587c857b2d18218f397fd5ce32524d71a77e068.jpg
@@ -209,3 +209,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d2276cde65bab203bc139f28587c85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

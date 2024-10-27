@@ -1,7 +1,7 @@
 ---
 title: The Essential Ernest Holmes | Free Book
-date: 2024-10-24 17:15:57
-updated: 2024-10-26 12:32:54
+date: 2024-10-25T02:19:57.965Z
+updated: 2024-10-26T22:11:02.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ffa649e801a6ec47ee430313a5c9cc51fd1b25bde5aa6a2a062138e294aa0dc.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ffa649e801a6ec47ee430313a5c9cc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

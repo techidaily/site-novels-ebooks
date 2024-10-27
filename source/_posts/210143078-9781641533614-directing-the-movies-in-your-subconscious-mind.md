@@ -1,7 +1,7 @@
 ---
 title: Directing the Movies in Your Subconscious mind | Free Book
-date: 2024-10-23 15:48:43
-updated: 2024-10-26 10:27:29
+date: 2024-10-25T04:32:16.138Z
+updated: 2024-10-26T21:27:16.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c03b68508f7e5bd11fb1c6e5c92a5c3161e08436391a956422a59d5287657aa2.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c03b68508f7e5bd11fb1c6e5c92a5c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Magick of Aleister Crowley | Free Book
-date: 2024-10-23 22:55:18
-updated: 2024-10-26 12:58:48
+date: 2024-10-19T22:13:44.939Z
+updated: 2024-10-26T21:43:33.673Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae1bd78e38aff899336417a7a49d3b3a618c12452474590ce9ea702338f04d65.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae1bd78e38aff899336417a7a49d3b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

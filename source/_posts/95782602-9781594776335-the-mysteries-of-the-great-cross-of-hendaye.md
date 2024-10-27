@@ -1,7 +1,7 @@
 ---
 title: The Mysteries of the Great Cross of Hendaye | Free Book
-date: 2024-10-24 20:15:14
-updated: 2024-10-26 12:59:32
+date: 2024-10-23T21:57:06.910Z
+updated: 2024-10-26T22:02:37.334Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b8bb4972f4558fe5698188593cd88d22906fc571981d781368d43ce330797c8.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b8bb4972f4558fe5698188593cd88d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

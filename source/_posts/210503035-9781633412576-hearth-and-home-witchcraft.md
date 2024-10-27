@@ -1,7 +1,7 @@
 ---
 title: Hearth and Home Witchcraft | Free Book
-date: 2024-10-25 18:28:23
-updated: 2024-10-26 10:30:27
+date: 2024-10-24T00:00:58.573Z
+updated: 2024-10-26T19:12:36.594Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/64e1290d4d8604728011a92a602adbd0b984a6c63b045409fc6e806829c32755.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/64e1290d4d8604728011a92a602adbd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

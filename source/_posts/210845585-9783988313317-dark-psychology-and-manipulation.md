@@ -1,7 +1,7 @@
 ---
 title: DARK PSYCHOLOGY AND MANIPULATION | Free Book
-date: 2024-10-23 11:23:28
-updated: 2024-10-26 12:51:34
+date: 2024-10-25T22:19:33.447Z
+updated: 2024-10-27T05:12:19.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d61907631cdf3489f0bbb2e2c3e7c27c80c17576a72f9a75947ed9282b400d7a.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d61907631cdf3489f0bbb2e2c3e7c27
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

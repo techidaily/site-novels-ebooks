@@ -1,7 +1,7 @@
 ---
 title: Summary of Harris Faulkner's Faith Still Moves Mountains | Free Book
-date: 2024-10-24 23:52:28
-updated: 2024-10-26 11:57:31
+date: 2024-10-23T20:15:13.146Z
+updated: 2024-10-26T22:16:16.370Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/067067291415f4a27da46302dea6f872503698a8c3041c909acd75094004d35d.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/067067291415f4a27da46302dea6f87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

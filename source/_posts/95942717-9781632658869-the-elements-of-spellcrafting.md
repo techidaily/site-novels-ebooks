@@ -1,7 +1,7 @@
 ---
 title: The Elements of Spellcrafting | Free Book
-date: 2024-10-24 15:21:21
-updated: 2024-10-26 11:15:28
+date: 2024-10-22T05:43:10.468Z
+updated: 2024-10-26T20:12:21.277Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb56e2c769b6b1dfd5147ace0724e035506a050a1f6d0b04527d76f25098d58f.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb56e2c769b6b1dfd5147ace0724e03
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

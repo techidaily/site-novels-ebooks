@@ -1,7 +1,7 @@
 ---
 title: Meditation Techniques of the Buddhist and Taoist Masters (2nd ed.) | Free Book
-date: 2024-10-24 17:22:24
-updated: 2024-10-26 12:20:21
+date: 2024-10-25T19:50:58.686Z
+updated: 2024-10-26T18:43:25.252Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/806cb746450a8e7f27db3cc3d5879b7706e0a635c36a0113e85af7d595c9b988.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/806cb746450a8e7f27db3cc3d5879b7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

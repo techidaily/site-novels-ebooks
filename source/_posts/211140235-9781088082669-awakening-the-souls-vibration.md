@@ -1,7 +1,7 @@
 ---
 title: Awakening the Soul's Vibration | Free Book
-date: 2024-10-24 22:52:16
-updated: 2024-10-26 12:11:48
+date: 2024-10-21T00:31:40.867Z
+updated: 2024-10-27T04:36:20.431Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b902f69bb58a6b83961490700517a9ef89fe3add390bf92c82ad25c73fcb6f7d.jpg
@@ -205,3 +205,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b902f69bb58a6b83961490700517a9e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Life Choices and Life Paths (4th ed.) | Free Book
-date: 2024-10-24 14:57:42
-updated: 2024-10-26 11:21:48
+date: 2024-10-19T23:36:39.352Z
+updated: 2024-10-27T05:16:19.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab751b76403b1256e64850193275db4d9bb4fa43b9a29a1cbce59a6e23cf16ec.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab751b76403b1256e64850193275db4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

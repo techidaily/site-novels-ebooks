@@ -1,7 +1,7 @@
 ---
 title: "Theurgy: Theory and Practice | Free Book"
-date: 2024-10-25 19:13:59
-updated: 2024-10-26 11:23:36
+date: 2024-10-19T19:13:04.761Z
+updated: 2024-10-27T04:17:10.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b618621d522e937de01a5d7b35dea2e920aab4d2b6d4d20fc437dda04f2ca60a.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b618621d522e937de01a5d7b35dea2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

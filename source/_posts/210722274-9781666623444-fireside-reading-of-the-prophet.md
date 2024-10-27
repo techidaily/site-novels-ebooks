@@ -1,7 +1,7 @@
 ---
 title: Fireside Reading of The Prophet | Free Book
-date: 2024-10-23 23:30:54
-updated: 2024-10-26 11:14:34
+date: 2024-10-24T19:33:15.866Z
+updated: 2024-10-27T01:42:32.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff61980856c80af2cbe5177538475a0551bb7f765dccb71efdb24eb74bb5d3e4.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff61980856c80af2cbe5177538475a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

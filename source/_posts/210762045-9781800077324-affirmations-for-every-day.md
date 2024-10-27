@@ -1,7 +1,7 @@
 ---
 title: Affirmations for Every Day | Free Book
-date: 2024-10-24 15:41:17
-updated: 2024-10-26 12:33:21
+date: 2024-10-22T17:03:54.090Z
+updated: 2024-10-27T04:50:29.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0656743778282045499333503d5446ad330bb4d38ffa7b7227d2015ae55b7a1.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0656743778282045499333503d5446
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

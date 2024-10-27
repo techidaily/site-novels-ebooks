@@ -1,7 +1,7 @@
 ---
 title: The Master Mind (Condensed Classics) | Free Book
-date: 2024-10-24 14:11:44
-updated: 2024-10-26 11:20:45
+date: 2024-10-25T02:15:41.170Z
+updated: 2024-10-26T16:15:50.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7cbd9a812143d66fff8a5a3640fed70a5250581c49e22af55c1ee8e30b09a4c.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7cbd9a812143d66fff8a5a3640fed7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

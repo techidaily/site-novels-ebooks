@@ -1,7 +1,7 @@
 ---
 title: "Faith: Unlocking the Power of Faith | Free Book"
-date: 2024-10-23 12:18:54
-updated: 2024-10-26 12:53:27
+date: 2024-10-22T18:28:14.337Z
+updated: 2024-10-27T05:56:30.298Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b71c97801567836bc5797abb501da96d5a57c95b6a9294b48390eeb079c230c.jpg
@@ -254,3 +254,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b71c97801567836bc5797abb501da9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

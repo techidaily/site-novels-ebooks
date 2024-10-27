@@ -1,7 +1,7 @@
 ---
 title: "The Ox in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-24 22:42:48
-updated: 2024-10-26 11:48:22
+date: 2024-10-23T18:25:40.234Z
+updated: 2024-10-27T05:58:06.929Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f42551ea59431500706b57bf0c6ae63c2ea3510f2f9272dc98d11d951f24271.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f42551ea59431500706b57bf0c6ae6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

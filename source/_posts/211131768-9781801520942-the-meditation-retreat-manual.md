@@ -1,7 +1,7 @@
 ---
 title: The Meditation Retreat Manual | Free Book
-date: 2024-10-23 13:29:50
-updated: 2024-10-26 12:37:21
+date: 2024-10-19T21:58:58.875Z
+updated: 2024-10-26T19:31:51.948Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ea25f572daaf903d362631a133e67f9ef563de7dc9fa0385c483c7506ddb71c.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ea25f572daaf903d362631a133e67f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

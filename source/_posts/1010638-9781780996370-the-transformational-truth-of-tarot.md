@@ -1,7 +1,7 @@
 ---
 title: The Transformational Truth of Tarot | Free Book
-date: 2024-10-24 13:55:57
-updated: 2024-10-26 10:40:45
+date: 2024-10-25T16:02:43.234Z
+updated: 2024-10-26T19:25:40.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b6fc034d1f479452cc4930ea18156a3e80b1ea9fa4af062cb019bab74239385a.jpg
@@ -119,3 +119,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b6fc034d1f479452cc4930ea18156a3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

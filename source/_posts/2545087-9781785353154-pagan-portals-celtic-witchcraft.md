@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Celtic Witchcraft | Free Book
-date: 2024-10-25 23:20:42
-updated: 2024-10-26 11:44:49
+date: 2024-10-26T04:36:41.122Z
+updated: 2024-10-27T02:45:04.772Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f1cb621c0d4c8ea701491a83f84c6498a3eb55be71dca2f50f8a9f79c75eaca.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f1cb621c0d4c8ea701491a83f84c64
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

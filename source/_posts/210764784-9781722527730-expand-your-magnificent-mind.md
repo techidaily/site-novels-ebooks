@@ -1,7 +1,7 @@
 ---
 title: Expand Your Magnificent Mind | Free Book
-date: 2024-10-23 21:54:35
-updated: 2024-10-26 12:41:48
+date: 2024-10-23T22:26:05.676Z
+updated: 2024-10-26T18:40:45.374Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/295be802617c8486134306c1398b77c07e52235e6e32b54a6b9cbcaee3a13bc7.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/295be802617c8486134306c1398b77c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

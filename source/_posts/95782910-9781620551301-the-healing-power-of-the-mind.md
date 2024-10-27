@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of the Mind | Free Book
-date: 2024-10-24 14:10:29
-updated: 2024-10-26 12:47:48
+date: 2024-10-25T00:10:10.839Z
+updated: 2024-10-27T04:43:48.876Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18a278b3851063fd6a0c19249b95b5674e24b8af49bb4245c672214215121206.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18a278b3851063fd6a0c19249b95b56
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

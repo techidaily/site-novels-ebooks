@@ -1,7 +1,7 @@
 ---
 title: Soul Journey Through Rahu & Ketu | Free Book
-date: 2024-10-24 18:50:43
-updated: 2024-10-26 11:27:12
+date: 2024-10-19T20:29:46.117Z
+updated: 2024-10-27T01:42:38.722Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0497a4f7ed6485c38e17374889cca0af642a9faf4bc52f598343e7ac6e118977.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0497a4f7ed6485c38e17374889cca0a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

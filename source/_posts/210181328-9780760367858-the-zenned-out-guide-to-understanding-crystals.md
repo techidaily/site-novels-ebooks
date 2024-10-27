@@ -1,7 +1,7 @@
 ---
 title: The Zenned Out Guide to Understanding Crystals | Free Book
-date: 2024-10-24 20:41:58
-updated: 2024-10-26 12:47:47
+date: 2024-10-21T23:03:26.398Z
+updated: 2024-10-26T19:20:32.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c4e7c164dbc1d031717119f6d5fde2e22cd88d083fe2b620327cdd886d0a287.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c4e7c164dbc1d031717119f6d5fde2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

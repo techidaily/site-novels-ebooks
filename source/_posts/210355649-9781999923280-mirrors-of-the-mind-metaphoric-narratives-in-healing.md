@@ -1,7 +1,7 @@
 ---
 title: Mirrors of the Mind - Metaphoric Narratives in Healing | Free Book
-date: 2024-10-23 22:18:32
-updated: 2024-10-26 10:55:50
+date: 2024-10-20T00:41:13.525Z
+updated: 2024-10-26T16:04:54.958Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7985bd5db2b3f1d94c0dcbd43c2455ef94bbf4d2124d2e7e005dd3f7687f3679.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7985bd5db2b3f1d94c0dcbd43c2455e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

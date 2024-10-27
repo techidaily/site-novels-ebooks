@@ -1,7 +1,7 @@
 ---
 title: "ONE SCARCE MAN:  LOOSED IN HIS HANDS | Free Book"
-date: 2024-10-25 15:23:58
-updated: 2024-10-26 12:18:56
+date: 2024-10-25T04:21:58.196Z
+updated: 2024-10-27T05:02:35.197Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ca52200812776bcc0b4125bf61fca3ac565697563fb60cd4cc494055e6f3760.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ca52200812776bcc0b4125bf61fca3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Power Places and the Master Builders of Antiquity | Free Book
-date: 2024-10-25 14:19:46
-updated: 2024-10-26 12:58:43
+date: 2024-10-20T03:44:48.130Z
+updated: 2024-10-26T21:33:57.579Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1dac0bbddf8d78c59895a8f8084ca2948d7c4d04a6992a00c3e96948012698db.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1dac0bbddf8d78c59895a8f8084ca29
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

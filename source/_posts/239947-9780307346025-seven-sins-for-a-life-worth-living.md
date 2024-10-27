@@ -1,7 +1,7 @@
 ---
 title: Seven Sins for a Life Worth Living | Free Book
-date: 2024-10-25 14:31:36
-updated: 2024-10-26 12:30:19
+date: 2024-10-20T22:24:12.000Z
+updated: 2024-10-26T21:45:35.889Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8bc48a888bca0559bd177123d0ecf791b39f3a7ccf1cb739989d4f86c62b99fc.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8bc48a888bca0559bd177123d0ecf79
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

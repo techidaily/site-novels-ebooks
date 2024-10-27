@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Otter Philosophy (The Little Animal Philosophy Books) | Free Book
-date: 2024-10-23 22:26:15
-updated: 2024-10-26 11:50:55
+date: 2024-10-19T19:12:05.428Z
+updated: 2024-10-27T04:32:09.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae1c2e3028d0c695446f157f97824f06c26d23fd6c59947df63eb88d8273179c.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae1c2e3028d0c695446f157f97824f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

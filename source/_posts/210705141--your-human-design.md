@@ -1,7 +1,7 @@
 ---
 title: Your Human Design | Free Book
-date: 2024-10-24 15:17:27
-updated: 2024-10-26 11:35:23
+date: 2024-10-20T05:45:29.714Z
+updated: 2024-10-26T22:32:46.380Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/eb6c474685174d91b078a585357dad5f99a932293399378d1b23e1f0d9ddd7b2.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb6c474685174d91b078a585357dad5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

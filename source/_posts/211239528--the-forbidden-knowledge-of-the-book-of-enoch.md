@@ -1,7 +1,7 @@
 ---
 title: The Forbidden Knowledge of the Book of Enoch | Free Book
-date: 2024-10-24 19:31:29
-updated: 2024-10-26 11:55:28
+date: 2024-10-20T21:03:23.981Z
+updated: 2024-10-26T22:27:14.729Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2eab678cceaf185b4e9dfc98f63850ebc9bf81c4e65fc88f127745b33da77db9.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2eab678cceaf185b4e9dfc98f63850e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

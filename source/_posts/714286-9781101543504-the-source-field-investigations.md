@@ -1,7 +1,7 @@
 ---
 title: The Source Field Investigations | Free Book
-date: 2024-10-23 12:34:22
-updated: 2024-10-26 10:14:22
+date: 2024-10-19T23:15:41.024Z
+updated: 2024-10-27T04:24:47.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1aa709ff172a7d21349378b9525217cfcb22ccd87e7011dca15b6699fd3dcaec.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1aa709ff172a7d21349378b9525217c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

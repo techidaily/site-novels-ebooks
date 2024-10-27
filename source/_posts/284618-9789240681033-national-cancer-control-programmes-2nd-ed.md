@@ -1,7 +1,7 @@
 ---
 title: National Cancer Control Programmes (2nd ed.) | Free Book
-date: 2024-10-23 13:33:43
-updated: 2024-10-26 12:13:16
+date: 2024-10-25T22:02:37.952Z
+updated: 2024-10-26T16:12:15.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b683f3e2116496d790611dca8a52c3977698637b39138fc2e968de6f27b33fa.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b683f3e2116496d790611dca8a52c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

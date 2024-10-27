@@ -1,7 +1,7 @@
 ---
 title: The Physics of Miracles | Free Book
-date: 2024-10-25 11:46:36
-updated: 2024-10-26 12:23:13
+date: 2024-10-21T01:41:26.445Z
+updated: 2024-10-26T19:30:49.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/277690b999cd8537c4866a701716882278161d9fdd9362da6b3aa875c4cce9eb.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/277690b999cd8537c4866a701716882
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

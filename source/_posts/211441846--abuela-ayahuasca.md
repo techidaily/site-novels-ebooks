@@ -1,7 +1,7 @@
 ---
 title: Abuela Ayahuasca | Free Book
-date: 2024-10-25 20:44:29
-updated: 2024-10-26 12:16:23
+date: 2024-10-25T21:15:24.398Z
+updated: 2024-10-26T16:41:14.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/718c5dfdaf208b3f319bcb91b16907fe61d38326da32724bd55fa178f92ed135.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/718c5dfdaf208b3f319bcb91b16907f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

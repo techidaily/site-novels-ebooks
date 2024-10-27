@@ -1,7 +1,7 @@
 ---
 title: How to Become a Modern Magus | Free Book
-date: 2024-10-23 22:44:20
-updated: 2024-10-26 10:15:29
+date: 2024-10-24T03:17:27.562Z
+updated: 2024-10-26T18:38:52.115Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/39a67cb06e69a760a002859271334de1502e5b4c0d630ae270f75aece6fff7fd.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/39a67cb06e69a760a002859271334de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Magical Knowledge Trilogy | Free Book
-date: 2024-10-23 16:34:18
-updated: 2024-10-26 11:20:52
+date: 2024-10-26T00:33:49.647Z
+updated: 2024-10-26T16:19:03.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/285906fc76ae6e06119f0dafd77d1787adc8f48d643d5af95a9665b84d3fce85.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/285906fc76ae6e06119f0dafd77d178
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Study Edition The Emerald Tablets of Thoth The Atlantean | Free Book
-date: 2024-10-25 11:47:55
-updated: 2024-10-26 11:59:45
+date: 2024-10-22T01:44:39.434Z
+updated: 2024-10-26T16:22:39.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/06997431ae0ecba57a879654ffd9ac5889f8f694c7d43ed6b301fb1b36c1c6d9.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/06997431ae0ecba57a879654ffd9ac5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

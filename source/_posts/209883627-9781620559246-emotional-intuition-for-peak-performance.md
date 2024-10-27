@@ -1,7 +1,7 @@
 ---
 title: Emotional Intuition for Peak Performance | Free Book
-date: 2024-10-24 16:42:40
-updated: 2024-10-26 12:35:44
+date: 2024-10-21T01:16:28.230Z
+updated: 2024-10-27T04:16:37.767Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/69b735b9508d8431ed92034f21c154f89c92f661f58a7400485c2ab78fadc5fd.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/69b735b9508d8431ed92034f21c154f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

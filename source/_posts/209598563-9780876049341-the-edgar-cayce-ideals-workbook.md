@@ -1,7 +1,7 @@
 ---
 title: The Edgar Cayce Ideals Workbook | Free Book
-date: 2024-10-25 13:54:23
-updated: 2024-10-26 10:58:26
+date: 2024-10-23T22:44:31.110Z
+updated: 2024-10-27T02:10:55.972Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83abd2f5e2c3c93e43ca09f974205cac0fb25c21d81f8e153938866e2f1b9137.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83abd2f5e2c3c93e43ca09f974205ca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Reflections of the Heart, of the Mind, and of the Soul | Free Book
-date: 2024-10-23 18:47:35
-updated: 2024-10-26 11:10:53
+date: 2024-10-24T19:21:42.108Z
+updated: 2024-10-26T22:43:26.893Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b2632c7e6343feb45ca8e20ed0a9738bb4f8282c0d84af3d40f31a1320c5e8a.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b2632c7e6343feb45ca8e20ed0a973
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

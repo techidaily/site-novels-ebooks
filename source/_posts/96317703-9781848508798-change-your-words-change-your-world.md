@@ -1,7 +1,7 @@
 ---
 title: Change Your Words, Change Your World | Free Book
-date: 2024-10-24 16:25:55
-updated: 2024-10-26 12:37:47
+date: 2024-10-22T16:08:36.178Z
+updated: 2024-10-27T03:12:08.257Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4122d2d2fd7d9ed8e07c0254f92365da91a1aba1b0235e0cd3e11893c648484.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4122d2d2fd7d9ed8e07c0254f92365
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

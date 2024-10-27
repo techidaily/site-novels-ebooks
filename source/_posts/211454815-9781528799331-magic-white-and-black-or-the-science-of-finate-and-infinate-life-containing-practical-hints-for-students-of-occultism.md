@@ -1,7 +1,7 @@
 ---
 title: Magic, White and Black; Or, The Science of Finate and Infinate Life, Containing Practical Hints for Students of Occultism | Free Book
-date: 2024-10-23 19:17:16
-updated: 2024-10-26 12:59:37
+date: 2024-10-25T01:12:37.728Z
+updated: 2024-10-27T05:17:57.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a395c1a22a4e5eddf3ed44cb1b1579e80d67ad2052bb722ea1d5f2783026d6a.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a395c1a22a4e5eddf3ed44cb1b1579
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

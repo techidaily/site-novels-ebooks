@@ -1,7 +1,7 @@
 ---
 title: A Kitchen Witch's Guide to Recipes for Love & Romance | Free Book
-date: 2024-10-25 20:36:14
-updated: 2024-10-26 12:12:44
+date: 2024-10-21T01:32:54.031Z
+updated: 2024-10-27T00:47:31.569Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8fbb0aebf4b4c23c95ad2909e9f991694199f3805546c3b4849a1c663752cd02.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8fbb0aebf4b4c23c95ad2909e9f9916
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

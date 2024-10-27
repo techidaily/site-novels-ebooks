@@ -1,7 +1,7 @@
 ---
 title: Rising from the Dark Side of Life | Free Book
-date: 2024-10-23 11:36:48
-updated: 2024-10-26 10:13:11
+date: 2024-10-24T21:15:53.220Z
+updated: 2024-10-27T00:38:40.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c7a02a9b473ea86ca09b5a542da59632cf6b6019edfac64c5f8e8ed8e5f6e7ca.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c7a02a9b473ea86ca09b5a542da5963
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

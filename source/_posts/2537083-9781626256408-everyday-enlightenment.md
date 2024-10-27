@@ -1,7 +1,7 @@
 ---
 title: Everyday Enlightenment | Free Book
-date: 2024-10-25 14:12:12
-updated: 2024-10-26 12:46:56
+date: 2024-10-20T19:29:30.318Z
+updated: 2024-10-27T04:52:14.182Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca2f9694af15967ee684ec9d965edd4087f6ed8dfabd6f23c3206f3bd1bdd9da.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca2f9694af15967ee684ec9d965edd4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

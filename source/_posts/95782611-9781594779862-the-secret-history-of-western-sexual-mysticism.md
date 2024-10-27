@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Western Sexual Mysticism | Free Book
-date: 2024-10-24 21:33:19
-updated: 2024-10-26 10:22:27
+date: 2024-10-23T02:54:55.699Z
+updated: 2024-10-26T21:31:01.404Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85ad0feb847a15a8201cecc902c5625d3518e3f3052eef632018ee785e702384.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85ad0feb847a15a8201cecc902c5625
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

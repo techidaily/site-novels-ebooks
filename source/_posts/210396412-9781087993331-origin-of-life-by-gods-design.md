@@ -1,7 +1,7 @@
 ---
 title: Origin of Life by God's Design | Free Book
-date: 2024-10-24 17:11:19
-updated: 2024-10-26 10:20:27
+date: 2024-10-19T20:20:24.098Z
+updated: 2024-10-26T21:23:19.393Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f564693b07b7738b9f0daa266741d4c28328469eddcd91bfccc1c728ed775f19.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f564693b07b7738b9f0daa266741d4c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

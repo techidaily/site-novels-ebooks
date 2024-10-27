@@ -1,7 +1,7 @@
 ---
 title: The Unrevealing Shadow Walker | Free Book
-date: 2024-10-24 12:48:48
-updated: 2024-10-26 11:56:55
+date: 2024-10-24T16:25:36.895Z
+updated: 2024-10-27T01:21:04.598Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/360d0124f24f0f0767f6eb2a1e7e7f310969593d71fc0fbab4cb5d40073ce00f.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/360d0124f24f0f0767f6eb2a1e7e7f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Thinking About Thinking | Free Book
-date: 2024-10-23 18:11:14
-updated: 2024-10-26 10:30:36
+date: 2024-10-25T01:53:34.801Z
+updated: 2024-10-26T18:44:04.063Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a06de9abec18545aa2869afb7e0b64344e944a4930c51c9477ff8c4b37e3d5b.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a06de9abec18545aa2869afb7e0b64
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

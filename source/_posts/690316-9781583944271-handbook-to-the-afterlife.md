@@ -1,7 +1,7 @@
 ---
 title: Handbook to the Afterlife | Free Book
-date: 2024-10-24 11:45:17
-updated: 2024-10-26 10:13:26
+date: 2024-10-21T05:57:35.386Z
+updated: 2024-10-26T17:01:20.087Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22bdbb4641866a655a7d5a11211dbc382209bfd2ee293ead84e185a75d174708.jpg
@@ -231,3 +231,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22bdbb4641866a655a7d5a11211dbc3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

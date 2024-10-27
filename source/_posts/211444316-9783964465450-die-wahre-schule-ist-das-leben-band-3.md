@@ -1,7 +1,7 @@
 ---
 title: Die wahre Schule ist das Leben - Band 3 | Free Book
-date: 2024-10-24 23:43:40
-updated: 2024-10-26 10:43:48
+date: 2024-10-19T20:31:38.654Z
+updated: 2024-10-27T04:32:20.965Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/480c4affb0731f1fa653a16db14260041fc15060d73ea7ac0ec5b942c89d0158.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/480c4affb0731f1fa653a16db142600
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

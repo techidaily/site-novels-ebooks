@@ -1,7 +1,7 @@
 ---
 title: Energy Medicine for Animals (2nd ed.) | Free Book
-date: 2024-10-25 15:30:29
-updated: 2024-10-26 11:28:45
+date: 2024-10-21T17:44:31.457Z
+updated: 2024-10-27T01:54:15.710Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44a217a6374a8a74798aeac39dc668e407ffdb374f233e77d58f94ef7749069b.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44a217a6374a8a74798aeac39dc668e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

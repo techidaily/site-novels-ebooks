@@ -1,7 +1,7 @@
 ---
 title: El libro de los pensamientos Volumen 3 | Free Book
-date: 2024-10-25 20:13:30
-updated: 2024-10-26 10:45:33
+date: 2024-10-20T20:55:40.249Z
+updated: 2024-10-27T05:02:28.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b1ad47faca17f071d18eada78009e29df6d9d58a03d97d074d6ca4b167a7ede.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b1ad47faca17f071d18eada78009e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: El tarot. Aprenda a leer las cartas | Free Book
-date: 2024-10-23 14:14:40
-updated: 2024-10-26 11:16:53
+date: 2024-10-23T00:04:05.115Z
+updated: 2024-10-27T03:49:41.098Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e051b455f16d65be60083e6b840d99883cf089716f49e262ea780b24890f6d07.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e051b455f16d65be60083e6b840d998
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

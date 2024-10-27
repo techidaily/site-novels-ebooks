@@ -1,7 +1,7 @@
 ---
 title: Which Side Of The Fence Are You On | Free Book
-date: 2024-10-23 11:59:56
-updated: 2024-10-26 12:32:36
+date: 2024-10-21T18:28:52.262Z
+updated: 2024-10-27T04:58:57.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f2413cf91d9c50c792f273ce3521aa02b50a6465751b231ed76fe2b3aadf5fc.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f2413cf91d9c50c792f273ce3521aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

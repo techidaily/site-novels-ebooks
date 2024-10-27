@@ -1,7 +1,7 @@
 ---
 title: The Beginner's Guide to Ayurvedic Home Remedies | Free Book
-date: 2024-10-25 14:19:28
-updated: 2024-10-26 11:34:43
+date: 2024-10-22T19:19:18.593Z
+updated: 2024-10-27T01:18:30.022Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49ac0dde9c0cc91c5fb49f51a99db296bdb0a397d90ba98c9253081dc0e09d2c.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49ac0dde9c0cc91c5fb49f51a99db29
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

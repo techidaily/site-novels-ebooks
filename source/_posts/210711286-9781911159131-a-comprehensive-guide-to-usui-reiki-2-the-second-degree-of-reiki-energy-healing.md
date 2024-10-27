@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide To Usui Reiki 2. The Second Degree Of Reiki Energy Healing | Free Book
-date: 2024-10-25 10:17:59
-updated: 2024-10-26 10:43:10
+date: 2024-10-23T18:24:25.849Z
+updated: 2024-10-27T05:32:19.976Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3079b0f84c0787f7e6442c987489effbf66c3c87d14eb0ba857a8012b7654eea.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3079b0f84c0787f7e6442c987489eff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Heaven's Consciousness A Near-death Experience | Free Book
-date: 2024-10-25 21:42:14
-updated: 2024-10-26 10:38:50
+date: 2024-10-20T18:22:31.443Z
+updated: 2024-10-26T22:44:46.853Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3c291d72f8041e49d410d13b70f471f14d29001a21a396edd599462606795db.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3c291d72f8041e49d410d13b70f471
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

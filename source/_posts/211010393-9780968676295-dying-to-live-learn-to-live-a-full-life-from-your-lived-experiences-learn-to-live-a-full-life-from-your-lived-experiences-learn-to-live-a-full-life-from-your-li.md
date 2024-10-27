@@ -1,7 +1,7 @@
 ---
 title: "Dying to Live: Learn to Live a Full Life From Your Lived Experiences: Learn to Live A Full Life From Your Lived Experiences: Learn to Live a Full Life From Your Lived Experiences | Free Book"
-date: 2024-10-25 23:33:48
-updated: 2024-10-26 12:28:22
+date: 2024-10-19T18:28:54.007Z
+updated: 2024-10-27T01:38:08.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/97079caa588cd36a4f24e5f01de7fa6a0b93854ca999d0d2eb729f9dcbea2072.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/97079caa588cd36a4f24e5f01de7fa6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

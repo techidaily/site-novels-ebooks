@@ -1,7 +1,7 @@
 ---
 title: Jungle Medicine | Free Book
-date: 2024-10-24 10:56:37
-updated: 2024-10-26 12:50:47
+date: 2024-10-21T03:00:41.206Z
+updated: 2024-10-27T00:08:09.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f2424dcabd286100320e03c26937d416b5aa44d6113c31512de98501e0de190.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f2424dcabd286100320e03c26937d4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

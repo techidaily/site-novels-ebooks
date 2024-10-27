@@ -1,7 +1,7 @@
 ---
 title: "The Key to Tarot: From Suits to Symbolism | Free Book"
-date: 2024-10-25 18:44:53
-updated: 2024-10-26 12:31:20
+date: 2024-10-24T05:28:39.236Z
+updated: 2024-10-26T18:49:48.904Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74cfb2bd85ef63b09491e0f3a82b03755c81d07076e3d3b6b3bea45a4af87324.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74cfb2bd85ef63b09491e0f3a82b037
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

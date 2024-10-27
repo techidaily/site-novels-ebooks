@@ -1,7 +1,7 @@
 ---
 title: New Age religion and Western culture | Free Book
-date: 2024-10-24 14:52:41
-updated: 2024-10-26 11:20:49
+date: 2024-10-21T16:40:31.084Z
+updated: 2024-10-26T23:26:54.808Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6f9d9d835b5f6a2e420ecaac19ce2b2daedd653c2f07c6f99e6288f42cbdfa2.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6f9d9d835b5f6a2e420ecaac19ce2b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

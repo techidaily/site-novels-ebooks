@@ -1,7 +1,7 @@
 ---
 title: Living With Enlightenment | Free Book
-date: 2024-10-25 13:41:16
-updated: 2024-10-26 11:44:51
+date: 2024-10-25T02:49:55.702Z
+updated: 2024-10-26T17:47:08.840Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3667474877929d4732dc8b15a29a4f306ef2a54ea9a0b2b099710450a0e28500.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3667474877929d4732dc8b15a29a4f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Two Near-Death Experiences | Free Book
-date: 2024-10-23 15:28:19
-updated: 2024-10-26 11:25:46
+date: 2024-10-22T23:27:57.112Z
+updated: 2024-10-27T03:39:42.114Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00965dd55b8d1984bc5d4b3329325ed75618c6a8629e010b8ad140a5cd35a154.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00965dd55b8d1984bc5d4b3329325ed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

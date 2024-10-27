@@ -1,7 +1,7 @@
 ---
 title: People Who Don't Know They're Dead | Free Book
-date: 2024-10-25 23:45:33
-updated: 2024-10-26 12:51:57
+date: 2024-10-24T20:47:54.680Z
+updated: 2024-10-26T20:37:43.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3dea86b2e43d9b34fccff221bf0e4ed293050e3ac9d054de3c78f2636e9e085.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3dea86b2e43d9b34fccff221bf0e4e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

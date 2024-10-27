@@ -1,7 +1,7 @@
 ---
 title: Crystals for Energy Protection | Free Book
-date: 2024-10-25 23:41:24
-updated: 2024-10-26 10:44:13
+date: 2024-10-25T17:06:57.055Z
+updated: 2024-10-26T19:52:20.624Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/737049b133d99faab3111eb43f0954b7f2d4cc959ebff1105f3c25cadc9faf8e.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/737049b133d99faab3111eb43f0954b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

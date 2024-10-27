@@ -1,7 +1,7 @@
 ---
 title: The Seven Dawns of the Aumakua (2nd ed.) | Free Book
-date: 2024-10-25 12:19:19
-updated: 2024-10-26 12:26:37
+date: 2024-10-20T20:23:22.945Z
+updated: 2024-10-26T16:07:46.675Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/05a9704e52caaeb299a9e44e7546286352255b17ec4941b8f8fe062696c0eb39.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/05a9704e52caaeb299a9e44e7546286
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

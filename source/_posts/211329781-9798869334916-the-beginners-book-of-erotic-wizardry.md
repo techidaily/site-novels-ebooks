@@ -1,7 +1,7 @@
 ---
 title: The Beginner's Book of Erotic Wizardry | Free Book
-date: 2024-10-24 20:39:58
-updated: 2024-10-26 12:11:40
+date: 2024-10-23T00:49:35.878Z
+updated: 2024-10-26T18:11:08.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b42526395918ccdcc1d15e3e5c1fb7ae4960ce553751e82e9d1da24eb4b2a42.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b42526395918ccdcc1d15e3e5c1fb7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Tolstoy in Search of Truth and Meaning | Free Book
-date: 2024-10-23 10:37:50
-updated: 2024-10-26 11:47:35
+date: 2024-10-24T21:28:46.430Z
+updated: 2024-10-27T01:31:18.066Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/780824e177ebf71eda9fb844814fd2c7e440ee15531528e6a53e02e53c5d00a8.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/780824e177ebf71eda9fb844814fd2c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

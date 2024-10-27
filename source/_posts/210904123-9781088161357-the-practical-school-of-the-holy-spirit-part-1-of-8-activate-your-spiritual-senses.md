@@ -1,7 +1,7 @@
 ---
 title: The Practical School of the Holy Spirit - Part 1 of 8 - Activate Your Spiritual Senses | Free Book
-date: 2024-10-24 18:50:56
-updated: 2024-10-26 12:12:16
+date: 2024-10-23T19:15:46.251Z
+updated: 2024-10-27T03:45:08.401Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83648195195c76c99321da48f679985752ae146bd12070a99ce0fcc25f557ea8.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83648195195c76c99321da48f679985
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret of Inner Presence | Free Book
-date: 2024-10-23 15:38:48
-updated: 2024-10-26 12:27:20
+date: 2024-10-24T21:32:50.464Z
+updated: 2024-10-26T16:38:44.574Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fdc6a1b67455e91f926c0e26a496e1cdbd6ebffe4a2529f17a5178648df6448.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fdc6a1b67455e91f926c0e26a496e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

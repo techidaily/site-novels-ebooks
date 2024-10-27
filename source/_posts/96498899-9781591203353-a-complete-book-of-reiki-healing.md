@@ -1,7 +1,7 @@
 ---
 title: A Complete Book of Reiki Healing | Free Book
-date: 2024-10-23 13:47:55
-updated: 2024-10-26 12:33:20
+date: 2024-10-24T02:49:18.363Z
+updated: 2024-10-26T19:29:39.279Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b7d87f2f8a05264db45a314eb9ae845e59.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

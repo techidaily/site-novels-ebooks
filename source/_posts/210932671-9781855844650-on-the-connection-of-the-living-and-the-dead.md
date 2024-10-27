@@ -1,7 +1,7 @@
 ---
 title: On The Connection of The Living And The Dead | Free Book
-date: 2024-10-23 12:54:47
-updated: 2024-10-26 11:27:15
+date: 2024-10-25T20:51:03.155Z
+updated: 2024-10-27T05:48:29.301Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ebed1b9686015bb13f7b90dc947647de4f6cc4a3103a09174cdeba33f5800f0d.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ebed1b9686015bb13f7b90dc947647d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

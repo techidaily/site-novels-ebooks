@@ -1,7 +1,7 @@
 ---
 title: God's Itinerary | Free Book
-date: 2024-10-23 13:17:42
-updated: 2024-10-26 10:28:14
+date: 2024-10-23T04:29:23.862Z
+updated: 2024-10-27T02:15:04.479Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/bbd4ec9223d5eb24ef1179acc6913b06537aa60e10ea25393980a9f8ca9c032e.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbd4ec9223d5eb24ef1179acc6913b0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

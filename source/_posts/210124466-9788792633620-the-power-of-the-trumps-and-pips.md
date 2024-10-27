@@ -1,7 +1,7 @@
 ---
 title: The power of the trumps and pips | Free Book
-date: 2024-10-23 19:18:20
-updated: 2024-10-26 12:44:28
+date: 2024-10-21T20:31:19.358Z
+updated: 2024-10-26T22:18:54.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f71d6233d8206fb3744f394881d27b15abde6396ea52e2ae6a668b5779bf1857.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f71d6233d8206fb3744f394881d27b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

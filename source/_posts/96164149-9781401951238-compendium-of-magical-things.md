@@ -1,7 +1,7 @@
 ---
 title: Compendium of Magical Things | Free Book
-date: 2024-10-25 18:42:36
-updated: 2024-10-26 11:29:15
+date: 2024-10-22T21:11:19.540Z
+updated: 2024-10-26T16:47:02.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb65e90cfed8991ee31a7625e16922d36754d9eb59d182a21917a924243a1fc6.jpg
@@ -234,3 +234,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb65e90cfed8991ee31a7625e16922d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

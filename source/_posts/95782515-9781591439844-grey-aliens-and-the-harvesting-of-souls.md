@@ -1,7 +1,7 @@
 ---
 title: Grey Aliens and the Harvesting of Souls | Free Book
-date: 2024-10-25 10:10:17
-updated: 2024-10-26 10:48:20
+date: 2024-10-20T16:57:11.387Z
+updated: 2024-10-26T20:41:04.422Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec4fefa2bb02114b6f8e4c6f3a505b7eb8df19bab81dba43098a1078581ee3e0.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec4fefa2bb02114b6f8e4c6f3a505b7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

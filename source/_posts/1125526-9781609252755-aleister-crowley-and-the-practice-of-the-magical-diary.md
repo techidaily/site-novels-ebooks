@@ -1,7 +1,7 @@
 ---
 title: Aleister Crowley And the Practice of the Magical Diary | Free Book
-date: 2024-10-24 11:29:57
-updated: 2024-10-26 11:35:52
+date: 2024-10-19T21:02:58.640Z
+updated: 2024-10-26T23:53:08.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc15a803885459ce447f6148e49b5432d95535fb779d49fe5bef2eea99037286.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc15a803885459ce447f6148e49b543
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

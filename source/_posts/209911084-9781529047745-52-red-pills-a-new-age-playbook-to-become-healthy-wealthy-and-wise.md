@@ -1,7 +1,7 @@
 ---
 title: "52 Red Pills: A New-Age Playbook to Become Healthy, Wealthy and Wise | Free Book"
-date: 2024-10-24 17:48:25
-updated: 2024-10-26 10:15:23
+date: 2024-10-19T22:00:54.269Z
+updated: 2024-10-27T00:28:25.039Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f3d7d892e2a4214b9ebf18ce7f3f8fc48c3151231309552d54f369359301384e.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f3d7d892e2a4214b9ebf18ce7f3f8fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Witch's Complete Guide to Crystals | Free Book
-date: 2024-10-24 11:10:52
-updated: 2024-10-26 11:20:42
+date: 2024-10-22T05:55:13.336Z
+updated: 2024-10-27T01:40:39.004Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad9c4c3a293d2a1939d05c44785177f10814a5316c407603f67784ca25c53139.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad9c4c3a293d2a1939d05c44785177f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

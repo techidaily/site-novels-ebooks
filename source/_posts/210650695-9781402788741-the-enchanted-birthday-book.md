@@ -1,7 +1,7 @@
 ---
 title: The Enchanted Birthday Book | Free Book
-date: 2024-10-25 22:42:59
-updated: 2024-10-26 10:20:58
+date: 2024-10-19T22:21:36.791Z
+updated: 2024-10-27T01:31:42.734Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d671f7aa0ce3cb868449d9ffdeacc58c8bfa81f049df0306e3f7a72396d490f.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d671f7aa0ce3cb868449d9ffdeacc5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

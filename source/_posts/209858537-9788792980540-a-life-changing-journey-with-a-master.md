@@ -1,7 +1,7 @@
 ---
 title: A Life Changing Journey with a Master | Free Book
-date: 2024-10-23 10:23:45
-updated: 2024-10-26 10:38:56
+date: 2024-10-23T22:39:58.061Z
+updated: 2024-10-26T17:00:53.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc1fe716dcef35562d7d2485bd09f5407087f36fa22239a03624d380a29ec987.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc1fe716dcef35562d7d2485bd09f54
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

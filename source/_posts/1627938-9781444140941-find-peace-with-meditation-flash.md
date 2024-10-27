@@ -1,7 +1,7 @@
 ---
 title: "Find Peace with Meditation: Flash | Free Book"
-date: 2024-10-25 10:37:28
-updated: 2024-10-26 10:38:40
+date: 2024-10-24T18:09:42.816Z
+updated: 2024-10-26T17:27:08.255Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c62eea2aface4a50c0b49a5688988bc08da75d2a137fc24749c206f9d81278.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c62eea2aface4a50c0b49a5688988
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations For Deep Sleep, Overcoming Anxiety& Mindfulness | Free Book
-date: 2024-10-24 14:48:37
-updated: 2024-10-26 12:39:47
+date: 2024-10-23T06:00:23.661Z
+updated: 2024-10-26T19:18:13.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0cc943624dac60557b3a967eb89e34985accf48cefdecef79d7fb24cab6d08a4.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0cc943624dac60557b3a967eb89e349
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Através do guia Diário da Meditação | Free Book
-date: 2024-10-23 21:48:53
-updated: 2024-10-26 12:45:57
+date: 2024-10-22T21:02:03.758Z
+updated: 2024-10-26T20:09:28.233Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ef67d6678d853986a2897c74a0503c60a56f384bad283933a8666451d56714c1.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ef67d6678d853986a2897c74a0503c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

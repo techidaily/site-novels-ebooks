@@ -1,7 +1,7 @@
 ---
 title: Living a Spiritual Life in a Material World | Free Book
-date: 2024-10-25 20:35:15
-updated: 2024-10-26 10:16:28
+date: 2024-10-26T02:11:17.838Z
+updated: 2024-10-27T04:28:26.644Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16c987f8aa03cd06a13e1a3cb4de9b6799585aacad23064e18eda4e0bec97588.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16c987f8aa03cd06a13e1a3cb4de9b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

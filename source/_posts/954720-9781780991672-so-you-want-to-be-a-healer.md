@@ -1,7 +1,7 @@
 ---
 title: So You Want To be A Healer? | Free Book
-date: 2024-10-23 16:37:33
-updated: 2024-10-26 12:42:43
+date: 2024-10-20T21:24:02.292Z
+updated: 2024-10-27T04:42:20.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/316645339a2a97366a3d6d803e09098f416e174121ec6055ce25068f146fbf28.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/316645339a2a97366a3d6d803e09098
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

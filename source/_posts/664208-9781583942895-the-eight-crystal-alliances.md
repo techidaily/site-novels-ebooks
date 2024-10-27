@@ -1,7 +1,7 @@
 ---
 title: The Eight Crystal Alliances | Free Book
-date: 2024-10-23 12:44:53
-updated: 2024-10-26 11:12:19
+date: 2024-10-22T20:21:11.896Z
+updated: 2024-10-27T05:02:02.299Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62cc86be8ee6adf521ec39e635429dda9032679b464b36c4f4d08cca97b9caf8.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62cc86be8ee6adf521ec39e635429dd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Apocalypse Of Baruch And The Assumption Of Moses | Free Book
-date: 2024-10-24 17:58:21
-updated: 2024-10-26 11:11:31
+date: 2024-10-19T19:05:05.296Z
+updated: 2024-10-26T19:41:23.369Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a7b8e7dd9cb1f4eca46bb3b254e39da2519b337ec6aafb17c4f7b36eaf6d33d.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a7b8e7dd9cb1f4eca46bb3b254e39d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

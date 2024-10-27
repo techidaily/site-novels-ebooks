@@ -1,7 +1,7 @@
 ---
 title: Colin Wilson's 'Occult Trilogy' | Free Book
-date: 2024-10-23 21:51:37
-updated: 2024-10-26 10:21:54
+date: 2024-10-23T17:02:15.164Z
+updated: 2024-10-27T02:44:12.702Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1d10e99296c3863186d52076ef21e51ec285c151f86015115593c1929923def.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1d10e99296c3863186d52076ef21e5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

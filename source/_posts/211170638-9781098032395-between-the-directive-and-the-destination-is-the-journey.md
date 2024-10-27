@@ -1,7 +1,7 @@
 ---
 title: Between the Directive and the Destination is the Journey | Free Book
-date: 2024-10-23 13:40:37
-updated: 2024-10-26 12:52:41
+date: 2024-10-24T17:08:59.444Z
+updated: 2024-10-27T00:06:34.186Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43311a0e304ba5a6b3fc1fe7718fedd32b5871bcd94ba91f5485a02b76099096.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43311a0e304ba5a6b3fc1fe7718fedd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

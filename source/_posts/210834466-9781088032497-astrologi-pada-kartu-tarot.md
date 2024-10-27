@@ -1,7 +1,7 @@
 ---
 title: Astrologi pada Kartu Tarot | Free Book
-date: 2024-10-24 19:35:31
-updated: 2024-10-26 12:10:14
+date: 2024-10-22T00:06:06.267Z
+updated: 2024-10-27T01:50:37.314Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc8c41f1e8a6e94bd68d0bb2f5b450e4a0bb39143dce81b4e394c98eb6dc5bcf.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc8c41f1e8a6e94bd68d0bb2f5b450e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Afterlives of the Rich and Famous | Free Book
-date: 2024-10-24 19:15:25
-updated: 2024-10-26 10:11:55
+date: 2024-10-22T02:35:44.195Z
+updated: 2024-10-26T16:54:48.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75bfe211711bdc676b8b644f1cbeac2e21a250d38eb4d2a4ac36dd63650528d3.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75bfe211711bdc676b8b644f1cbeac2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

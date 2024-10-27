@@ -1,7 +1,7 @@
 ---
 title: Raphael's Horary Astrology by which Every Question Relating to the Future May Be Answered | Free Book
-date: 2024-10-24 17:28:14
-updated: 2024-10-26 11:59:17
+date: 2024-10-24T00:48:47.128Z
+updated: 2024-10-26T22:28:20.975Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6089a40c7bd37a2bd9e4aa50fa58d98992bfe6a1b4928e9965e99bace87aa86.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6089a40c7bd37a2bd9e4aa50fa58d9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

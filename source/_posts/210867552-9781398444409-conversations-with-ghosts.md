@@ -1,7 +1,7 @@
 ---
 title: Conversations with Ghosts | Free Book
-date: 2024-10-23 14:53:15
-updated: 2024-10-26 11:20:53
+date: 2024-10-24T04:51:23.482Z
+updated: 2024-10-26T17:54:35.039Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/692b2ae192e4fe282fa2f1fd4eb73bad3bcd829f4d81e9b09f83dda2df056102.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/692b2ae192e4fe282fa2f1fd4eb73ba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

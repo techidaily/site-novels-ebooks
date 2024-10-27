@@ -1,7 +1,7 @@
 ---
 title: "Essential Meditations: Reference to Go | Free Book"
-date: 2024-10-25 21:16:32
-updated: 2024-10-26 10:42:30
+date: 2024-10-21T22:53:23.537Z
+updated: 2024-10-26T16:59:25.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efcdb4e2c2592d85af38db645799f6dad2083611efabee019fbc9fb0b1c4979e.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efcdb4e2c2592d85af38db645799f6d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

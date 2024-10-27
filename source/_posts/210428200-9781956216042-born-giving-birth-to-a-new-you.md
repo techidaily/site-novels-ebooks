@@ -1,7 +1,7 @@
 ---
 title: Born Giving Birth to a New You | Free Book
-date: 2024-10-25 22:19:35
-updated: 2024-10-26 11:46:34
+date: 2024-10-25T21:45:02.853Z
+updated: 2024-10-26T19:19:38.886Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/824c275b4c47cff9aaa829a5c705354dd2b46acd7896fec8c8ee311d2d0d79b4.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/824c275b4c47cff9aaa829a5c705354
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

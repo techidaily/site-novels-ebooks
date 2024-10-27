@@ -1,7 +1,7 @@
 ---
 title: Assim Acima, Como Abaixo. A Minha Vida Como Um Adepto. Uma Autobiografia por Seila Orienta | Free Book
-date: 2024-10-25 12:22:32
-updated: 2024-10-26 12:48:32
+date: 2024-10-26T03:12:27.045Z
+updated: 2024-10-26T19:56:26.179Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99f3ac682ee3507739f47f3a20b2021c9b505e5b3a79bb0fdfbc310f263041eb.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99f3ac682ee3507739f47f3a20b2021
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Multidisciplinary Approach to Embodiment | Free Book
-date: 2024-10-25 18:29:30
-updated: 2024-10-26 10:18:51
+date: 2024-10-24T22:58:33.168Z
+updated: 2024-10-26T16:50:16.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0606c359cd605cc6ec23f4dc6eaf9910d489b118acc6919dc8062454b328d621.jpg
@@ -237,3 +237,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0606c359cd605cc6ec23f4dc6eaf991
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

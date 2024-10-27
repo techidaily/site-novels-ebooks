@@ -1,7 +1,7 @@
 ---
 title: Das Lied des Klimawandels - jedes Land hat seine Strophen | Free Book
-date: 2024-10-24 12:23:59
-updated: 2024-10-26 12:48:45
+date: 2024-10-23T19:16:22.307Z
+updated: 2024-10-27T03:33:12.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4097be5d78168be210924becf77b5865ce4c558906e73ccde15384000017094c.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4097be5d78168be210924becf77b586
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

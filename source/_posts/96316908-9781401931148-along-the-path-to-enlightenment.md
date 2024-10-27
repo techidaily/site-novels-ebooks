@@ -1,7 +1,7 @@
 ---
 title: Along the Path to Enlightenment | Free Book
-date: 2024-10-25 12:58:52
-updated: 2024-10-26 12:48:36
+date: 2024-10-21T21:40:01.725Z
+updated: 2024-10-27T00:54:37.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/25e5535aa1b3cb65a9f047b46157275992520bf89ee77519917df6d0fccfe278.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25e5535aa1b3cb65a9f047b46157275
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

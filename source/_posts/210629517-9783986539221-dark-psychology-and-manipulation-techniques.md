@@ -1,7 +1,7 @@
 ---
 title: Dark Psychology and Manipulation Techniques | Free Book
-date: 2024-10-25 14:24:27
-updated: 2024-10-26 12:51:29
+date: 2024-10-26T05:47:12.524Z
+updated: 2024-10-26T16:52:50.324Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d31335b397dd7c7ee6758fc195a194d3b485ca1f64d1fe98188826c413b678ca.jpg
@@ -237,3 +237,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d31335b397dd7c7ee6758fc195a194d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

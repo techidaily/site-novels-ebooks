@@ -1,7 +1,7 @@
 ---
 title: The Herbal Alchemist's Handbook | Free Book
-date: 2024-10-23 22:35:17
-updated: 2024-10-26 11:37:19
+date: 2024-10-22T21:58:17.038Z
+updated: 2024-10-26T17:51:42.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51c6de8136820ff082cd11038550a72c59a66cb9e2c92bb439c4f18ba9e14550.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51c6de8136820ff082cd11038550a72
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

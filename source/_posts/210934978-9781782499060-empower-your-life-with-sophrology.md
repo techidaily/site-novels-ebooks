@@ -1,7 +1,7 @@
 ---
 title: Empower Your Life with Sophrology | Free Book
-date: 2024-10-23 14:58:40
-updated: 2024-10-26 10:54:59
+date: 2024-10-25T18:49:58.829Z
+updated: 2024-10-27T04:07:04.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df6f2f53d21dabfb4fa0dbb4e8e9d30cf2e28ae2651eb0a9c391613742d04182.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df6f2f53d21dabfb4fa0dbb4e8e9d30
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

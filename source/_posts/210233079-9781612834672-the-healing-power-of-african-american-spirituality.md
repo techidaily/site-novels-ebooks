@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of African-American Spirituality | Free Book
-date: 2024-10-23 21:53:28
-updated: 2024-10-26 11:53:44
+date: 2024-10-26T01:12:55.851Z
+updated: 2024-10-26T20:27:21.594Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a73abcbb9630389a4e5b803ec14087c5e0cef02d9868b842eb6d7446b0c635ba.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a73abcbb9630389a4e5b803ec14087c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

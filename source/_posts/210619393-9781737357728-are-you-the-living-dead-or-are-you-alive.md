@@ -1,7 +1,7 @@
 ---
 title: Are You the Living dead, or are you Alive? | Free Book
-date: 2024-10-24 10:46:57
-updated: 2024-10-26 10:53:58
+date: 2024-10-23T00:42:35.145Z
+updated: 2024-10-26T17:59:18.422Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9da6bcd11ea382719b692e10d5b76d3cda029c741bea19b6fb12fad3d55b75c6.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9da6bcd11ea382719b692e10d5b76d3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Spell Book | Free Book
-date: 2024-10-24 14:50:54
-updated: 2024-10-26 10:45:52
+date: 2024-10-24T04:14:20.548Z
+updated: 2024-10-27T03:39:10.160Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1643d8e94295c3d8ffdbd5b2eab4ed45d3638f75911c62ee325b60734f56db73.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1643d8e94295c3d8ffdbd5b2eab4ed4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

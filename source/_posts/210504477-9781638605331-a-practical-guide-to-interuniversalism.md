@@ -1,7 +1,7 @@
 ---
 title: A Practical Guide to Interuniversalism | Free Book
-date: 2024-10-24 13:11:39
-updated: 2024-10-26 11:45:29
+date: 2024-10-22T22:01:40.106Z
+updated: 2024-10-27T00:22:52.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2056259a46478b2d5b58bf3f25705860634deec338f2c9cf294d3cf2d480723c.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2056259a46478b2d5b58bf3f2570586
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Discovering Signs and Symbols | Free Book
-date: 2024-10-24 13:21:17
-updated: 2024-10-26 11:21:13
+date: 2024-10-21T21:25:10.190Z
+updated: 2024-10-26T19:43:57.103Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6985221dd77dafd0c3debbbaccd909e244f53a6cd7762a1b46bac9e183bc319.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6985221dd77dafd0c3debbbaccd909
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

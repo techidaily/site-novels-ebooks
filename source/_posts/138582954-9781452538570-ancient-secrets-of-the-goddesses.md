@@ -1,7 +1,7 @@
 ---
 title: Ancient Secrets of the Goddesses | Free Book
-date: 2024-10-25 12:56:24
-updated: 2024-10-26 10:11:52
+date: 2024-10-23T23:48:34.060Z
+updated: 2024-10-27T03:33:58.499Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f3968ee5430416e384f54e8f1b8df8776ce756efea2c800969df275ca23d773b.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f3968ee5430416e384f54e8f1b8df87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

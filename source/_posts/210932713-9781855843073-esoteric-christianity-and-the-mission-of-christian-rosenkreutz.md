@@ -1,7 +1,7 @@
 ---
 title: Esoteric Christianity and the Mission of Christian Rosenkreutz | Free Book
-date: 2024-10-25 22:39:59
-updated: 2024-10-26 10:39:11
+date: 2024-10-20T21:31:42.875Z
+updated: 2024-10-26T22:13:07.448Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51e884306110422e718af7a38d0575ef5ce3bf873d7d4e27c2b07f096069f73e.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51e884306110422e718af7a38d0575e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

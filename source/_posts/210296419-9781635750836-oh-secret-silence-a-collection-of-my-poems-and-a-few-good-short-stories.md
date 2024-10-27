@@ -1,7 +1,7 @@
 ---
 title: "Oh Secret Silence: A Collection of my Poems and a Few Good Short Stories | Free Book"
-date: 2024-10-24 21:30:50
-updated: 2024-10-26 11:25:13
+date: 2024-10-20T20:27:28.103Z
+updated: 2024-10-26T21:26:54.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9060890f79215c51a7ced552868f21c2de6f8310c599295703ac382d352bae4d.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9060890f79215c51a7ced552868f21c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

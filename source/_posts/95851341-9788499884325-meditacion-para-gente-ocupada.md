@@ -1,7 +1,7 @@
 ---
 title: Meditación para gente ocupada | Free Book
-date: 2024-10-24 18:14:27
-updated: 2024-10-26 12:19:18
+date: 2024-10-20T20:26:58.673Z
+updated: 2024-10-26T23:11:21.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d39fe8173aa53f6604605364fd6611a417226f8a728aebffdcbfcd562ec6284.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d39fe8173aa53f6604605364fd6611
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

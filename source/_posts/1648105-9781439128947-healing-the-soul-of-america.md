@@ -1,7 +1,7 @@
 ---
 title: Healing the Soul of America | Free Book
-date: 2024-10-23 19:44:21
-updated: 2024-10-26 10:47:59
+date: 2024-10-21T00:36:19.919Z
+updated: 2024-10-26T18:30:24.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5148a8c5ca8a2ef870227a39418771add8f9f138301b17aba3c0629de65bbce2.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5148a8c5ca8a2ef870227a39418771a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

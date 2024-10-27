@@ -1,7 +1,7 @@
 ---
 title: The Psychology of Paranormal Belief | Free Book
-date: 2024-10-23 11:39:34
-updated: 2024-10-26 10:55:22
+date: 2024-10-19T22:42:09.562Z
+updated: 2024-10-26T22:37:25.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd7ac1b153886f3d74618013bd76465c481b6975d2aa6ef64591be3d63e7fd13.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd7ac1b153886f3d74618013bd76465
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

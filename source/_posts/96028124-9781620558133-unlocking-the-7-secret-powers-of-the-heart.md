@@ -1,7 +1,7 @@
 ---
 title: Unlocking the 7 Secret Powers of the Heart | Free Book
-date: 2024-10-25 13:43:55
-updated: 2024-10-26 11:50:29
+date: 2024-10-25T18:12:46.405Z
+updated: 2024-10-26T21:52:28.069Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff854bb33d0155b7e21f1702a31bf32b272992ca0024f6fd20a889e74c5e5c68.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff854bb33d0155b7e21f1702a31bf32
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

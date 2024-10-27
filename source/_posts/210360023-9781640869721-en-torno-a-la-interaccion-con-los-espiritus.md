@@ -1,7 +1,7 @@
 ---
 title: En torno a la interacción con los espíritus | Free Book
-date: 2024-10-25 17:23:29
-updated: 2024-10-26 12:33:59
+date: 2024-10-19T17:18:15.237Z
+updated: 2024-10-27T02:54:46.915Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34f770a7f9b8c16ba71b8816971ba3ea9594685f1567058016610293a6e3f5f4.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34f770a7f9b8c16ba71b8816971ba3e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

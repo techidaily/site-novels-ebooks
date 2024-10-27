@@ -1,7 +1,7 @@
 ---
 title: Ritual Baths for the Beginner Witch | Free Book
-date: 2024-10-23 23:17:40
-updated: 2024-10-26 10:25:50
+date: 2024-10-21T00:47:53.321Z
+updated: 2024-10-26T19:30:39.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/69530a68a92c60dcef0e729e422de91f46aa85c1fcea2859f32311f1ba319e40.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/69530a68a92c60dcef0e729e422de91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

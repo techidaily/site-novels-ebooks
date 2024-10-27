@@ -1,7 +1,7 @@
 ---
 title: Think Like A Pro - Act Like A Pro | Free Book
-date: 2024-10-23 21:37:59
-updated: 2024-10-26 12:17:39
+date: 2024-10-24T16:11:24.884Z
+updated: 2024-10-27T03:10:41.102Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a73b9d390e7179ac6fc5669c77ce7d76d75bfdf3de60c97818349f3da4c8e1c.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a73b9d390e7179ac6fc5669c77ce7d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

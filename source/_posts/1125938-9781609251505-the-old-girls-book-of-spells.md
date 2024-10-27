@@ -1,7 +1,7 @@
 ---
 title: The Old Girl's Book of Spells | Free Book
-date: 2024-10-23 22:21:49
-updated: 2024-10-26 10:49:17
+date: 2024-10-20T16:52:58.954Z
+updated: 2024-10-26T19:55:57.867Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0bb40fd760497f92d1fa23cf57c34a469a8fc21b344f3b82d82e38e3f4d1e57e.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0bb40fd760497f92d1fa23cf57c34a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

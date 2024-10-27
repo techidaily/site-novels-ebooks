@@ -1,7 +1,7 @@
 ---
 title: Ancient Manifestation Secrets | Free Book
-date: 2024-10-25 14:11:40
-updated: 2024-10-26 10:13:13
+date: 2024-10-25T05:35:51.746Z
+updated: 2024-10-27T03:54:35.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b214361a564b91b387e969b33fe6a66b4a7eb0f569771e850f398483028377a.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b214361a564b91b387e969b33fe6a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

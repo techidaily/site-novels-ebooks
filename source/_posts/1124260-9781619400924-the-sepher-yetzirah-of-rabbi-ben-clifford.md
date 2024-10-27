@@ -1,7 +1,7 @@
 ---
 title: The Sepher Yetzirah of Rabbi Ben Clifford | Free Book
-date: 2024-10-23 15:37:10
-updated: 2024-10-26 11:16:59
+date: 2024-10-21T22:03:50.143Z
+updated: 2024-10-26T19:05:52.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bae9b1156aa95c9a45f271cd2ebb7b6cf28c2fec3ce9c0c227a31baa4e36906.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bae9b1156aa95c9a45f271cd2ebb7b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

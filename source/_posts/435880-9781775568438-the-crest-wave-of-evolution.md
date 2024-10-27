@@ -1,7 +1,7 @@
 ---
 title: The Crest-Wave of Evolution | Free Book
-date: 2024-10-25 12:15:26
-updated: 2024-10-26 10:26:54
+date: 2024-10-23T04:50:38.421Z
+updated: 2024-10-27T01:23:14.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/39b3617dd9edc2bf066a989cd62f3c50bc75f0bb693610ff18ab139c532d46b5.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/39b3617dd9edc2bf066a989cd62f3c5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

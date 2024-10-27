@@ -1,7 +1,7 @@
 ---
 title: Inspirational Guidance Towards a New Era - Channelled Messages from the Archangel Metatron | Free Book
-date: 2024-10-25 13:41:44
-updated: 2024-10-26 12:37:51
+date: 2024-10-26T05:19:53.797Z
+updated: 2024-10-27T01:22:18.989Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ac203175442a0b5bfca06fa35abc29c9ffbe8cb82f1c59f2a9dc9b90e9f0604.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ac203175442a0b5bfca06fa35abc29
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

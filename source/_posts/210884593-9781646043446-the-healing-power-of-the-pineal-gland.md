@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of the Pineal Gland | Free Book
-date: 2024-10-23 13:55:47
-updated: 2024-10-26 12:52:13
+date: 2024-10-21T00:55:06.152Z
+updated: 2024-10-26T21:35:45.606Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8bca98dd83a0aefd4761b17271ef9b5174a783b87b373f4ec2d80f7449de0045.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8bca98dd83a0aefd4761b17271ef9b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

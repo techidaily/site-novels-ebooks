@@ -1,7 +1,7 @@
 ---
 title: "The Book of Innocence: A Channeled Text | Free Book"
-date: 2024-10-25 15:13:40
-updated: 2024-10-26 10:41:58
+date: 2024-10-21T03:25:49.628Z
+updated: 2024-10-26T21:35:12.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8c43923ba9e3b89c67884c13b13f71291fbcbd3f8d499ebb3ab5f472e50d504.jpg
@@ -217,3 +217,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8c43923ba9e3b89c67884c13b13f71
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

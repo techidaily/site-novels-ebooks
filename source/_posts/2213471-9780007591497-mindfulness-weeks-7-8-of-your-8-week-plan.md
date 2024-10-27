@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: Weeks 7-8 of Your 8-Week Plan | Free Book"
-date: 2024-10-25 16:31:25
-updated: 2024-10-26 11:59:55
+date: 2024-10-23T04:00:25.007Z
+updated: 2024-10-27T03:23:12.590Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8199339517ad6ae5add2f87d4a1131850a538045df08ab82f8cbcdf0a8900ca.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8199339517ad6ae5add2f87d4a1131
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

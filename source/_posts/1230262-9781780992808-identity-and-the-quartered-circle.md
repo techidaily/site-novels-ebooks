@@ -1,7 +1,7 @@
 ---
 title: Identity and the Quartered Circle | Free Book
-date: 2024-10-25 17:19:33
-updated: 2024-10-26 12:14:56
+date: 2024-10-25T16:38:33.128Z
+updated: 2024-10-27T01:39:12.781Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a6ada13102b6755e9068eecbe71047c94174fec47621c2c5c8963810178d166.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a6ada13102b6755e9068eecbe71047
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

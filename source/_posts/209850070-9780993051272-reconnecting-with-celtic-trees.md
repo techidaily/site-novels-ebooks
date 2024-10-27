@@ -1,7 +1,7 @@
 ---
 title: Reconnecting with Celtic Trees | Free Book
-date: 2024-10-24 15:17:55
-updated: 2024-10-26 11:38:11
+date: 2024-10-19T20:50:31.220Z
+updated: 2024-10-27T03:58:37.742Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95b4f8409cc865ead4bed5bdcd0b5083bea1ef9dfec7d3ebb8d2b4631455042f.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95b4f8409cc865ead4bed5bdcd0b508
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

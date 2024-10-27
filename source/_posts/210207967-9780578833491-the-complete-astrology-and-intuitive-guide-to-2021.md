@@ -1,7 +1,7 @@
 ---
 title: The Complete Astrology and Intuitive Guide To 2021 | Free Book
-date: 2024-10-23 13:12:31
-updated: 2024-10-26 12:20:50
+date: 2024-10-23T16:46:12.784Z
+updated: 2024-10-27T05:29:40.928Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e1c22ad4cd75d819341f68ac7dd28d017f815874ce141f4c3009270cc30de90.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e1c22ad4cd75d819341f68ac7dd28d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

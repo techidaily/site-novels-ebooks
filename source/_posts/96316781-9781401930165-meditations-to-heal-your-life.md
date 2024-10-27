@@ -1,7 +1,7 @@
 ---
 title: Meditations to Heal Your Life | Free Book
-date: 2024-10-23 15:40:53
-updated: 2024-10-26 12:14:28
+date: 2024-10-26T02:35:36.762Z
+updated: 2024-10-26T17:52:23.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a49af02e3aa10ded658d3dc329d269b09ea6a7be7641e2d3887158e2501e4084.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a49af02e3aa10ded658d3dc329d269b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

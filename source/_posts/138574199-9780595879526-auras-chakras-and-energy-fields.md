@@ -1,7 +1,7 @@
 ---
 title: Auras, Chakras, and Energy Fields | Free Book
-date: 2024-10-25 22:56:50
-updated: 2024-10-26 12:53:12
+date: 2024-10-22T01:31:54.331Z
+updated: 2024-10-26T16:49:07.090Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2989c71bcf44c14543e3916a40cd671ec0ccfbda35ac978e03f42035d33277c3.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2989c71bcf44c14543e3916a40cd671
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

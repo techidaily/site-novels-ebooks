@@ -1,7 +1,7 @@
 ---
 title: Galactic Chronicles Book One | Free Book
-date: 2024-10-24 10:44:59
-updated: 2024-10-26 12:23:38
+date: 2024-10-19T16:12:52.686Z
+updated: 2024-10-27T00:38:16.250Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f78082b8efee4bb59a64f8704379dbe3892b9f778dfdade24f3dde6a78378b8.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f78082b8efee4bb59a64f8704379db
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

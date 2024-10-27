@@ -1,7 +1,7 @@
 ---
 title: "Russian Edition - Treasures of Darkness: Volume 2 | Free Book"
-date: 2024-10-25 11:29:36
-updated: 2024-10-26 12:46:46
+date: 2024-10-26T03:41:31.887Z
+updated: 2024-10-27T00:08:35.572Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/24ffc8f4460493076b45314785e3a7b04059e1888315bc0c4f1cbc1d51d8187b.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/24ffc8f4460493076b45314785e3a7b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

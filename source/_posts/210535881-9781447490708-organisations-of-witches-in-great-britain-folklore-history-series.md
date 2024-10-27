@@ -1,7 +1,7 @@
 ---
 title: Organisations of Witches in Great Britain (Folklore History Series) | Free Book
-date: 2024-10-24 21:56:46
-updated: 2024-10-26 11:36:45
+date: 2024-10-26T03:54:46.450Z
+updated: 2024-10-27T04:52:56.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/738e9c2490662eb5f3271d2a4adfdce7e2dee002d95ac89ce5e54dc01d23297c.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/738e9c2490662eb5f3271d2a4adfdce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

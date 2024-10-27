@@ -1,7 +1,7 @@
 ---
 title: A Yoga of Indian Classical Dance | Free Book
-date: 2024-10-24 20:23:53
-updated: 2024-10-26 11:42:35
+date: 2024-10-24T05:18:02.916Z
+updated: 2024-10-27T05:43:55.865Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08d788308248c3adfea00d662f91dc34c594cd3d8453e6534af7acad1280e495.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08d788308248c3adfea00d662f91dc3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

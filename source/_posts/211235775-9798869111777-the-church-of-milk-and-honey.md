@@ -1,7 +1,7 @@
 ---
 title: The Church of Milk and Honey | Free Book
-date: 2024-10-25 15:44:29
-updated: 2024-10-26 12:33:42
+date: 2024-10-22T21:58:53.468Z
+updated: 2024-10-27T05:16:06.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17cc8c3f86f4813ed0463028e48cec32a1f3c52a11119065bdeb4e748dd09696.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17cc8c3f86f4813ed0463028e48cec3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

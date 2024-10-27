@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Faça A Paz Em Sua Vida, Reduzindo O Estresse | Free Book"
-date: 2024-10-25 21:20:53
-updated: 2024-10-26 11:21:21
+date: 2024-10-26T03:51:32.913Z
+updated: 2024-10-26T18:10:35.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8ad50ddc99473b55ea93082fd9ffcbbc30d6ea4b58fba122d056bdaafbc43a5.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8ad50ddc99473b55ea93082fd9ffcb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

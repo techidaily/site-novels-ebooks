@@ -1,7 +1,7 @@
 ---
 title: Queen Up! Reclaim Your Crown When Life Knocks You Down | Free Book
-date: 2024-10-23 10:36:34
-updated: 2024-10-26 10:43:57
+date: 2024-10-20T17:26:06.564Z
+updated: 2024-10-26T22:26:34.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7354587f9c5d76743ff43e5aaf0df7bef473e6f891ae57f894e4a541b90ea23a.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7354587f9c5d76743ff43e5aaf0df7b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

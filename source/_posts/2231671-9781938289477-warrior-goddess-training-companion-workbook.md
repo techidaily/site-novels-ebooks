@@ -1,7 +1,7 @@
 ---
 title: Warrior Goddess Training Companion Workbook | Free Book
-date: 2024-10-23 18:22:26
-updated: 2024-10-26 10:16:11
+date: 2024-10-20T19:17:13.470Z
+updated: 2024-10-27T03:41:27.846Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cf87f87cdb8558a2a99a395e4ef00466a0c5da8b5a2d5bcad59249072ea4d74.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cf87f87cdb8558a2a99a395e4ef004
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

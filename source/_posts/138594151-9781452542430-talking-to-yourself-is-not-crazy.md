@@ -1,7 +1,7 @@
 ---
 title: Talking to Yourself Is Not Crazy | Free Book
-date: 2024-10-23 22:51:38
-updated: 2024-10-26 11:11:31
+date: 2024-10-25T22:20:38.874Z
+updated: 2024-10-27T01:26:08.855Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/974d697268c2dcdec506206a11ff91f1f8769fef79bc35076660a8600dbb364b.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/974d697268c2dcdec506206a11ff91f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

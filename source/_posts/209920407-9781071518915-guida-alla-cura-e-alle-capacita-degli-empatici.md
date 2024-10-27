@@ -1,7 +1,7 @@
 ---
 title: Guida Alla Cura e Alle Capacità Degli Empatici | Free Book
-date: 2024-10-23 14:51:53
-updated: 2024-10-26 12:36:22
+date: 2024-10-24T18:45:58.208Z
+updated: 2024-10-27T05:41:57.762Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2661d13b499d72c13d1901b70071a04415bf00a31a695bf084857c9d0b7dfd78.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2661d13b499d72c13d1901b70071a04
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

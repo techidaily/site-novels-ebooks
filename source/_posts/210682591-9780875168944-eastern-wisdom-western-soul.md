@@ -1,7 +1,7 @@
 ---
 title: EASTERN WISDOM WESTERN SOUL | Free Book
-date: 2024-10-24 20:37:38
-updated: 2024-10-26 12:10:10
+date: 2024-10-23T16:59:52.921Z
+updated: 2024-10-27T05:33:02.960Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7fc49eec925851cca6404e514e2ce7b11d8fbb25df2cce401d079488ae4f35a5.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7fc49eec925851cca6404e514e2ce7b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

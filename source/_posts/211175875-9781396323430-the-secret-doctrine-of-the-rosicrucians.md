@@ -1,7 +1,7 @@
 ---
 title: The Secret Doctrine of the Rosicrucians | Free Book
-date: 2024-10-25 16:36:25
-updated: 2024-10-26 10:12:48
+date: 2024-10-24T23:25:57.043Z
+updated: 2024-10-26T18:31:51.864Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8d253a6938e8e60b7e6eeb9631b0151abba476395c518cf5cfe4f3a1638c40b.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8d253a6938e8e60b7e6eeb9631b015
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

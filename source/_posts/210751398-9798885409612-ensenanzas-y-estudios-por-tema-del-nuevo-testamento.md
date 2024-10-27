@@ -1,7 +1,7 @@
 ---
 title: Enseñanzas y estudios por tema del Nuevo Testamento | Free Book
-date: 2024-10-23 13:38:38
-updated: 2024-10-26 12:24:40
+date: 2024-10-20T16:25:47.211Z
+updated: 2024-10-26T23:29:36.027Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95e606ce1baa9a88404026a167bb5e753fcdad9c08f3b55cf2dc216a9abea276.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95e606ce1baa9a88404026a167bb5e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

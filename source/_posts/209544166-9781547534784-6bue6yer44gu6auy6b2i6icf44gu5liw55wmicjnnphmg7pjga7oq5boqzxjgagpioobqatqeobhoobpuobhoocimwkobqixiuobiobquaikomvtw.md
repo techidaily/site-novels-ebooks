@@ -1,7 +1,7 @@
 ---
 title: 黄金の高齢者の世界 (瞑想の論評と) に歩いている間に豊かな成長 | Free Book
-date: 2024-10-24 12:46:45
-updated: 2024-10-26 10:14:35
+date: 2024-10-26T04:58:32.035Z
+updated: 2024-10-27T05:24:58.569Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23122647f269dbd21e925457a826a4eab4683b6985562da308e18177501ac9b4.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23122647f269dbd21e925457a826a4e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

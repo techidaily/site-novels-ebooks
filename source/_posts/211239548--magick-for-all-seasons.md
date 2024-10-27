@@ -1,7 +1,7 @@
 ---
 title: Magick for All Seasons | Free Book
-date: 2024-10-23 23:20:32
-updated: 2024-10-26 12:31:34
+date: 2024-10-24T00:34:25.153Z
+updated: 2024-10-26T16:39:56.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38900dcef7ec6fd243b77e2d01fa55ef9d43a1a569ca392581c86b8fc7abf66c.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38900dcef7ec6fd243b77e2d01fa55e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

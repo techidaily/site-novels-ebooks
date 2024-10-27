@@ -1,7 +1,7 @@
 ---
 title: The role of age gender and socioeconomic status in spiritual intelligence in adolescents and young adults | Free Book
-date: 2024-10-25 10:55:14
-updated: 2024-10-26 11:22:25
+date: 2024-10-21T00:14:22.876Z
+updated: 2024-10-27T05:20:38.859Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1321cd6251638ef838a77a90bb01534951e7bf8317284a395e4c4634fb45f66a.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1321cd6251638ef838a77a90bb01534
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

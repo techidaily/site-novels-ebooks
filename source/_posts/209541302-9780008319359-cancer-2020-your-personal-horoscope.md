@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2020: Your Personal Horoscope | Free Book"
-date: 2024-10-24 16:41:30
-updated: 2024-10-26 12:45:18
+date: 2024-10-23T16:34:38.044Z
+updated: 2024-10-26T16:27:16.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37dd1b357caf823f0412bd94c0ad0c6c4295ed283dda4a4ba0ac384078628f77.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37dd1b357caf823f0412bd94c0ad0c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

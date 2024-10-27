@@ -1,7 +1,7 @@
 ---
 title: Precessional Time and the Evolution of Consciousness | Free Book
-date: 2024-10-23 21:22:41
-updated: 2024-10-26 11:55:41
+date: 2024-10-21T19:38:04.817Z
+updated: 2024-10-27T01:56:09.526Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38b96d5354d6f3848f524b0680ff05ac67e883a83af6ef259e4cde5d4084617b.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38b96d5354d6f3848f524b0680ff05a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Consciousess and Quantum Theory | Free Book
-date: 2024-10-25 11:56:53
-updated: 2024-10-26 10:59:55
+date: 2024-10-20T00:10:26.259Z
+updated: 2024-10-26T20:22:47.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9cdc3fd60c93c7c1a560907c8e9a9e8a73fd68599360f013f53e58500264af05.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9cdc3fd60c93c7c1a560907c8e9a9e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

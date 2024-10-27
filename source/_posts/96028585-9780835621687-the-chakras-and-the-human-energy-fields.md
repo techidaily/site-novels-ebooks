@@ -1,7 +1,7 @@
 ---
 title: The Chakras and the Human Energy Fields | Free Book
-date: 2024-10-23 22:36:36
-updated: 2024-10-26 10:38:51
+date: 2024-10-22T03:39:36.031Z
+updated: 2024-10-27T02:57:55.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df4a49c00332bd9d580f4daa4525448c17372ffd2054c3a0cbb04196a40d21c5.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df4a49c00332bd9d580f4daa4525448
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

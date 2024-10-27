@@ -1,7 +1,7 @@
 ---
 title: The Sixth Book of Moses and The Seventh Book of Moses | Free Book
-date: 2024-10-23 23:17:41
-updated: 2024-10-26 11:11:14
+date: 2024-10-20T18:31:24.601Z
+updated: 2024-10-27T00:07:42.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c693e4e74aeee65112fd65d5cec0d6e9a6057444181a9deacd6fea43444fa30.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c693e4e74aeee65112fd65d5cec0d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

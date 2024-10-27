@@ -1,7 +1,7 @@
 ---
 title: The Path Is The Way To Self-Mastery | Free Book
-date: 2024-10-24 15:35:36
-updated: 2024-10-26 11:59:16
+date: 2024-10-21T18:30:57.282Z
+updated: 2024-10-27T03:32:27.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d96251c9d9f97a94b3c705013bf24e30e15c3dfd33250858a46d0f47e8fb1af.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d96251c9d9f97a94b3c705013bf24e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

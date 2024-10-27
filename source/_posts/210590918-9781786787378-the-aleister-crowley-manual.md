@@ -1,7 +1,7 @@
 ---
 title: The Aleister Crowley Manual | Free Book
-date: 2024-10-24 19:12:37
-updated: 2024-10-26 10:23:52
+date: 2024-10-19T21:08:16.084Z
+updated: 2024-10-27T00:22:06.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/654119e7a0b970080c4b6a75bda5341d7447591d790da9fab29b107c7feacb82.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/654119e7a0b970080c4b6a75bda5341
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

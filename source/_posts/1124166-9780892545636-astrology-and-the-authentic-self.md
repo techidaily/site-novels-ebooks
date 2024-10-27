@@ -1,7 +1,7 @@
 ---
 title: Astrology and the Authentic Self | Free Book
-date: 2024-10-25 14:29:36
-updated: 2024-10-26 12:28:25
+date: 2024-10-23T00:46:16.050Z
+updated: 2024-10-27T03:01:18.882Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e11547ff5b2efc431cc69aa108af16dc722f4e5ab47853efc1b4b35216a094bf.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e11547ff5b2efc431cc69aa108af16d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

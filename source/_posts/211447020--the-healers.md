@@ -1,7 +1,7 @@
 ---
 title: The Healers | Free Book
-date: 2024-10-25 16:28:20
-updated: 2024-10-26 11:26:48
+date: 2024-10-22T06:00:15.314Z
+updated: 2024-10-27T04:37:39.664Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b09ac4b906026d2f2049a264005988dd412486c2027e1e0af56677c69542c558.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b09ac4b906026d2f2049a264005988d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

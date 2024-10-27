@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Ralph Waldo Trine | Free Book
-date: 2024-10-23 20:57:10
-updated: 2024-10-26 11:25:28
+date: 2024-10-26T02:24:56.944Z
+updated: 2024-10-26T19:31:21.368Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399143e33e364df922e51683bcdc0dfe214d.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

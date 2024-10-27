@@ -1,7 +1,7 @@
 ---
 title: The Serpent Grail | Free Book
-date: 2024-10-24 14:56:34
-updated: 2024-10-26 12:13:16
+date: 2024-10-21T17:32:05.331Z
+updated: 2024-10-27T03:28:30.628Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/6a368d9d5a05d2c315303406bb99c2c5075a2ba4f3edfc4b9e53ed4ccb9a16cf.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a368d9d5a05d2c315303406bb99c2c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

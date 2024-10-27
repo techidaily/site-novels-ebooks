@@ -1,7 +1,7 @@
 ---
 title: The Pocket Guide to Rituals | Free Book
-date: 2024-10-24 23:23:17
-updated: 2024-10-26 12:12:30
+date: 2024-10-24T17:17:41.766Z
+updated: 2024-10-26T19:39:37.611Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2f99892cfb4451f1c2206540fd4c9976e8918bab9bf990b38a3465475f5cdeb.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2f99892cfb4451f1c2206540fd4c99
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

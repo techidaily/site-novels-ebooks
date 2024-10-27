@@ -1,7 +1,7 @@
 ---
 title: Throwing Bones, Crystals, Stones, and Curios | Free Book
-date: 2024-10-23 18:53:11
-updated: 2024-10-26 11:45:29
+date: 2024-10-26T02:47:17.487Z
+updated: 2024-10-27T05:39:12.146Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59080af981702bf85721b517e5cd999723a0c4a941927ccd65b9e0bc27be467c.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59080af981702bf85721b517e5cd999
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

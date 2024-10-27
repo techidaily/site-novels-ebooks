@@ -1,7 +1,7 @@
 ---
 title: The Foundation Stone Meditation | Free Book
-date: 2024-10-24 19:12:56
-updated: 2024-10-26 11:55:10
+date: 2024-10-19T20:59:29.313Z
+updated: 2024-10-26T16:07:51.129Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa8c66a5ba7ebb96dfc6af4cff4cd066e97c5130e688b5e92b15b08ce179ac74.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa8c66a5ba7ebb96dfc6af4cff4cd06
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

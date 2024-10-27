@@ -1,7 +1,7 @@
 ---
 title: The Unexpected Power of Mindfulness and Meditation | Free Book
-date: 2024-10-24 22:59:39
-updated: 2024-10-26 10:31:28
+date: 2024-10-22T22:52:35.015Z
+updated: 2024-10-26T18:24:02.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7fe66bea48a14a8af5f49160cf76d85f8fbd49dc475805600bee8ac82a65c81d.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7fe66bea48a14a8af5f49160cf76d85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

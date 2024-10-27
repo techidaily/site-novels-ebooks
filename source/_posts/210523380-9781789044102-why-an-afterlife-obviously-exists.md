@@ -1,7 +1,7 @@
 ---
 title: Why an Afterlife Obviously Exists | Free Book
-date: 2024-10-25 10:42:15
-updated: 2024-10-26 10:24:38
+date: 2024-10-26T05:13:26.049Z
+updated: 2024-10-27T05:31:43.535Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89708d8934650b0ab00079effc302e72487bbd123a7d7fca98dd41f22299564c.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89708d8934650b0ab00079effc302e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Scientist and the Psychic | Free Book
-date: 2024-10-25 16:38:42
-updated: 2024-10-26 12:52:31
+date: 2024-10-26T03:20:45.689Z
+updated: 2024-10-26T17:50:27.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dafb235f505a88ca2d199a6ee946353589795fb5aa3950a9efe7b42fd407fd59.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dafb235f505a88ca2d199a6ee946353
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

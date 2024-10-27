@@ -1,7 +1,7 @@
 ---
 title: N.72 Le grand maître architecte, la maîtrise de l'étui de mathématiques | Free Book
-date: 2024-10-24 23:40:28
-updated: 2024-10-26 12:24:16
+date: 2024-10-24T20:25:27.010Z
+updated: 2024-10-27T02:16:11.433Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd3d96b30ecc5b55cfb195f4336be7aa14183f67e1b21f3806a38f8cfe1bea5a.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd3d96b30ecc5b55cfb195f4336be7a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

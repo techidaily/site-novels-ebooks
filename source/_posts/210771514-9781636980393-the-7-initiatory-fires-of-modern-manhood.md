@@ -1,7 +1,7 @@
 ---
 title: The 7 Initiatory Fires of Modern Manhood | Free Book
-date: 2024-10-25 15:34:16
-updated: 2024-10-26 11:58:57
+date: 2024-10-21T03:45:05.471Z
+updated: 2024-10-27T04:55:30.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02a0a421733f4c8455369607371f1f6c08fbbbabfc3b12ca599a3548c14c4cf3.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02a0a421733f4c8455369607371f1f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

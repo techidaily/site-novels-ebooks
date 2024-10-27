@@ -1,7 +1,7 @@
 ---
 title: The Everything Guide to Angels | Free Book
-date: 2024-10-25 14:30:14
-updated: 2024-10-26 11:52:23
+date: 2024-10-26T04:32:58.976Z
+updated: 2024-10-27T04:57:50.700Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8265fe2cdbd4a1fee723c807b6b56248fec9a92d8e51801d4f29d42c180d9542.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8265fe2cdbd4a1fee723c807b6b5624
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

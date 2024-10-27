@@ -1,7 +1,7 @@
 ---
 title: Guia Completo do Tabuleiro Ouija | Free Book
-date: 2024-10-24 14:23:15
-updated: 2024-10-26 11:16:51
+date: 2024-10-23T02:06:45.261Z
+updated: 2024-10-27T02:06:01.724Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6142f03f4af71c74957a16cb966c48ecd5eeab80284166b677f1fb2c5dcb4dfd.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6142f03f4af71c74957a16cb966c48e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Reiki: Universal Gift of God’s Healing Love Level I and II Training Manual | Free Book"
-date: 2024-10-25 20:36:22
-updated: 2024-10-26 10:12:53
+date: 2024-10-25T02:02:05.384Z
+updated: 2024-10-26T18:19:48.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8929b55739610240aa78e9b70b7402e731cc882d31d789bc78d0dbeb576a6616.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8929b55739610240aa78e9b70b7402e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

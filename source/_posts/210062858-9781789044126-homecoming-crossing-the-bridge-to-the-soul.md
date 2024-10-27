@@ -1,7 +1,7 @@
 ---
 title: "Homecoming: Crossing the Bridge to the Soul | Free Book"
-date: 2024-10-24 15:49:34
-updated: 2024-10-26 12:47:47
+date: 2024-10-22T20:29:26.848Z
+updated: 2024-10-26T16:57:40.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/870952b607eba25851232f012b611cc37dab86a32b132ac0556a81bc08fb52a9.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/870952b607eba25851232f012b611cc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

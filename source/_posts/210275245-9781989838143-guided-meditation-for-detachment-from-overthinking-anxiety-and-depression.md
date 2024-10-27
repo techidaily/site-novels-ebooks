@@ -1,7 +1,7 @@
 ---
 title: Guided Meditation for Detachment from Overthinking, Anxiety, and Depression | Free Book
-date: 2024-10-23 22:50:24
-updated: 2024-10-26 12:21:31
+date: 2024-10-20T22:47:29.035Z
+updated: 2024-10-27T02:55:16.269Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a5dd0ae77eb1e6220ebc1caad18224175e3937153adf8f07a34a799a2fbcc6b0.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a5dd0ae77eb1e6220ebc1caad182241
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

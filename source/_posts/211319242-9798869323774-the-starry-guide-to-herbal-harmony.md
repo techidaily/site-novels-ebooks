@@ -1,7 +1,7 @@
 ---
 title: The Starry Guide to Herbal Harmony | Free Book
-date: 2024-10-24 19:26:15
-updated: 2024-10-26 10:30:39
+date: 2024-10-20T05:04:39.004Z
+updated: 2024-10-27T02:15:55.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dafea56eadb64e5f3fbc4db7b292d2c9a1e78ac0fa5e1bd6e8ad320894bc6e3.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dafea56eadb64e5f3fbc4db7b292d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Evidence for Phantom Hitch-Hikers | Free Book
-date: 2024-10-25 18:41:22
-updated: 2024-10-26 10:36:50
+date: 2024-10-22T16:19:59.019Z
+updated: 2024-10-27T05:32:39.769Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a428b4c6bf61197dba055a8c24745812e1a32e8e8174fa172ad6d36419d68bdd.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a428b4c6bf61197dba055a8c2474581
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

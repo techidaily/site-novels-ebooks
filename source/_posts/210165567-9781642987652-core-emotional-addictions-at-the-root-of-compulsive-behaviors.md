@@ -1,7 +1,7 @@
 ---
 title: Core Emotional Addictions at the Root of Compulsive Behaviors | Free Book
-date: 2024-10-23 16:47:12
-updated: 2024-10-26 11:28:38
+date: 2024-10-24T23:04:23.906Z
+updated: 2024-10-27T02:11:21.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1698a5d1620b2db33882d13664cce6d341745052b776f18f2bc5ba72d7c37b88.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1698a5d1620b2db33882d13664cce6d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

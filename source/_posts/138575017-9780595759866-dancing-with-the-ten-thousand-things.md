@@ -1,7 +1,7 @@
 ---
 title: Dancing with the Ten Thousand Things | Free Book
-date: 2024-10-24 13:51:41
-updated: 2024-10-26 12:56:17
+date: 2024-10-19T23:00:28.958Z
+updated: 2024-10-26T21:36:00.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8e29b269469fab03d7099030aef912a40186b229c5c2fc7371c3bf08d3bb57e3.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8e29b269469fab03d7099030aef912a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

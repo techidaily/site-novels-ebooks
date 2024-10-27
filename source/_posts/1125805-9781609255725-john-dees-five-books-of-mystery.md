@@ -1,7 +1,7 @@
 ---
 title: John Dee's Five Books of Mystery | Free Book
-date: 2024-10-25 18:35:40
-updated: 2024-10-26 11:19:36
+date: 2024-10-25T23:36:13.446Z
+updated: 2024-10-27T02:42:29.983Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c7e7b438415d9a41d5cc4f3e6b0f267beba3a3d87d995b8ecb2a1ca00b73cd23.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c7e7b438415d9a41d5cc4f3e6b0f267
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

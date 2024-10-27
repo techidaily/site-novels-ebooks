@@ -1,7 +1,7 @@
 ---
 title: Mindful Thoughts for Makers | Free Book
-date: 2024-10-23 16:54:10
-updated: 2024-10-26 12:15:41
+date: 2024-10-19T18:51:27.971Z
+updated: 2024-10-27T00:41:21.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2ee48b879702c9a3524a36147f51ab0a297bc71b10f77766a324cdf1df6855f.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2ee48b879702c9a3524a36147f51ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

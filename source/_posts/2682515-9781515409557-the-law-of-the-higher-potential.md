@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2024-10-25 12:23:43
-updated: 2024-10-26 10:51:43
+date: 2024-10-26T05:34:34.892Z
+updated: 2024-10-27T00:20:07.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e98858a33e7a2281ecb3c34c864a4fc99436ea6e03e954cc66bd6d837e5c739.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e98858a33e7a2281ecb3c34c864a4f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

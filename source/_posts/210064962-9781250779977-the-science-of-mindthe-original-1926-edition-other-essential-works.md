@@ -1,7 +1,7 @@
 ---
 title: "The Science of Mind:The Original 1926 Edition & Other Essential Works | Free Book"
-date: 2024-10-23 13:18:51
-updated: 2024-10-26 10:52:54
+date: 2024-10-24T23:38:39.514Z
+updated: 2024-10-27T00:27:19.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2522d326dac502a11a16684fc911091254eb07621c4fd91b96f46baf2fe29eb9.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2522d326dac502a11a16684fc911091
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

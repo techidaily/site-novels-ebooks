@@ -1,7 +1,7 @@
 ---
 title: The Disappearance of the Universe | Free Book
-date: 2024-10-23 16:57:11
-updated: 2024-10-26 10:45:32
+date: 2024-10-22T04:39:01.889Z
+updated: 2024-10-26T17:19:03.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51d9a1d1b2d803dc8e3560294821d06ba9a05b39fd85ab4251cf4ec8ff6de9fd.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51d9a1d1b2d803dc8e3560294821d06
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

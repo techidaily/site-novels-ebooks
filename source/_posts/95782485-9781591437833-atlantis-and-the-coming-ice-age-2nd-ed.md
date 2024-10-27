@@ -1,7 +1,7 @@
 ---
 title: Atlantis and the Coming Ice Age (2nd ed.) | Free Book
-date: 2024-10-25 18:59:57
-updated: 2024-10-26 10:12:34
+date: 2024-10-24T05:27:28.152Z
+updated: 2024-10-26T22:59:09.933Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a3d9477955f258ec5819e090b79837f695c1d026e0b99779da148daa99fd80e.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a3d9477955f258ec5819e090b79837
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

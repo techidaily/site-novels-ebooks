@@ -1,7 +1,7 @@
 ---
 title: Understanding Modern Spirituality | Free Book
-date: 2024-10-23 12:45:37
-updated: 2024-10-26 11:55:30
+date: 2024-10-25T03:14:56.737Z
+updated: 2024-10-27T00:30:44.486Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a2c2fb77347633be04215cd6e33c74a444712fe3dd953d54cbc2530ee4991de.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a2c2fb77347633be04215cd6e33c74
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

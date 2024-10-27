@@ -1,7 +1,7 @@
 ---
 title: "Journeying through Wiccan Mysticism: The Sacred Dance | Free Book"
-date: 2024-10-25 17:40:48
-updated: 2024-10-26 12:34:43
+date: 2024-10-22T01:34:23.092Z
+updated: 2024-10-27T01:52:03.724Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ac87088d9da0e46f2002efe894cf8c7352ab4819ecbb5c60383f1364568f4d3.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ac87088d9da0e46f2002efe894cf8c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Awakening the Planetary Mind (2nd ed.) | Free Book
-date: 2024-10-23 17:16:16
-updated: 2024-10-26 11:45:18
+date: 2024-10-21T20:55:38.904Z
+updated: 2024-10-26T21:43:01.697Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/164ec3611a5d8f782f8734f890a669c070fe5ba74009f67951ef01de23180a45.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/164ec3611a5d8f782f8734f890a669c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

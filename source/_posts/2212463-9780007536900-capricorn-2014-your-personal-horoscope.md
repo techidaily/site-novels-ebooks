@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2014: Your Personal Horoscope | Free Book"
-date: 2024-10-23 19:50:55
-updated: 2024-10-26 11:24:42
+date: 2024-10-23T05:49:35.770Z
+updated: 2024-10-26T20:32:23.961Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0bc2b861433649329258f09a14049585ccd15f066c2ef07669972259403364ce.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0bc2b861433649329258f09a1404958
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

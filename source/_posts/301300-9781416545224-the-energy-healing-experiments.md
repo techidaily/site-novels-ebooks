@@ -1,7 +1,7 @@
 ---
 title: The Energy Healing Experiments | Free Book
-date: 2024-10-23 10:56:40
-updated: 2024-10-26 12:15:15
+date: 2024-10-21T02:48:38.426Z
+updated: 2024-10-26T21:00:04.608Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6bd2d68af13d1532f027f4ef2653cc8c0b9cceaab71108049fb4d15486f6f037.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6bd2d68af13d1532f027f4ef2653cc8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

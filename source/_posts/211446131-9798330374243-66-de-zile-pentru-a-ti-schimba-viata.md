@@ -1,7 +1,7 @@
 ---
 title: 66 de zile pentru a-ți schimba viața | Free Book
-date: 2024-10-24 19:47:27
-updated: 2024-10-26 10:31:20
+date: 2024-10-23T23:20:23.281Z
+updated: 2024-10-26T22:08:47.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b14f38a6c84eaf6095cc4735580f5e47aa2b178fd8a8c2bc1e19bb5d72734bd6.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b14f38a6c84eaf6095cc4735580f5e4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

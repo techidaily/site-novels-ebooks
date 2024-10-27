@@ -1,7 +1,7 @@
 ---
 title: Por que Ser Feliz é Importante | Free Book
-date: 2024-10-23 16:26:21
-updated: 2024-10-26 10:17:50
+date: 2024-10-23T23:53:33.719Z
+updated: 2024-10-26T21:43:24.505Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac198feefe16ad60e65289dfc53764d37c3ba82b36a63c449614b761db9e9ab5.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac198feefe16ad60e65289dfc53764d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

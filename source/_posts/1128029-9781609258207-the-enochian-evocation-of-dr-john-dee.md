@@ -1,7 +1,7 @@
 ---
 title: The Enochian Evocation of Dr. John Dee | Free Book
-date: 2024-10-23 14:26:37
-updated: 2024-10-26 10:47:42
+date: 2024-10-21T02:56:44.871Z
+updated: 2024-10-26T20:09:47.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/86c17a5c9755e3f0f519ccf727aa526c3106193339f6db598db539f88617b710.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/86c17a5c9755e3f0f519ccf727aa526
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

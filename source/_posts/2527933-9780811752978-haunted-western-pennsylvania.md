@@ -1,7 +1,7 @@
 ---
 title: Haunted Western Pennsylvania | Free Book
-date: 2024-10-23 23:36:41
-updated: 2024-10-26 10:33:25
+date: 2024-10-23T17:19:48.534Z
+updated: 2024-10-27T02:22:17.027Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc9a0572629e32a7bea58156c822aab0ecd572e72f6cdb77aac30ef25476c7fd.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc9a0572629e32a7bea58156c822aab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

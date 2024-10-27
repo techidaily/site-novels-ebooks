@@ -1,7 +1,7 @@
 ---
 title: The Four Seasons and the Archangels | Free Book
-date: 2024-10-25 15:17:41
-updated: 2024-10-26 12:15:35
+date: 2024-10-22T00:03:18.896Z
+updated: 2024-10-26T21:58:22.499Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8354735bd24d9d30451da78be29547a1c71d3cca86ad7d36f3d78bca49ba630f.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8354735bd24d9d30451da78be29547a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

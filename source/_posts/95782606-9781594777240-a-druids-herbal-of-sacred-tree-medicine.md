@@ -1,7 +1,7 @@
 ---
 title: A Druid's Herbal of Sacred Tree Medicine | Free Book
-date: 2024-10-23 19:48:42
-updated: 2024-10-26 12:13:19
+date: 2024-10-24T00:18:40.559Z
+updated: 2024-10-27T05:55:33.685Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/720cbce8880f3117116fb939911517c505e898ee1586bae62a9c4f92d08439ef.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/720cbce8880f3117116fb939911517c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

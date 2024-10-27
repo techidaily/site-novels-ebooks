@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Workbook For Dummies | Free Book
-date: 2024-10-24 13:28:10
-updated: 2024-10-26 11:37:28
+date: 2024-10-23T04:32:15.268Z
+updated: 2024-10-27T00:52:38.040Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fead2fe459102e3c81ec126413da41085d5e499dba1f909b6aa97659ae1abca.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fead2fe459102e3c81ec126413da41
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

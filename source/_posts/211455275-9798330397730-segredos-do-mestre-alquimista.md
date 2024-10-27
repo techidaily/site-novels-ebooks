@@ -1,7 +1,7 @@
 ---
 title: Segredos do Mestre Alquimista | Free Book
-date: 2024-10-23 20:17:54
-updated: 2024-10-26 10:57:53
+date: 2024-10-24T00:02:16.982Z
+updated: 2024-10-26T21:12:57.781Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f034f915898a49e137692b7a7482e948a3633d5a252f4aec1fa03b3a185c9fc3.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f034f915898a49e137692b7a7482e94
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

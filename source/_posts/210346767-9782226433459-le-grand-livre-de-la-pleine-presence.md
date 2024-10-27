@@ -1,7 +1,7 @@
 ---
 title: Le Grand Livre de la pleine présence | Free Book
-date: 2024-10-24 15:19:26
-updated: 2024-10-26 12:53:23
+date: 2024-10-22T19:40:43.769Z
+updated: 2024-10-27T03:23:53.720Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a23a1f3210e7c4c2832721e06006de9042c6ef2502f64ae2fe4d34a2a03f1e2.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a23a1f3210e7c4c2832721e06006de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

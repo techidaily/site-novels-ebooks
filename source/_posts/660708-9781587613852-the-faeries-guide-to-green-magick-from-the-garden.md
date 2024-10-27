@@ -1,7 +1,7 @@
 ---
 title: The Faerie's Guide to Green Magick from the Garden | Free Book
-date: 2024-10-25 19:48:47
-updated: 2024-10-26 11:20:45
+date: 2024-10-19T17:47:22.221Z
+updated: 2024-10-26T23:38:14.861Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23fe4dde549e2a54772166482da0c6a7cc0eb0c8f7cabd7e6efd8e96538aef26.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23fe4dde549e2a54772166482da0c6a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

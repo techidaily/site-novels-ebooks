@@ -1,7 +1,7 @@
 ---
 title: Dhawana - the Story of a Nature-spirit | Free Book
-date: 2024-10-23 12:19:31
-updated: 2024-10-26 11:50:31
+date: 2024-10-21T19:14:27.544Z
+updated: 2024-10-27T03:24:01.373Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3306e145fd4d81ed5b1049cae4a5b146c12369291888173607c589576a15f34f.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3306e145fd4d81ed5b1049cae4a5b14
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

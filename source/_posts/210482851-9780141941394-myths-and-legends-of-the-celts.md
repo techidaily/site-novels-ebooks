@@ -1,7 +1,7 @@
 ---
 title: Myths and Legends of the Celts | Free Book
-date: 2024-10-23 17:41:44
-updated: 2024-10-26 10:25:40
+date: 2024-10-21T20:05:25.115Z
+updated: 2024-10-26T21:43:14.819Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b398f15a279123ab82badbcb2738c2461a012967987518b17d83da9bc8fca01.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b398f15a279123ab82badbcb2738c2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

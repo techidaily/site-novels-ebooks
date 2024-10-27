@@ -1,7 +1,7 @@
 ---
 title: Brain Training with the Buddha | Free Book
-date: 2024-10-25 21:36:12
-updated: 2024-10-26 12:23:12
+date: 2024-10-21T02:03:42.981Z
+updated: 2024-10-27T04:51:14.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/feaf5911d326f2a4822863e0c8108844a7a7dae856c056cc684b729e0c1aa10c.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/feaf5911d326f2a4822863e0c810884
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

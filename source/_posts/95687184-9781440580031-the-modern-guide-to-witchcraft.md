@@ -1,7 +1,7 @@
 ---
 title: The Modern Guide to Witchcraft | Free Book
-date: 2024-10-23 10:57:41
-updated: 2024-10-26 11:45:34
+date: 2024-10-21T00:15:05.297Z
+updated: 2024-10-26T20:38:02.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0474a615366cd9687b728bba150cc08c5364424c16e690bc6f2a4bf88801b2b.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0474a615366cd9687b728bba150cc0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

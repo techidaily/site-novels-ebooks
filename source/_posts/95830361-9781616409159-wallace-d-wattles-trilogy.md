@@ -1,7 +1,7 @@
 ---
 title: Wallace D. Wattles Trilogy | Free Book
-date: 2024-10-24 20:59:43
-updated: 2024-10-26 11:48:24
+date: 2024-10-25T02:59:56.290Z
+updated: 2024-10-27T01:26:57.267Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3946aa5d6933ac569f25ca3df29f105a29cf12ca13ab0b196140bab556f6dd4.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3946aa5d6933ac569f25ca3df29f10
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

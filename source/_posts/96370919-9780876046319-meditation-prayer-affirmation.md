@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2024-10-23 11:14:14
-updated: 2024-10-26 11:45:43
+date: 2024-10-22T19:07:28.984Z
+updated: 2024-10-27T00:38:52.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

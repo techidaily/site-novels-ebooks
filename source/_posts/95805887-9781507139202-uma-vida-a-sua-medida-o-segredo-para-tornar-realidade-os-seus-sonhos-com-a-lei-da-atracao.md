@@ -1,7 +1,7 @@
 ---
 title: "Uma vida à sua medida: O segredo para tornar realidade os seus sonhos com a Lei da Atração | Free Book"
-date: 2024-10-24 16:32:36
-updated: 2024-10-26 11:23:11
+date: 2024-10-23T20:54:37.091Z
+updated: 2024-10-27T00:38:24.527Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a313c778d4d14a747e2e4450bf5fa1cfc16ca3bfa2b24d890b34a6eb54f4508c.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a313c778d4d14a747e2e4450bf5fa1c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

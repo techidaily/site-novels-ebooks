@@ -1,7 +1,7 @@
 ---
 title: "The Priestess Code: Awakening the Modern Woman: | Free Book"
-date: 2024-10-24 20:27:21
-updated: 2024-10-26 11:59:24
+date: 2024-10-21T18:26:25.819Z
+updated: 2024-10-27T04:24:03.510Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d5e6e7b7c1c180658ed7ad01d6fa5b21fd98457dca4accc53a006f766a5b53c.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d5e6e7b7c1c180658ed7ad01d6fa5b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Manifestation Wheel | Free Book
-date: 2024-10-25 17:45:21
-updated: 2024-10-26 11:52:35
+date: 2024-10-22T23:20:39.492Z
+updated: 2024-10-27T02:26:12.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfcb8bf6dc2fb640f653c6df189a8863cdc7e2ad6fb42c0798f96f2c6c723800.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfcb8bf6dc2fb640f653c6df189a886
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

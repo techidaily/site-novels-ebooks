@@ -1,7 +1,7 @@
 ---
 title: From the other side of the moon | Free Book
-date: 2024-10-25 10:43:23
-updated: 2024-10-26 12:56:47
+date: 2024-10-21T03:05:26.300Z
+updated: 2024-10-26T17:34:53.163Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4e4a9be020c86cc60c39186059923062778393f59ae430b0347a853f56fe6fd.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4e4a9be020c86cc60c391860599230
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

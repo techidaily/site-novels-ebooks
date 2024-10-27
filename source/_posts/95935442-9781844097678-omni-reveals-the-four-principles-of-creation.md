@@ -1,7 +1,7 @@
 ---
 title: Omni Reveals the Four Principles of Creation | Free Book
-date: 2024-10-25 23:50:26
-updated: 2024-10-26 11:40:40
+date: 2024-10-22T05:26:22.966Z
+updated: 2024-10-27T04:08:16.582Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3e0e583cba7003e7284632b0a1ea39d94a3dbd21247babbc3df576a2ff6d2c6.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3e0e583cba7003e7284632b0a1ea39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

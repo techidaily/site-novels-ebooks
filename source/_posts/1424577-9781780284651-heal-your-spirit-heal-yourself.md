@@ -1,7 +1,7 @@
 ---
 title: Heal Your Spirit, Heal Yourself | Free Book
-date: 2024-10-23 18:57:43
-updated: 2024-10-26 12:15:22
+date: 2024-10-21T21:19:17.314Z
+updated: 2024-10-26T21:17:21.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12954810b57a1d7c5434c6af4177a87621d7ed337b6a946d5bff532efac0a33d.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12954810b57a1d7c5434c6af4177a87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

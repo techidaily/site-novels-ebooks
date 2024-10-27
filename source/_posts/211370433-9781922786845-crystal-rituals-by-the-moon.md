@@ -1,7 +1,7 @@
 ---
 title: Crystal Rituals by the Moon | Free Book
-date: 2024-10-25 13:41:28
-updated: 2024-10-26 10:25:29
+date: 2024-10-20T02:42:40.839Z
+updated: 2024-10-26T21:49:14.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/672499d33b213a006cf94775d2c71c18e55b052de801e7cdd9e111e6f89daa78.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/672499d33b213a006cf94775d2c71c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

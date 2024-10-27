@@ -1,7 +1,7 @@
 ---
 title: The Real Witches’ Handbook | Free Book
-date: 2024-10-23 15:51:54
-updated: 2024-10-26 10:29:18
+date: 2024-10-21T23:42:42.759Z
+updated: 2024-10-27T00:49:57.611Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4432ff56346eb0b6e2eb1d0f861ba1c9cfff061ce374d9b1c4271abba5f7f808.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4432ff56346eb0b6e2eb1d0f861ba1c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

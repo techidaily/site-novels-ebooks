@@ -1,7 +1,7 @@
 ---
 title: Prayers to the Great Creator | Free Book
-date: 2024-10-25 16:17:27
-updated: 2024-10-26 11:38:13
+date: 2024-10-22T18:49:05.419Z
+updated: 2024-10-26T20:49:45.236Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/472b7e48e4cc77a622ac7c4b78996b0b6faffca25b337f328dc4e45039ab0486.jpg
@@ -261,3 +261,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/472b7e48e4cc77a622ac7c4b78996b0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

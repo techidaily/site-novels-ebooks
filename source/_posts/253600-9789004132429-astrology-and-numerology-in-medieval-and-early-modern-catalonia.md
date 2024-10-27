@@ -1,7 +1,7 @@
 ---
 title: Astrology and numerology in medieval and early modern Catalonia | Free Book
-date: 2024-10-23 20:11:11
-updated: 2024-10-26 11:12:14
+date: 2024-10-25T00:33:08.961Z
+updated: 2024-10-27T02:48:03.672Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93c9c3cb66ea47906774df5b958e27567823f1dc5ee28f66428f870d0ad8d9ce.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93c9c3cb66ea47906774df5b958e275
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Unsolved Mystery of Life and Death | Free Book
-date: 2024-10-24 15:54:48
-updated: 2024-10-26 12:48:25
+date: 2024-10-20T02:03:32.472Z
+updated: 2024-10-26T20:36:54.691Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ca27815e9f50845fe5d68eac60b5a3c12e07ad94032ed2bc4e81898a0fe105c.jpg
@@ -366,3 +366,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ca27815e9f50845fe5d68eac60b5a3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

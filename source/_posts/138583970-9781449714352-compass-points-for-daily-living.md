@@ -1,7 +1,7 @@
 ---
 title: Compass Points for Daily Living | Free Book
-date: 2024-10-25 18:18:16
-updated: 2024-10-26 12:19:45
+date: 2024-10-22T01:27:35.557Z
+updated: 2024-10-27T05:58:56.461Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acd70486e57999b5dd93d6f4f0faf8542573a19c41b63c45de8d4f582950a4fb.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acd70486e57999b5dd93d6f4f0faf85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

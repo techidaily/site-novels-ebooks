@@ -1,7 +1,7 @@
 ---
 title: Are You Psychic or Making It Up? | Free Book
-date: 2024-10-23 12:42:20
-updated: 2024-10-26 10:46:14
+date: 2024-10-21T16:55:06.996Z
+updated: 2024-10-26T17:06:40.437Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bf01314fb1ef79490892df75e7f85db03da40b48bc557bf670dfe86a3c3b0432.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bf01314fb1ef79490892df75e7f85db
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Sacred Science of Ancient Japan | Free Book
-date: 2024-10-23 14:54:13
-updated: 2024-10-26 12:11:34
+date: 2024-10-23T04:57:49.536Z
+updated: 2024-10-26T16:04:59.471Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dcb465452ae030fdc176029e9c76dde069b0cfa7016aa5038e1f6fc6dd5b8a11.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dcb465452ae030fdc176029e9c76dde
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

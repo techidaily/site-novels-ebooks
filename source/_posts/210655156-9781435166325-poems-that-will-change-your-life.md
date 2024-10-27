@@ -1,7 +1,7 @@
 ---
 title: Poems That Will Change Your Life | Free Book
-date: 2024-10-23 14:51:37
-updated: 2024-10-26 12:51:15
+date: 2024-10-25T00:32:35.146Z
+updated: 2024-10-26T20:39:45.071Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1da3e9bf3f78e4a16bc3be086fcf038cdaff719583e65814525e269a0ba105cf.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1da3e9bf3f78e4a16bc3be086fcf038
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

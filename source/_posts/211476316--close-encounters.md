@@ -1,7 +1,7 @@
 ---
 title: Close Encounters | Free Book
-date: 2024-10-23 13:51:30
-updated: 2024-10-26 11:45:57
+date: 2024-10-25T19:52:05.135Z
+updated: 2024-10-26T17:16:56.437Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b979613d2e955f98ec415144a8bb29c24adce771c5e2762b90ec5e2ae189a9c0.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b979613d2e955f98ec415144a8bb29c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

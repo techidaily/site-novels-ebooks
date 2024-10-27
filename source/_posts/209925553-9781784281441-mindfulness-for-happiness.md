@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Happiness | Free Book
-date: 2024-10-24 21:18:40
-updated: 2024-10-26 10:15:37
+date: 2024-10-25T18:02:31.181Z
+updated: 2024-10-26T18:19:25.624Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3901a9bb1e4304ad1d40c661ddbbd31a8fe79dfcc498604846cd6977625b3ac1.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3901a9bb1e4304ad1d40c661ddbbd31
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

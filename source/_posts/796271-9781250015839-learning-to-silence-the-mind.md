@@ -1,7 +1,7 @@
 ---
 title: Learning to Silence the Mind | Free Book
-date: 2024-10-23 13:27:24
-updated: 2024-10-26 10:27:46
+date: 2024-10-23T23:18:12.115Z
+updated: 2024-10-26T16:48:01.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16d79524db058aa0d37e869aaf8dbb99a5aed9a91596aa0b6a2767d920ff247b.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16d79524db058aa0d37e869aaf8dbb9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

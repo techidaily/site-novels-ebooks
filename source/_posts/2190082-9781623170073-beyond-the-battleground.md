@@ -1,7 +1,7 @@
 ---
 title: Beyond the Battleground | Free Book
-date: 2024-10-25 10:29:12
-updated: 2024-10-26 10:54:44
+date: 2024-10-25T03:24:40.934Z
+updated: 2024-10-26T19:42:32.300Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a17de82005ff0b436b8ac563c3d2697561dd896993ec7d8c011b5a63d7741f5b.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a17de82005ff0b436b8ac563c3d2697
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

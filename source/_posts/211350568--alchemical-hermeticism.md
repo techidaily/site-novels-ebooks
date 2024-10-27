@@ -1,7 +1,7 @@
 ---
 title: Alchemical Hermeticism | Free Book
-date: 2024-10-23 17:39:16
-updated: 2024-10-26 12:35:30
+date: 2024-10-24T19:36:33.144Z
+updated: 2024-10-26T21:54:53.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a9a7432a57dfabe37c59f3c0e13ac4c6d22006ecb024af636107744a46cc139.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a9a7432a57dfabe37c59f3c0e13ac4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

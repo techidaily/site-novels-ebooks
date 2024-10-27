@@ -1,7 +1,7 @@
 ---
 title: Earth Wisdom Teachings (2nd ed.) | Free Book
-date: 2024-10-23 11:50:59
-updated: 2024-10-26 10:13:59
+date: 2024-10-25T01:51:35.777Z
+updated: 2024-10-26T18:03:29.453Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00a736ed743c1c924ea8054e0d78bfc6ca1172424e87973288c39c52d95d7189.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00a736ed743c1c924ea8054e0d78bfc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

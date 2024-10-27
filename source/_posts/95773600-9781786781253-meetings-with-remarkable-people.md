@@ -1,7 +1,7 @@
 ---
 title: Meetings with Remarkable People | Free Book
-date: 2024-10-25 11:34:40
-updated: 2024-10-26 10:14:44
+date: 2024-10-24T17:24:34.637Z
+updated: 2024-10-26T23:53:40.192Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b2b372d2928d4acfce179db232a902bb7c411858533e63738e4e16811448bb3.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b2b372d2928d4acfce179db232a902
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

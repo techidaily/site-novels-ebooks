@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Chinese Health and Healing | Free Book
-date: 2024-10-24 17:25:10
-updated: 2024-10-26 12:10:38
+date: 2024-10-24T20:12:34.170Z
+updated: 2024-10-26T16:27:08.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f0f5eaa5d42c9b23b2abd1ab45601c51a903406c15ff5cc37eab9b22be2bbfd.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f0f5eaa5d42c9b23b2abd1ab45601c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

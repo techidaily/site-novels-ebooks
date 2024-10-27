@@ -1,7 +1,7 @@
 ---
 title: Trump & the MAGA Movement as Anti-Christ | Free Book
-date: 2024-10-23 23:52:40
-updated: 2024-10-26 11:49:39
+date: 2024-10-20T05:38:16.094Z
+updated: 2024-10-26T22:05:38.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be56f0c6b2bd586729ec0cd79156da293c21a3c5f118df669b91b6099ace89f0.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be56f0c6b2bd586729ec0cd79156da2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

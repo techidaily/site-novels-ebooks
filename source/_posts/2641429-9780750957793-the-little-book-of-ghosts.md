@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Ghosts | Free Book
-date: 2024-10-25 15:59:23
-updated: 2024-10-26 12:13:44
+date: 2024-10-22T01:37:51.461Z
+updated: 2024-10-27T00:16:34.693Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6552448285e9c1966311ea5a09151ac277633bf06daaeffa83b85115cc841fff.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6552448285e9c1966311ea5a09151ac
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Les Racines de la méditation | Free Book
-date: 2024-10-23 10:12:48
-updated: 2024-10-26 12:37:11
+date: 2024-10-24T23:28:44.924Z
+updated: 2024-10-26T22:56:24.586Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7176fff04c500cbed3186b2a1230e2a78e141653c449a322ae6a1ee20e55bf7c.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7176fff04c500cbed3186b2a1230e2a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

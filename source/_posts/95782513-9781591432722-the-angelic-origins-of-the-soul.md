@@ -1,7 +1,7 @@
 ---
 title: The Angelic Origins of the Soul | Free Book
-date: 2024-10-25 18:24:23
-updated: 2024-10-26 11:38:36
+date: 2024-10-24T23:35:53.059Z
+updated: 2024-10-26T17:59:02.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e90090d3681bf83d08ccca2133c7ee7ad3564b6c1c2f86d416080c4684c21af.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e90090d3681bf83d08ccca2133c7ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: LOOKING OUT FROM THE WINDOWS OF MY SOUL | Free Book
-date: 2024-10-25 10:32:53
-updated: 2024-10-26 10:54:53
+date: 2024-10-20T02:45:59.793Z
+updated: 2024-10-27T03:05:45.967Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad681f3a29cbd3f3af3717188ced6452c7f8910b7f98f67f97612630a55b0687.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad681f3a29cbd3f3af3717188ced645
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

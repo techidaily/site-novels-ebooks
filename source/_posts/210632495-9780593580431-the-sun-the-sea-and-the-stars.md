@@ -1,7 +1,7 @@
 ---
 title: The Sun, the Sea, and the Stars | Free Book
-date: 2024-10-24 22:53:54
-updated: 2024-10-26 12:29:54
+date: 2024-10-24T17:57:57.714Z
+updated: 2024-10-26T21:12:37.609Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34b4d681624d274f5d64529113d8e268433aed0a7f8c79c904578cab57cf60ce.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34b4d681624d274f5d64529113d8e26
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

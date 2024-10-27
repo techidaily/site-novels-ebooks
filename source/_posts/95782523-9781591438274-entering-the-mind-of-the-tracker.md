@@ -1,7 +1,7 @@
 ---
 title: Entering the Mind of the Tracker | Free Book
-date: 2024-10-24 22:52:28
-updated: 2024-10-26 10:23:23
+date: 2024-10-24T17:09:17.537Z
+updated: 2024-10-27T00:19:27.115Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ed6804a0b1c9635f2444e3ab4d7512e79d2c567c668a6a488efae757a5138a0.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ed6804a0b1c9635f2444e3ab4d7512
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Plant Intelligence and the Imaginal Realm | Free Book
-date: 2024-10-23 11:17:45
-updated: 2024-10-26 11:23:33
+date: 2024-10-25T21:26:44.686Z
+updated: 2024-10-26T17:21:25.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db8f4e8b8bf40be70c5c93cf5f1fc478b46dc0cb9df526070379d817c0fcadba.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db8f4e8b8bf40be70c5c93cf5f1fc47
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Egyptian Origins of King David and the Temple of Solomon | Free Book
-date: 2024-10-24 21:51:24
-updated: 2024-10-26 10:48:32
+date: 2024-10-21T19:53:20.031Z
+updated: 2024-10-26T22:59:03.881Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ecb700f9fb3ddc4e9d743bc8c3011855dd6c79de772971bcef2fad92d862d69e.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ecb700f9fb3ddc4e9d743bc8c301185
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

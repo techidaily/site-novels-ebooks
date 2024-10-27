@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Maryland Ghost Stories | Free Book
-date: 2024-10-24 11:51:29
-updated: 2024-10-26 12:56:36
+date: 2024-10-20T16:21:26.220Z
+updated: 2024-10-26T18:54:13.573Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ef17344405633ae200ecd31454e2aeb40696091cc58806809341e14df25ffaa9.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ef17344405633ae200ecd31454e2aeb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

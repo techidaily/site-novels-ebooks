@@ -1,7 +1,7 @@
 ---
 title: The Grounding Companion | Free Book
-date: 2024-10-24 15:12:43
-updated: 2024-10-26 11:42:18
+date: 2024-10-20T16:00:05.089Z
+updated: 2024-10-26T19:14:49.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75f1ee3c961376b5c66dc9cfc4d2cae2c05850eeb6ab881a9a5dbde2d3d0d8c5.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75f1ee3c961376b5c66dc9cfc4d2cae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

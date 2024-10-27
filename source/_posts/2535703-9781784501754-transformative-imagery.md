@@ -1,7 +1,7 @@
 ---
 title: Transformative Imagery | Free Book
-date: 2024-10-25 23:58:35
-updated: 2024-10-26 11:36:12
+date: 2024-10-22T19:22:10.768Z
+updated: 2024-10-26T17:15:19.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f4229ce795c8b0d2dca6709717a1b47d8aa04a0d92c9b228b540c40951d6fa9.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f4229ce795c8b0d2dca6709717a1b4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

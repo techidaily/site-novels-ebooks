@@ -1,7 +1,7 @@
 ---
 title: More Adventures of a Psychic Nurse | Free Book
-date: 2024-10-24 12:14:32
-updated: 2024-10-26 10:54:17
+date: 2024-10-19T20:28:30.638Z
+updated: 2024-10-27T05:57:39.559Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32a49e951ab0b9da50d3d14439a8cca79d1a25e987fd268bba9d33d0082dacb9.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32a49e951ab0b9da50d3d14439a8cca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

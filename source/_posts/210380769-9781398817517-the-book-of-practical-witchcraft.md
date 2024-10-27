@@ -1,7 +1,7 @@
 ---
 title: The Book of Practical Witchcraft | Free Book
-date: 2024-10-25 13:24:16
-updated: 2024-10-26 11:37:32
+date: 2024-10-20T22:30:24.520Z
+updated: 2024-10-27T01:10:15.089Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94a2a97442f8feef3591f9126eddcb875a38018bb24ca5c3966fa0f979e5c684.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94a2a97442f8feef3591f9126eddcb8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

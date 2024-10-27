@@ -1,7 +1,7 @@
 ---
 title: Finding Radical Wholeness | Free Book
-date: 2024-10-23 21:47:21
-updated: 2024-10-26 10:30:32
+date: 2024-10-24T23:22:11.071Z
+updated: 2024-10-27T05:05:59.123Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d518e236cfb05d7d5d73fb0c16cc4f8379ef23f049bf5c897177665eb7cd21f5.jpg
@@ -216,3 +216,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d518e236cfb05d7d5d73fb0c16cc4f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

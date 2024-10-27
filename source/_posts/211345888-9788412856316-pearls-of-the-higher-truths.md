@@ -1,7 +1,7 @@
 ---
 title: Pearls of the Higher truths | Free Book
-date: 2024-10-23 11:21:35
-updated: 2024-10-26 11:15:59
+date: 2024-10-26T02:04:51.440Z
+updated: 2024-10-26T21:36:11.492Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c2af76a9c531f6ae12e5a026837fb36157f068cfed066b673466451b38d788d.jpg
@@ -224,3 +224,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c2af76a9c531f6ae12e5a026837fb3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

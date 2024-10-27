@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The Complete Guide | Free Book"
-date: 2024-10-25 22:43:56
-updated: 2024-10-26 10:37:37
+date: 2024-10-19T17:46:44.207Z
+updated: 2024-10-26T20:25:17.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/169141fb6e12f3bca0f2a369c968e697924426c4fe9d15eda9a4ed3bed726bde.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/169141fb6e12f3bca0f2a369c968e69
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

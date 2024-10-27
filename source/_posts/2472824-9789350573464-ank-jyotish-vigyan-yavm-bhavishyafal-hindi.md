@@ -1,7 +1,7 @@
 ---
 title: Ank Jyotish Vigyan yavm Bhavishyafal (Hindi) | Free Book
-date: 2024-10-25 16:49:35
-updated: 2024-10-26 10:32:42
+date: 2024-10-21T01:04:08.640Z
+updated: 2024-10-26T16:10:31.938Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63912a0bc0a8c9a4aa3efcbcfe2dbef143662e04f6d1cbb7e8b8fc2400964e2c.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63912a0bc0a8c9a4aa3efcbcfe2dbef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

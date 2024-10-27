@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Iris, Goddess of the Rainbow and Messenger of the Godds | Free Book
-date: 2024-10-23 10:18:32
-updated: 2024-10-26 10:46:25
+date: 2024-10-23T01:05:23.922Z
+updated: 2024-10-27T02:18:18.735Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84d3162276c1e3cc0f8842ad550e0f12d51a29b4bb6cc89e002d6bf63a9a7687.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84d3162276c1e3cc0f8842ad550e0f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

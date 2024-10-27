@@ -1,7 +1,7 @@
 ---
 title: The Just Girl Project Book of Astrology | Free Book
-date: 2024-10-23 13:15:34
-updated: 2024-10-26 11:35:53
+date: 2024-10-22T20:33:48.470Z
+updated: 2024-10-26T20:27:30.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e79669872569a71e32f617f454a1bf497ee4916acbfb548aac1c97e42438f6a9.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e79669872569a71e32f617f454a1bf4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

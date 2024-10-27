@@ -1,7 +1,7 @@
 ---
 title: You are My Sun and My Moon and All My Stars | Free Book
-date: 2024-10-24 17:52:39
-updated: 2024-10-26 10:32:47
+date: 2024-10-23T00:03:44.157Z
+updated: 2024-10-26T22:34:13.196Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30bd239a511099ba1f0a7e836c50196e38f054dd182cb8c2923361d399d362f6.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30bd239a511099ba1f0a7e836c50196
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

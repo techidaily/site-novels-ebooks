@@ -1,7 +1,7 @@
 ---
 title: Qigong, The Secret of Youth 2nd. Ed. (2nd ed.) | Free Book
-date: 2024-10-25 17:47:37
-updated: 2024-10-26 11:52:16
+date: 2024-10-25T03:02:27.163Z
+updated: 2024-10-26T21:46:51.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dce92e0a23d0d524b1e10bcf58afcd5f7f19b3189f2eb65da366bcbf5c6af46f.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dce92e0a23d0d524b1e10bcf58afcd5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

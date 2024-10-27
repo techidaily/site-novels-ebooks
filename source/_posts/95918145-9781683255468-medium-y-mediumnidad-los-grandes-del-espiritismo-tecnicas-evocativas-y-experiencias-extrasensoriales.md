@@ -1,7 +1,7 @@
 ---
 title: Médium y mediumnidad. Los grandes del espiritismo, técnicas evocativas y experiencias extrasensoriales | Free Book
-date: 2024-10-25 13:57:58
-updated: 2024-10-26 10:25:54
+date: 2024-10-23T18:50:56.559Z
+updated: 2024-10-26T21:00:28.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2268af99aa5df50b40cd30314b308fcd6f3e486d5ebad6d45ebacfcbe489a42c.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2268af99aa5df50b40cd30314b308fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

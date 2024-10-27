@@ -1,7 +1,7 @@
 ---
 title: Fifty Words of Encouragement Just For You | Free Book
-date: 2024-10-24 22:48:21
-updated: 2024-10-26 11:54:10
+date: 2024-10-23T21:16:01.049Z
+updated: 2024-10-27T03:57:12.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d1e7f11b068e859ef1311536bd9431a70c2d696815b7485bc56e3aa37b15b23.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d1e7f11b068e859ef1311536bd9431
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

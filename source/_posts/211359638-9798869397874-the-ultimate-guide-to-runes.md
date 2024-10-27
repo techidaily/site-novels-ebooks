@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Runes | Free Book
-date: 2024-10-24 18:16:55
-updated: 2024-10-26 12:44:56
+date: 2024-10-25T02:11:42.165Z
+updated: 2024-10-26T16:18:29.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62be54bd4629276671516ba28c155c8b896f3a6c19f0e7536bc468ff140eefb3.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62be54bd4629276671516ba28c155c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

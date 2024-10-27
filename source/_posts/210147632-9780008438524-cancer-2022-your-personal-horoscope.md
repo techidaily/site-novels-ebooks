@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2022: Your Personal Horoscope | Free Book"
-date: 2024-10-24 19:23:12
-updated: 2024-10-26 10:45:23
+date: 2024-10-21T04:04:08.937Z
+updated: 2024-10-27T04:09:20.977Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5debd068055af6ecf707e381827025f89105c7ef833d1321e73d87f1c5f73ef9.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5debd068055af6ecf707e381827025f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

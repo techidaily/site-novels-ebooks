@@ -1,7 +1,7 @@
 ---
 title: The Little Book for Modern Witches | Free Book
-date: 2024-10-23 19:51:53
-updated: 2024-10-26 12:12:33
+date: 2024-10-24T22:12:21.875Z
+updated: 2024-10-27T04:57:37.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22261deedb2ff22c2d1e6189f40a329341620503784ff0779b14a4dcd4ac5e10.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22261deedb2ff22c2d1e6189f40a329
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

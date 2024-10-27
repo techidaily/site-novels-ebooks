@@ -1,7 +1,7 @@
 ---
 title: 21 Rituals to Connect with Nature | Free Book
-date: 2024-10-24 15:21:48
-updated: 2024-10-26 12:34:42
+date: 2024-10-26T00:23:32.472Z
+updated: 2024-10-26T22:54:05.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a05dd06dbf18dce66d26e843d0d3e980d1fadc35fc323b6e176971629342e9c5.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a05dd06dbf18dce66d26e843d0d3e98
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

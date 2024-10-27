@@ -1,7 +1,7 @@
 ---
 title: The Journey of a Humbled Heart | Free Book
-date: 2024-10-24 11:42:19
-updated: 2024-10-26 12:55:56
+date: 2024-10-21T21:22:52.488Z
+updated: 2024-10-27T05:38:54.180Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/67cf2ae7aa9e87154a90f0ac87f13afb42c797862afeef9948993c998561b3e6.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/67cf2ae7aa9e87154a90f0ac87f13af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

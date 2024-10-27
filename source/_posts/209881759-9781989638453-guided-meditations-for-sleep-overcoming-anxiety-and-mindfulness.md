@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations for Sleep, Overcoming Anxiety and Mindfulness | Free Book
-date: 2024-10-23 17:44:48
-updated: 2024-10-26 10:33:28
+date: 2024-10-25T18:02:02.147Z
+updated: 2024-10-27T01:48:15.334Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e70c5769bfe378009d06258785d89d1f9166a3749252885a783b6cb7e964e9a.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e70c5769bfe378009d06258785d89d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

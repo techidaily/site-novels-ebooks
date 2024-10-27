@@ -1,7 +1,7 @@
 ---
 title: When You're Going Through Hell ...Keep Going | Free Book
-date: 2024-10-25 12:24:45
-updated: 2024-10-26 12:36:35
+date: 2024-10-26T03:50:08.602Z
+updated: 2024-10-26T22:00:59.996Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70fd7a5a4874148c83e7d7ca665401b1ad4252682e1b738e5479529531cecc56.jpg
@@ -211,3 +211,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70fd7a5a4874148c83e7d7ca665401b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

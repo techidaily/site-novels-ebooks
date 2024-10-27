@@ -1,7 +1,7 @@
 ---
 title: Meditations with the Cherokee | Free Book
-date: 2024-10-23 11:28:38
-updated: 2024-10-26 12:57:25
+date: 2024-10-21T16:06:14.733Z
+updated: 2024-10-27T00:07:16.938Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/033bd8e8b2d38bb9b2496899472491b44fa785f481924eda6a43afff1c71834e.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/033bd8e8b2d38bb9b2496899472491b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

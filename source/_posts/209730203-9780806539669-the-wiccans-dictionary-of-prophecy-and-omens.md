@@ -1,7 +1,7 @@
 ---
 title: The Wiccan's Dictionary of Prophecy and Omens | Free Book
-date: 2024-10-24 16:56:40
-updated: 2024-10-26 12:12:46
+date: 2024-10-22T19:47:08.040Z
+updated: 2024-10-26T20:52:21.369Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62b679b85d8303974ae337a7777f080ea1558d931aa8baeaf7f4576047c0bfda.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62b679b85d8303974ae337a7777f080
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

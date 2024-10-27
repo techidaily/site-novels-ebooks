@@ -1,7 +1,7 @@
 ---
 title: Dynamics of the Unconscious | Free Book
-date: 2024-10-25 23:50:30
-updated: 2024-10-26 10:23:26
+date: 2024-10-21T00:08:30.118Z
+updated: 2024-10-27T02:01:49.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16da73f8df976d3c788fd05e1ad8521101e6646d4019a82af6431638dd747883.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16da73f8df976d3c788fd05e1ad8521
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

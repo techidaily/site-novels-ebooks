@@ -1,7 +1,7 @@
 ---
 title: Pursuing Consciousness | Free Book
-date: 2024-10-25 17:54:11
-updated: 2024-10-26 10:10:37
+date: 2024-10-23T01:17:47.982Z
+updated: 2024-10-26T23:06:39.188Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ef5b6f4b78720d6565cda9711fc9afcad9a7fe4afcab681b007a2b64b89819a.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ef5b6f4b78720d6565cda9711fc9af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Karma and Reincarnation in the Animal Kingdom (2nd ed.) | Free Book
-date: 2024-10-25 15:21:55
-updated: 2024-10-26 12:49:48
+date: 2024-10-20T16:57:16.701Z
+updated: 2024-10-27T05:02:10.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc67a832f71ad3d92cd3b3f70cd32b1ff604e8910b11041b69dc974292418baa.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc67a832f71ad3d92cd3b3f70cd32b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

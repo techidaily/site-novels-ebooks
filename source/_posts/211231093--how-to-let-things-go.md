@@ -1,7 +1,7 @@
 ---
 title: How to Let Things Go | Free Book
-date: 2024-10-25 19:47:47
-updated: 2024-10-26 11:19:24
+date: 2024-10-22T18:54:44.402Z
+updated: 2024-10-27T03:43:41.729Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0ef324f558923f18709e128ebb790c74671b1aa0db940f1d14ec3a4e1ea9e26.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0ef324f558923f18709e128ebb790c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

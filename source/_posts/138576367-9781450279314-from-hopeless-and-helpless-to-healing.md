@@ -1,7 +1,7 @@
 ---
 title: From Hopeless and Helpless to Healing | Free Book
-date: 2024-10-23 16:13:26
-updated: 2024-10-26 12:17:43
+date: 2024-10-20T19:27:07.719Z
+updated: 2024-10-26T19:04:11.475Z
 categories:
   - Business & Economics
 thumbnail: https://thmb-001-ebook.techidaily.com/c7314d41ba8528b1d79c22305fc489fc947c76417cf81c64da0517251a8fce89.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c7314d41ba8528b1d79c22305fc489f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Weird Ways of Witchcraft | Free Book
-date: 2024-10-25 14:28:39
-updated: 2024-10-26 10:32:58
+date: 2024-10-22T03:14:52.159Z
+updated: 2024-10-26T22:40:35.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da778156bc8a8e3a6ad229f1a4d727d0432bec98e7ace64614a79a019b35f611.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da778156bc8a8e3a6ad229f1a4d727d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

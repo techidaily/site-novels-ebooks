@@ -1,7 +1,7 @@
 ---
 title: Everything I Learned about Mental Health Began at Twenty-Two | Free Book
-date: 2024-10-24 13:39:58
-updated: 2024-10-26 10:12:18
+date: 2024-10-22T23:51:01.014Z
+updated: 2024-10-27T04:28:57.598Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8efac758e6d259a71412e38579860ce15ec08041db0f16ea51d0ba9ca532052a.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8efac758e6d259a71412e38579860ce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

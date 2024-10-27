@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Empathy | Free Book
-date: 2024-10-24 21:35:57
-updated: 2024-10-26 10:46:59
+date: 2024-10-20T00:02:01.123Z
+updated: 2024-10-26T17:35:17.814Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9828d9743feeaff691db5adb1017a713cd58509fd1ac0bf346e875290678d622.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9828d9743feeaff691db5adb1017a71
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

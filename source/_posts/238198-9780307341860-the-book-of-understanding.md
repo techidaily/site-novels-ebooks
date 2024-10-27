@@ -1,7 +1,7 @@
 ---
 title: The Book of Understanding | Free Book
-date: 2024-10-24 15:31:20
-updated: 2024-10-26 11:57:26
+date: 2024-10-25T03:54:43.759Z
+updated: 2024-10-27T00:32:23.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73f872046ceb63958ad1af5c13790fcdb1b0bcae30dbfadc910f9b7f9d1a2f7a.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73f872046ceb63958ad1af5c13790fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

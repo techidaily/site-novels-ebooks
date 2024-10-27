@@ -1,7 +1,7 @@
 ---
 title: Practical Astrology for Witches and Pagans | Free Book
-date: 2024-10-25 13:41:58
-updated: 2024-10-26 11:28:22
+date: 2024-10-23T22:31:46.228Z
+updated: 2024-10-27T01:28:05.765Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40298f78c12693b894615822d42b02539d5688ac0310b89be65a947d7f89a714.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40298f78c12693b894615822d42b025
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Encounters with Nature Spirits (3rd ed.) | Free Book
-date: 2024-10-24 10:41:53
-updated: 2024-10-26 12:46:12
+date: 2024-10-19T20:44:17.904Z
+updated: 2024-10-26T22:47:51.003Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc03899554435041d31a5045daf598de9ebaefc2c87c96978f41d569c1ee94e0.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc03899554435041d31a5045daf598d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Rituals and Practices with the Motherpeace Tarot (2nd ed.) | Free Book
-date: 2024-10-23 22:19:44
-updated: 2024-10-26 12:25:47
+date: 2024-10-23T20:59:29.375Z
+updated: 2024-10-27T02:28:31.301Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c54e17da319223f4994ce8acb60f1f0db0f1a4715033767ad8ab773aa90de5c4.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c54e17da319223f4994ce8acb60f1f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

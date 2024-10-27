@@ -1,7 +1,7 @@
 ---
 title: Seven Ways to Lighten Your Life Before You Kick the Bucket | Free Book
-date: 2024-10-23 11:37:26
-updated: 2024-10-26 10:51:43
+date: 2024-10-24T18:29:02.073Z
+updated: 2024-10-26T16:33:44.195Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8be08d7cabf56c34264eda9fdd67eecd2f9f3c388e8bc44fcbea44466ad1e642.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8be08d7cabf56c34264eda9fdd67eec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

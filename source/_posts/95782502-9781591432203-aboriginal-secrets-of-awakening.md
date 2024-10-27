@@ -1,7 +1,7 @@
 ---
 title: Aboriginal Secrets of Awakening | Free Book
-date: 2024-10-25 11:28:31
-updated: 2024-10-26 10:20:33
+date: 2024-10-20T19:45:48.603Z
+updated: 2024-10-26T16:44:56.854Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b66f9a725ac08201b183a9682b76fcdc3a68c3a01ecca783da07b02252b594b.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b66f9a725ac08201b183a9682b76fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

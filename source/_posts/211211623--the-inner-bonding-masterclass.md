@@ -1,7 +1,7 @@
 ---
 title: The Inner Bonding Masterclass | Free Book
-date: 2024-10-25 15:37:27
-updated: 2024-10-26 11:16:26
+date: 2024-10-24T17:41:58.903Z
+updated: 2024-10-27T00:35:42.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2993be7ea84301f8e878756fd49da8499d3debe403d9057e2c7988e8eff90fae.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2993be7ea84301f8e878756fd49da84
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

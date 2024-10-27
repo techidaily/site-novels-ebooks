@@ -1,7 +1,7 @@
 ---
 title: Agamben and the Signature of Astrology | Free Book
-date: 2024-10-23 18:41:12
-updated: 2024-10-26 12:14:49
+date: 2024-10-22T17:22:31.387Z
+updated: 2024-10-26T17:46:36.232Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45eebabb35fef57a8cd29b0b5b69a93c603a093364f545cc9fd33f6d6a6a4391.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45eebabb35fef57a8cd29b0b5b69a93
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

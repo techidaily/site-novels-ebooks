@@ -1,7 +1,7 @@
 ---
 title: Meditation For Dummies (4th ed.) | Free Book
-date: 2024-10-25 17:18:13
-updated: 2024-10-26 10:50:37
+date: 2024-10-20T23:38:38.811Z
+updated: 2024-10-27T00:35:25.246Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b38e872fd3167f3e052c0af177d34055aaadb8c068775c44bf038f0de389754.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b38e872fd3167f3e052c0af177d340
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Health; An Inside Job an Outside Business | Free Book
-date: 2024-10-24 21:44:57
-updated: 2024-10-26 10:31:27
+date: 2024-10-24T01:51:13.724Z
+updated: 2024-10-26T21:16:56.503Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c3a723d45e6a11677a083c547b85b205c6759e815d7a4adc202f43f601b107e.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c3a723d45e6a11677a083c547b85b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

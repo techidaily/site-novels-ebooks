@@ -1,7 +1,7 @@
 ---
 title: Shakespeare and the Stars | Free Book
-date: 2024-10-25 12:14:52
-updated: 2024-10-26 10:54:59
+date: 2024-10-22T03:26:20.022Z
+updated: 2024-10-26T18:27:01.553Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff8681be6304a4374d1650092f53e93f477f7e2f0d2b212e89c61688c4032b62.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff8681be6304a4374d1650092f53e93
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Druidry and Meditation | Free Book
-date: 2024-10-25 23:57:47
-updated: 2024-10-26 10:30:48
+date: 2024-10-25T21:59:40.145Z
+updated: 2024-10-26T16:15:31.171Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2fb99ea40f026b617dbc55c00ca5c375c8db456de0be91d5a5afa3533cc71ad.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2fb99ea40f026b617dbc55c00ca5c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

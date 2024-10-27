@@ -1,7 +1,7 @@
 ---
 title: "Reuniting Human & Spirit: the Hero’S Journey | Free Book"
-date: 2024-10-23 19:26:56
-updated: 2024-10-26 10:37:56
+date: 2024-10-25T23:42:19.675Z
+updated: 2024-10-26T21:19:36.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f9ec9876aa5d6e3307e373151847c365a616978e7c1d968cc6c1dcdfaa6b9af.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f9ec9876aa5d6e3307e373151847c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

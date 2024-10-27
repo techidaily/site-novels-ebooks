@@ -1,7 +1,7 @@
 ---
 title: Anna, the Voice of the Magdalenes | Free Book
-date: 2024-10-25 23:38:45
-updated: 2024-10-26 11:41:58
+date: 2024-10-19T22:47:14.808Z
+updated: 2024-10-27T05:56:52.471Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1cd747c2e3cdcbcf9857ff13dd5a004fc9cdef8dceac9378cf30522745678daa.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1cd747c2e3cdcbcf9857ff13dd5a004
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

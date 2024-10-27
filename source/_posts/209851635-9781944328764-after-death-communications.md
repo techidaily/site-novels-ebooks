@@ -1,7 +1,7 @@
 ---
 title: After-Death Communications | Free Book
-date: 2024-10-25 12:46:15
-updated: 2024-10-26 10:44:18
+date: 2024-10-25T01:39:45.262Z
+updated: 2024-10-27T05:32:03.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/544849708c809c3ed378caeac8212dce8e0d73a2c0c1884bbd4fbf47ec59fff9.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/544849708c809c3ed378caeac8212dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

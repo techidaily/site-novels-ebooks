@@ -1,7 +1,7 @@
 ---
 title: Religious Literacy in Hospice Care | Free Book
-date: 2024-10-24 10:40:53
-updated: 2024-10-26 12:26:42
+date: 2024-10-21T22:20:19.369Z
+updated: 2024-10-27T05:11:09.388Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac022a49afff5f103c439addcf1efd87d1f363f41b81f8943ae88d2a26bc57d4.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac022a49afff5f103c439addcf1efd8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

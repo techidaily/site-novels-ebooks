@@ -1,7 +1,7 @@
 ---
 title: More Spooky Campfire Tales | Free Book
-date: 2024-10-23 13:25:27
-updated: 2024-10-26 10:27:48
+date: 2024-10-21T16:36:34.457Z
+updated: 2024-10-27T02:27:34.404Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09f3bed6f926132724b1dbdef10fa4531b7312d30292cbd2b5ef31dc2c5b7f76.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09f3bed6f926132724b1dbdef10fa45
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

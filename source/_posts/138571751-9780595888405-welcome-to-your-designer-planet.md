@@ -1,7 +1,7 @@
 ---
 title: Welcome to Your Designer Planet! | Free Book
-date: 2024-10-23 19:24:13
-updated: 2024-10-26 10:34:10
+date: 2024-10-24T19:27:44.090Z
+updated: 2024-10-26T17:41:58.769Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e9cf3c77c76c1b27d546eb3975910f26577b4f41af7369b0e6247a3895bd7ce.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e9cf3c77c76c1b27d546eb3975910f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

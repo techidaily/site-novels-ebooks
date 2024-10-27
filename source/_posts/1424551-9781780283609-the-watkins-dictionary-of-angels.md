@@ -1,7 +1,7 @@
 ---
 title: The Watkins Dictionary of Angels | Free Book
-date: 2024-10-25 13:24:59
-updated: 2024-10-26 11:30:50
+date: 2024-10-23T01:35:26.650Z
+updated: 2024-10-27T04:39:34.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4bd127844402f5e1a17c021e2b181856d50c78b32b7c7caf254a9d95cde8c301.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4bd127844402f5e1a17c021e2b18185
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: (الأيورفيدا بالعربي (الطب الهندي | Free Book
-date: 2024-10-25 18:11:40
-updated: 2024-10-26 10:53:40
+date: 2024-10-21T04:08:10.394Z
+updated: 2024-10-26T19:18:30.475Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01da7618ecb1f4ba3f65eff78bf468d6caee3f710d4783cf89f31373b4c7456b.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01da7618ecb1f4ba3f65eff78bf468d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

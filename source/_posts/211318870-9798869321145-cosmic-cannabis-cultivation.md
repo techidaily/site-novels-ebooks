@@ -1,7 +1,7 @@
 ---
 title: Cosmic Cannabis Cultivation | Free Book
-date: 2024-10-25 15:19:15
-updated: 2024-10-26 11:51:20
+date: 2024-10-21T03:14:33.653Z
+updated: 2024-10-26T22:37:55.701Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7af19170090974018ecbdf3c714b215e135893cc14e99c2769adde28607f02b0.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7af19170090974018ecbdf3c714b215
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Falling Down and Getting Up | Free Book
-date: 2024-10-25 10:46:58
-updated: 2024-10-26 12:27:53
+date: 2024-10-24T21:00:15.494Z
+updated: 2024-10-27T01:47:36.671Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a065d5de855645ce687e0165b953401e41b40518b5f780c57c6827afbd734127.jpg
@@ -239,3 +239,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a065d5de855645ce687e0165b953401
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

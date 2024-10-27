@@ -1,7 +1,7 @@
 ---
 title: When Karma Is at Its Strongest | Free Book
-date: 2024-10-24 18:25:53
-updated: 2024-10-26 11:38:12
+date: 2024-10-22T17:37:57.721Z
+updated: 2024-10-26T18:01:44.019Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c1cc91672df2fcdd57852fb416aa8262470ef6ce54f2faa74a540b819e7f295.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c1cc91672df2fcdd57852fb416aa82
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Golden Grimoire | Free Book
-date: 2024-10-23 10:54:55
-updated: 2024-10-26 11:57:58
+date: 2024-10-25T04:39:16.338Z
+updated: 2024-10-26T18:53:26.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6090b940ad7a3433f1c0eabcd86bd96b8668804764f716c508fb5528c1a0c526.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6090b940ad7a3433f1c0eabcd86bd96
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

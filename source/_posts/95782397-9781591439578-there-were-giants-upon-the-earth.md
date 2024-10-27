@@ -1,7 +1,7 @@
 ---
 title: There Were Giants Upon the Earth | Free Book
-date: 2024-10-23 12:21:25
-updated: 2024-10-26 10:36:49
+date: 2024-10-22T20:42:37.130Z
+updated: 2024-10-26T19:44:35.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2134ec4671fbba21e41d93173355d2f30dda467e1542230c38f99a005a0a7190.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2134ec4671fbba21e41d93173355d2f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

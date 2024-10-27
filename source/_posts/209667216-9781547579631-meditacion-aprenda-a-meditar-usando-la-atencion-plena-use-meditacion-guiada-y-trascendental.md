@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Aprenda A Meditar Usando La Atención Plena (Use Meditación Guiada Y Trascendental) | Free Book"
-date: 2024-10-23 20:11:34
-updated: 2024-10-26 10:24:57
+date: 2024-10-23T16:03:23.603Z
+updated: 2024-10-26T16:47:53.421Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7fdb44436b185aea1280f8dc0ccc8dfd763a30291adba5849bb0b872c53b11a1.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7fdb44436b185aea1280f8dc0ccc8df
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Between Death and Life – Conversations with a Spirit | Free Book
-date: 2024-10-24 16:45:49
-updated: 2024-10-26 10:39:19
+date: 2024-10-25T05:45:27.226Z
+updated: 2024-10-26T19:38:42.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18d05d79335dcb1bd192c21dfdd601f3287ea3e5734603ae1fabeec80a84a2ec.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18d05d79335dcb1bd192c21dfdd601f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Wheel of the Year Companion | Free Book
-date: 2024-10-24 11:42:20
-updated: 2024-10-26 12:58:36
+date: 2024-10-20T03:48:32.924Z
+updated: 2024-10-26T16:01:54.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/13a8a1c26625d65a79b855c1195b5579636890ff1de28a474fcfc82302fb4f59.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/13a8a1c26625d65a79b855c1195b557
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

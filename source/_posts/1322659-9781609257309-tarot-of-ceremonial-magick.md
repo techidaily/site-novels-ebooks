@@ -1,7 +1,7 @@
 ---
 title: Tarot of Ceremonial Magick | Free Book
-date: 2024-10-23 15:58:49
-updated: 2024-10-26 12:43:50
+date: 2024-10-25T18:26:23.977Z
+updated: 2024-10-26T23:23:37.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60ff544762e414ffe4996789e97d1118619cc24fbf380a4a144d2d688a093d47.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60ff544762e414ffe4996789e97d111
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

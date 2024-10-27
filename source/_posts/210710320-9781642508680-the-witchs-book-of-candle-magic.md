@@ -1,7 +1,7 @@
 ---
 title: The Witch's Book of Candle Magic | Free Book
-date: 2024-10-24 16:55:19
-updated: 2024-10-26 11:31:19
+date: 2024-10-22T01:53:28.752Z
+updated: 2024-10-26T20:30:46.340Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/52ac177291cafbb1a42315d06a4816d91e57cade57087cf61d4c35af7d534695.jpg
@@ -211,3 +211,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/52ac177291cafbb1a42315d06a4816d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

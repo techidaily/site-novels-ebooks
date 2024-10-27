@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Guide to Magickal Herbs | Free Book
-date: 2024-10-24 15:52:59
-updated: 2024-10-26 11:42:18
+date: 2024-10-21T18:14:09.414Z
+updated: 2024-10-27T01:44:03.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59e789049d51bdd544bfbbc2e824b95172c087c30c0c60acbce17033c3b2a6b0.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59e789049d51bdd544bfbbc2e824b95
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

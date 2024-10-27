@@ -1,7 +1,7 @@
 ---
 title: Acquainted With The Night | Free Book
-date: 2024-10-24 10:47:51
-updated: 2024-10-26 11:26:51
+date: 2024-10-22T22:28:48.673Z
+updated: 2024-10-26T19:27:09.475Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5069a4e55969ac5c0cc0b28e608649ff7948950edba0fdfc858114b70202741d.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5069a4e55969ac5c0cc0b28e608649f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

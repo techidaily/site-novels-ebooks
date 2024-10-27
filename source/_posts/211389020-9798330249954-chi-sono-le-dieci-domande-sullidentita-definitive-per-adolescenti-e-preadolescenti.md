@@ -1,7 +1,7 @@
 ---
 title: Chi sono? Le DIECI domande sull'IDENTITÀ definitive per ADOLESCENTI e Preadolescenti | Free Book
-date: 2024-10-23 18:49:35
-updated: 2024-10-26 12:55:32
+date: 2024-10-23T20:06:45.108Z
+updated: 2024-10-26T20:16:48.455Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/236bb9280addddb4c708e03d0615583bfb9518bbb3be4c9c38f07f112104bd7f.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/236bb9280addddb4c708e03d0615583
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

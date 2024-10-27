@@ -1,7 +1,7 @@
 ---
 title: La Méditation Pour les Débutants | Free Book
-date: 2024-10-24 12:29:38
-updated: 2024-10-26 11:12:55
+date: 2024-10-24T05:06:43.951Z
+updated: 2024-10-27T04:54:23.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9acc616bbc20ef798a0fcde55fb0c67b3eacd0def34dc5e4b2c7388fc7bfb25f.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9acc616bbc20ef798a0fcde55fb0c67
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Devenez une sorcière, c'est malin | Free Book
-date: 2024-10-24 19:41:42
-updated: 2024-10-26 11:36:55
+date: 2024-10-21T22:53:19.273Z
+updated: 2024-10-27T01:22:56.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e23d42d7ee2e8b6e859a727d9923011e1e4a4f92e50afbeba2d33704b9a3b44.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e23d42d7ee2e8b6e859a727d992301
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

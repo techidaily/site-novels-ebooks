@@ -1,7 +1,7 @@
 ---
 title: "The Emergence of Paraphysics: Research and Applications | Free Book"
-date: 2024-10-24 13:31:42
-updated: 2024-10-26 12:32:28
+date: 2024-10-26T05:15:36.262Z
+updated: 2024-10-26T16:17:55.497Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3b726e265443d5497876d8061727267390350a02aff2d882b1c879117bb0af2.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3b726e265443d5497876d806172726
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

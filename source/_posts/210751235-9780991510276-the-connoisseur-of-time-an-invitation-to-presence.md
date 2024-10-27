@@ -1,7 +1,7 @@
 ---
 title: "The Connoisseur of Time: An Invitation to Presence | Free Book"
-date: 2024-10-23 17:43:15
-updated: 2024-10-26 12:20:21
+date: 2024-10-22T17:32:10.944Z
+updated: 2024-10-26T20:50:12.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8e7fc34861123eb633d797919d5e5ebf98e5654b4d550ddf3d01f559ea157cd.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8e7fc34861123eb633d797919d5e5e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

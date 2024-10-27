@@ -1,7 +1,7 @@
 ---
 title: A History of Ghosts, Spirits and the Supernatural | Free Book
-date: 2024-10-23 10:26:19
-updated: 2024-10-26 11:13:25
+date: 2024-10-26T01:17:43.961Z
+updated: 2024-10-26T21:06:26.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec6ce2069dc4dbc8d9a1e0ccd49b16fe2046895838d8abb798823bfb14fc27.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec6ce2069dc4dbc8d9a1e0ccd49b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

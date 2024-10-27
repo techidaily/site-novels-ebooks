@@ -1,7 +1,7 @@
 ---
 title: Diary of a Beautiful Disaster | Free Book
-date: 2024-10-25 10:14:48
-updated: 2024-10-26 12:37:37
+date: 2024-10-20T21:23:16.460Z
+updated: 2024-10-26T17:29:23.920Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b53b4d676a7aec9399bbf9d5290638769d2e5938e76d30cb9a3243932ae0b7dc.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b53b4d676a7aec9399bbf9d52906387
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Animal Ghosts Or, Animal Hauntings and the Hereafter | Free Book
-date: 2024-10-25 12:29:36
-updated: 2024-10-26 12:11:44
+date: 2024-10-19T17:31:49.303Z
+updated: 2024-10-26T19:09:30.581Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92ced96ada5bc7935094cf2cdf9a8120c4d0d10d7c2dab1949bc6f8311c96b73.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92ced96ada5bc7935094cf2cdf9a812
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

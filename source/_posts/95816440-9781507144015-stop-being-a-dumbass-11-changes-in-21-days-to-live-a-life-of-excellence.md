@@ -1,7 +1,7 @@
 ---
 title: Stop  Being  a Dumbass  11 Changes in 21 Days to Live a Life of Excellence | Free Book
-date: 2024-10-24 21:21:49
-updated: 2024-10-26 11:39:31
+date: 2024-10-20T20:24:43.370Z
+updated: 2024-10-27T05:22:50.849Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a63b1e8e2e2a999b63f8569ad57a034f11c50f3ea045fe366fbde7387062438.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a63b1e8e2e2a999b63f8569ad57a03
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

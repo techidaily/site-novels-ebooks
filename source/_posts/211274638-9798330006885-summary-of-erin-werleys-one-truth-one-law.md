@@ -1,7 +1,7 @@
 ---
 title: Summary of Erin Werley's One Truth One Law | Free Book
-date: 2024-10-23 13:47:31
-updated: 2024-10-26 12:56:10
+date: 2024-10-22T19:13:16.808Z
+updated: 2024-10-27T03:06:02.767Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00f70342cedced8f4cbb405a3537e16137d0aa1035a56e487882d429e4f99e6a.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00f70342cedced8f4cbb405a3537e16
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

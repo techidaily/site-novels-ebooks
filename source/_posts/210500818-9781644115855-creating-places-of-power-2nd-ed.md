@@ -1,7 +1,7 @@
 ---
 title: Creating Places of Power (2nd ed.) | Free Book
-date: 2024-10-23 12:59:12
-updated: 2024-10-26 10:38:46
+date: 2024-10-23T17:32:20.782Z
+updated: 2024-10-27T00:46:17.695Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c477a1a21c3895bd7a3d9508f44bd43f730b363078d5c81c01acddb5a71404f0.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c477a1a21c3895bd7a3d9508f44bd43
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

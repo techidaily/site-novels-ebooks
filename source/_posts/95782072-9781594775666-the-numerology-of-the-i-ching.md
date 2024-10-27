@@ -1,7 +1,7 @@
 ---
 title: The Numerology of the I Ching | Free Book
-date: 2024-10-25 11:47:22
-updated: 2024-10-26 11:24:11
+date: 2024-10-21T03:43:21.312Z
+updated: 2024-10-26T16:05:31.152Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d41a92588d628342abc1aaddefa2a4b6c54c1f749d1a4caf2d8581350dae0fd5.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d41a92588d628342abc1aaddefa2a4b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

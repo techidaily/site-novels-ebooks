@@ -1,7 +1,7 @@
 ---
 title: Her Story The Legacy Journal | Free Book
-date: 2024-10-25 15:21:40
-updated: 2024-10-26 11:49:18
+date: 2024-10-19T16:29:54.854Z
+updated: 2024-10-26T20:43:59.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f4c8ddd467cc23dd93909fbd3d5a4f0e3933f9471e45780bc9a372385c36174.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f4c8ddd467cc23dd93909fbd3d5a4f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

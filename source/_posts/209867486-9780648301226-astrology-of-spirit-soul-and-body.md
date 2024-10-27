@@ -1,7 +1,7 @@
 ---
 title: Astrology of Spirit, Soul and Body | Free Book
-date: 2024-10-23 20:51:46
-updated: 2024-10-26 10:51:55
+date: 2024-10-26T05:01:30.634Z
+updated: 2024-10-26T22:00:09.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78b65ca8624f87450eddac5896f35f386e3705b29da40774106a501813c4475f.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78b65ca8624f87450eddac5896f35f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

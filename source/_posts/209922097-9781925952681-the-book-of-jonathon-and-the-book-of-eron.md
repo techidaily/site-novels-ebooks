@@ -1,7 +1,7 @@
 ---
 title: The Book of Jonathon and The Book of Eron | Free Book
-date: 2024-10-23 19:34:50
-updated: 2024-10-26 12:13:44
+date: 2024-10-26T05:46:36.034Z
+updated: 2024-10-26T23:10:27.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c4bf3ba383a54cd9ca6a47f3f174d4246a606df03519237efdadc9ee57eb28a.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c4bf3ba383a54cd9ca6a47f3f174d4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Aleister Crowley: The Beast in Berlin | Free Book"
-date: 2024-10-23 22:26:47
-updated: 2024-10-26 11:13:50
+date: 2024-10-20T02:47:31.653Z
+updated: 2024-10-27T04:48:41.287Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afbc6ac76a3de6d1126049bed9e38ab45b68b29d94677b6f8516bac588bf2af9.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afbc6ac76a3de6d1126049bed9e38ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

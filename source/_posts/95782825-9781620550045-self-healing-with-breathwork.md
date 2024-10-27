@@ -1,7 +1,7 @@
 ---
 title: Self-Healing with Breathwork | Free Book
-date: 2024-10-25 21:36:46
-updated: 2024-10-26 12:21:17
+date: 2024-10-23T17:18:46.477Z
+updated: 2024-10-26T17:04:49.812Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5e7dc52c0d12ace8664e4f98cec8286c004ef3562d69e5d1bab571b6b0b1ffa.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5e7dc52c0d12ace8664e4f98cec828
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

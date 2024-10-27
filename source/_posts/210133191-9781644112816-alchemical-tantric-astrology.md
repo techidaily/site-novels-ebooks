@@ -1,7 +1,7 @@
 ---
 title: Alchemical Tantric Astrology | Free Book
-date: 2024-10-23 13:42:55
-updated: 2024-10-26 11:57:12
+date: 2024-10-23T21:49:23.519Z
+updated: 2024-10-26T16:48:08.714Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d44af0938eedc2618a01d2e4964fc2425ad2e954c0684834a50690f6f75cf96.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d44af0938eedc2618a01d2e4964fc2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

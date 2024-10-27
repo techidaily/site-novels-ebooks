@@ -1,7 +1,7 @@
 ---
 title: A Gentle Goodbye with Cinnamon the Rabbit | Free Book
-date: 2024-10-23 13:37:53
-updated: 2024-10-26 10:13:58
+date: 2024-10-24T01:01:55.322Z
+updated: 2024-10-27T00:04:01.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/054be815551c1c3ca67ad913594c25ee79cd82e290d83275cac17b6362ae7660.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/054be815551c1c3ca67ad913594c25e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

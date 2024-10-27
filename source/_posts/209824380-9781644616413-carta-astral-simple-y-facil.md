@@ -1,7 +1,7 @@
 ---
 title: Carta astral simple y fácil | Free Book
-date: 2024-10-23 20:37:57
-updated: 2024-10-26 12:38:34
+date: 2024-10-21T16:49:29.341Z
+updated: 2024-10-27T01:37:37.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90f6f8a5d795c8bbd7e2c30cb79cd04060d1460820e74acefd54269c4f8adaac.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90f6f8a5d795c8bbd7e2c30cb79cd04
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

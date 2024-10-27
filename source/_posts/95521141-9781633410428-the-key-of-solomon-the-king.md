@@ -1,7 +1,7 @@
 ---
 title: The Key of Solomon the King | Free Book
-date: 2024-10-24 14:34:21
-updated: 2024-10-26 12:37:29
+date: 2024-10-20T21:03:29.287Z
+updated: 2024-10-26T22:10:30.156Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/818dc4987c27128928b1d977a9230fb4b5c05d31dd159b9cf0e2fb3ff39f157c.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/818dc4987c27128928b1d977a9230fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Shamanic Plant Medicine - Ayahuasca | Free Book
-date: 2024-10-24 15:45:46
-updated: 2024-10-26 11:27:42
+date: 2024-10-23T22:40:07.549Z
+updated: 2024-10-27T01:14:14.919Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74684884ecac43b976c6fb01328ba7cdbf1cc1bb542df28e9872bb4b083c3285.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74684884ecac43b976c6fb01328ba7c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

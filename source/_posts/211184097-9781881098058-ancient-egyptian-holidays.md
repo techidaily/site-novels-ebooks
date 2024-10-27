@@ -1,7 +1,7 @@
 ---
 title: Ancient Egyptian Holidays | Free Book
-date: 2024-10-24 17:21:43
-updated: 2024-10-26 11:57:42
+date: 2024-10-24T05:24:18.388Z
+updated: 2024-10-27T03:26:18.602Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b7b72a84fed64f30b2e483f7f633e427db774a509bcb56aab74a7914e01a32d6.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b7b72a84fed64f30b2e483f7f633e42
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

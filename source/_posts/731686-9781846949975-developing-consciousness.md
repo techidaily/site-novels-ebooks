@@ -1,7 +1,7 @@
 ---
 title: Developing Consciousness | Free Book
-date: 2024-10-25 14:51:43
-updated: 2024-10-26 10:15:35
+date: 2024-10-23T01:51:58.883Z
+updated: 2024-10-26T18:09:09.856Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0be65d0090551f0e6ab9775dcaf9bad6a1f6d1f8a97ad2ddc7bb725fd9cf15b.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0be65d0090551f0e6ab9775dcaf9ba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Everything Guide to Evidence of the Afterlife | Free Book
-date: 2024-10-25 10:50:21
-updated: 2024-10-26 10:31:23
+date: 2024-10-26T00:00:21.041Z
+updated: 2024-10-26T22:33:30.287Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bae17d54dbe128cbfeec7ad2c599c80a6c8cb143951d46e534405b0fc4273791.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bae17d54dbe128cbfeec7ad2c599c80
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

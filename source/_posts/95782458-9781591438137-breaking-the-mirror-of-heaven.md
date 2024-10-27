@@ -1,7 +1,7 @@
 ---
 title: Breaking the Mirror of Heaven | Free Book
-date: 2024-10-25 23:33:48
-updated: 2024-10-26 10:52:23
+date: 2024-10-26T03:41:01.312Z
+updated: 2024-10-26T16:15:52.326Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/379411e7bbc8807680570817a3bd0aa20f5a3d3d673a5ded213d37eefbf54a39.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/379411e7bbc8807680570817a3bd0aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

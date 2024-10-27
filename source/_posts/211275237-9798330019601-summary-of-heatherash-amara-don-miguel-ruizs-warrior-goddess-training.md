@@ -1,7 +1,7 @@
 ---
 title: Summary of HeatherAsh Amara & don Miguel Ruiz's Warrior Goddess Training | Free Book
-date: 2024-10-24 12:30:15
-updated: 2024-10-26 10:37:33
+date: 2024-10-23T03:07:13.951Z
+updated: 2024-10-27T01:45:39.682Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/397652ebca68f939e083b29ce2e45cf9b19d0b512dc2255faa12197b5ea0ec10.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/397652ebca68f939e083b29ce2e45cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

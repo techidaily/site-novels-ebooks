@@ -1,7 +1,7 @@
 ---
 title: The Science of Superstition | Free Book
-date: 2024-10-23 18:47:16
-updated: 2024-10-26 10:20:19
+date: 2024-10-26T01:53:28.788Z
+updated: 2024-10-27T00:40:18.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9e5a033a67bc0e0b8854982a81e72bb58e8ebc61061564c25cf84efd9a93bf1.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9e5a033a67bc0e0b8854982a81e72b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

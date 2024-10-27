@@ -1,7 +1,7 @@
 ---
 title: Me, the Crazy Woman, and Breast Cancer (2nd ed.) | Free Book
-date: 2024-10-25 16:52:10
-updated: 2024-10-26 11:58:43
+date: 2024-10-26T04:19:26.972Z
+updated: 2024-10-27T03:00:03.298Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/81efbec49511d6b040928ded4279aceb1f7b3a8fd4ab46fb6fc21d3bfc820893.jpg
@@ -205,3 +205,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/81efbec49511d6b040928ded4279ace
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Struggle Trauma Nor Bad Choices Stopped Me | Free Book
-date: 2024-10-24 20:26:14
-updated: 2024-10-26 11:22:10
+date: 2024-10-19T23:41:48.322Z
+updated: 2024-10-26T19:14:26.809Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a049d752621a93af7c8ef2bbd023d8263e3a36ddef438418cc59c70805e16fe.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a049d752621a93af7c8ef2bbd023d8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

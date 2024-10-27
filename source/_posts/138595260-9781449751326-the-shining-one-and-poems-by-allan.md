@@ -1,7 +1,7 @@
 ---
 title: The Shining One and Poems by Allan | Free Book
-date: 2024-10-25 18:50:59
-updated: 2024-10-26 10:57:35
+date: 2024-10-22T16:13:29.408Z
+updated: 2024-10-27T03:05:00.324Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30370afd23c320c0c06304362fa22f11da8215b4783f9650b8d9fbfc2cb7345e.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30370afd23c320c0c06304362fa22f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

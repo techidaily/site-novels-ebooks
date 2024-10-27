@@ -1,7 +1,7 @@
 ---
 title: Psychedelics and Psychotherapy | Free Book
-date: 2024-10-24 22:52:44
-updated: 2024-10-26 10:23:29
+date: 2024-10-24T00:28:09.957Z
+updated: 2024-10-26T21:16:02.355Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/776c896cd001e65c187924b7dbe4ba0c895488995c0c90903877233793c7b2ce.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/776c896cd001e65c187924b7dbe4ba0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

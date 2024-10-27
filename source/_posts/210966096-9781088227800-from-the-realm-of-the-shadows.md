@@ -1,7 +1,7 @@
 ---
 title: From the Realm  of the Shadows | Free Book
-date: 2024-10-25 23:15:32
-updated: 2024-10-26 10:35:59
+date: 2024-10-26T04:15:44.685Z
+updated: 2024-10-26T22:56:10.876Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0993dc2d35f6b68157dd3fbf2f801fcd9bafa70dca45b860c62d4d6ecbd70429.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0993dc2d35f6b68157dd3fbf2f801fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

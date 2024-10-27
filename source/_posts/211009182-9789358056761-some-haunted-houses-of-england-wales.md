@@ -1,7 +1,7 @@
 ---
 title: Some Haunted Houses of England Wales | Free Book
-date: 2024-10-25 18:43:30
-updated: 2024-10-26 10:51:35
+date: 2024-10-23T20:50:04.547Z
+updated: 2024-10-27T04:36:14.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f7e880f8bd781f03eb94f59087b71e7a5d88695aec1fdabf04962276b85dc53.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f7e880f8bd781f03eb94f59087b71e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

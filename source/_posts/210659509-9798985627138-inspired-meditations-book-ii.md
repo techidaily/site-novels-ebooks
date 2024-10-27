@@ -1,7 +1,7 @@
 ---
 title: Inspired Meditations Book II | Free Book
-date: 2024-10-23 21:55:45
-updated: 2024-10-26 12:21:11
+date: 2024-10-20T03:22:05.212Z
+updated: 2024-10-26T20:45:02.565Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/267220cf58c2a00e50a63e4dd0b6a016d89d2e0e2b54fb2986724840dd42e218.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/267220cf58c2a00e50a63e4dd0b6a01
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

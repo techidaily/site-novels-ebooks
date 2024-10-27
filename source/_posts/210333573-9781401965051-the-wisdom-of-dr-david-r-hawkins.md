@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Dr. David R. Hawkins | Free Book
-date: 2024-10-24 19:58:39
-updated: 2024-10-26 12:43:42
+date: 2024-10-23T16:19:06.534Z
+updated: 2024-10-26T16:48:01.782Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c540bd2f34ba4b64661e7b46917ecc73a96d0b2de2d7b525b05b6eae8cf8a54c.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c540bd2f34ba4b64661e7b46917ecc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

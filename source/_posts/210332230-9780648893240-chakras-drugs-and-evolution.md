@@ -1,7 +1,7 @@
 ---
 title: Chakras, Drugs and Evolution | Free Book
-date: 2024-10-23 21:18:47
-updated: 2024-10-26 12:52:14
+date: 2024-10-24T18:54:57.844Z
+updated: 2024-10-27T00:15:18.488Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/398c9f0a8043b9ad4c54f2d198d68105847aab3e3c201675d54be6ae3d3e17bd.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/398c9f0a8043b9ad4c54f2d198d6810
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Magic of the Middle Ages | Free Book
-date: 2024-10-24 11:43:40
-updated: 2024-10-26 10:59:47
+date: 2024-10-22T20:15:25.329Z
+updated: 2024-10-27T06:00:44.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fad9fba8d9f014be331efb3c849cbf7c8f901a88f61a3212f1c01f3082da085.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fad9fba8d9f014be331efb3c849cbf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

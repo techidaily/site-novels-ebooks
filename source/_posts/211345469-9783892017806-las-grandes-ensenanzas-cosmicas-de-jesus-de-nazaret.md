@@ -1,7 +1,7 @@
 ---
 title: Las grandes enseñanzas cósmicas de JESÚS de Nazaret | Free Book
-date: 2024-10-25 20:41:32
-updated: 2024-10-26 12:43:48
+date: 2024-10-21T19:04:23.979Z
+updated: 2024-10-27T05:18:19.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec64e2bdd68bdc64e799080a9f00bd57c773110722d03d173abbc4b6b05d0912.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec64e2bdd68bdc64e799080a9f00bd5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

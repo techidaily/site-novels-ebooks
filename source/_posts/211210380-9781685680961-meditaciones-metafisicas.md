@@ -1,7 +1,7 @@
 ---
 title: Meditaciones metafísicas | Free Book
-date: 2024-10-23 15:13:27
-updated: 2024-10-26 10:45:55
+date: 2024-10-24T23:17:56.258Z
+updated: 2024-10-27T00:56:45.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/028fffab53013c46232c97dbe3f26c068b4d3dc3122ed954d4247bcf768e22fa.jpg
@@ -362,3 +362,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/028fffab53013c46232c97dbe3f26c0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

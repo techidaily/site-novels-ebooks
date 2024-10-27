@@ -1,7 +1,7 @@
 ---
 title: Beyond the Flower of Life (2nd ed.) | Free Book
-date: 2024-10-23 12:37:54
-updated: 2024-10-26 11:41:38
+date: 2024-10-24T00:55:08.664Z
+updated: 2024-10-26T18:51:51.408Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/406053a351587680d7ed1d23486b1f7190c8d45e75edc303e48cf21faecbd113.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/406053a351587680d7ed1d23486b1f7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

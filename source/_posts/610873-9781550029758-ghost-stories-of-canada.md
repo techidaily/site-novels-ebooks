@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories of Canada | Free Book
-date: 2024-10-24 18:10:41
-updated: 2024-10-26 11:26:29
+date: 2024-10-26T04:19:00.796Z
+updated: 2024-10-27T02:25:00.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9295d175071ff7e7d01ec82da30c65dc82c7a66bcd5d64393dc2c243b6c8511e.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9295d175071ff7e7d01ec82da30c65d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

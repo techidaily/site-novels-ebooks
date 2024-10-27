@@ -1,7 +1,7 @@
 ---
 title: Bambole talismano slave. Creazione fai da te di talismani | Free Book
-date: 2024-10-23 13:25:25
-updated: 2024-10-26 12:46:11
+date: 2024-10-19T16:00:54.931Z
+updated: 2024-10-27T04:31:09.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/252b1dd7c58992f3fe526ffc1a84db87d1a00fd707a76b057c5fccd48b4a75a7.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/252b1dd7c58992f3fe526ffc1a84db8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: My Journey in 1970 to Maharishi's India | Free Book
-date: 2024-10-24 19:34:34
-updated: 2024-10-26 10:49:22
+date: 2024-10-24T19:15:17.362Z
+updated: 2024-10-27T04:16:27.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee07dca3619ade87541526b46639bd0dde07cd08306e4850675c3bd1e760c28c.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee07dca3619ade87541526b46639bd0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

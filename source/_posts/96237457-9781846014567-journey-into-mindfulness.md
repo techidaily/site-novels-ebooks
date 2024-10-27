@@ -1,7 +1,7 @@
 ---
 title: Journey into Mindfulness | Free Book
-date: 2024-10-23 17:10:25
-updated: 2024-10-26 11:10:49
+date: 2024-10-26T01:49:26.276Z
+updated: 2024-10-26T23:00:38.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a38270f6f8851782783991c2f0016b3cba06228083d06589d5d54346e01c9f2.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a38270f6f8851782783991c2f0016b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

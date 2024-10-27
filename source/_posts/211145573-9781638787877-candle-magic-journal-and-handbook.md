@@ -1,7 +1,7 @@
 ---
 title: Candle Magic Journal and Handbook | Free Book
-date: 2024-10-25 22:17:43
-updated: 2024-10-26 12:18:53
+date: 2024-10-20T22:38:37.175Z
+updated: 2024-10-27T01:55:02.642Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49a833f7e61064163f175fb7633f9f1f87705202f8f4c7a8f5b85c712af3fa4a.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49a833f7e61064163f175fb7633f9f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

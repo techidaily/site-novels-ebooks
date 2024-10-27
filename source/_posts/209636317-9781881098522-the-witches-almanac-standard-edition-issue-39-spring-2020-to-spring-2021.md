@@ -1,7 +1,7 @@
 ---
 title: "The Witches' Almanac, Standard Edition: Issue 39, Spring 2020 to Spring 2021 | Free Book"
-date: 2024-10-25 19:47:24
-updated: 2024-10-26 10:21:36
+date: 2024-10-25T22:13:25.454Z
+updated: 2024-10-26T21:02:14.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aeb7cf049597ddd7cf4e41e78f6e1b467f609a950fa0e16ff83831ecba95a686.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aeb7cf049597ddd7cf4e41e78f6e1b4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

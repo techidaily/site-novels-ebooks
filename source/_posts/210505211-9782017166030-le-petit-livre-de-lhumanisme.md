@@ -1,7 +1,7 @@
 ---
 title: Le petit livre de l'humanisme | Free Book
-date: 2024-10-25 22:55:19
-updated: 2024-10-26 10:34:50
+date: 2024-10-23T23:32:28.228Z
+updated: 2024-10-26T23:56:16.472Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26be39b85a70a46211e1c3fd088696e3e511b77cb6372d93facaae7ced3378f5.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26be39b85a70a46211e1c3fd088696e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

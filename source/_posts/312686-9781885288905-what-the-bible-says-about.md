@@ -1,7 +1,7 @@
 ---
 title: What the Bible Says About... | Free Book
-date: 2024-10-23 15:43:27
-updated: 2024-10-26 12:44:55
+date: 2024-10-21T21:29:15.405Z
+updated: 2024-10-26T20:04:03.996Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fada6e670eb3ab3ec8a82f60abd869d8fc164fe3406a6d85f62312ef9382b1aa.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fada6e670eb3ab3ec8a82f60abd869d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

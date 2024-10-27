@@ -1,7 +1,7 @@
 ---
 title: Reverend Teacher Talks on Aging | Free Book
-date: 2024-10-24 11:13:32
-updated: 2024-10-26 10:29:25
+date: 2024-10-25T03:24:06.089Z
+updated: 2024-10-26T22:42:27.532Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/550a18cc27c1a4c823d578448f1d30cc750817ee4e5dd279770aa68c3a9d39f0.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/550a18cc27c1a4c823d578448f1d30c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

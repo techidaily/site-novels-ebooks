@@ -1,7 +1,7 @@
 ---
 title: Harder Than I Thought, Easier Than I Feared | Free Book
-date: 2024-10-23 21:10:34
-updated: 2024-10-26 10:58:59
+date: 2024-10-21T23:41:29.198Z
+updated: 2024-10-27T05:29:49.229Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7078ea0abea4f14e2483e251173713f09abdb435f5ecbe4009732f31782d6d7.jpg
@@ -299,3 +299,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7078ea0abea4f14e2483e251173713
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Little Book of Pendulum Magic | Free Book
-date: 2024-10-25 22:49:12
-updated: 2024-10-26 12:43:34
+date: 2024-10-24T18:20:00.061Z
+updated: 2024-10-27T02:34:16.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/183cb787861ab8c17dde67376252feb4050a933de15a8fdc90d12ee875b68160.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/183cb787861ab8c17dde67376252feb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

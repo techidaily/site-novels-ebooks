@@ -1,7 +1,7 @@
 ---
 title: Summary of Queen Afua's Sacred Woman | Free Book
-date: 2024-10-23 12:57:38
-updated: 2024-10-26 12:55:58
+date: 2024-10-20T18:32:19.784Z
+updated: 2024-10-27T00:19:05.163Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2293bd9b7bba73baeaf5c949eba6ce7da8d7d1a2cdf1ef409ba7d0f32bd88615.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2293bd9b7bba73baeaf5c949eba6ce7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

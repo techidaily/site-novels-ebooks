@@ -1,7 +1,7 @@
 ---
 title: Haunted U.S. Battlefields | Free Book
-date: 2024-10-24 23:50:46
-updated: 2024-10-26 11:35:15
+date: 2024-10-20T20:18:52.282Z
+updated: 2024-10-27T01:36:21.400Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37b04764b369d6f810e9b59dadb40cff023b6a7158a67aaa66526139551537da.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37b04764b369d6f810e9b59dadb40cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

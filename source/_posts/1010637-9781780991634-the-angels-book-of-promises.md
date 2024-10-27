@@ -1,7 +1,7 @@
 ---
 title: The Angels' Book of Promises | Free Book
-date: 2024-10-24 19:37:44
-updated: 2024-10-26 11:12:10
+date: 2024-10-22T16:59:08.516Z
+updated: 2024-10-27T00:40:09.909Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ea741ed47dfd833b0fba4d9dfcb3f49a8dd7eadd8cec3cd6c65ad1f180610ac.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ea741ed47dfd833b0fba4d9dfcb3f4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

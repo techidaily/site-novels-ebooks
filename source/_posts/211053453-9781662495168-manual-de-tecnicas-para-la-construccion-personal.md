@@ -1,7 +1,7 @@
 ---
 title: MANUAL DE TÉCNICAS PARA LA CONSTRUCCIÓN PERSONAL | Free Book
-date: 2024-10-23 13:34:16
-updated: 2024-10-26 10:47:58
+date: 2024-10-21T05:20:35.361Z
+updated: 2024-10-27T01:11:13.870Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9784ab06c01e75c58eee2cb90e65ee12187a72b9b492f1116a89fcbaffdae491.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9784ab06c01e75c58eee2cb90e65ee1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

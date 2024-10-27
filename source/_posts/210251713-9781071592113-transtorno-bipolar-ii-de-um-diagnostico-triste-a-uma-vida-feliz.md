@@ -1,7 +1,7 @@
 ---
 title: Transtorno Bipolar II - De um Diagnóstico Triste a uma Vida Feliz | Free Book
-date: 2024-10-25 20:51:18
-updated: 2024-10-26 10:14:53
+date: 2024-10-21T23:22:19.303Z
+updated: 2024-10-26T23:23:02.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cada4166cc58311e480eedadd3774efaa79ab14f045b4e8cfab1d79e6787772.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cada4166cc58311e480eedadd3774e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Science of Human Possibilities | Free Book
-date: 2024-10-25 19:26:13
-updated: 2024-10-26 12:22:27
+date: 2024-10-19T18:35:34.742Z
+updated: 2024-10-26T19:02:55.537Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d72dc04a0485a6ad9eaba644f7ac8621636cee1aa7201671996fea53de0d1f9.jpg
@@ -251,3 +251,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d72dc04a0485a6ad9eaba644f7ac86
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

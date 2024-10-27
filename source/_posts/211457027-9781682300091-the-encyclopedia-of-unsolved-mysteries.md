@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Unsolved Mysteries | Free Book
-date: 2024-10-23 18:55:38
-updated: 2024-10-26 12:40:37
+date: 2024-10-26T02:03:09.473Z
+updated: 2024-10-27T02:13:54.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c39ce1bc370bdd72e13d91717342bd632e31660ca439f364fe9c4b067b0330a.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c39ce1bc370bdd72e13d91717342bd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

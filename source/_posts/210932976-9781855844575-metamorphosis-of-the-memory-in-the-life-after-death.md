@@ -1,7 +1,7 @@
 ---
 title: Metamorphosis of The Memory In The Life After Death | Free Book
-date: 2024-10-24 13:44:50
-updated: 2024-10-26 10:14:33
+date: 2024-10-20T00:11:38.867Z
+updated: 2024-10-27T02:25:00.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad2caddd0e67d2f9da7d97f68f31d39bba9ce548e2a6410969ecb0d2811f8139.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad2caddd0e67d2f9da7d97f68f31d39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

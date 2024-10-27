@@ -1,7 +1,7 @@
 ---
 title: Stillness on Shaking Ground | Free Book
-date: 2024-10-23 19:33:36
-updated: 2024-10-26 12:58:24
+date: 2024-10-22T05:38:29.558Z
+updated: 2024-10-26T19:33:26.957Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b24162e1e00090b6d5468984b57020f5014621b9c52ab456f6d73eeaff2b066b.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b24162e1e00090b6d5468984b57020f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of the Zodiac | Free Book
-date: 2024-10-25 15:48:53
-updated: 2024-10-26 12:38:37
+date: 2024-10-22T18:31:03.349Z
+updated: 2024-10-27T04:09:51.868Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f034c6ba6017743a64c756cbdcaf6ba10cfed3dbbfc7a46fde1d175359633007.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f034c6ba6017743a64c756cbdcaf6ba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

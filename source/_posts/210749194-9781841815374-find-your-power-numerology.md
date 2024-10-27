@@ -1,7 +1,7 @@
 ---
 title: "Find Your Power: Numerology | Free Book"
-date: 2024-10-23 12:34:19
-updated: 2024-10-26 11:32:55
+date: 2024-10-24T19:11:53.482Z
+updated: 2024-10-26T21:38:52.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/29776b3fb8640338d4ffd4cc7709b8e07d17a3b96e38716297784cc64bcf661a.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/29776b3fb8640338d4ffd4cc7709b8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

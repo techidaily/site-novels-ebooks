@@ -1,7 +1,7 @@
 ---
 title: Secrets from the Afterlife | Free Book
-date: 2024-10-23 23:54:40
-updated: 2024-10-26 12:32:49
+date: 2024-10-25T02:20:14.460Z
+updated: 2024-10-26T19:32:06.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b518d74b7dfee2a9ba383bf700a0a41aa94960edf4a86b6a6e0803c3728fe18.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b518d74b7dfee2a9ba383bf700a0a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Multidimensional Traveler | Free Book
-date: 2024-10-25 19:58:10
-updated: 2024-10-26 12:54:10
+date: 2024-10-21T05:35:30.880Z
+updated: 2024-10-27T04:12:37.014Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12c36f720549834a3d3d3934ce3a3519c92a98651db190eff8b1d2fed8c4dbfa.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12c36f720549834a3d3d3934ce3a351
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

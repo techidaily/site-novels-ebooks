@@ -1,7 +1,7 @@
 ---
 title: Secrets of the Combined Astrology | Free Book
-date: 2024-10-23 20:45:36
-updated: 2024-10-26 11:16:59
+date: 2024-10-21T03:25:09.587Z
+updated: 2024-10-26T20:26:10.159Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/532c8766dd92335afa76af3473af27c0cea979765e798cca83a1ed121fe50a89.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/532c8766dd92335afa76af3473af27c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

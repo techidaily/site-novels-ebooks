@@ -1,7 +1,7 @@
 ---
 title: Le Retour d'Israël et l'Espérance du Monde | Free Book
-date: 2024-10-24 18:41:10
-updated: 2024-10-26 11:57:56
+date: 2024-10-20T03:35:20.108Z
+updated: 2024-10-27T04:29:52.231Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad97d941c9b48357910a7977f97d8cdcd1dc906b214aee8bc55110fb0e8820de.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad97d941c9b48357910a7977f97d8cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

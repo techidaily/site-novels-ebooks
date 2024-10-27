@@ -1,7 +1,7 @@
 ---
 title: Yantra - An Encyclopedia - Volume 2 | Free Book
-date: 2024-10-23 22:26:26
-updated: 2024-10-26 10:18:27
+date: 2024-10-22T05:18:40.089Z
+updated: 2024-10-27T05:35:10.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f00c476cc024c0fc5518e024739d624c7c3763574f9fb849a1a29b5cac25f94.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f00c476cc024c0fc5518e024739d62
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

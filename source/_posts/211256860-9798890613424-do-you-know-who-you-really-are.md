@@ -1,7 +1,7 @@
 ---
 title: Do You Know Who You Really Are? | Free Book
-date: 2024-10-23 13:13:50
-updated: 2024-10-26 11:15:10
+date: 2024-10-22T18:19:55.824Z
+updated: 2024-10-26T21:20:52.972Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7098716e99f80661e8e168d55f9d942946e5e2fb740e2977d2e79bd535596218.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7098716e99f80661e8e168d55f9d942
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

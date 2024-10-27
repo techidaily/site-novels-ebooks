@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Texas Ghost Stories | Free Book
-date: 2024-10-25 17:43:38
-updated: 2024-10-26 11:20:54
+date: 2024-10-26T04:19:28.728Z
+updated: 2024-10-26T21:13:13.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7622927222bdedbfd0803c31be3541f845225897710c09ffdcf213edb74e3b39.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7622927222bdedbfd0803c31be3541f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

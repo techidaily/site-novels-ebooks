@@ -1,7 +1,7 @@
 ---
 title: The Practitioner Handbook for Spiritual Mind Healing (4th ed.) | Free Book
-date: 2024-10-23 16:55:59
-updated: 2024-10-26 12:56:47
+date: 2024-10-23T23:01:52.005Z
+updated: 2024-10-26T21:51:01.926Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98a107146f73f8d22fc70ae0158f57885521cc61b353481a3c100507ef09e932.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98a107146f73f8d22fc70ae0158f578
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

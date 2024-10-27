@@ -1,7 +1,7 @@
 ---
 title: The Empath's Guide To The Universe | Free Book
-date: 2024-10-24 15:39:51
-updated: 2024-10-26 10:57:58
+date: 2024-10-19T18:39:49.006Z
+updated: 2024-10-27T03:10:30.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2c9f7499987d2a5c7dd82f7f31080efa83b2b1200acfaf949bdca0eb6315052.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2c9f7499987d2a5c7dd82f7f31080e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

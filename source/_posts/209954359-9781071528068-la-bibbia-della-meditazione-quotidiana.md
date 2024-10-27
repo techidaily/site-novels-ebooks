@@ -1,7 +1,7 @@
 ---
 title: La Bibbia della Meditazione Quotidiana | Free Book
-date: 2024-10-23 17:56:50
-updated: 2024-10-26 12:53:42
+date: 2024-10-22T23:57:59.526Z
+updated: 2024-10-26T17:58:14.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fb58b60dc998275beea2b64195dba889d08a8c5ad24341507f21c4a2db3cf0f.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fb58b60dc998275beea2b64195dba8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

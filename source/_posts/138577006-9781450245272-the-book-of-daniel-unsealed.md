@@ -1,7 +1,7 @@
 ---
 title: The Book of Daniel Unsealed | Free Book
-date: 2024-10-24 20:48:34
-updated: 2024-10-26 11:20:50
+date: 2024-10-21T16:14:32.659Z
+updated: 2024-10-27T01:23:22.624Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe5cdf9d2b49e7fdfd10213b03748ec55e3fe338aa8dfab7c36f07aca4b3558a.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe5cdf9d2b49e7fdfd10213b03748ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Psychic Shield: The Personal Handbook of Psychic Protection | Free Book"
-date: 2024-10-25 15:55:32
-updated: 2024-10-26 10:34:42
+date: 2024-10-22T03:12:47.100Z
+updated: 2024-10-26T17:58:01.592Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/501393d762e74dda89f35da1cb5fc9145bc0120068d25e398e0de585cf86e156.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/501393d762e74dda89f35da1cb5fc91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

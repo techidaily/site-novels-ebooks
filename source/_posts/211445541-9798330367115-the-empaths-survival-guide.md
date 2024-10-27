@@ -1,7 +1,7 @@
 ---
 title: The Empath's Survival Guide | Free Book
-date: 2024-10-25 18:53:37
-updated: 2024-10-26 10:11:19
+date: 2024-10-25T01:10:53.019Z
+updated: 2024-10-27T05:59:50.861Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5079d3e41b65ade22bf90e05494764c14ac601d9c4df5f390c0bc3eb02952e3d.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5079d3e41b65ade22bf90e05494764c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

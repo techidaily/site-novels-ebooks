@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Candle Magic | Free Book
-date: 2024-10-25 10:34:34
-updated: 2024-10-26 10:56:34
+date: 2024-10-23T02:18:18.348Z
+updated: 2024-10-26T17:17:53.827Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/25aeb8d710ab1f6f40aa296c0a37fc2e610b0f2298b087d041d3edbfab49bd89.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25aeb8d710ab1f6f40aa296c0a37fc2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

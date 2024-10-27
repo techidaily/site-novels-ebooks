@@ -1,7 +1,7 @@
 ---
 title: The Occult Sciences - Oniromancy or the Study of Dreams | Free Book
-date: 2024-10-24 22:28:17
-updated: 2024-10-26 10:42:18
+date: 2024-10-26T05:18:18.392Z
+updated: 2024-10-26T23:59:02.907Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6081e44eddfd4e560c04b014e038850e1290d870fbb182cfd3f74e6dbcdeecd.jpg
@@ -120,3 +120,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6081e44eddfd4e560c04b014e03885
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

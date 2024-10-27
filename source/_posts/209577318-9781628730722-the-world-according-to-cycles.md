@@ -1,7 +1,7 @@
 ---
 title: The World According to Cycles | Free Book
-date: 2024-10-25 15:42:44
-updated: 2024-10-26 12:18:24
+date: 2024-10-23T16:04:42.551Z
+updated: 2024-10-26T22:23:05.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a62fec74a730c1de771892ab1a302d6d648d23fe67659312c744d64583f182b.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a62fec74a730c1de771892ab1a302d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

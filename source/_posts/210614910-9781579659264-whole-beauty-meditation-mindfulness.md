@@ -1,7 +1,7 @@
 ---
 title: "Whole Beauty: Meditation & Mindfulness | Free Book"
-date: 2024-10-23 15:26:49
-updated: 2024-10-26 11:58:47
+date: 2024-10-25T17:57:26.384Z
+updated: 2024-10-27T02:02:05.815Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c1231982c7528a3dc8e6dde7fbbfd59830aa6a84cdbaf66d55e8cac4779f2b5c.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c1231982c7528a3dc8e6dde7fbbfd59
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

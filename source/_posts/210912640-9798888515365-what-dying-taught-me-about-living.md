@@ -1,7 +1,7 @@
 ---
 title: What Dying Taught Me About Living | Free Book
-date: 2024-10-25 23:26:15
-updated: 2024-10-26 12:13:52
+date: 2024-10-19T19:56:18.623Z
+updated: 2024-10-26T21:13:50.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ed046a5adf0d5488b29c9a8494352a390158bd5b6a8ee76d379c3b0a35bbd79.jpg
@@ -234,3 +234,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ed046a5adf0d5488b29c9a8494352a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

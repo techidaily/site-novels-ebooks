@@ -1,7 +1,7 @@
 ---
 title: The After Death Chronicles | Free Book
-date: 2024-10-25 21:55:51
-updated: 2024-10-26 10:54:44
+date: 2024-10-25T02:04:10.895Z
+updated: 2024-10-27T04:05:31.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5221ef3372107bbe707f76c18adeaa3cac6396098de4195881e5285038854cf.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5221ef3372107bbe707f76c18adeaa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

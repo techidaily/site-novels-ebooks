@@ -1,7 +1,7 @@
 ---
 title: Reclaiming Your Sacred Path | Free Book
-date: 2024-10-25 13:30:19
-updated: 2024-10-26 12:24:53
+date: 2024-10-24T00:06:38.463Z
+updated: 2024-10-26T20:25:53.302Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0da51ecd50b0cdb1693665d020963a04246c90c10c8e046611a2adc28e2d3f1a.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0da51ecd50b0cdb1693665d020963a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

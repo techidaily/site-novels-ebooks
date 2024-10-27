@@ -1,7 +1,7 @@
 ---
 title: Gurdjieff et A.R. Orage en Amérique | Free Book
-date: 2024-10-23 12:38:45
-updated: 2024-10-26 11:52:29
+date: 2024-10-23T23:43:05.936Z
+updated: 2024-10-26T22:34:07.346Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e5832e0770906ed1dfb162d42fd9f8aa5408724efcfcb19b42b1712c721a034.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e5832e0770906ed1dfb162d42fd9f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

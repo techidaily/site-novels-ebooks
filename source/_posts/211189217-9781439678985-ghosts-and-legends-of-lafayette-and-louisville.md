@@ -1,7 +1,7 @@
 ---
 title: Ghosts and Legends of Lafayette and Louisville | Free Book
-date: 2024-10-24 15:54:20
-updated: 2024-10-26 12:27:18
+date: 2024-10-21T17:58:29.276Z
+updated: 2024-10-26T20:11:40.110Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd2ed831b5358e57838340a4070bf5c473a9e4f58c3457a9899835a349c1a707.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd2ed831b5358e57838340a4070bf5c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

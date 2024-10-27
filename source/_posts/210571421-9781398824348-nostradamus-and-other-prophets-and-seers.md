@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and Other Prophets and Seers | Free Book
-date: 2024-10-23 17:41:56
-updated: 2024-10-26 11:38:48
+date: 2024-10-21T02:55:45.680Z
+updated: 2024-10-26T18:50:53.622Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40fefebe1e4c7221d95c266caf9f3716e54a504e6b041967e6b7eb36c4ab7abc.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40fefebe1e4c7221d95c266caf9f371
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

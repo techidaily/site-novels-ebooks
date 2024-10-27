@@ -1,7 +1,7 @@
 ---
 title: We Live Too Short and Die Too Long | Free Book
-date: 2024-10-23 16:28:38
-updated: 2024-10-26 10:45:31
+date: 2024-10-22T20:24:52.910Z
+updated: 2024-10-26T22:47:47.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6223e046894158e4a4238380bc7eb8b274fc16d7961977a0cce663f6333edec3.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6223e046894158e4a4238380bc7eb8b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

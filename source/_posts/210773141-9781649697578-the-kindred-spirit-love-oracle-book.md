@@ -1,7 +1,7 @@
 ---
 title: The Kindred Spirit Love Oracle Book | Free Book
-date: 2024-10-24 19:28:39
-updated: 2024-10-26 10:58:32
+date: 2024-10-24T17:59:48.864Z
+updated: 2024-10-26T22:56:45.638Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38e3e96b62d1fcbfd4a02a6b09950136094c559b3bba610f5a6c51d6079ba8fc.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38e3e96b62d1fcbfd4a02a6b0995013
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Finding Home: Restoring the Sacred to Life | Free Book"
-date: 2024-10-25 19:20:56
-updated: 2024-10-26 12:30:58
+date: 2024-10-19T22:25:45.095Z
+updated: 2024-10-26T17:48:04.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/198dccc0db2dbbf18265b1406a5dd146e5d61bd7a7fbbca2c9b5387815811e64.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/198dccc0db2dbbf18265b1406a5dd14
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

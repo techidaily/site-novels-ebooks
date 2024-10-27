@@ -1,7 +1,7 @@
 ---
 title: Las cartas adivinatorias de la magia blanca | Free Book
-date: 2024-10-23 18:41:55
-updated: 2024-10-26 11:26:17
+date: 2024-10-23T03:53:57.644Z
+updated: 2024-10-27T04:03:07.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c149be88f2d3b94eafce1444a878f0ce4bd0f7e53f34feba61cfa6bb2b4333b.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c149be88f2d3b94eafce1444a878f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

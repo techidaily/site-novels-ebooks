@@ -1,7 +1,7 @@
 ---
 title: I COLORI SPIRITUALI e i loro significati Nella SCUOLA DELLO SPIRITO SANTO - Nuova edizione italiana | Free Book
-date: 2024-10-24 12:47:50
-updated: 2024-10-26 10:53:56
+date: 2024-10-21T20:54:56.185Z
+updated: 2024-10-27T00:34:11.758Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60d52da1bd3f4cf372e6f267a30d9612ab88bb1e7741afdfd7c3f4c429d0b248.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60d52da1bd3f4cf372e6f267a30d961
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

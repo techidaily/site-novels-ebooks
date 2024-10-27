@@ -1,7 +1,7 @@
 ---
 title: Adventurings in the Psychical | Free Book
-date: 2024-10-25 18:57:31
-updated: 2024-10-26 10:47:18
+date: 2024-10-22T04:06:17.989Z
+updated: 2024-10-27T02:30:37.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/341fd257c59b938cc94c7e875e3098985c6c769caaa63c1c7826c7ce2d229524.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/341fd257c59b938cc94c7e875e30989
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

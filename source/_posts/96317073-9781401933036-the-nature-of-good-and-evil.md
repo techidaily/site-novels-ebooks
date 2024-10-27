@@ -1,7 +1,7 @@
 ---
 title: The Nature of Good and Evil | Free Book
-date: 2024-10-25 19:34:54
-updated: 2024-10-26 11:49:10
+date: 2024-10-24T20:58:02.863Z
+updated: 2024-10-26T21:49:34.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3132d3fd49f68c0eb430669e87f4ed4604054be6011930fa0df124f64446a45f.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3132d3fd49f68c0eb430669e87f4ed4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

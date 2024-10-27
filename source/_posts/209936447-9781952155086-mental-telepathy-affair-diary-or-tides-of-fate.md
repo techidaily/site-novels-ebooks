@@ -1,7 +1,7 @@
 ---
 title: Mental Telepathy Affair Diary or Tides of Fate | Free Book
-date: 2024-10-24 19:53:15
-updated: 2024-10-26 10:52:19
+date: 2024-10-20T05:43:33.250Z
+updated: 2024-10-26T18:17:06.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0d5d67e9050855fbe27047210bd6036a6112d3fcc757d2e0e9a52188128601b.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0d5d67e9050855fbe27047210bd603
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

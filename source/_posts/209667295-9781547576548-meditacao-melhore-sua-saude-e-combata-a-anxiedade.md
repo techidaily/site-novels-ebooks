@@ -1,7 +1,7 @@
 ---
 title: Meditação - Melhore Sua Saúde E Combata A Anxiedade | Free Book
-date: 2024-10-25 19:45:27
-updated: 2024-10-26 11:31:11
+date: 2024-10-22T03:10:46.900Z
+updated: 2024-10-27T04:12:31.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28bbc34fc343214b14f0d0fd81a071e81606c77967a94ad5da2649dfa0a444b7.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28bbc34fc343214b14f0d0fd81a071e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

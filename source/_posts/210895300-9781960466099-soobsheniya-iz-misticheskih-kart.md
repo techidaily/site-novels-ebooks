@@ -1,7 +1,7 @@
 ---
 title: Сообщения из мистических карт | Free Book
-date: 2024-10-25 14:54:31
-updated: 2024-10-26 11:55:34
+date: 2024-10-19T16:28:04.818Z
+updated: 2024-10-26T19:08:31.528Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b324eb878a69cc24746c62b962fb3d4774353a03fcff0f92c0c23c0ebfda00ee.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b324eb878a69cc24746c62b962fb3d4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

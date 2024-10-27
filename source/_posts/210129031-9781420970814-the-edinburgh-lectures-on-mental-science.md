@@ -1,7 +1,7 @@
 ---
 title: The Edinburgh Lectures on Mental Science | Free Book
-date: 2024-10-23 10:36:18
-updated: 2024-10-26 10:20:10
+date: 2024-10-26T01:45:39.085Z
+updated: 2024-10-26T18:30:39.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1483c3a5fb99dac0888fa21280c00e326cc651ed2b081ebe9554de2422d2768d.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1483c3a5fb99dac0888fa21280c00e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

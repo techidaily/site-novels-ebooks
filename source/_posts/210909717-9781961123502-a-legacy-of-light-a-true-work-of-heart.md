@@ -1,7 +1,7 @@
 ---
 title: A Legacy of Light-A True Work of Heart | Free Book
-date: 2024-10-25 21:30:19
-updated: 2024-10-26 12:39:55
+date: 2024-10-19T21:30:28.445Z
+updated: 2024-10-26T22:23:44.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10ceb316221cb64e007da1d4d35b8a8bab585482df794ec7a01e0b8b0183977f.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10ceb316221cb64e007da1d4d35b8a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

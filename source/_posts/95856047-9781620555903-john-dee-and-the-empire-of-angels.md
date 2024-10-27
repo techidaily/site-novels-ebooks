@@ -1,7 +1,7 @@
 ---
 title: John Dee and the Empire of Angels | Free Book
-date: 2024-10-25 11:12:42
-updated: 2024-10-26 12:49:27
+date: 2024-10-23T02:47:33.399Z
+updated: 2024-10-27T01:50:50.273Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3da6c3fa90e3ba89e4032b3a2b636f084891e9fcdd8ca6f86333142199459b9d.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3da6c3fa90e3ba89e4032b3a2b636f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

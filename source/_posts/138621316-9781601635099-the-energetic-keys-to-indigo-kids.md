@@ -1,7 +1,7 @@
 ---
 title: The Energetic Keys to Indigo Kids | Free Book
-date: 2024-10-23 21:22:11
-updated: 2024-10-26 12:58:29
+date: 2024-10-24T03:41:25.813Z
+updated: 2024-10-26T20:04:49.624Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afb86a8cc0640a94aa3eb1220faeb9810008a48e297182b4195b89173ca51a62.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afb86a8cc0640a94aa3eb1220faeb98
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

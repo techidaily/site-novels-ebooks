@@ -1,7 +1,7 @@
 ---
 title: The Hauntings of Two Sisters | Free Book
-date: 2024-10-23 12:58:57
-updated: 2024-10-26 10:12:42
+date: 2024-10-23T23:11:36.372Z
+updated: 2024-10-27T03:32:25.506Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3d6fe13ac0e595180a86e5748fc7202693e2c02939e8bbca06ea6077e089cce.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3d6fe13ac0e595180a86e5748fc720
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

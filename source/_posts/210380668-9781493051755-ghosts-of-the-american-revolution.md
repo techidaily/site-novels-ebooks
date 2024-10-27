@@ -1,7 +1,7 @@
 ---
 title: Ghosts of the American Revolution | Free Book
-date: 2024-10-25 23:25:23
-updated: 2024-10-26 12:50:40
+date: 2024-10-21T20:17:28.516Z
+updated: 2024-10-26T20:08:37.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79fe5e567f68cf6ecb4077cd0637d42a31d2495cc514e07adcb137d7d9223567.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79fe5e567f68cf6ecb4077cd0637d42
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

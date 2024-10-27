@@ -1,7 +1,7 @@
 ---
 title: "Gemini 2013: Your Personal Horoscope | Free Book"
-date: 2024-10-23 10:47:23
-updated: 2024-10-26 10:32:40
+date: 2024-10-22T17:56:01.670Z
+updated: 2024-10-27T04:50:17.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c54595ddf0dd8075a988a08ccf4cecf8e41a1d36ecab17d455a3da052f91a2dc.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c54595ddf0dd8075a988a08ccf4cecf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

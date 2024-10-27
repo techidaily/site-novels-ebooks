@@ -1,7 +1,7 @@
 ---
 title: Shamanic Mysteries of Egypt | Free Book
-date: 2024-10-25 13:50:58
-updated: 2024-10-26 11:18:54
+date: 2024-10-21T22:00:13.972Z
+updated: 2024-10-27T03:20:44.475Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3533374e0c1052be372d8cd4f140524ce6b5359ed6b353267955e098da668f91.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3533374e0c1052be372d8cd4f140524
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

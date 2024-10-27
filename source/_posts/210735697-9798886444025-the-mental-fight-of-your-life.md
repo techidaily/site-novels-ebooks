@@ -1,7 +1,7 @@
 ---
 title: The MENtal Fight Of Your Life | Free Book
-date: 2024-10-25 14:45:46
-updated: 2024-10-26 12:50:10
+date: 2024-10-26T00:00:14.385Z
+updated: 2024-10-26T16:46:16.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bc1b4285f169d7cca3807875b4bf0098e4de244e92e96f4ec4c44d1bfa4cbc8.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bc1b4285f169d7cca3807875b4bf00
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

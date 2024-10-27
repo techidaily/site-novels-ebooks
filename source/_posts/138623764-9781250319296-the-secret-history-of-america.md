@@ -1,7 +1,7 @@
 ---
 title: The Secret History of America | Free Book
-date: 2024-10-24 18:45:41
-updated: 2024-10-26 10:17:16
+date: 2024-10-25T20:11:44.722Z
+updated: 2024-10-27T02:17:24.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0356c624a7c4dfa7e083689801110f9dd5ca0001e4e053da87830cd23c2fbe82.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0356c624a7c4dfa7e083689801110f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

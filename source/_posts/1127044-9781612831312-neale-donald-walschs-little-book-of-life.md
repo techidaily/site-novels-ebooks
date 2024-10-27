@@ -1,7 +1,7 @@
 ---
 title: Neale Donald Walsch's Little Book of Life | Free Book
-date: 2024-10-24 17:39:21
-updated: 2024-10-26 11:15:10
+date: 2024-10-25T00:06:17.166Z
+updated: 2024-10-26T16:44:39.805Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7f2e899fc17f0e2df9d0324d1dc0c324b3b408e227615808a4b884e0a6cea22.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7f2e899fc17f0e2df9d0324d1dc0c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

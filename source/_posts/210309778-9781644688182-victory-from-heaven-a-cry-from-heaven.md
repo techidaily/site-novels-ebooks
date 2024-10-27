@@ -1,7 +1,7 @@
 ---
 title: "Victory from Heaven: A Cry from Heaven | Free Book"
-date: 2024-10-23 18:58:19
-updated: 2024-10-26 10:32:37
+date: 2024-10-22T17:56:07.229Z
+updated: 2024-10-26T21:20:37.740Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f60ba7ab9c08a83d84a1bc84c1275197ce9b3c4dc72b8b6c01ccee208bc069de.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f60ba7ab9c08a83d84a1bc84c127519
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

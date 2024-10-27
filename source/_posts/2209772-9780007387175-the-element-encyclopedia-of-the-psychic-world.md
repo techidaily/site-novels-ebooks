@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of the Psychic World | Free Book
-date: 2024-10-23 19:48:17
-updated: 2024-10-26 11:50:57
+date: 2024-10-21T17:54:48.077Z
+updated: 2024-10-26T23:27:23.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7e751fff8656704c6d1edce6c21641df12b7f3598cf5420a9ddfa088d8ee55b.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7e751fff8656704c6d1edce6c21641
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

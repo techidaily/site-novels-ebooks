@@ -1,7 +1,7 @@
 ---
 title: Meditations and Inspirations | Free Book
-date: 2024-10-23 19:12:16
-updated: 2024-10-26 10:50:41
+date: 2024-10-24T01:53:36.942Z
+updated: 2024-10-26T17:13:04.407Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34fa3768388d21bd5ad00498c933e8ee2a04adb0f22021be9cdf74bd8429549c.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34fa3768388d21bd5ad00498c933e8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

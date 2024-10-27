@@ -1,7 +1,7 @@
 ---
 title: Cannabis and Spirituality | Free Book
-date: 2024-10-25 11:57:56
-updated: 2024-10-26 11:55:32
+date: 2024-10-22T20:47:13.449Z
+updated: 2024-10-27T03:39:02.733Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfede40587b4d55378f96eae2ac3e682c257982c36072d60fe24896adfc160bb.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfede40587b4d55378f96eae2ac3e68
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

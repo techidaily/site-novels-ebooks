@@ -1,7 +1,7 @@
 ---
 title: Su horóscopo chino. Tigre | Free Book
-date: 2024-10-23 21:47:52
-updated: 2024-10-26 12:51:31
+date: 2024-10-25T23:33:58.286Z
+updated: 2024-10-26T16:46:22.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6adf4b2de82a540ddbe2872e741eea2fbbdf17ece9bdde001d86098e1dfe1c38.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6adf4b2de82a540ddbe2872e741eea2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

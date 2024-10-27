@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Aries | Free Book
-date: 2024-10-23 18:28:15
-updated: 2024-10-26 11:30:49
+date: 2024-10-24T20:21:11.204Z
+updated: 2024-10-26T23:21:13.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/46d66481df5db92dbb3a885e06d653c3bdd7af5e17e4d9491a7a8600341860e2.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/46d66481df5db92dbb3a885e06d653c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

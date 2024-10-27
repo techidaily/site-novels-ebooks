@@ -1,7 +1,7 @@
 ---
 title: Create Your Own Tarot Cards | Free Book
-date: 2024-10-25 12:42:59
-updated: 2024-10-26 10:40:53
+date: 2024-10-24T01:48:46.605Z
+updated: 2024-10-27T03:49:11.831Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c871954e52a14cef6a828f59c759e034474ca15f6d3a1951f9794d8cd7ced1d.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c871954e52a14cef6a828f59c759e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Book of Jasher, Part Two | Free Book
-date: 2024-10-24 23:23:23
-updated: 2024-10-26 10:26:15
+date: 2024-10-22T00:55:19.696Z
+updated: 2024-10-26T22:29:07.107Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79793f9e59b1729dc1f2a81acf5f37511589cd6fbeddb5bb7e824606a15f97b4.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79793f9e59b1729dc1f2a81acf5f375
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

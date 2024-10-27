@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Atención Plena Para Que Los Principiantes Aumenten La Confianza (Elimine La Depresión De Su Vida) | Free Book"
-date: 2024-10-25 12:57:35
-updated: 2024-10-26 11:36:42
+date: 2024-10-25T17:29:17.675Z
+updated: 2024-10-27T00:15:08.414Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7dc3c07bdb2746ca777df8b6b98410bccef943b6c4eba1da78811dfd8295a551.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7dc3c07bdb2746ca777df8b6b98410b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

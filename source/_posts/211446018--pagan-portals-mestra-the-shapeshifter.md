@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Mestra the Shapeshifter | Free Book
-date: 2024-10-23 20:55:54
-updated: 2024-10-26 10:33:48
+date: 2024-10-23T22:17:31.327Z
+updated: 2024-10-26T21:51:19.668Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/246d8e5bc6cd5c1e037b7efe84837c3faa59248c81786355d78469b4ed8845e2.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/246d8e5bc6cd5c1e037b7efe84837c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

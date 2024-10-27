@@ -1,7 +1,7 @@
 ---
 title: "Your Personal Horoscope 2011: Month-by-month Forecasts for Every Sign | Free Book"
-date: 2024-10-23 14:45:46
-updated: 2024-10-26 11:56:42
+date: 2024-10-21T00:58:08.034Z
+updated: 2024-10-26T21:21:10.776Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ffb4b66796fe94a4bfce5d2535db1332eb1751244587d84f530154cc906335cc.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ffb4b66796fe94a4bfce5d2535db133
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

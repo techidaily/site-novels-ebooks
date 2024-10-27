@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations for Overthinking, Anxiety, Depression& Mindfulness  Meditation Scripts For Beginners & For Sleep, Self-Hypnosis, Insomnia, Self-Healing, Deep Relaxation& Stress-Relief | Free Book
-date: 2024-10-25 18:40:27
-updated: 2024-10-26 11:24:43
+date: 2024-10-25T19:58:38.638Z
+updated: 2024-10-26T21:29:28.421Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/629921bd2de06eec2440074aee528cf1042ef044093d0d65597a8e52631b80bb.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/629921bd2de06eec2440074aee528cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

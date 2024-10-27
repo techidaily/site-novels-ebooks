@@ -1,7 +1,7 @@
 ---
 title: "Star Quest: Navigator: Navigator | Free Book"
-date: 2024-10-23 13:29:13
-updated: 2024-10-26 12:50:16
+date: 2024-10-24T03:36:09.997Z
+updated: 2024-10-26T23:58:41.195Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8edcb6103dab25f46ac3c535f3c90e1b9e13848e2a273760615c7323813909d3.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8edcb6103dab25f46ac3c535f3c90e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: I Will Not Die an Unlived Life | Free Book
-date: 2024-10-24 17:38:20
-updated: 2024-10-26 10:14:56
+date: 2024-10-23T22:46:39.315Z
+updated: 2024-10-27T01:15:41.196Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07f7efb64e637e9cecb13b88806c13854b3541a81d4688334bcbb93f8ac8e4ef.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07f7efb64e637e9cecb13b88806c138
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

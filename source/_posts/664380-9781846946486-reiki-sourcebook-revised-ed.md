@@ -1,7 +1,7 @@
 ---
 title: Reiki Sourcebook (Revised Ed.) | Free Book
-date: 2024-10-23 21:41:14
-updated: 2024-10-26 12:25:48
+date: 2024-10-21T21:25:44.803Z
+updated: 2024-10-27T01:10:48.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b7bb341d6066354f62517d9400c5c55d59ffd6c84d934b8d79a1a07a064d6c.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b7bb341d6066354f62517d9400c5c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

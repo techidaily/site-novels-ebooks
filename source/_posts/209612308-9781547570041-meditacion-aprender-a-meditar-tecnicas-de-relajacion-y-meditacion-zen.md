@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Aprender A Meditar Técnicas De Relajación Y Meditación Zen | Free Book"
-date: 2024-10-25 22:57:15
-updated: 2024-10-26 12:23:58
+date: 2024-10-24T20:37:35.177Z
+updated: 2024-10-26T18:41:21.226Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6db44e32d96075767ff4cb2f64246cf35fb7103d585bb3a9eb3258eb107b26b8.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6db44e32d96075767ff4cb2f64246cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

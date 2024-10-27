@@ -1,7 +1,7 @@
 ---
 title: Transcending the Speed of Light | Free Book
-date: 2024-10-24 20:37:47
-updated: 2024-10-26 10:51:39
+date: 2024-10-23T19:46:30.069Z
+updated: 2024-10-26T23:45:05.087Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/180d4b30abf4b9d82de7e7b4b87e75e99a6c28e1f2f45fdaf76fb99c9c5a3243.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/180d4b30abf4b9d82de7e7b4b87e75e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Doctrine and Ritual of High Magic | Free Book
-date: 2024-10-23 18:35:40
-updated: 2024-10-26 12:56:17
+date: 2024-10-21T01:05:14.022Z
+updated: 2024-10-26T19:48:56.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/914cfe0c1b07a04dac12b1e3c58f7cc772a1ae0c2873e38768321fea688afe25.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/914cfe0c1b07a04dac12b1e3c58f7cc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

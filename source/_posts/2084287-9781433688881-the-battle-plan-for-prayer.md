@@ -1,7 +1,7 @@
 ---
 title: The Battle Plan for Prayer | Free Book
-date: 2024-10-23 22:58:37
-updated: 2024-10-26 12:55:46
+date: 2024-10-19T18:40:06.746Z
+updated: 2024-10-27T02:01:49.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce1ccfb186ad52ed9a6ab701459ca000ad707bca3ac52efddd782d1f190bfcbf.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce1ccfb186ad52ed9a6ab701459ca00
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

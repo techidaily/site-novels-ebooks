@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Black Dogs and Blue Days | Free Book
-date: 2024-10-25 19:54:51
-updated: 2024-10-26 12:59:51
+date: 2024-10-22T22:11:30.277Z
+updated: 2024-10-26T16:41:04.340Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/11ec145153443af34c861b5f23542d372c8b244cfc401a9b2bf3b44fdb740436.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/11ec145153443af34c861b5f23542d3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

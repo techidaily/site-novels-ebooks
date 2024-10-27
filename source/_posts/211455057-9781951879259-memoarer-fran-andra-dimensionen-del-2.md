@@ -1,7 +1,7 @@
 ---
 title: Memoarer Från Andra Dimensionen, Del 2 | Free Book
-date: 2024-10-24 17:25:37
-updated: 2024-10-26 12:12:20
+date: 2024-10-23T22:49:18.351Z
+updated: 2024-10-26T19:24:30.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4567e6b3ce10ca9b8937105ca66cce48e5e8cd7f3dcdfe410c9e38644e755672.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4567e6b3ce10ca9b8937105ca66cce4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

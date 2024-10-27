@@ -1,7 +1,7 @@
 ---
 title: Advanced Psychic Development | Free Book
-date: 2024-10-23 14:41:26
-updated: 2024-10-26 11:59:13
+date: 2024-10-23T16:34:58.263Z
+updated: 2024-10-27T01:26:38.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a34bb8e4033827eb1e84fd5ba53be6bc46cb10270a0600d53b1aee6512e6152.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a34bb8e4033827eb1e84fd5ba53be6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

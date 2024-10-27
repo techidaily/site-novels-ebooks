@@ -1,7 +1,7 @@
 ---
 title: The Secret Influence of the Moon | Free Book
-date: 2024-10-25 16:43:27
-updated: 2024-10-26 12:51:57
+date: 2024-10-20T21:18:39.604Z
+updated: 2024-10-26T18:32:09.127Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94d9628c555742679e4a7a852ba1d9fd3c3e6d893cf54f8c1c114f1855e3267a.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94d9628c555742679e4a7a852ba1d9f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

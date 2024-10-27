@@ -1,7 +1,7 @@
 ---
 title: Notes from a Public Typewriter | Free Book
-date: 2024-10-24 16:30:57
-updated: 2024-10-26 10:40:21
+date: 2024-10-25T05:57:37.549Z
+updated: 2024-10-27T02:41:11.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92d3d1c681c52b1923ba8bd7e27934f143768e47548ae059b6b837ba0c02f2a8.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92d3d1c681c52b1923ba8bd7e27934f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

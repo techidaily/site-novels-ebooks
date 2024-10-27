@@ -1,7 +1,7 @@
 ---
 title: The Esoteric Secrets of Surrealism | Free Book
-date: 2024-10-25 14:11:50
-updated: 2024-10-26 11:41:13
+date: 2024-10-26T02:21:51.247Z
+updated: 2024-10-26T18:01:29.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bab47246cfdc6cc43352beced281aa6800210a470f10258bd377ed8737270c8d.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bab47246cfdc6cc43352beced281aa6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

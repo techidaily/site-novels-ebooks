@@ -1,7 +1,7 @@
 ---
 title: Ditch the Boyfriend and Get a Life Coach | Free Book
-date: 2024-10-24 15:44:56
-updated: 2024-10-26 12:43:13
+date: 2024-10-20T18:34:48.457Z
+updated: 2024-10-26T23:09:07.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0a7d62a35eb1b73f7d5280e9592b0c4775e2d8c6d2ac18f933a474d16c78bc6.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0a7d62a35eb1b73f7d5280e9592b0c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Manuale per la Consapevolezza Attraverso la Meditazione Quotidiana | Free Book
-date: 2024-10-25 16:12:48
-updated: 2024-10-26 12:34:40
+date: 2024-10-20T05:32:41.242Z
+updated: 2024-10-26T17:51:28.128Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0dda27108f99e1cff1597a11443ed1786ab32ae4e09a4472e68bfc050fa67b8e.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0dda27108f99e1cff1597a11443ed17
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

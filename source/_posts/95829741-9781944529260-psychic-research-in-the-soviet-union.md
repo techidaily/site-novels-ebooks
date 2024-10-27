@@ -1,7 +1,7 @@
 ---
 title: Psychic Research in the Soviet Union | Free Book
-date: 2024-10-25 10:33:41
-updated: 2024-10-26 11:34:40
+date: 2024-10-26T01:01:54.426Z
+updated: 2024-10-26T21:02:29.123Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2dbfa1599c20f6f203e85ab759a1fc1c7fd46e0974dcbeb6fd41bdd68315ae1a.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2dbfa1599c20f6f203e85ab759a1fc1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

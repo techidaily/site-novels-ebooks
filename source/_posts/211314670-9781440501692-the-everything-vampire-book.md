@@ -1,7 +1,7 @@
 ---
 title: The Everything Vampire Book | Free Book
-date: 2024-10-25 14:58:19
-updated: 2024-10-26 10:40:57
+date: 2024-10-26T01:24:25.624Z
+updated: 2024-10-26T23:19:15.070Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cdf390c93ee7c0e9372fc921d5f7d5727e13a1caff86cbd9dd94380349fbee6b.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cdf390c93ee7c0e9372fc921d5f7d57
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

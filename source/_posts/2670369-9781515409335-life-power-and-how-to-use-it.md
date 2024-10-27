@@ -1,7 +1,7 @@
 ---
 title: Life Power and How to Use It | Free Book
-date: 2024-10-23 12:48:47
-updated: 2024-10-26 10:32:43
+date: 2024-10-22T17:10:44.099Z
+updated: 2024-10-27T01:55:59.069Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fff6a3c3e7ff4a8f644a773156889289e52e706c22ca02fc896a85f9f9a6c07e.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fff6a3c3e7ff4a8f644a77315688928
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-10-24 20:15:40
-updated: 2024-10-26 11:18:22
+date: 2024-10-26T04:01:47.928Z
+updated: 2024-10-26T17:09:46.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59142fc985656626a735a6843613f1b340165a2d214ca7d443ea63e79684275a.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59142fc985656626a735a6843613f1b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: El despertar de la conciencia | Free Book
-date: 2024-10-24 15:40:51
-updated: 2024-10-26 11:33:53
+date: 2024-10-19T18:41:21.257Z
+updated: 2024-10-26T20:18:52.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59d6a2cd7d7f4e6d96644f3396fb470ffe01cf08a558ef684820e0b637e430a3.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59d6a2cd7d7f4e6d96644f3396fb470
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

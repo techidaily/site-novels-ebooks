@@ -1,7 +1,7 @@
 ---
 title: The World of Italian Folk Magic | Free Book
-date: 2024-10-23 12:42:15
-updated: 2024-10-26 10:56:40
+date: 2024-10-22T16:37:15.174Z
+updated: 2024-10-26T19:29:04.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb3d438161091fcf6a623d3fcb8f1eacf00df0fbaddf764ed9ae232749e387bc.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb3d438161091fcf6a623d3fcb8f1ea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

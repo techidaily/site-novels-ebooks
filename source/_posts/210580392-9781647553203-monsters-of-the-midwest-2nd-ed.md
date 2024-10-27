@@ -1,7 +1,7 @@
 ---
 title: Monsters of the Midwest (2nd ed.) | Free Book
-date: 2024-10-25 23:43:11
-updated: 2024-10-26 10:49:22
+date: 2024-10-19T21:29:23.961Z
+updated: 2024-10-27T05:14:55.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37ac70800e92ad623c43f0ad1e660d7366f429d18236e1c449dad7d6c160cd8b.jpg
@@ -207,3 +207,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37ac70800e92ad623c43f0ad1e660d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

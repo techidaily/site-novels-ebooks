@@ -1,7 +1,7 @@
 ---
 title: Protection Spells for New Witches | Free Book
-date: 2024-10-25 13:42:48
-updated: 2024-10-26 10:37:23
+date: 2024-10-21T02:22:01.217Z
+updated: 2024-10-27T01:09:30.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9103df207dd62eb4cbfbd8dc709b8fed18f8f603c9b003e503812f2244609ee7.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9103df207dd62eb4cbfbd8dc709b8fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Energy Healing and Chakras | Free Book
-date: 2024-10-24 16:37:35
-updated: 2024-10-26 11:52:11
+date: 2024-10-19T19:45:11.742Z
+updated: 2024-10-26T23:12:44.164Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2600f448cd259b25fdaec451ceec5fc35f476a9373458f1347e0952e3d37f4ad.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2600f448cd259b25fdaec451ceec5fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

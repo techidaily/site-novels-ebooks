@@ -1,7 +1,7 @@
 ---
 title: Witch Blood Rising | Free Book
-date: 2024-10-23 21:14:51
-updated: 2024-10-26 11:53:20
+date: 2024-10-19T18:19:34.575Z
+updated: 2024-10-26T18:31:00.791Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b24c51e686fdda8f8907a9ce1d5ddb706ffefd1fec7cf0582fdc8bc207cc5aa.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b24c51e686fdda8f8907a9ce1d5ddb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Humanity on the Threshold | Free Book
-date: 2024-10-23 16:24:33
-updated: 2024-10-26 11:41:31
+date: 2024-10-20T17:11:19.727Z
+updated: 2024-10-26T23:59:41.089Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec0ded1de853c4b17f9ee70437dd2b85079561f7404b04c22a402ea4ad7fb1f0.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec0ded1de853c4b17f9ee70437dd2b8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

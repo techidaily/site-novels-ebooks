@@ -1,7 +1,7 @@
 ---
 title: Quem sou eu? As DEZ perguntas finais de IDENTIDADE para ADOLESCENTES e Pré-ADOLESCENTES | Free Book
-date: 2024-10-24 15:55:36
-updated: 2024-10-26 10:54:23
+date: 2024-10-24T17:55:07.866Z
+updated: 2024-10-26T16:32:45.376Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d099516a4db027850bf5bcb4cee715ed5a320c59ac6509ecae5b80b90b5a4de3.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d099516a4db027850bf5bcb4cee715e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

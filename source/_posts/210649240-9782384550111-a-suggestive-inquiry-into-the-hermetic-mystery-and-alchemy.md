@@ -1,7 +1,7 @@
 ---
 title: A Suggestive Inquiry into the Hermetic Mystery and Alchemy | Free Book
-date: 2024-10-25 13:14:11
-updated: 2024-10-26 12:38:33
+date: 2024-10-23T04:12:31.101Z
+updated: 2024-10-27T04:36:02.871Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17dcabf90f625faffe2ff9d18aeb30a05335307a7bd0004272493bc61b23342e.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17dcabf90f625faffe2ff9d18aeb30a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Astrology for the New Age | Free Book
-date: 2024-10-24 11:31:20
-updated: 2024-10-26 12:32:59
+date: 2024-10-24T18:28:40.504Z
+updated: 2024-10-26T19:48:55.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4ed0023839c3bac47c0d9d13cc311a0c0fc2b9d312f9e81a250b152a7f6ad127.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4ed0023839c3bac47c0d9d13cc311a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

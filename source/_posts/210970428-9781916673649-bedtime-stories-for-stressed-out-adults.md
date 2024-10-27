@@ -1,7 +1,7 @@
 ---
 title: Bedtime Stories For Stressed Out Adults | Free Book
-date: 2024-10-23 18:39:27
-updated: 2024-10-26 10:46:22
+date: 2024-10-25T04:09:12.530Z
+updated: 2024-10-27T00:59:30.752Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92b55d24ee272dcdd53cae16411a866bd2b3da3ff8348e2aa668703ec6e17f48.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92b55d24ee272dcdd53cae16411a866
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

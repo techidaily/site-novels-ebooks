@@ -1,7 +1,7 @@
 ---
 title: The Eleven Eternal Principles | Free Book
-date: 2024-10-23 14:24:51
-updated: 2024-10-26 12:40:34
+date: 2024-10-21T18:03:57.486Z
+updated: 2024-10-27T05:08:02.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3d9a90895a204272e29d36cce002cf680083d512d0f3a53cb19175a45e7a50f8.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3d9a90895a204272e29d36cce002cf6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

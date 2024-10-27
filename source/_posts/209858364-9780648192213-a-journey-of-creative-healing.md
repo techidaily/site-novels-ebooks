@@ -1,7 +1,7 @@
 ---
 title: A Journey of Creative Healing | Free Book
-date: 2024-10-23 13:15:15
-updated: 2024-10-26 10:34:16
+date: 2024-10-19T22:11:31.436Z
+updated: 2024-10-26T23:52:31.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adf19b973aefb0c62753e512e021dbf0b264dfd1cd02f29a0a6afdce511b9653.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adf19b973aefb0c62753e512e021dbf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

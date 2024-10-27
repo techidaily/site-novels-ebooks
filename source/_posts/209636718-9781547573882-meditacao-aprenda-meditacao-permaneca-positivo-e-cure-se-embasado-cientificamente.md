@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Aprenda Meditação, Permaneça Positivo E Cure-se (Embasado Cientificamente) | Free Book"
-date: 2024-10-24 10:53:40
-updated: 2024-10-26 10:35:41
+date: 2024-10-22T03:16:27.284Z
+updated: 2024-10-27T05:38:05.212Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f7f88323efc106750437fbc8dcc7082f7d56b4542acbdfa64fa2710972a88521.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f7f88323efc106750437fbc8dcc7082
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

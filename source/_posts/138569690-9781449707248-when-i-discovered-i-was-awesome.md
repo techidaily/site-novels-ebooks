@@ -1,7 +1,7 @@
 ---
 title: When I Discovered I Was Awesome | Free Book
-date: 2024-10-24 16:26:42
-updated: 2024-10-26 12:11:18
+date: 2024-10-21T01:16:35.432Z
+updated: 2024-10-27T05:19:15.190Z
 categories:
   - Law
 thumbnail: https://thmb-001-ebook.techidaily.com/9d0067510b6f112df86636f09aa11937a66e5578426d73feff53dddaa6c86159.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d0067510b6f112df86636f09aa1193
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

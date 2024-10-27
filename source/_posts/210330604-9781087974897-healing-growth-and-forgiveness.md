@@ -1,7 +1,7 @@
 ---
 title: Healing, Growth, and Forgiveness | Free Book
-date: 2024-10-23 15:15:24
-updated: 2024-10-26 11:27:16
+date: 2024-10-26T00:58:28.070Z
+updated: 2024-10-26T18:01:04.019Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d188f6aa4269f036d6d12c56e2f2d01d261c6790bba222f12c7a53b81ad42edf.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d188f6aa4269f036d6d12c56e2f2d01
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

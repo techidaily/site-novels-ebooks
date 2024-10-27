@@ -1,7 +1,7 @@
 ---
 title: Light from the spirit world | Free Book
-date: 2024-10-23 21:21:45
-updated: 2024-10-26 10:23:47
+date: 2024-10-25T16:13:15.622Z
+updated: 2024-10-27T02:48:54.696Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab043c7333534df85e43229c57d6d5cf239dc15c484613b00f19fa8b8105fecc.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab043c7333534df85e43229c57d6d5c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

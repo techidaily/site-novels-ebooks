@@ -1,7 +1,7 @@
 ---
 title: Monsters of West Virginia | Free Book
-date: 2024-10-23 16:36:14
-updated: 2024-10-26 11:36:33
+date: 2024-10-21T17:29:56.031Z
+updated: 2024-10-26T19:54:38.492Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4b0a9527510110a0c4b03451784fd64c97fb986d1cb2037ea4811f72dca7a2a0.jpg
@@ -121,3 +121,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4b0a9527510110a0c4b03451784fd64
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

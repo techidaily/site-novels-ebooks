@@ -1,7 +1,7 @@
 ---
 title: How To Live In The Here And Now | Free Book
-date: 2024-10-23 16:19:29
-updated: 2024-10-26 12:15:40
+date: 2024-10-20T16:55:45.732Z
+updated: 2024-10-27T00:59:57.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a22f48b2decb8a30a18b4575ec1135dc07476b207aae57d63932bceec68f292d.jpg
@@ -121,3 +121,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a22f48b2decb8a30a18b4575ec1135d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Revolt Against the Modern World | Free Book
-date: 2024-10-23 22:44:43
-updated: 2024-10-26 10:22:53
+date: 2024-10-20T01:03:13.995Z
+updated: 2024-10-26T19:18:38.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80b144385cdbeedba6d3a4ed8457dd4c4c00c685566d98694c862c1839d2a2fa.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80b144385cdbeedba6d3a4ed8457dd4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

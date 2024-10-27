@@ -1,7 +1,7 @@
 ---
 title: Your Crystals, Your Journey, Your Journal | Free Book
-date: 2024-10-24 22:55:48
-updated: 2024-10-26 10:57:12
+date: 2024-10-25T01:57:45.422Z
+updated: 2024-10-26T23:41:36.994Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e40e9e3e63fe43451d3f1319d099789d463128bd69a74089082b83aa0fe1047.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e40e9e3e63fe43451d3f1319d09978
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

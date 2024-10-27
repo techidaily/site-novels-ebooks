@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-10-23 17:27:52
-updated: 2024-10-26 12:14:54
+date: 2024-10-21T01:40:55.431Z
+updated: 2024-10-26T20:51:39.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42e37192b0de02f97477204d75586e73435d12dd35bfb280c38e3add9517558d.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42e37192b0de02f97477204d75586e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Shamanic Reiki: Expanded Ways Of Working | Free Book"
-date: 2024-10-25 21:38:57
-updated: 2024-10-26 12:20:16
+date: 2024-10-25T01:51:48.171Z
+updated: 2024-10-26T17:38:43.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba5ec088ee0f85a5405e6901252417b2d8a1a02f987eade2ecddf6bf31337cd9.jpg
@@ -121,3 +121,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba5ec088ee0f85a5405e6901252417b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

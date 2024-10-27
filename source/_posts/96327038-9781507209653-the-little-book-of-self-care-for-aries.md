@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Aries | Free Book
-date: 2024-10-24 23:36:46
-updated: 2024-10-26 10:10:24
+date: 2024-10-22T19:51:25.763Z
+updated: 2024-10-27T02:11:17.803Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c673df5f0e24e4004b6764826ed31b1d645.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

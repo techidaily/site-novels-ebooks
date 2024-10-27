@@ -1,7 +1,7 @@
 ---
 title: The Secret 52 Star Codes of Creation (Diamonds) | Free Book
-date: 2024-10-24 13:20:30
-updated: 2024-10-26 12:51:58
+date: 2024-10-19T20:55:29.713Z
+updated: 2024-10-27T01:38:55.435Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94df4b0f0b938d56ec108bee26514c97d9e9312ab081b30f93eebbe6b64e42c8.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94df4b0f0b938d56ec108bee26514c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

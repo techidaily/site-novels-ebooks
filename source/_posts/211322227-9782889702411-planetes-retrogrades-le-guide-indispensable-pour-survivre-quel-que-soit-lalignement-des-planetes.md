@@ -1,7 +1,7 @@
 ---
 title: "Planètes rétrogrades : le guide indispensable pour survivre, quel que soit l'alignement des planètes | Free Book"
-date: 2024-10-25 18:58:52
-updated: 2024-10-26 10:57:48
+date: 2024-10-23T16:47:49.367Z
+updated: 2024-10-26T22:18:45.166Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c19b25de2f51a27abeef3a14f87ce64d04da45dc6193ddd67dd014b2fc61cced.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c19b25de2f51a27abeef3a14f87ce64
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

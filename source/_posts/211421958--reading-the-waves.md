@@ -1,7 +1,7 @@
 ---
 title: Reading the Waves | Free Book
-date: 2024-10-23 16:36:58
-updated: 2024-10-26 11:25:55
+date: 2024-10-20T01:56:30.746Z
+updated: 2024-10-26T23:00:27.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f7b48ed9736586e4cfa797d3fd4504099065d234b93c127f1f5acad86bff4fa.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f7b48ed9736586e4cfa797d3fd4504
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

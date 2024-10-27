@@ -1,7 +1,7 @@
 ---
 title: Awakening The Healing Power Within Holistic Nutrition And Natural Therapies | Free Book
-date: 2024-10-23 12:26:38
-updated: 2024-10-26 12:39:46
+date: 2024-10-21T20:00:37.718Z
+updated: 2024-10-26T17:18:39.654Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0da5cb4da6036c4429a6ee09812eaf03993fb8592fda9bdba20cdc900683b0c.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0da5cb4da6036c4429a6ee09812eaf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

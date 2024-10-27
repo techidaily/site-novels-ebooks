@@ -1,7 +1,7 @@
 ---
 title: स्वर्ग, नरक और अंधकार साम्राज्य के दर्शन पर 5 परिवर्तनकारी सच्ची जीवन कहानियाँ | Free Book
-date: 2024-10-25 14:54:47
-updated: 2024-10-26 12:13:11
+date: 2024-10-23T02:09:41.575Z
+updated: 2024-10-26T16:43:03.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d33d1aec77fbad79b8591929bd1651f672e8701c321a67f10d1eb2ac97ac42c9.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d33d1aec77fbad79b8591929bd1651f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

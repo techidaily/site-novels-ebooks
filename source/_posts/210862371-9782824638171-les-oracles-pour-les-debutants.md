@@ -1,7 +1,7 @@
 ---
 title: Les oracles pour les débutants | Free Book
-date: 2024-10-24 20:19:16
-updated: 2024-10-26 10:24:17
+date: 2024-10-19T19:39:03.843Z
+updated: 2024-10-26T16:02:49.346Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a651edffe1775dcc675dac6740c378e0fe0499e5c2734b429feb9168120bb929.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a651edffe1775dcc675dac6740c378e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: How The Root of Kindness Works | Free Book
-date: 2024-10-24 23:27:10
-updated: 2024-10-26 12:11:59
+date: 2024-10-22T04:43:01.546Z
+updated: 2024-10-27T04:13:49.503Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5398e7d76d12f2854190cbe4babbc5e8492d95fae1b775125b1407b3e1c46c9e.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5398e7d76d12f2854190cbe4babbc5e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

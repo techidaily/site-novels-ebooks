@@ -1,7 +1,7 @@
 ---
 title: Green Witchcraft Grimoire | Free Book
-date: 2024-10-24 13:41:39
-updated: 2024-10-26 11:27:58
+date: 2024-10-22T20:44:25.604Z
+updated: 2024-10-26T20:35:07.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3b7545d441534c42fc06e6d8edf2337d887581428c8093b39d57699881572ff.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3b7545d441534c42fc06e6d8edf233
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

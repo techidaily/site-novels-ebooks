@@ -1,7 +1,7 @@
 ---
 title: The Covenant Between the King of Devils and Death and Victory Over Death | Free Book
-date: 2024-10-23 23:32:59
-updated: 2024-10-26 11:22:46
+date: 2024-10-21T01:20:13.070Z
+updated: 2024-10-26T17:04:15.182Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f57b94dac4538c0305de1c0c35933a232e794789c027e459fe59b5b816e375b.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f57b94dac4538c0305de1c0c35933a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

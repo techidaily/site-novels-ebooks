@@ -1,7 +1,7 @@
 ---
 title: Out-of-the-Body Experiences | Free Book
-date: 2024-10-24 19:48:23
-updated: 2024-10-26 12:21:40
+date: 2024-10-24T19:19:28.810Z
+updated: 2024-10-27T03:27:32.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dcd8df946d7505bce7df5ba513c98565b033feab271319716c70f127086fd83e.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dcd8df946d7505bce7df5ba513c9856
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

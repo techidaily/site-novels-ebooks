@@ -1,7 +1,7 @@
 ---
 title: Jesus after the Crucifixion | Free Book
-date: 2024-10-25 18:56:54
-updated: 2024-10-26 12:19:46
+date: 2024-10-19T21:43:25.734Z
+updated: 2024-10-26T20:02:01.537Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b88f2b8c80ec55760806fa837039d117d01478c8111b800f774ab4fbb0aa0132.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b88f2b8c80ec55760806fa837039d11
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

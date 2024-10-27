@@ -1,7 +1,7 @@
 ---
 title: The Complete Introduction to Magic | Free Book
-date: 2024-10-23 11:21:43
-updated: 2024-10-26 10:15:28
+date: 2024-10-20T23:52:00.925Z
+updated: 2024-10-26T21:11:29.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3885ec4719745fb0ca92d5ec607cc1a376a33093d3419cd2ded2c2226d193938.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3885ec4719745fb0ca92d5ec607cc1a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

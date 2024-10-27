@@ -1,7 +1,7 @@
 ---
 title: "Meditação : Como Superar O Medo, A Raiva E A Depressão | Free Book"
-date: 2024-10-23 23:44:12
-updated: 2024-10-26 12:44:51
+date: 2024-10-24T05:38:39.570Z
+updated: 2024-10-26T21:33:10.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3035836f85723a49a93398f77f31f9462b21d5f1828e273cf5849ec7d1835f1d.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3035836f85723a49a93398f77f31f94
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

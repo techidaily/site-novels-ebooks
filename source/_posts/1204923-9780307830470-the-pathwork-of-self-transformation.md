@@ -1,7 +1,7 @@
 ---
 title: The Pathwork of Self-Transformation | Free Book
-date: 2024-10-25 21:47:35
-updated: 2024-10-26 11:40:19
+date: 2024-10-25T21:09:28.961Z
+updated: 2024-10-26T23:16:53.522Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e31727055f4565643ea403f112acd3b4f9fd49a0d563da23f28cecc0be04e15a.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e31727055f4565643ea403f112acd3b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Dialogues with My God Self | Free Book
-date: 2024-10-24 11:16:48
-updated: 2024-10-26 11:30:36
+date: 2024-10-22T16:58:49.867Z
+updated: 2024-10-26T18:44:34.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab0b647e131f889bd4baec5431a9d558d43c1f5a81335e57a36f374a92957af1.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab0b647e131f889bd4baec5431a9d55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

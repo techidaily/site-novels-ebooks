@@ -1,7 +1,7 @@
 ---
 title: Старовинна магія українців | Free Book
-date: 2024-10-23 21:30:43
-updated: 2024-10-26 10:48:59
+date: 2024-10-21T05:14:13.246Z
+updated: 2024-10-26T17:55:40.955Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d70440cd70977afe2f5748205341977992b35c44522dbe856a0dc959920bf372.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d70440cd70977afe2f5748205341977
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

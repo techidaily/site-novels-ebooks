@@ -1,7 +1,7 @@
 ---
 title: The Life of a Warrior | Free Book
-date: 2024-10-24 23:51:45
-updated: 2024-10-26 11:15:34
+date: 2024-10-23T03:57:39.030Z
+updated: 2024-10-26T20:44:17.063Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38a38c40fb2192ff43a918e609997588e283ab3f806841db803b36151c397221.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38a38c40fb2192ff43a918e60999758
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

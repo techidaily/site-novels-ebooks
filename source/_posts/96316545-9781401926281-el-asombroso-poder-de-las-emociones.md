@@ -1,7 +1,7 @@
 ---
 title: El Asombroso Poder de las Emociones | Free Book
-date: 2024-10-23 13:35:54
-updated: 2024-10-26 11:54:39
+date: 2024-10-21T04:49:08.957Z
+updated: 2024-10-26T18:10:02.981Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/877bef1db8952c0a1940662beda44ab16ed25ff1ddf31f154d71ae14da7f7858.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/877bef1db8952c0a1940662beda44ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

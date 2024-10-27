@@ -1,7 +1,7 @@
 ---
 title: "Leben nach dem Tod: Der Schlussige Beweis | Free Book"
-date: 2024-10-23 19:55:21
-updated: 2024-10-26 10:46:57
+date: 2024-10-21T02:09:59.326Z
+updated: 2024-10-27T05:43:29.399Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/765cdb658224e4952381dfa4f64b25cd4e6335d9d66b010f6ea43144c8f17283.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/765cdb658224e4952381dfa4f64b25c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

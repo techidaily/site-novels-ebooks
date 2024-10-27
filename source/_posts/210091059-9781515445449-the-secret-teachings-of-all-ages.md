@@ -1,7 +1,7 @@
 ---
 title: The Secret Teachings of All Ages | Free Book
-date: 2024-10-25 19:33:46
-updated: 2024-10-26 11:12:17
+date: 2024-10-24T18:06:20.995Z
+updated: 2024-10-26T19:28:10.150Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cb1cb4819a4e6d2450f605f60dc8d7a15887a507f45730a8aa1b372e5662f93b.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cb1cb4819a4e6d2450f605f60dc8d7a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

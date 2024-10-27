@@ -1,7 +1,7 @@
 ---
 title: Nur Positive Schwingungen | Free Book
-date: 2024-10-23 19:35:50
-updated: 2024-10-26 11:20:43
+date: 2024-10-22T20:53:49.050Z
+updated: 2024-10-26T19:47:43.148Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/07ec7aa9135f0bffef216e176696d6765670483ba4981f3170bfdcc165c38b09.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07ec7aa9135f0bffef216e176696d67
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

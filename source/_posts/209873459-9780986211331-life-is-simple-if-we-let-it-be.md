@@ -1,7 +1,7 @@
 ---
 title: "Life Is Simple: if we let it be | Free Book"
-date: 2024-10-24 21:31:10
-updated: 2024-10-26 12:57:39
+date: 2024-10-25T16:50:35.746Z
+updated: 2024-10-27T05:17:10.210Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5d724bed0045df753c37ee00434c6993b1f3528d3327a7e9583890f1e6eb111.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5d724bed0045df753c37ee00434c69
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

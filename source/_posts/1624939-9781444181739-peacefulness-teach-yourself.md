@@ -1,7 +1,7 @@
 ---
 title: "Peacefulness: Teach Yourself | Free Book"
-date: 2024-10-23 14:13:10
-updated: 2024-10-26 12:13:19
+date: 2024-10-21T20:15:52.174Z
+updated: 2024-10-26T16:41:40.342Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bee3ba9ed6cd87741e7c8099a551c126bb065fad8e02669f68343719ba07df5c.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bee3ba9ed6cd87741e7c8099a551c12
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

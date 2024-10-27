@@ -1,7 +1,7 @@
 ---
 title: "Love Lives: Using Astrology to Build the Perfect Relationship with Any Star Sign | Free Book"
-date: 2024-10-24 14:31:44
-updated: 2024-10-26 10:35:29
+date: 2024-10-24T16:57:03.472Z
+updated: 2024-10-26T16:23:15.661Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1101c499191fe84826ed4e23b9906a6e43ebeddbe4720675643cec72841e50fc.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1101c499191fe84826ed4e23b9906a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

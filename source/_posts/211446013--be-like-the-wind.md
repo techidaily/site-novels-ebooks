@@ -1,7 +1,7 @@
 ---
 title: Be Like the Wind | Free Book
-date: 2024-10-25 15:48:43
-updated: 2024-10-26 12:41:16
+date: 2024-10-25T16:18:11.861Z
+updated: 2024-10-27T01:38:58.901Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6628b39f3f860a787aecabcb45ab1582fe7a44ed2961d1ad2d262a8eb97f232c.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6628b39f3f860a787aecabcb45ab158
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

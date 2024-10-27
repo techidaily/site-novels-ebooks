@@ -1,7 +1,7 @@
 ---
 title: The Disinformation Guide to Ancient Aliens, Lost Civilizations, Astonishing Archaeology & Hidden History | Free Book
-date: 2024-10-23 16:55:44
-updated: 2024-10-26 11:58:37
+date: 2024-10-21T22:30:40.230Z
+updated: 2024-10-26T20:44:46.262Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df87939666309c2bf0fb0ce6e896bafa52c6cd547df9890f8fe7adfe6c8dbbdd.jpg
@@ -208,3 +208,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df87939666309c2bf0fb0ce6e896baf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

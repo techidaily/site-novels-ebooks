@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-24 21:55:10
-updated: 2024-10-26 12:37:51
+date: 2024-10-23T21:43:03.562Z
+updated: 2024-10-27T04:11:28.334Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a03a8adbcc113fd8550d9ead2053931fa00f16a9b5ce7593f72f80d304288308.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a03a8adbcc113fd8550d9ead2053931
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

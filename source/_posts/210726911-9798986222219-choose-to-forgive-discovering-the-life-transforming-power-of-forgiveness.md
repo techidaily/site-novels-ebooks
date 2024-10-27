@@ -1,7 +1,7 @@
 ---
 title: "Choose to Forgive: Discovering the Life-Transforming Power of Forgiveness | Free Book"
-date: 2024-10-25 11:50:53
-updated: 2024-10-26 11:46:21
+date: 2024-10-22T17:56:34.093Z
+updated: 2024-10-26T16:38:53.999Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b93a867cab3bf89fa5a879556652dd65eed12d9431efd654ad01a94bb87ce94.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b93a867cab3bf89fa5a879556652dd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

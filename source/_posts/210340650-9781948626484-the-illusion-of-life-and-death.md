@@ -1,7 +1,7 @@
 ---
 title: The Illusion of Life and Death | Free Book
-date: 2024-10-23 14:14:32
-updated: 2024-10-26 11:43:41
+date: 2024-10-26T04:00:54.615Z
+updated: 2024-10-26T17:14:07.376Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08eeaa563e2e8a012f92b2e449c117a063bda86a0685497cbf4eeb083c93fb36.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08eeaa563e2e8a012f92b2e449c117a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

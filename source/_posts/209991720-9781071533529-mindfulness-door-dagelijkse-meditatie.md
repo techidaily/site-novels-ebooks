@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Door Dagelijkse Meditatie | Free Book
-date: 2024-10-25 14:43:15
-updated: 2024-10-26 11:28:11
+date: 2024-10-22T20:45:18.261Z
+updated: 2024-10-26T23:12:44.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73d4133aab74ab21eb99e0ae56b5239162c219b59bf149a742491f25f12b5b7c.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73d4133aab74ab21eb99e0ae56b5239
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

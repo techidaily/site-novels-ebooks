@@ -1,7 +1,7 @@
 ---
 title: The Spirit of Harriet Tubman | Free Book
-date: 2024-10-25 20:40:45
-updated: 2024-10-26 12:13:20
+date: 2024-10-25T21:40:00.549Z
+updated: 2024-10-27T03:11:29.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a58fb04bb5e25a1cb500015feea908174bf88e33b358af228f3933311a102ceb.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a58fb04bb5e25a1cb500015feea9081
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

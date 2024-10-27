@@ -1,7 +1,7 @@
 ---
 title: "Ayahuasca: Rituals, Potions and Visionary Art from the Amazon | Free Book"
-date: 2024-10-25 15:16:14
-updated: 2024-10-26 10:31:35
+date: 2024-10-21T17:39:33.870Z
+updated: 2024-10-26T16:09:06.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0fd9967e9819c764b03eb7474ffb41ab0b4f8bb7c7ce4f5c91982508a0496f69.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0fd9967e9819c764b03eb7474ffb41a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

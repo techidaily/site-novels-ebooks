@@ -1,7 +1,7 @@
 ---
 title: Ageing, Disability and Spirituality | Free Book
-date: 2024-10-23 14:15:39
-updated: 2024-10-26 11:50:31
+date: 2024-10-19T20:40:48.772Z
+updated: 2024-10-26T16:32:48.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ddf3bf4a9c041c2ff62ecebf6bce7d2cfd07a56fd8e7421cd6a1323b227b7f56.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ddf3bf4a9c041c2ff62ecebf6bce7d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

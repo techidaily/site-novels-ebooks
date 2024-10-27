@@ -1,7 +1,7 @@
 ---
 title: The Voice of Rolling Thunder | Free Book
-date: 2024-10-23 11:26:42
-updated: 2024-10-26 10:42:29
+date: 2024-10-24T21:40:45.175Z
+updated: 2024-10-26T18:21:42.085Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/477f05a57fa8150df434d683a8860d5a4be2faadd071a34e2ff88ffff819d991.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/477f05a57fa8150df434d683a8860d5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

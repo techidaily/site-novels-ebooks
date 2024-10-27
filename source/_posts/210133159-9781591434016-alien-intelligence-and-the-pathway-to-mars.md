@@ -1,7 +1,7 @@
 ---
 title: Alien Intelligence and the Pathway to Mars | Free Book
-date: 2024-10-23 14:43:17
-updated: 2024-10-26 11:36:16
+date: 2024-10-22T02:09:15.697Z
+updated: 2024-10-26T20:41:07.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5067768755a4df44e4073c8fcefb35d8e00b90b0c8cd4762fe461e44f4b070b3.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5067768755a4df44e4073c8fcefb35d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

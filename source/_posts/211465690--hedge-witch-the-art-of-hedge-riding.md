@@ -1,7 +1,7 @@
 ---
 title: Hedge Witch & the Art of Hedge Riding | Free Book
-date: 2024-10-24 16:27:22
-updated: 2024-10-26 10:40:27
+date: 2024-10-22T05:31:50.960Z
+updated: 2024-10-27T04:44:57.194Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/356f60970673e52bfe842cd238cc952e494b9d3708f0ab3f11a865c7ba7f14b5.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/356f60970673e52bfe842cd238cc952
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

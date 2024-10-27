@@ -1,7 +1,7 @@
 ---
 title: Crystals for Everyday Living | Free Book
-date: 2024-10-24 10:54:39
-updated: 2024-10-26 10:39:55
+date: 2024-10-23T18:13:34.469Z
+updated: 2024-10-26T20:27:09.595Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4c9c1e50c01683627f7f1b35dd628c3c102978689d82e9907e2b67fd3ee90ac3.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4c9c1e50c01683627f7f1b35dd628c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

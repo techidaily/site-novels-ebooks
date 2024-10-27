@@ -1,7 +1,7 @@
 ---
 title: The World Is As You Dream It | Free Book
-date: 2024-10-24 18:57:31
-updated: 2024-10-26 12:18:55
+date: 2024-10-21T04:02:54.853Z
+updated: 2024-10-26T20:02:30.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1deebf79eaf6ccfa667619fdecfb114960a155edb18710b7dee0ddd9c4e01b73.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1deebf79eaf6ccfa667619fdecfb114
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

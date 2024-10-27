@@ -1,7 +1,7 @@
 ---
 title: The Things You Can See Only When You Slow Down | Free Book
-date: 2024-10-25 21:57:19
-updated: 2024-10-26 11:23:18
+date: 2024-10-22T23:39:47.079Z
+updated: 2024-10-26T21:37:57.170Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3e0f105317c4196bd06ee1f0239a1beba00427d76b62b391df470437b7611c2.jpg
@@ -335,3 +335,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3e0f105317c4196bd06ee1f0239a1b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

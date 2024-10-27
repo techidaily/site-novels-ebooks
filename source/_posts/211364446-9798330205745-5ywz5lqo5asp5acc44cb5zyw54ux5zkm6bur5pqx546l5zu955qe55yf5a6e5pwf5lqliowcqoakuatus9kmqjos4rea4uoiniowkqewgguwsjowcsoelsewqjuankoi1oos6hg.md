@@ -1,7 +1,7 @@
 ---
 title: 关于天堂、地狱和黑暗王国的真实故事 在濒死体验中游览天堂和地狱后捐赠了 | Free Book
-date: 2024-10-24 21:52:42
-updated: 2024-10-26 10:14:48
+date: 2024-10-25T20:44:08.295Z
+updated: 2024-10-27T03:52:14.504Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ad3e2924e0df2cb8286035e4c1bc41d33e23e83b564b8ffee9f407d0eaf801a.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ad3e2924e0df2cb8286035e4c1bc41
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

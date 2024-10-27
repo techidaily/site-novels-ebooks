@@ -1,7 +1,7 @@
 ---
 title: Astrology in Ancient Mesopotamia (2nd ed.) | Free Book
-date: 2024-10-23 12:14:36
-updated: 2024-10-26 12:54:16
+date: 2024-10-21T01:58:11.101Z
+updated: 2024-10-26T19:12:18.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/749333307d58dd3428df3447f6978b9310549063c4ed6a21d40660fca48bfd13.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/749333307d58dd3428df3447f6978b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

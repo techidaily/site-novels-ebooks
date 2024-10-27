@@ -1,7 +1,7 @@
 ---
 title: Demonology and Witchcraft in the British Isles and Ireland | Free Book
-date: 2024-10-24 17:35:43
-updated: 2024-10-26 10:32:27
+date: 2024-10-23T22:25:25.258Z
+updated: 2024-10-27T00:09:28.273Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/24f93b553eff85b0f925abb89be1b9996283b62000b7340d23c6d1e93da6ea3e.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/24f93b553eff85b0f925abb89be1b99
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

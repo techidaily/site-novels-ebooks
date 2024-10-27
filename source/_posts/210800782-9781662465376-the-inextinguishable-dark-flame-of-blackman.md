@@ -1,7 +1,7 @@
 ---
 title: The Inextinguishable Dark Flame of Blackman | Free Book
-date: 2024-10-24 12:18:53
-updated: 2024-10-26 10:51:26
+date: 2024-10-24T17:54:14.607Z
+updated: 2024-10-27T00:36:06.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/253becd81a1a05aa0d896b608416af0a1e85f78043d57097621900ee86153b7b.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/253becd81a1a05aa0d896b608416af0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

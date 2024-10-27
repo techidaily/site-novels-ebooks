@@ -1,7 +1,7 @@
 ---
 title: You Were Not Born to Suffer Sampler | Free Book
-date: 2024-10-24 16:15:36
-updated: 2024-10-26 10:47:25
+date: 2024-10-21T19:48:16.175Z
+updated: 2024-10-27T05:14:30.006Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8e223574b1b40f31b6d0dbe36df9b093c654a1b8dd5f46ee0835d7ae9b7a9674.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8e223574b1b40f31b6d0dbe36df9b09
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

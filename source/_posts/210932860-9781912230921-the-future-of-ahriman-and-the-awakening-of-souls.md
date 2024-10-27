@@ -1,7 +1,7 @@
 ---
 title: The Future of Ahriman and the Awakening of Souls | Free Book
-date: 2024-10-24 17:56:12
-updated: 2024-10-26 10:45:15
+date: 2024-10-24T03:26:31.721Z
+updated: 2024-10-26T21:02:18.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec29665839dad95c3de427f4fc3c9de6407f067f432bf2bafeba8a47cf456f1e.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec29665839dad95c3de427f4fc3c9de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

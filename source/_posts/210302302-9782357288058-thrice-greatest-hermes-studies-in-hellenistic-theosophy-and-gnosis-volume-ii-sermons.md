@@ -1,7 +1,7 @@
 ---
 title: "Thrice-Greatest Hermes: Studies in Hellenistic Theosophy and Gnosis Volume II.- Sermons | Free Book"
-date: 2024-10-23 20:14:26
-updated: 2024-10-26 11:32:57
+date: 2024-10-24T04:42:01.784Z
+updated: 2024-10-26T18:29:55.196Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6fd29de8b8cafbb596a99a10d5a9ba3907392f0116153f3d1ceb71ac8f278d87.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6fd29de8b8cafbb596a99a10d5a9ba3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

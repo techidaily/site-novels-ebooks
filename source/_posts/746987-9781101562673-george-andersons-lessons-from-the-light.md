@@ -1,7 +1,7 @@
 ---
 title: George Anderson's Lessons from the Light | Free Book
-date: 2024-10-25 15:41:41
-updated: 2024-10-26 10:40:54
+date: 2024-10-23T17:06:47.274Z
+updated: 2024-10-27T01:45:36.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5daedbfd20998664cfbb2e18d149d77577f50c5579aaf087344665ea4b91fbee.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5daedbfd20998664cfbb2e18d149d77
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

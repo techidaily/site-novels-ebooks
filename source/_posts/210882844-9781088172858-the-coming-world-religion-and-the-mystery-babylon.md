@@ -1,7 +1,7 @@
 ---
 title: The Coming WORLD RELIGION and The MYSTERY BABYLON | Free Book
-date: 2024-10-24 23:42:44
-updated: 2024-10-26 11:10:33
+date: 2024-10-25T18:08:06.850Z
+updated: 2024-10-26T19:29:42.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b061d57f938ca765e40a745b9573ee15c4c5cfbc51eadba2e12384122adc7013.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b061d57f938ca765e40a745b9573ee1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

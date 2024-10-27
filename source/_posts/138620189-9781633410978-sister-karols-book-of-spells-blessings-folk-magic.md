@@ -1,7 +1,7 @@
 ---
 title: Sister Karol's Book of Spells, Blessings & Folk Magic | Free Book
-date: 2024-10-23 10:20:39
-updated: 2024-10-26 12:20:48
+date: 2024-10-21T16:55:30.278Z
+updated: 2024-10-26T17:10:12.069Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a6706a038d57b8942265e526f0a02ae15e35327fa4397ced042edf1598de1749.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a6706a038d57b8942265e526f0a02ae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

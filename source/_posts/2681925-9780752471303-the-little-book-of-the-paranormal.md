@@ -1,7 +1,7 @@
 ---
 title: The Little Book of the Paranormal | Free Book
-date: 2024-10-24 18:38:40
-updated: 2024-10-26 12:54:34
+date: 2024-10-19T23:54:55.830Z
+updated: 2024-10-27T05:34:49.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16a06f823e65241ee3ea78cc140e88064fc265f8ea3023e2d43c7cca1db924af.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16a06f823e65241ee3ea78cc140e880
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

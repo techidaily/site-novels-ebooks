@@ -1,7 +1,7 @@
 ---
 title: 100 Proofs That Earth Is Not A Globe | Free Book
-date: 2024-10-24 19:29:45
-updated: 2024-10-26 12:42:47
+date: 2024-10-20T19:55:19.377Z
+updated: 2024-10-26T18:54:00.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f5f20be5a0edbb84c7346f4b02542d4dac34f2601c84e8cead1d2378fdffcc7.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f5f20be5a0edbb84c7346f4b02542d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

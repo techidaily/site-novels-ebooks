@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Inner Peace | Free Book
-date: 2024-10-23 16:19:45
-updated: 2024-10-26 12:48:44
+date: 2024-10-25T19:18:38.214Z
+updated: 2024-10-26T19:54:51.215Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4c99f4c9190f5f3be0b2e4b6ddbeca5732b631b699043329ba7f1fdffa96fb1c.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4c99f4c9190f5f3be0b2e4b6ddbeca5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

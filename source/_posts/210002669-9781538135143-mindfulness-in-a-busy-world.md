@@ -1,7 +1,7 @@
 ---
 title: Mindfulness in a Busy World | Free Book
-date: 2024-10-23 13:33:32
-updated: 2024-10-26 11:49:44
+date: 2024-10-26T04:33:57.786Z
+updated: 2024-10-26T17:53:32.965Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5229c0047e5bb581845900fbd76eb2754fdd70b256ce0adff0f34337c7ad210f.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5229c0047e5bb581845900fbd76eb27
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

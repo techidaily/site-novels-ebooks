@@ -1,7 +1,7 @@
 ---
 title: "Shining like the Sun: Seven Mindful Practices for Rekindling Your Faith | Free Book"
-date: 2024-10-24 21:29:37
-updated: 2024-10-26 10:54:29
+date: 2024-10-20T18:38:14.184Z
+updated: 2024-10-26T21:27:53.093Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c507b092dc6c2cdc4762dd6f7be8dc507df754920037e59df29200e7edfe827.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c507b092dc6c2cdc4762dd6f7be8dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Despertando a Consciência Interior | Free Book
-date: 2024-10-24 17:27:44
-updated: 2024-10-26 11:53:27
+date: 2024-10-21T05:14:07.422Z
+updated: 2024-10-27T02:44:05.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1df20252ff57cfc997d686c4193b4224befd249474c290f9e0a6ef59b53cb5fa.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1df20252ff57cfc997d686c4193b422
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

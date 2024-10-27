@@ -1,7 +1,7 @@
 ---
 title: SOUL PATHWAY TO TOTAL HEALTH | Free Book
-date: 2024-10-24 22:12:14
-updated: 2024-10-26 11:45:49
+date: 2024-10-24T00:19:48.591Z
+updated: 2024-10-26T17:31:34.188Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eaf284d224a0dbd568f026d4f260caba70f8c6b70996ffda127595e5b9d8c548.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eaf284d224a0dbd568f026d4f260cab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

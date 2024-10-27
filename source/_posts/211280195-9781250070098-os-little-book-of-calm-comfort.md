@@ -1,7 +1,7 @@
 ---
 title: O's Little Book of Calm & Comfort | Free Book
-date: 2024-10-25 13:12:21
-updated: 2024-10-26 12:20:59
+date: 2024-10-24T01:26:09.489Z
+updated: 2024-10-27T05:24:16.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4858866f7d77cf2d15352eac3547f33d043cfa91038165f9ce8fcab6729478f.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4858866f7d77cf2d15352eac3547f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

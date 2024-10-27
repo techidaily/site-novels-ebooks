@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Grimoire | Free Book
-date: 2024-10-25 11:35:13
-updated: 2024-10-26 11:33:31
+date: 2024-10-20T03:04:28.604Z
+updated: 2024-10-27T05:34:18.888Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d58a39f769eff2777a716c31e03399827be7aca5450b4a0516387b9e6a4a609d.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d58a39f769eff2777a716c31e033998
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

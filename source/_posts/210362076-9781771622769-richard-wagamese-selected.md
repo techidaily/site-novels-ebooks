@@ -1,7 +1,7 @@
 ---
 title: Richard Wagamese Selected | Free Book
-date: 2024-10-23 22:55:14
-updated: 2024-10-26 11:41:25
+date: 2024-10-19T23:19:56.574Z
+updated: 2024-10-27T01:50:00.031Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f2b81adfafcad4838faa8d228acd5010defa74b1d2ccc0d16c1c7a4d81cab712.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f2b81adfafcad4838faa8d228acd501
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

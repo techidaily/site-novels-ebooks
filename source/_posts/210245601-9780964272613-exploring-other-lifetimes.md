@@ -1,7 +1,7 @@
 ---
 title: Exploring Other Lifetimes | Free Book
-date: 2024-10-23 21:35:35
-updated: 2024-10-26 11:39:46
+date: 2024-10-24T03:30:41.540Z
+updated: 2024-10-26T23:08:06.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5fa523c4993c375c0ad80bfb1ece43abf21722d7ea4fa7f9e8fc318bc891795b.jpg
@@ -303,3 +303,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5fa523c4993c375c0ad80bfb1ece43a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

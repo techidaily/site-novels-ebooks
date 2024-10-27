@@ -1,7 +1,7 @@
 ---
 title: The Art of Stillness in a Noisy World | Free Book
-date: 2024-10-24 18:22:15
-updated: 2024-10-26 12:51:23
+date: 2024-10-23T21:30:54.732Z
+updated: 2024-10-26T22:40:55.240Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/319aee7e791747b192a78ce859df08194b2644990e84aa4d0b712420953f31ec.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/319aee7e791747b192a78ce859df081
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

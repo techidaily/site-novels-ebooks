@@ -1,7 +1,7 @@
 ---
 title: Living with Parkinson's | Free Book
-date: 2024-10-23 14:54:51
-updated: 2024-10-26 11:52:56
+date: 2024-10-24T16:27:53.538Z
+updated: 2024-10-27T05:53:09.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c576ad6e24fc24ee33a2163cd09f15c217a351f4523e005bc0373a392a7ec02e.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c576ad6e24fc24ee33a2163cd09f15c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

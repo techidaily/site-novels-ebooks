@@ -1,7 +1,7 @@
 ---
 title: La Méditation, un Puissant Pouvoir qui Guérit les Maux Physiques et Émotionnels | Free Book
-date: 2024-10-23 10:52:32
-updated: 2024-10-26 10:50:39
+date: 2024-10-22T17:02:14.864Z
+updated: 2024-10-27T01:35:46.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/635e3ef882dd1b7ab02a6510b012f97c1b0ae7cbd61c662ae084c63920b0bab4.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/635e3ef882dd1b7ab02a6510b012f97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

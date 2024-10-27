@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - 21st Century Fairy | Free Book
-date: 2024-10-24 16:40:38
-updated: 2024-10-26 12:13:55
+date: 2024-10-26T02:45:36.224Z
+updated: 2024-10-27T00:17:25.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0dfd86bffe0c47b3ada4ddbdac83cb5563eb9f731731b4b9af23e822c39db301.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0dfd86bffe0c47b3ada4ddbdac83cb5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

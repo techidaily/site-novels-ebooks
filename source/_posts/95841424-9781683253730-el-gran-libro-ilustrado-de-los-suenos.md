@@ -1,7 +1,7 @@
 ---
 title: El gran libro ilustrado de los sueños | Free Book
-date: 2024-10-23 23:47:24
-updated: 2024-10-26 11:18:23
+date: 2024-10-23T01:48:42.182Z
+updated: 2024-10-27T00:55:51.796Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afa8e9a309fde5f584e3ea092b88a9f039c382400d9fa01c9091569352f2abe4.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afa8e9a309fde5f584e3ea092b88a9f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

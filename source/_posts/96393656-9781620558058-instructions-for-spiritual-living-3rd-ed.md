@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2024-10-24 19:41:54
-updated: 2024-10-26 10:51:38
+date: 2024-10-26T02:46:52.103Z
+updated: 2024-10-26T21:36:42.057Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

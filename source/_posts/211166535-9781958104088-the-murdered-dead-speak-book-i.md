@@ -1,7 +1,7 @@
 ---
 title: "The Murdered Dead Speak: Book I | Free Book"
-date: 2024-10-23 16:51:55
-updated: 2024-10-26 10:19:25
+date: 2024-10-22T17:24:19.591Z
+updated: 2024-10-26T16:55:08.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c22428035d84dd1ccc89367458aa36db2a7a04c6429cb112877da69f3994045d.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c22428035d84dd1ccc89367458aa36d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

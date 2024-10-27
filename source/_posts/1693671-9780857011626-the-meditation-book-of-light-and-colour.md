@@ -1,7 +1,7 @@
 ---
 title: The Meditation Book of Light and Colour | Free Book
-date: 2024-10-25 12:51:10
-updated: 2024-10-26 10:46:42
+date: 2024-10-22T05:56:26.475Z
+updated: 2024-10-26T23:26:02.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c1707ed16bfecfa8af9a973fa74aeee14d1a11b17ebd1ac87c0a81280cfa126.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c1707ed16bfecfa8af9a973fa74aee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

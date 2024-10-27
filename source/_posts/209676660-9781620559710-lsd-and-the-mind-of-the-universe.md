@@ -1,7 +1,7 @@
 ---
 title: LSD and the Mind of the Universe | Free Book
-date: 2024-10-25 11:11:12
-updated: 2024-10-26 11:18:49
+date: 2024-10-19T17:30:06.824Z
+updated: 2024-10-26T23:42:10.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e6475eba33bfa67871566c4fa50cae0949c056050111073fe7d294d42ce9aca.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e6475eba33bfa67871566c4fa50cae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

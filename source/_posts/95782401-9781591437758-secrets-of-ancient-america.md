@@ -1,7 +1,7 @@
 ---
 title: Secrets of Ancient America | Free Book
-date: 2024-10-24 12:27:46
-updated: 2024-10-26 11:46:50
+date: 2024-10-21T03:05:32.055Z
+updated: 2024-10-26T23:44:29.355Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a2e4f849ba29cfc82e64a50e2eac6d9f2aee4dafb53e5fad0ba0ffe31679e0a.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a2e4f849ba29cfc82e64a50e2eac6d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

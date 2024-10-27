@@ -1,7 +1,7 @@
 ---
 title: "The Ox in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-23 11:43:50
-updated: 2024-10-26 10:57:53
+date: 2024-10-19T18:18:19.907Z
+updated: 2024-10-27T04:04:02.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4bc00f55edcec97152139c4c088a68819695bcf78526a03dc90f277686887fd2.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4bc00f55edcec97152139c4c088a688
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

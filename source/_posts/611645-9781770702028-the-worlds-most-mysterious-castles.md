@@ -1,7 +1,7 @@
 ---
 title: The World's Most Mysterious Castles | Free Book
-date: 2024-10-23 11:10:26
-updated: 2024-10-26 12:53:29
+date: 2024-10-19T20:06:34.258Z
+updated: 2024-10-27T02:27:52.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d1580a593d588c429621b085cacd3c92b3c410d45d5652a2a5332901f3852ba.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d1580a593d588c429621b085cacd3c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: El Extraño Caso de Rose Ramirez | Free Book
-date: 2024-10-25 13:32:33
-updated: 2024-10-26 11:49:39
+date: 2024-10-25T04:44:56.690Z
+updated: 2024-10-26T20:09:58.268Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b59f666ef6bfe9a63b9bfbf6469543d8a77a4a9222190af0a1893e331e6c58e.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b59f666ef6bfe9a63b9bfbf6469543
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Baptist's Head Compendium | Free Book
-date: 2024-10-25 23:37:10
-updated: 2024-10-26 10:43:17
+date: 2024-10-20T04:57:23.626Z
+updated: 2024-10-27T04:42:01.113Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0863c7b8ca6b566a0be093928372b98544ec97c7bb4d924b277720aab1be91ea.jpg
@@ -202,3 +202,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0863c7b8ca6b566a0be093928372b98
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

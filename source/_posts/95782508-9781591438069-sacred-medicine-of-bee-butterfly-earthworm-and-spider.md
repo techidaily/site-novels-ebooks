@@ -1,7 +1,7 @@
 ---
 title: Sacred Medicine of Bee, Butterfly, Earthworm, and Spider | Free Book
-date: 2024-10-25 21:32:27
-updated: 2024-10-26 10:59:57
+date: 2024-10-21T04:49:28.093Z
+updated: 2024-10-26T22:54:50.443Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf607ed331ba9d5be4cc3773ef145f18e22a528e4fb75c7324aad8c3bd722484.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf607ed331ba9d5be4cc3773ef145f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

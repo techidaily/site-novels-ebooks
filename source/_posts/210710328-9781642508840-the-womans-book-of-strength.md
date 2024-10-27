@@ -1,7 +1,7 @@
 ---
 title: The Woman's Book of Strength | Free Book
-date: 2024-10-25 10:49:54
-updated: 2024-10-26 11:34:10
+date: 2024-10-22T03:53:48.577Z
+updated: 2024-10-26T22:10:06.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/994fb540e836737c00b181d1ff64d2a9e6daaafe528b6cd165236fb434e732c9.jpg
@@ -294,3 +294,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/994fb540e836737c00b181d1ff64d2a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

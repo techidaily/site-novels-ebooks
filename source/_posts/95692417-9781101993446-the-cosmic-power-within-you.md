@@ -1,7 +1,7 @@
 ---
 title: The Cosmic Power Within You | Free Book
-date: 2024-10-24 18:15:57
-updated: 2024-10-26 11:19:32
+date: 2024-10-23T02:05:54.321Z
+updated: 2024-10-26T22:46:46.842Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/490e96a2b47025ebc45c64216accec2dee5c376498bd120c5eab6d8defd1a43c.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/490e96a2b47025ebc45c64216accec2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

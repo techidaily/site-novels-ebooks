@@ -1,7 +1,7 @@
 ---
 title: Psychedelics and Spirituality (3rd ed.) | Free Book
-date: 2024-10-24 15:27:13
-updated: 2024-10-26 12:15:15
+date: 2024-10-22T23:45:48.364Z
+updated: 2024-10-27T01:54:44.617Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d00b2b547ed7ab922566fd0d013ac5a62e6ddd251294d76c86b5ff51bbfc7a3c.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d00b2b547ed7ab922566fd0d013ac5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

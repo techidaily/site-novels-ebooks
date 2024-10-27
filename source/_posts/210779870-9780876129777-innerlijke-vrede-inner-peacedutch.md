@@ -1,7 +1,7 @@
 ---
 title: Innerlijke vrede (Inner Peace—Dutch) | Free Book
-date: 2024-10-25 20:54:39
-updated: 2024-10-26 10:56:33
+date: 2024-10-23T16:55:29.362Z
+updated: 2024-10-26T19:25:08.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adcf6dde325fe2314ffe872c931479bb0cb84dffa04199e01304f0100b55bc2e.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adcf6dde325fe2314ffe872c931479b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

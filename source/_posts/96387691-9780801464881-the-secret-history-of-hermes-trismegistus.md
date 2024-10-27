@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2024-10-25 16:43:39
-updated: 2024-10-26 12:28:17
+date: 2024-10-19T23:21:12.109Z
+updated: 2024-10-27T02:20:34.536Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Mindfulness | Free Book
-date: 2024-10-23 19:19:12
-updated: 2024-10-26 11:38:29
+date: 2024-10-22T18:16:00.711Z
+updated: 2024-10-26T22:51:21.756Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80928f947a0a63a1907a06cf4567b0b3ba0c2979f7170ddfeee2d38c1c431eea.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80928f947a0a63a1907a06cf4567b0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

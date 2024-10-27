@@ -1,7 +1,7 @@
 ---
 title: Bedtime Stories For Adults Who Want To Sleep 17 Stories And Beginners Guided Meditations For Deep Sleep, Overcoming Insomnia & Anxiety, Stress Relief & Developing Mindfulness | Free Book
-date: 2024-10-25 23:45:30
-updated: 2024-10-26 12:23:50
+date: 2024-10-19T18:38:42.677Z
+updated: 2024-10-27T03:40:51.067Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30d142032d096e85f4ffc46c7ece7af6e8694a563fdca437a1d14b77089e45ed.jpg
@@ -202,3 +202,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30d142032d096e85f4ffc46c7ece7af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

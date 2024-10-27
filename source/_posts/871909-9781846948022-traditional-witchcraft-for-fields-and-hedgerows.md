@@ -1,7 +1,7 @@
 ---
 title: Traditional Witchcraft for Fields and Hedgerows | Free Book
-date: 2024-10-25 10:34:19
-updated: 2024-10-26 10:52:15
+date: 2024-10-20T04:48:01.483Z
+updated: 2024-10-26T20:19:16.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0fd6e539c83e725b93e999ebc2cded4433f4e6fa6f0279200a44e9686346a31a.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0fd6e539c83e725b93e999ebc2cded4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

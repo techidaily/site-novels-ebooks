@@ -1,7 +1,7 @@
 ---
 title: Healing the Heart and Mind with Mindfulness | Free Book
-date: 2024-10-24 14:41:48
-updated: 2024-10-26 11:31:10
+date: 2024-10-25T23:08:56.676Z
+updated: 2024-10-26T23:52:31.148Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47dca9071f5cec9f7105930c195619ea82f4b7df7956b08899b3430bcd69260d.jpg
@@ -264,3 +264,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47dca9071f5cec9f7105930c195619e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

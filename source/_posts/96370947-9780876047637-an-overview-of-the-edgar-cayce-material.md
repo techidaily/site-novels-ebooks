@@ -1,7 +1,7 @@
 ---
 title: An Overview of the Edgar Cayce Material | Free Book
-date: 2024-10-24 16:49:56
-updated: 2024-10-26 12:27:30
+date: 2024-10-21T02:35:24.612Z
+updated: 2024-10-27T00:43:03.050Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa86584d7ab55c0c2edc64b865697096a39f.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

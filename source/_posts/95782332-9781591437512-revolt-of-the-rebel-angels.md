@@ -1,7 +1,7 @@
 ---
 title: Revolt of the Rebel Angels | Free Book
-date: 2024-10-25 13:48:30
-updated: 2024-10-26 10:46:36
+date: 2024-10-20T23:24:55.309Z
+updated: 2024-10-26T19:39:38.035Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b4f3e4a8b1a10e20a05231085f171273231c8deac001010af6b48b5fc32cd32.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b4f3e4a8b1a10e20a05231085f1712
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

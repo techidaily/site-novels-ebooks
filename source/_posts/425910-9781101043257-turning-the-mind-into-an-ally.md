@@ -1,7 +1,7 @@
 ---
 title: Turning the Mind Into an Ally | Free Book
-date: 2024-10-24 13:33:23
-updated: 2024-10-26 12:13:45
+date: 2024-10-23T17:16:26.450Z
+updated: 2024-10-26T22:52:30.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2777f438d7c6f780e29bd686b88ca3a331f17e0773c14e04f3e6f3a54d80f06e.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2777f438d7c6f780e29bd686b88ca3a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

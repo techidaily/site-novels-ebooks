@@ -1,7 +1,7 @@
 ---
 title: Prohibitted Knowledge | Free Book
-date: 2024-10-23 22:10:41
-updated: 2024-10-26 12:46:11
+date: 2024-10-24T19:09:02.107Z
+updated: 2024-10-27T02:09:56.209Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/3f26953bafbb8d6c204ea6c19f42e71e696145567cda9e15af82699e0fc33d55.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f26953bafbb8d6c204ea6c19f42e71
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

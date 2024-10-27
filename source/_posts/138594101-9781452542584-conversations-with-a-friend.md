@@ -1,7 +1,7 @@
 ---
 title: Conversations with a Friend | Free Book
-date: 2024-10-24 17:14:57
-updated: 2024-10-26 12:52:45
+date: 2024-10-22T16:09:38.315Z
+updated: 2024-10-26T21:12:34.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e03cb357ef7effc9c1f789e01690c3e822963b37ceb190145e31f90bba72847.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e03cb357ef7effc9c1f789e01690c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

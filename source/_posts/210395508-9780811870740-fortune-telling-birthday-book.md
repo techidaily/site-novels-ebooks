@@ -1,7 +1,7 @@
 ---
 title: Fortune-Telling Birthday Book | Free Book
-date: 2024-10-25 11:35:36
-updated: 2024-10-26 12:59:45
+date: 2024-10-24T00:24:25.387Z
+updated: 2024-10-26T23:30:24.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e24942edc0e92debf82ebb0637c32d3354e209dfe92161e69ff640e1ed52d6d5.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e24942edc0e92debf82ebb0637c32d3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

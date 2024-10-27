@@ -1,7 +1,7 @@
 ---
 title: Wisdom Beyond the Classroom | Free Book
-date: 2024-10-23 11:17:54
-updated: 2024-10-26 12:42:59
+date: 2024-10-22T03:39:18.991Z
+updated: 2024-10-26T21:13:00.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/27643454752397d1be9067c103b024c6da69dcf1c2260441374e78981027bce7.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/27643454752397d1be9067c103b024c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

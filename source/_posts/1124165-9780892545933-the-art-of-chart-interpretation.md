@@ -1,7 +1,7 @@
 ---
 title: The Art of Chart Interpretation | Free Book
-date: 2024-10-25 18:51:29
-updated: 2024-10-26 11:49:28
+date: 2024-10-25T18:50:26.947Z
+updated: 2024-10-26T16:09:05.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ef46cf6abf09c1453558537a42bf03de8ba7c9ab0a3c7ba935840f70c5d08979.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ef46cf6abf09c1453558537a42bf03d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

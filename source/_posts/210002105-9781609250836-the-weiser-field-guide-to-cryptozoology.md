@@ -1,7 +1,7 @@
 ---
 title: The Weiser Field Guide to Cryptozoology | Free Book
-date: 2024-10-24 20:41:32
-updated: 2024-10-26 11:23:57
+date: 2024-10-23T03:59:56.728Z
+updated: 2024-10-27T04:03:24.807Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ade5ff36c1e04210a9f1935d8d27c1a1b42aab0d0ad767ec722ed7bbb22cd8e6.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ade5ff36c1e04210a9f1935d8d27c1a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

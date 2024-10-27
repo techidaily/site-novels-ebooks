@@ -1,7 +1,7 @@
 ---
 title: The Art of Radical Self-Love | Free Book
-date: 2024-10-23 21:48:40
-updated: 2024-10-26 10:37:53
+date: 2024-10-22T19:42:49.196Z
+updated: 2024-10-26T21:31:10.223Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c182b34a81e719363f8468fa72ea147151e584f1ee031ef14ea8769c795d9413.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c182b34a81e719363f8468fa72ea147
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

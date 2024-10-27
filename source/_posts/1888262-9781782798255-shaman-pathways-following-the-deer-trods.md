@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - Following the Deer Trods | Free Book
-date: 2024-10-24 17:17:29
-updated: 2024-10-26 12:36:41
+date: 2024-10-23T00:07:30.428Z
+updated: 2024-10-26T20:25:20.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5170756829d0004f205c211a768f43d6863d0db8c10e751da121693297ae68d2.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5170756829d0004f205c211a768f43d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

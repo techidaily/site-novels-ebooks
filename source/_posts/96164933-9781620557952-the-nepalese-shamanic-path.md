@@ -1,7 +1,7 @@
 ---
 title: The Nepalese Shamanic Path | Free Book
-date: 2024-10-25 10:50:22
-updated: 2024-10-26 11:41:27
+date: 2024-10-24T23:30:08.466Z
+updated: 2024-10-26T19:49:57.443Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0acb1401e28729e1cb6f4fdf74845fba2496dfe3b8646b63f3327e604c7c0f71.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0acb1401e28729e1cb6f4fdf74845fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

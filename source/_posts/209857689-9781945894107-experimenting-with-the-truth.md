@@ -1,7 +1,7 @@
 ---
 title: Experimenting with the Truth | Free Book
-date: 2024-10-25 22:40:14
-updated: 2024-10-26 11:22:12
+date: 2024-10-23T03:32:40.931Z
+updated: 2024-10-27T02:43:09.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a847b75f2e8a6dafac79e81755d83d12dae8b64c85a414f0af8714097567d5d1.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a847b75f2e8a6dafac79e81755d83d1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

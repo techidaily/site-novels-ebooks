@@ -1,7 +1,7 @@
 ---
 title: Archangel Michael Breathes | Free Book
-date: 2024-10-24 14:28:42
-updated: 2024-10-26 12:10:19
+date: 2024-10-23T22:02:56.760Z
+updated: 2024-10-26T23:28:42.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1275a181bf9d467720c3396ce58f878e054cb952738346bb9e1b3f43553906ba.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1275a181bf9d467720c3396ce58f878
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

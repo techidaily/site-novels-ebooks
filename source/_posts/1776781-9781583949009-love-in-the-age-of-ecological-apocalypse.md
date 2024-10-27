@@ -1,7 +1,7 @@
 ---
 title: Love in the Age of Ecological Apocalypse | Free Book
-date: 2024-10-23 12:12:51
-updated: 2024-10-26 12:48:27
+date: 2024-10-20T16:26:47.973Z
+updated: 2024-10-27T02:16:46.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d96302393742e744345126450136650629563779d149c601c2893d7345452be.jpg
@@ -266,3 +266,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d96302393742e74434512645013665
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

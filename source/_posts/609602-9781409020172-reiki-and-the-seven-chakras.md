@@ -1,7 +1,7 @@
 ---
 title: Reiki And The Seven Chakras | Free Book
-date: 2024-10-24 16:47:25
-updated: 2024-10-26 12:15:26
+date: 2024-10-23T03:44:33.856Z
+updated: 2024-10-26T21:19:27.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72cae191b4889485ba1f648ef7fdc60714fbf2fd32a20428d456846932b5e1fd.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72cae191b4889485ba1f648ef7fdc60
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Hedge Witchcraft | Free Book
-date: 2024-10-25 15:32:28
-updated: 2024-10-26 10:33:32
+date: 2024-10-23T20:03:50.831Z
+updated: 2024-10-27T03:09:14.569Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/688826e6ca5778e208b2926aa2748e8c86ae53e99b65bb6a13c047bd66fd7a7a.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/688826e6ca5778e208b2926aa2748e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

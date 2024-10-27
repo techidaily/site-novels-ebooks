@@ -1,7 +1,7 @@
 ---
 title: Go In Joy! An Alphabetical Adventure Second Edition | Free Book
-date: 2024-10-24 17:27:17
-updated: 2024-10-26 11:49:36
+date: 2024-10-23T03:28:24.635Z
+updated: 2024-10-26T22:44:20.964Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a5a542e58b09ffa1b9a78bd37cf30c939abb2dd72426f548a2cb095feef1e69.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a5a542e58b09ffa1b9a78bd37cf30c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

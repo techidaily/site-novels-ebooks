@@ -1,7 +1,7 @@
 ---
 title: Victor Hugo's Conversations with the Spirit World (2nd ed.) | Free Book
-date: 2024-10-23 12:21:12
-updated: 2024-10-26 10:40:50
+date: 2024-10-22T17:06:15.781Z
+updated: 2024-10-26T17:20:33.652Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3fcbba5b2c3cfd3ac0ec2ec7a11ae97f8b5ee1be1924dcc94f0008d2d4c97146.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3fcbba5b2c3cfd3ac0ec2ec7a11ae97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

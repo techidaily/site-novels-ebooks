@@ -1,7 +1,7 @@
 ---
 title: "Arcana Mundi: A Collection of Ancient Texts | Free Book"
-date: 2024-10-25 11:36:24
-updated: 2024-10-26 10:34:11
+date: 2024-10-20T02:17:40.904Z
+updated: 2024-10-27T02:26:07.238Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4c99e011e9078d6015a7cdefc0f50605297628954ad357472e2872cfc9a818b.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4c99e011e9078d6015a7cdefc0f506
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

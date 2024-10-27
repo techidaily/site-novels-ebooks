@@ -1,7 +1,7 @@
 ---
 title: You Can't Make This Stuff Up | Free Book
-date: 2024-10-24 12:14:56
-updated: 2024-10-26 10:50:38
+date: 2024-10-21T20:57:43.650Z
+updated: 2024-10-26T20:29:02.642Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a48cc95f15a0764d94098be0ed965cf4381359c9ba37a5bdbe146f1159e109e7.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a48cc95f15a0764d94098be0ed965cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

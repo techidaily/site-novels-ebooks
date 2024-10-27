@@ -1,7 +1,7 @@
 ---
 title: "The Rabbit in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-23 18:59:22
-updated: 2024-10-26 11:43:13
+date: 2024-10-22T19:56:51.878Z
+updated: 2024-10-27T00:33:30.387Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16e0b4a7bc454cafcfc2de53f0fda06ef80f0dccb65ccfe9ba32edd3db1620f5.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16e0b4a7bc454cafcfc2de53f0fda06
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

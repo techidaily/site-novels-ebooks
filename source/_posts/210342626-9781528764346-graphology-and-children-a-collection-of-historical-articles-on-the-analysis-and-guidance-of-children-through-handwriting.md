@@ -1,7 +1,7 @@
 ---
 title: Graphology and Children - A Collection of Historical Articles on the Analysis and Guidance of Children Through Handwriting | Free Book
-date: 2024-10-23 12:31:48
-updated: 2024-10-26 11:18:34
+date: 2024-10-23T04:00:19.786Z
+updated: 2024-10-26T22:28:09.503Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e4a619358f7485d36fee43cf25ee59c79284b84c8e29c93d8749131faba23280.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e4a619358f7485d36fee43cf25ee59c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

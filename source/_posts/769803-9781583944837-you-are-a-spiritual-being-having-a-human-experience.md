@@ -1,7 +1,7 @@
 ---
 title: You Are a Spiritual Being Having a Human Experience | Free Book
-date: 2024-10-23 22:14:34
-updated: 2024-10-26 12:58:28
+date: 2024-10-19T22:37:15.905Z
+updated: 2024-10-26T22:25:40.633Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/584f86f38cee67394988e0d668007a6cbbc0e00b177a97180d6e923e468d35a8.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/584f86f38cee67394988e0d668007a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

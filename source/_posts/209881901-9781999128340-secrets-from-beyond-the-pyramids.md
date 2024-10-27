@@ -1,7 +1,7 @@
 ---
 title: Secrets From Beyond The Pyramids | Free Book
-date: 2024-10-23 14:44:56
-updated: 2024-10-26 11:42:41
+date: 2024-10-21T00:57:34.978Z
+updated: 2024-10-27T01:30:06.632Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f229422536e36e8219db746b507f84b1091139f80bc74d70edf2b3d4491dd77b.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f229422536e36e8219db746b507f84b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

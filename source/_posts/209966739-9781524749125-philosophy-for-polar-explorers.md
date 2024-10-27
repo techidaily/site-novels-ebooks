@@ -1,7 +1,7 @@
 ---
 title: Philosophy for Polar Explorers | Free Book
-date: 2024-10-25 18:42:35
-updated: 2024-10-26 12:57:59
+date: 2024-10-25T05:15:30.195Z
+updated: 2024-10-26T18:03:56.584Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6fbab2d3280dd9bf48bf9cf5a3b536f93af6d6e8275b11b8e5c57277ec4349b.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6fbab2d3280dd9bf48bf9cf5a3b536
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

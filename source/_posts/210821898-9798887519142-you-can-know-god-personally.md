@@ -1,7 +1,7 @@
 ---
 title: You Can Know God Personally | Free Book
-date: 2024-10-24 20:28:26
-updated: 2024-10-26 10:58:44
+date: 2024-10-25T21:10:23.230Z
+updated: 2024-10-27T02:09:43.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd66f689c78b24de160fbaea55b22e2c335b2178c387410c0a0b876e9802aed9.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd66f689c78b24de160fbaea55b22e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

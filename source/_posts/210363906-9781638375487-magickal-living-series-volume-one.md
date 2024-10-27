@@ -1,7 +1,7 @@
 ---
 title: Magickal Living Series Volume One | Free Book
-date: 2024-10-25 14:31:59
-updated: 2024-10-26 11:24:54
+date: 2024-10-24T02:08:47.476Z
+updated: 2024-10-26T22:35:06.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5ba41edcbef3e34e1ad8d9fa1e62355a54684facfabad652f4fd11923316312.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5ba41edcbef3e34e1ad8d9fa1e6235
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

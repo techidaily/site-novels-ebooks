@@ -1,7 +1,7 @@
 ---
 title: The World's Most Haunted House | Free Book
-date: 2024-10-25 18:18:53
-updated: 2024-10-26 11:56:13
+date: 2024-10-24T22:24:32.745Z
+updated: 2024-10-26T23:53:36.360Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72aa1ac7efdeebcc48a1c86f643d2d61bb108ac8445d47e93840dae9070757a6.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72aa1ac7efdeebcc48a1c86f643d2d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

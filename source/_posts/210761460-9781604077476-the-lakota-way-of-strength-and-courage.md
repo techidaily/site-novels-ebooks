@@ -1,7 +1,7 @@
 ---
 title: The Lakota Way of Strength and Courage | Free Book
-date: 2024-10-23 18:57:35
-updated: 2024-10-26 10:50:26
+date: 2024-10-21T00:39:11.891Z
+updated: 2024-10-26T17:57:44.098Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a36002110051d163c94b564cd23b5c375eebb6fc6191d5b7b331fd2beca61b4.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a36002110051d163c94b564cd23b5c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

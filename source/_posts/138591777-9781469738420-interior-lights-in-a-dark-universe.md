@@ -1,7 +1,7 @@
 ---
 title: Interior Lights in a Dark Universe | Free Book
-date: 2024-10-24 19:54:44
-updated: 2024-10-26 11:53:32
+date: 2024-10-23T17:21:54.873Z
+updated: 2024-10-27T00:41:07.177Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28e789adc9e14ecac71d9d0f2ef8d1f59d881dcc96589e63c4016e430f435de0.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28e789adc9e14ecac71d9d0f2ef8d1f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Chicken Qabalah of Rabbi Lamed Ben Clifford | Free Book
-date: 2024-10-25 21:47:43
-updated: 2024-10-26 10:14:35
+date: 2024-10-25T00:00:22.960Z
+updated: 2024-10-27T02:05:13.745Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3eb605f169f45b6052ed0e876c25478c2f056ba48c0be3e474533bcb1b6d2414.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3eb605f169f45b6052ed0e876c25478
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

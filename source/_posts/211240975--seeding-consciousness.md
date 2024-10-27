@@ -1,7 +1,7 @@
 ---
 title: Seeding Consciousness | Free Book
-date: 2024-10-25 17:47:58
-updated: 2024-10-26 10:49:51
+date: 2024-10-23T22:03:04.697Z
+updated: 2024-10-26T19:46:23.745Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f03af37abe29c88b5d2b71f679fa97aa457fb59886ff8d03f48f6b9957205bc5.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f03af37abe29c88b5d2b71f679fa97a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

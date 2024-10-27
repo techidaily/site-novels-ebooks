@@ -1,7 +1,7 @@
 ---
 title: Break-free  Daily Revival Prayers - November - Towards SELFLESS SERVICE | Free Book
-date: 2024-10-23 10:15:16
-updated: 2024-10-26 10:25:10
+date: 2024-10-20T22:05:49.027Z
+updated: 2024-10-26T21:17:09.677Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/27cfe5706dc15fcda384718e4f4d5c3ec8238e3677c1621eb86438643d524ccb.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/27cfe5706dc15fcda384718e4f4d5c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

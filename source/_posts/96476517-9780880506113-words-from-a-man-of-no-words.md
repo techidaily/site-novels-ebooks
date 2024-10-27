@@ -1,7 +1,7 @@
 ---
 title: Words from a Man of No Words | Free Book
-date: 2024-10-24 20:44:39
-updated: 2024-10-26 10:12:39
+date: 2024-10-21T17:09:58.798Z
+updated: 2024-10-26T22:41:43.819Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8922661ebb155d58a17f6829b124188229258714554edd73ea110ef11459446c.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8922661ebb155d58a17f6829b124188
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

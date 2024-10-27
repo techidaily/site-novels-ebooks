@@ -1,7 +1,7 @@
 ---
 title: Consciousness Beyond Life | Free Book
-date: 2024-10-23 23:14:42
-updated: 2024-10-26 11:15:22
+date: 2024-10-20T22:16:17.703Z
+updated: 2024-10-26T22:47:25.388Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d01e511e8294238bbf142b12fb9ec44a81c2bbc699bd7f74931a0419c2a78ec.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d01e511e8294238bbf142b12fb9ec4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

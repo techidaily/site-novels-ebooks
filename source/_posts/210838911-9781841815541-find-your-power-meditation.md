@@ -1,7 +1,7 @@
 ---
 title: "Find Your Power: Meditation | Free Book"
-date: 2024-10-24 11:12:46
-updated: 2024-10-26 10:42:29
+date: 2024-10-25T23:49:18.616Z
+updated: 2024-10-26T17:37:59.032Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49871c3cde265c47fc0de8c03b6fb6eaae7289311d9e9de9fb612af5b9c5f1e2.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49871c3cde265c47fc0de8c03b6fb6e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

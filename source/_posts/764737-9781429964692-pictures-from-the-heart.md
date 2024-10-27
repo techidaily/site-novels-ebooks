@@ -1,7 +1,7 @@
 ---
 title: Pictures from the Heart | Free Book
-date: 2024-10-24 14:52:26
-updated: 2024-10-26 11:57:28
+date: 2024-10-25T22:57:53.103Z
+updated: 2024-10-26T17:28:09.382Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c4c9795a82448c4c60052cd86a097f081e2458f7983be49ab3467a125d2853d.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c4c9795a82448c4c60052cd86a097f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

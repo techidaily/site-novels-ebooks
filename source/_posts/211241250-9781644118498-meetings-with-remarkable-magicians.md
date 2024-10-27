@@ -1,7 +1,7 @@
 ---
 title: Meetings with Remarkable Magicians | Free Book
-date: 2024-10-24 18:42:54
-updated: 2024-10-26 12:38:22
+date: 2024-10-24T17:07:55.752Z
+updated: 2024-10-27T03:59:45.004Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c29b8b5a5e4d0404701deab3e28d7007dd5559751ae54c29a65c29ac1f93fd8e.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c29b8b5a5e4d0404701deab3e28d700
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

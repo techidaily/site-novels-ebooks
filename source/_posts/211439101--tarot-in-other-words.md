@@ -1,7 +1,7 @@
 ---
 title: Tarot in Other Words | Free Book
-date: 2024-10-23 19:28:28
-updated: 2024-10-26 12:49:23
+date: 2024-10-23T19:04:17.351Z
+updated: 2024-10-26T22:33:08.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7abdcaa08f06babc6a64d769fcd6b80c62cabeac5daaf92e819c75a7501c7f35.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7abdcaa08f06babc6a64d769fcd6b80
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

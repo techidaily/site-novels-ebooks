@@ -1,7 +1,7 @@
 ---
 title: Mindfulness and Madness | Free Book
-date: 2024-10-25 10:35:53
-updated: 2024-10-26 10:23:10
+date: 2024-10-21T03:40:08.585Z
+updated: 2024-10-26T22:58:07.835Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76c940e1f5a0fa81984c0fa79d0607c3cd26f310f6f82e875f21caf52600617e.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76c940e1f5a0fa81984c0fa79d0607c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

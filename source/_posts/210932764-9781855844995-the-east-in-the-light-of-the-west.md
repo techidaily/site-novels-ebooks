@@ -1,7 +1,7 @@
 ---
 title: The East in the Light of the West | Free Book
-date: 2024-10-24 13:51:37
-updated: 2024-10-26 10:38:51
+date: 2024-10-22T20:54:52.954Z
+updated: 2024-10-26T18:14:15.750Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccc2e26d3ce88e90362d94bddce20525c4fe01df4bb12548ede3758734516679.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccc2e26d3ce88e90362d94bddce2052
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Dancing Otters and Clever Coyotes | Free Book
-date: 2024-10-23 10:11:14
-updated: 2024-10-26 11:47:33
+date: 2024-10-24T04:47:59.650Z
+updated: 2024-10-27T03:29:01.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/233f854830fe22d10086bf4cbeed3bcfd84f7c248d6dba1b7aeed03eb909506d.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/233f854830fe22d10086bf4cbeed3bc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

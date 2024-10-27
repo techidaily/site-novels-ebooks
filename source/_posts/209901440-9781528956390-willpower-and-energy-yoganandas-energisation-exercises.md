@@ -1,7 +1,7 @@
 ---
 title: "Willpower and Energy: Yogananda's Energisation Exercises | Free Book"
-date: 2024-10-23 10:18:41
-updated: 2024-10-26 11:40:37
+date: 2024-10-20T22:20:21.726Z
+updated: 2024-10-27T02:04:25.110Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/006750206fc41105942ebc6c37e416102a9e80817c08d434f01d84039f6dc835.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/006750206fc41105942ebc6c37e4161
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

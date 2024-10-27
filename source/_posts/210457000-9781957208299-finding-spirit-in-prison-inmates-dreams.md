@@ -1,7 +1,7 @@
 ---
 title: Finding Spirit in Prison Inmates Dreams | Free Book
-date: 2024-10-25 14:41:20
-updated: 2024-10-26 10:52:23
+date: 2024-10-20T22:48:15.638Z
+updated: 2024-10-26T22:17:34.828Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cef7d148748bd12a2052f8c71f5cbccf5861b428027366c6834c1ce76a6ea5b4.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cef7d148748bd12a2052f8c71f5cbcc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

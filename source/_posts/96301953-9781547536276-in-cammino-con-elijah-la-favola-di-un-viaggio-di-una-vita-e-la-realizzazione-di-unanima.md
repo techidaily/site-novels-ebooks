@@ -1,7 +1,7 @@
 ---
 title: In Cammino con Elijah, La favola di un viaggio di una vita e la realizzazione di un’Anima. | Free Book
-date: 2024-10-25 10:48:36
-updated: 2024-10-26 12:56:50
+date: 2024-10-21T17:53:34.514Z
+updated: 2024-10-26T23:20:04.063Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fabb8db3bbe686c55d28e2f10c2addaef70adc7c02a75b28c5ea5ab9099591ed.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fabb8db3bbe686c55d28e2f10c2adda
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

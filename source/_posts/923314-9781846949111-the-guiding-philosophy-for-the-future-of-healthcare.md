@@ -1,7 +1,7 @@
 ---
 title: The Guiding Philosophy for the Future of Healthcare | Free Book
-date: 2024-10-23 15:38:52
-updated: 2024-10-26 12:34:37
+date: 2024-10-22T01:32:19.135Z
+updated: 2024-10-27T00:45:25.993Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/998f200a88c041b83880245aeaa363949bfb2b26cd4c07f6d6c9b83ebacabf39.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/998f200a88c041b83880245aeaa3639
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

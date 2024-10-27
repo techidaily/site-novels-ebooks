@@ -1,7 +1,7 @@
 ---
 title: Akashic Records Seminar Series - Guided Practices - Two Complete Seminars | Free Book
-date: 2024-10-23 19:23:11
-updated: 2024-10-26 12:35:56
+date: 2024-10-23T16:42:36.754Z
+updated: 2024-10-27T00:57:07.213Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/410d02ee9bbc168d44f691a88bef1d20610255f89571e25107e2bce5ae6baf6e.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/410d02ee9bbc168d44f691a88bef1d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

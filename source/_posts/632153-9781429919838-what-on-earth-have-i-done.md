@@ -1,7 +1,7 @@
 ---
 title: What On Earth Have I Done? | Free Book
-date: 2024-10-24 19:13:17
-updated: 2024-10-26 11:33:41
+date: 2024-10-20T21:04:08.325Z
+updated: 2024-10-27T01:09:38.940Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2026053fb3eef0c317c5e76a1d312743a1951fb6a37f3d0ca7809826b6beced.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2026053fb3eef0c317c5e76a1d3127
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

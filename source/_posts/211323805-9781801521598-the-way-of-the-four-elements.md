@@ -1,7 +1,7 @@
 ---
 title: The Way of the Four Elements | Free Book
-date: 2024-10-24 10:32:11
-updated: 2024-10-26 10:58:21
+date: 2024-10-22T01:53:47.975Z
+updated: 2024-10-27T03:28:44.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7e013a9d0ac3d4cbe0c39d4b8baff53c03751f373840c4f76f0767811181ad9.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7e013a9d0ac3d4cbe0c39d4b8baff5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

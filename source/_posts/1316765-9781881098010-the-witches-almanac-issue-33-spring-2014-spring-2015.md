@@ -1,7 +1,7 @@
 ---
 title: "The Witches' Almanac: Issue 33, Spring 2014-Spring 2015 | Free Book"
-date: 2024-10-25 22:21:16
-updated: 2024-10-26 11:52:44
+date: 2024-10-24T18:32:44.264Z
+updated: 2024-10-26T16:47:45.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/892ae3691fe35a0934d09528a2cbc14076ee7e3053a1f4607a17eacce55264a9.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/892ae3691fe35a0934d09528a2cbc14
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

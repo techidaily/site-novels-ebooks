@@ -1,7 +1,7 @@
 ---
 title: Haunted Vancouver, Washington | Free Book
-date: 2024-10-23 15:52:36
-updated: 2024-10-26 11:46:48
+date: 2024-10-23T04:43:06.309Z
+updated: 2024-10-27T02:05:19.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94fa5b6207378d146fa3b07adcd1ebbcb027a288ec232d09f3d46aac99be02ba.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94fa5b6207378d146fa3b07adcd1ebb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

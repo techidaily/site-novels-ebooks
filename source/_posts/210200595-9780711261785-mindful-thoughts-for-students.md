@@ -1,7 +1,7 @@
 ---
 title: Mindful Thoughts for Students | Free Book
-date: 2024-10-25 12:56:57
-updated: 2024-10-26 10:27:54
+date: 2024-10-22T16:23:48.161Z
+updated: 2024-10-26T20:39:59.151Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/68b5f02a3d232d6a37ae52e27d1540173ba21ffd45acb679703b312662a1baa0.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/68b5f02a3d232d6a37ae52e27d15401
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "The Book of Reflection: Simple Steps to Self Discovery | Free Book"
-date: 2024-10-24 20:56:24
-updated: 2024-10-26 12:37:34
+date: 2024-10-24T00:45:59.336Z
+updated: 2024-10-26T19:30:49.943Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/354206e2a7f1a2f5e77dc9e855d88d2e6cf75338a5299bf245dcaa0aaf554df9.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/354206e2a7f1a2f5e77dc9e855d88d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

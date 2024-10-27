@@ -1,7 +1,7 @@
 ---
 title: The Secret History of the World | Free Book
-date: 2024-10-23 10:33:28
-updated: 2024-10-26 11:51:50
+date: 2024-10-23T02:10:32.321Z
+updated: 2024-10-26T19:00:57.338Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f5494f4e70d190ab801b466f3b1372b87a66187aa2a18c832992e33170ef5fa.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f5494f4e70d190ab801b466f3b1372
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

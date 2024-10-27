@@ -1,7 +1,7 @@
 ---
 title: Sayings of the Buddha and Other Masters | Free Book
-date: 2024-10-23 22:30:22
-updated: 2024-10-26 12:13:21
+date: 2024-10-21T23:34:31.231Z
+updated: 2024-10-26T21:36:47.938Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c2c39e7ab19a085df6c48b9c6d62c54b7fd92fc98514afd64264ee7a37987599.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c2c39e7ab19a085df6c48b9c6d62c54
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

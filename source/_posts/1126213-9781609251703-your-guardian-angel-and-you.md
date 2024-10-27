@@ -1,7 +1,7 @@
 ---
 title: Your Guardian Angel and You | Free Book
-date: 2024-10-25 18:53:22
-updated: 2024-10-26 12:37:38
+date: 2024-10-25T19:37:57.687Z
+updated: 2024-10-26T18:33:47.166Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8935f2b91f4096a882f4738860cd107999b037a968a4ddc0562807fde7b6f7e.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8935f2b91f4096a882f4738860cd10
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

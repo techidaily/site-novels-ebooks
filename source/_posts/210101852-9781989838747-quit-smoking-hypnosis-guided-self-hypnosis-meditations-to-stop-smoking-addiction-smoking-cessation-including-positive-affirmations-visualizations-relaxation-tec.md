@@ -1,7 +1,7 @@
 ---
 title: Quit Smoking Hypnosis Guided Self-Hypnosis & Meditations To Stop Smoking Addiction & Smoking Cessation Including Positive Affirmations, Visualizations & Relaxation Techniques | Free Book
-date: 2024-10-25 16:11:36
-updated: 2024-10-26 12:16:20
+date: 2024-10-22T00:36:11.829Z
+updated: 2024-10-26T19:54:26.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59c63a748a1d215b37e9c7593f172835d54a62d61227be108d7faa5a561bd3ca.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59c63a748a1d215b37e9c7593f17283
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

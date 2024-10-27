@@ -1,7 +1,7 @@
 ---
 title: Victory in Apparent Defeat | Free Book
-date: 2024-10-23 20:40:37
-updated: 2024-10-26 10:30:17
+date: 2024-10-19T20:19:18.688Z
+updated: 2024-10-27T03:55:24.487Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b92d25abf72588ef5da7887cef404719202cba44c899672e3fd35f58eb67ec39.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b92d25abf72588ef5da7887cef40471
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

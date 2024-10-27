@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Leo | Free Book
-date: 2024-10-24 14:47:41
-updated: 2024-10-26 10:59:16
+date: 2024-10-19T18:07:33.904Z
+updated: 2024-10-27T04:11:58.341Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/293081ca33ae2a6437db54fe5b54e587b56d67646032b09a169354a2643b36c8.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/293081ca33ae2a6437db54fe5b54e58
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

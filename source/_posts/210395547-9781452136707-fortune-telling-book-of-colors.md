@@ -1,7 +1,7 @@
 ---
 title: Fortune-Telling Book of Colors | Free Book
-date: 2024-10-23 18:29:52
-updated: 2024-10-26 12:11:54
+date: 2024-10-19T17:35:10.242Z
+updated: 2024-10-26T18:25:08.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66de9054fe9fcfece641e5aee9cd05c040be4856ca2f9bc4393723394404f85c.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66de9054fe9fcfece641e5aee9cd05c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

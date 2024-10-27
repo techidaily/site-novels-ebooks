@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of Mother Mary | Free Book
-date: 2024-10-25 15:23:40
-updated: 2024-10-26 12:33:59
+date: 2024-10-23T16:17:48.401Z
+updated: 2024-10-26T16:31:23.018Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f75f996777c3bb1aa970f04a6c0ead919df968b7b78ea1adcf4b09e6249649b.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f75f996777c3bb1aa970f04a6c0ead
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

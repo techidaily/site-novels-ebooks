@@ -1,7 +1,7 @@
 ---
 title: Il libro delle affermazioni | Free Book
-date: 2024-10-25 20:48:16
-updated: 2024-10-26 10:45:22
+date: 2024-10-25T17:13:57.433Z
+updated: 2024-10-27T00:26:06.938Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47be468ba212ca0fe70f10607695bcf33a2603840b3c15c5c3c1f2d6ef174178.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47be468ba212ca0fe70f10607695bcf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

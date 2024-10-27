@@ -1,7 +1,7 @@
 ---
 title: Scientific Feng Shui for the Built Environment | Free Book
-date: 2024-10-23 11:23:27
-updated: 2024-10-26 12:27:50
+date: 2024-10-21T23:53:21.084Z
+updated: 2024-10-27T05:16:55.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c483facf70ac27fc1a42ac8272deda61027737e11e5e68a839970662724da622.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c483facf70ac27fc1a42ac8272deda6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Candle Magic For Beginners | Free Book
-date: 2024-10-23 14:38:10
-updated: 2024-10-26 10:24:33
+date: 2024-10-24T02:21:39.211Z
+updated: 2024-10-26T18:51:07.150Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21886919ad0af91a36071f94b40dac1dea0641d26de80ae9c3341993e87d4c5.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21886919ad0af91a36071f94b40dac
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

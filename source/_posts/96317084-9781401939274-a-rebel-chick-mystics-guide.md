@@ -1,7 +1,7 @@
 ---
 title: A Rebel Chick Mystic's Guide | Free Book
-date: 2024-10-23 21:49:45
-updated: 2024-10-26 11:25:44
+date: 2024-10-20T16:41:48.354Z
+updated: 2024-10-26T17:48:31.860Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e8e9d315281c6430fc9df9254cec13d79363f650186c547c022f2020a27ac66.jpg
@@ -224,3 +224,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e8e9d315281c6430fc9df9254cec13
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

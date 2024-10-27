@@ -1,7 +1,7 @@
 ---
 title: The Incarnation of Ahriman | Free Book
-date: 2024-10-25 22:57:23
-updated: 2024-10-26 11:38:57
+date: 2024-10-21T00:43:28.917Z
+updated: 2024-10-27T01:20:23.124Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cac5b64abc2f883efd605606c49f351f3aff131c0caedc93f88f6b216d2f0e5b.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cac5b64abc2f883efd605606c49f351
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

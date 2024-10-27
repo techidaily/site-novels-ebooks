@@ -1,7 +1,7 @@
 ---
 title: Speaking Against Fear and Limiting Beliefs | Free Book
-date: 2024-10-25 11:36:22
-updated: 2024-10-26 12:21:18
+date: 2024-10-22T05:19:09.460Z
+updated: 2024-10-27T00:25:20.289Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/393f0e4bc2fbf0293fab5aaf992134079b3d8b64aa5c99e944e4d81308551634.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/393f0e4bc2fbf0293fab5aaf9921340
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

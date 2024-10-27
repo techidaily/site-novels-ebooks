@@ -1,7 +1,7 @@
 ---
 title: Masters of the Living Energy (3rd ed.) | Free Book
-date: 2024-10-25 17:16:24
-updated: 2024-10-26 10:25:53
+date: 2024-10-20T04:17:45.147Z
+updated: 2024-10-27T02:26:55.956Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc07f998c2be187351a81e62bb4fa0d225f697620a7e66bf2982fab91d8fdf54.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc07f998c2be187351a81e62bb4fa0d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

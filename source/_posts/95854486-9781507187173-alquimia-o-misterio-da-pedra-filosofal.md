@@ -1,7 +1,7 @@
 ---
 title: Alquimia - O Mistério da Pedra Filosofal | Free Book
-date: 2024-10-25 16:29:23
-updated: 2024-10-26 10:37:59
+date: 2024-10-21T05:06:11.754Z
+updated: 2024-10-26T19:50:56.526Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c64e72d1eb22cd1e1b5c8422761c6cc33821c0164564369747fc24e075f5e9b.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c64e72d1eb22cd1e1b5c8422761c6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

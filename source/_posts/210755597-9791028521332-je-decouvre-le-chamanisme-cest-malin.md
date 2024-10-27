@@ -1,7 +1,7 @@
 ---
 title: Je découvre le chamanisme, c'est malin | Free Book
-date: 2024-10-23 22:37:12
-updated: 2024-10-26 12:58:58
+date: 2024-10-21T04:14:55.507Z
+updated: 2024-10-26T20:34:24.527Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce2a50c5609de180f6bb2e9d92fbf403622ff50f9490dd1e7211b909415ef9ce.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce2a50c5609de180f6bb2e9d92fbf40
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

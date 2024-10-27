@@ -1,7 +1,7 @@
 ---
 title: Poetry for Inspiration, Faith, Truth and  Healing | Free Book
-date: 2024-10-23 18:37:32
-updated: 2024-10-26 11:43:59
+date: 2024-10-22T20:05:51.529Z
+updated: 2024-10-26T23:58:57.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50884d1ac09619f4d864ea2ae0ee353a3a0c1e767afe7d0d26588982e77b4ed3.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50884d1ac09619f4d864ea2ae0ee353
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Meditation Activist's Travel Guide | Free Book
-date: 2024-10-25 13:28:24
-updated: 2024-10-26 12:46:13
+date: 2024-10-21T17:50:58.873Z
+updated: 2024-10-27T03:18:32.454Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d91a31b43ceeeaca139204e636e69da39cb4c0b32a4adb68672619e2aae1ae20.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d91a31b43ceeeaca139204e636e69da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

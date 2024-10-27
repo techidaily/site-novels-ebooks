@@ -1,7 +1,7 @@
 ---
 title: Colonia Espiritual Nuevo Amanecer | Free Book
-date: 2024-10-25 19:52:58
-updated: 2024-10-26 12:56:15
+date: 2024-10-23T20:01:16.212Z
+updated: 2024-10-26T17:21:07.488Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/561c74ecaee7d02ca6eed60250f18e58633998ec2a7f6f32723b68fcde435313.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/561c74ecaee7d02ca6eed60250f18e5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

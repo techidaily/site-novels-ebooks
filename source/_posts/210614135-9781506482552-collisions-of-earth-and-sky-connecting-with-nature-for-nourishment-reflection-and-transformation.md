@@ -1,7 +1,7 @@
 ---
 title: "Collisions of Earth and Sky: Connecting with Nature for Nourishment, Reflection, and Transformation | Free Book"
-date: 2024-10-25 17:25:17
-updated: 2024-10-26 11:53:16
+date: 2024-10-23T16:43:29.295Z
+updated: 2024-10-26T19:12:36.226Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/148ea5f91ab376f528921ff9076a8771cefa34706c68bac7554bdccf017f3203.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/148ea5f91ab376f528921ff9076a877
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

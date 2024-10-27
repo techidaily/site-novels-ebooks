@@ -1,7 +1,7 @@
 ---
 title: Five Years and a Million Tears | Free Book
-date: 2024-10-24 19:54:16
-updated: 2024-10-26 10:45:40
+date: 2024-10-23T19:05:58.868Z
+updated: 2024-10-26T22:50:03.272Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3cacf0a90ba37a9ecb76559a1194cd5bd400330a6f0b9428095b8d78e0867fd.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3cacf0a90ba37a9ecb76559a1194cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

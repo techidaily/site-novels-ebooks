@@ -1,7 +1,7 @@
 ---
 title: "The Life Tailor: The Secret to Making Your Dreams Come True | Free Book"
-date: 2024-10-25 10:26:42
-updated: 2024-10-26 10:55:53
+date: 2024-10-24T17:54:16.865Z
+updated: 2024-10-27T00:27:22.084Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44db497420537884c549aaa0287470acdfb48d00c18742af267034cb5d2e25b3.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44db497420537884c549aaa0287470a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

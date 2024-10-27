@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Meaning of the Sixties | Free Book
-date: 2024-10-25 11:49:16
-updated: 2024-10-26 11:57:12
+date: 2024-10-22T22:56:03.563Z
+updated: 2024-10-27T04:19:14.279Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c691b5046c8e6e8c9fcb535ee6eb33fdca34488c75851711057d46befabe65b.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c691b5046c8e6e8c9fcb535ee6eb33
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

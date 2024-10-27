@@ -1,7 +1,7 @@
 ---
 title: Sacred Codes in Times of Crisis | Free Book
-date: 2024-10-25 20:53:23
-updated: 2024-10-26 12:25:26
+date: 2024-10-24T05:04:58.462Z
+updated: 2024-10-26T16:57:11.873Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac912396e56177c612956e4b25a1cc255a48128ba9e5c5fcf0f1571e18b7818b.jpg
@@ -240,3 +240,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac912396e56177c612956e4b25a1cc2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

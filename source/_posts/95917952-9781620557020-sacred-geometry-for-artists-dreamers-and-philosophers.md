@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry for Artists, Dreamers, and Philosophers | Free Book
-date: 2024-10-25 10:45:27
-updated: 2024-10-26 11:23:59
+date: 2024-10-21T04:20:11.482Z
+updated: 2024-10-26T21:52:02.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aedbe27e147a75b560803579a593c2d0e6c61dd19093619f46cda7f2b6a60f3e.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aedbe27e147a75b560803579a593c2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

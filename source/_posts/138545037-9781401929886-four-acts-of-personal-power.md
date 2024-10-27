@@ -1,7 +1,7 @@
 ---
 title: Four Acts of Personal Power | Free Book
-date: 2024-10-25 16:43:42
-updated: 2024-10-26 10:16:25
+date: 2024-10-25T02:28:55.622Z
+updated: 2024-10-27T01:32:38.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ee3584bef100fae2ff8e3a61533d89ec9b5a2ea8ab63e6f3ecf9d93586ec517.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ee3584bef100fae2ff8e3a61533d89
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

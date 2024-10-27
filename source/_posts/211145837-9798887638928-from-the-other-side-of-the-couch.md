@@ -1,7 +1,7 @@
 ---
 title: From The Other Side Of The Couch | Free Book
-date: 2024-10-24 20:55:20
-updated: 2024-10-26 11:36:25
+date: 2024-10-24T23:05:28.153Z
+updated: 2024-10-26T21:47:41.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3dacd01f8345e27d4435528cc6128d0366c11855b0cac428db1e5e6575a949fe.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3dacd01f8345e27d4435528cc6128d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

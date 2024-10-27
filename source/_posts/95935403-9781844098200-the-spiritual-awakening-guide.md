@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Awakening Guide | Free Book
-date: 2024-10-24 22:17:24
-updated: 2024-10-26 10:31:34
+date: 2024-10-24T03:13:05.014Z
+updated: 2024-10-26T20:36:58.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd308d9cf61121ba22bbdc53c91a4a897339d0a2b707935e93deadc223479eb6.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd308d9cf61121ba22bbdc53c91a4a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

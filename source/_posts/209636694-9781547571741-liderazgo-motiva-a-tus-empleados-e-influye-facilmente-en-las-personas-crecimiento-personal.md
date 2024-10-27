@@ -1,7 +1,7 @@
 ---
 title: "Liderazgo: Motiva a Tus Empleados E Influye Fácilmente en Las Personas (Crecimiento Personal) | Free Book"
-date: 2024-10-23 16:50:17
-updated: 2024-10-26 12:53:26
+date: 2024-10-23T23:23:23.683Z
+updated: 2024-10-26T23:56:46.775Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/821bea4e3730a4db8363f6246857af91e257d696883720825e34eb656c17978f.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/821bea4e3730a4db8363f6246857af9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

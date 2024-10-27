@@ -1,7 +1,7 @@
 ---
 title: Vous aussi, vous êtes magnétiseur ! | Free Book
-date: 2024-10-25 14:21:50
-updated: 2024-10-26 12:41:38
+date: 2024-10-25T20:52:32.912Z
+updated: 2024-10-27T04:57:35.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35f2019e012aa497914af1ba8d3fb43b1df2c88dd94358b40320f28af7093c2d.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35f2019e012aa497914af1ba8d3fb43
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

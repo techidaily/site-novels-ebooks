@@ -1,7 +1,7 @@
 ---
 title: Cómo meditar - Las 8 mejores meditaciones para reducir el estrés | Free Book
-date: 2024-10-24 22:32:12
-updated: 2024-10-26 12:44:53
+date: 2024-10-20T18:00:08.186Z
+updated: 2024-10-26T18:18:04.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b093aec327ff2e39e2c4db3e35bafe972dd99f6b5fe75ca53dd6d974cf5e8fb3.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b093aec327ff2e39e2c4db3e35bafe9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

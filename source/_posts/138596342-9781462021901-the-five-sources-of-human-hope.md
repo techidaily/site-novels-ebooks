@@ -1,7 +1,7 @@
 ---
 title: The Five Sources of Human Hope | Free Book
-date: 2024-10-23 11:12:36
-updated: 2024-10-26 12:43:47
+date: 2024-10-25T18:27:39.699Z
+updated: 2024-10-27T05:10:05.342Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/732f1f658bd1fefd1b5f9ff2ad9692ded0bd593307edf377960fff942079bf35.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/732f1f658bd1fefd1b5f9ff2ad9692d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

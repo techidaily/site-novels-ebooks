@@ -1,7 +1,7 @@
 ---
 title: Healing into Life and Death | Free Book
-date: 2024-10-24 21:55:52
-updated: 2024-10-26 12:43:54
+date: 2024-10-20T00:42:27.634Z
+updated: 2024-10-26T19:58:24.620Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1262683ebed700b5a19a911a5e3b106da878de02a9f0b9a28e6f4ec852d92a1.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1262683ebed700b5a19a911a5e3b10
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

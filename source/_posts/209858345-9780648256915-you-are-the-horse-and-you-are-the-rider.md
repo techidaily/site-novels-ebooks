@@ -1,7 +1,7 @@
 ---
 title: You are the Horse and You are the Rider | Free Book
-date: 2024-10-25 21:10:57
-updated: 2024-10-26 10:12:49
+date: 2024-10-22T19:01:27.942Z
+updated: 2024-10-26T17:55:12.516Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18d0e0099bfe077156ac56c90235e5b11df28a49b2df49ff0b486099394a4aa.jpg
@@ -231,3 +231,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18d0e0099bfe077156ac56c90235e5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: True Heart Intuitive Tarot | Free Book
-date: 2024-10-24 12:48:58
-updated: 2024-10-26 12:30:13
+date: 2024-10-23T22:50:26.345Z
+updated: 2024-10-26T16:19:16.678Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/814265691557cba9ff2977324d9a9f37a0910b706bd7caa901ed804b28a174b6.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/814265691557cba9ff2977324d9a9f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

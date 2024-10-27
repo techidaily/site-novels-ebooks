@@ -1,7 +1,7 @@
 ---
 title: The Healing of Individuals, Families & Nations | Free Book
-date: 2024-10-24 14:57:32
-updated: 2024-10-26 10:39:58
+date: 2024-10-26T00:25:57.215Z
+updated: 2024-10-26T16:28:54.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be01d348746f398d15457d5f40836986239e1d86b8df3e5f7f11e3ba93c3d2d.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be01d348746f398d15457d5f408369
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

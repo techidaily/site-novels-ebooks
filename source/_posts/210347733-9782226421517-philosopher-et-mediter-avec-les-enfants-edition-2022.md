@@ -1,7 +1,7 @@
 ---
 title: Philosopher et méditer avec les enfants (édition 2022) | Free Book
-date: 2024-10-25 20:16:59
-updated: 2024-10-26 10:46:28
+date: 2024-10-26T04:42:26.212Z
+updated: 2024-10-27T01:43:35.048Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/500691ac315fe6f042e6fd602b843e9bd72664c3e2e62a7d4fc2775b680c6539.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/500691ac315fe6f042e6fd602b843e9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

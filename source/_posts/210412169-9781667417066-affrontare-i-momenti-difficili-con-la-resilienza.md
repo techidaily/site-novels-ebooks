@@ -1,7 +1,7 @@
 ---
 title: Affrontare i momenti difficili con la resilienza | Free Book
-date: 2024-10-25 18:17:30
-updated: 2024-10-26 12:58:25
+date: 2024-10-20T22:46:34.353Z
+updated: 2024-10-26T17:24:49.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91c21c8c69f263d249857b1b0933697e305b9d68c4cc431f7ff2b0679e6f5b2d.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91c21c8c69f263d249857b1b0933697
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: SPIRITUAL COLOURS and their meanings - In HOLY GHOST SCHOOL - New English Edition | Free Book
-date: 2024-10-23 12:13:55
-updated: 2024-10-26 10:31:21
+date: 2024-10-22T01:06:06.320Z
+updated: 2024-10-26T18:22:05.120Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a9b28dd49f4a1d587dae47a9b6cf8628228518953a5bb8e23e4f213ea32ce113.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a9b28dd49f4a1d587dae47a9b6cf862
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Sea-Earth Globe and its Monstrous Hypothetical Motions; or Modern Theoretical Astronomy | Free Book
-date: 2024-10-24 21:43:14
-updated: 2024-10-26 12:56:45
+date: 2024-10-21T22:57:34.639Z
+updated: 2024-10-27T02:40:19.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51e0b8ade5b2d7c137f8f956e980bd338d300009937edffe4edd69e5c35dafa3.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51e0b8ade5b2d7c137f8f956e980bd3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

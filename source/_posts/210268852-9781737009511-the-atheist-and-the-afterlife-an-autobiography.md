@@ -1,7 +1,7 @@
 ---
 title: The Atheist and the Afterlife - an Autobiography | Free Book
-date: 2024-10-25 15:55:50
-updated: 2024-10-26 12:27:32
+date: 2024-10-20T17:04:02.374Z
+updated: 2024-10-27T05:50:53.989Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f25f71f8457b7bc537fba8d853333237e98b618835bcd7553d28441f80029994.jpg
@@ -288,3 +288,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f25f71f8457b7bc537fba8d85333323
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

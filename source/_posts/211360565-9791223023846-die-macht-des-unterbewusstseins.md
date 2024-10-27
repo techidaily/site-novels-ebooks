@@ -1,7 +1,7 @@
 ---
 title: Die Macht des Unterbewusstseins | Free Book
-date: 2024-10-24 15:47:41
-updated: 2024-10-26 12:20:57
+date: 2024-10-20T21:48:51.757Z
+updated: 2024-10-26T18:40:21.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b5a58d0d1560660117fecbd71ab9afb12c2c17f74631317b28040b125855dd8.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b5a58d0d1560660117fecbd71ab9af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

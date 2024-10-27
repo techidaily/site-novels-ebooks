@@ -1,7 +1,7 @@
 ---
 title: "My Joy in the Morning: Rising from the Ashes | Free Book"
-date: 2024-10-25 19:59:22
-updated: 2024-10-26 10:48:45
+date: 2024-10-25T22:51:34.527Z
+updated: 2024-10-27T03:03:03.860Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02a00864822b53442facbe8e763fe6531d9838ac8e3363f964820e1549591571.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02a00864822b53442facbe8e763fe65
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

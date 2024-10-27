@@ -1,7 +1,7 @@
 ---
 title: An Introduction to Spirituality | Free Book
-date: 2024-10-23 23:58:34
-updated: 2024-10-26 10:17:11
+date: 2024-10-23T16:23:43.777Z
+updated: 2024-10-26T17:53:49.378Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9047869e12b8a8a10a946aa87f87b48fad5db3579ee616439c797680ce41be03.jpg
@@ -256,3 +256,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9047869e12b8a8a10a946aa87f87b48
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

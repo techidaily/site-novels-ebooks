@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Seja Feliz Na Vida E Livre-se Do Estresse | Free Book"
-date: 2024-10-24 13:16:44
-updated: 2024-10-26 10:54:36
+date: 2024-10-20T05:52:10.875Z
+updated: 2024-10-27T05:27:27.862Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38616bb98c6f741196c4a4daca1df923e96e3f5f9021c0d56d5599e1a9a8ae2d.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38616bb98c6f741196c4a4daca1df92
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

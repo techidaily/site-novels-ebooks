@@ -1,7 +1,7 @@
 ---
 title: Christ Power and Earth Wisdom | Free Book
-date: 2024-10-23 15:47:40
-updated: 2024-10-26 10:31:42
+date: 2024-10-19T16:09:30.444Z
+updated: 2024-10-27T02:35:08.461Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a76831de14ed146527b89c2e8cbc6794a2b58373e0efffade7f62dc5a742be5.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a76831de14ed146527b89c2e8cbc67
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

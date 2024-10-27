@@ -1,7 +1,7 @@
 ---
 title: The Greatest Thing in the World and Other Addresses | Free Book
-date: 2024-10-25 16:47:48
-updated: 2024-10-26 12:53:36
+date: 2024-10-21T03:40:54.556Z
+updated: 2024-10-26T20:16:46.804Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90cee4d977fcd782e3961aa6b18c5a04b179151714fa13c6fb6376cad6f91624.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90cee4d977fcd782e3961aa6b18c5a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret Therapy of Trees | Free Book
-date: 2024-10-23 13:19:47
-updated: 2024-10-26 11:25:42
+date: 2024-10-21T18:30:16.152Z
+updated: 2024-10-27T02:23:04.837Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba867593956c3d189b20f124c753077af8b005bc6bb5b4898b74d80c2640e6e7.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba867593956c3d189b20f124c753077
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

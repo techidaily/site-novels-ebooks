@@ -1,7 +1,7 @@
 ---
 title: Daily Meditations for Healing from Divorce | Free Book
-date: 2024-10-23 15:16:30
-updated: 2024-10-26 11:56:24
+date: 2024-10-19T20:03:48.329Z
+updated: 2024-10-26T20:50:56.321Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3abec8638febd55b881a316db93b579e64e05a1487deea91af14bef62276622e.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3abec8638febd55b881a316db93b579
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

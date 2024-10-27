@@ -1,7 +1,7 @@
 ---
 title: Beowulf's Ecstatic Trance Magic | Free Book
-date: 2024-10-24 22:53:11
-updated: 2024-10-26 12:16:31
+date: 2024-10-23T01:09:14.833Z
+updated: 2024-10-26T17:29:28.495Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acdec43b9d09d7bd58e67c7f79a0cf16497e4016654713fb3b0c1f0dec5c269f.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acdec43b9d09d7bd58e67c7f79a0cf1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

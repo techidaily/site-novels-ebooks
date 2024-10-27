@@ -1,7 +1,7 @@
 ---
 title: Rise Up - with Wings Like Eagles | Free Book
-date: 2024-10-24 20:33:52
-updated: 2024-10-26 10:29:32
+date: 2024-10-23T16:06:35.536Z
+updated: 2024-10-27T02:02:21.947Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0790e09ef523bf367dc0c939a19757f235f569e8af5b1e3f14e6d8d5d1b8b13c.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0790e09ef523bf367dc0c939a19757f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

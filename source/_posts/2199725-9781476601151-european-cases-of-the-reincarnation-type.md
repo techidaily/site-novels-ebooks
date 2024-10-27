@@ -1,7 +1,7 @@
 ---
 title: European Cases of the Reincarnation Type | Free Book
-date: 2024-10-23 20:33:27
-updated: 2024-10-26 12:30:33
+date: 2024-10-19T23:15:35.748Z
+updated: 2024-10-26T19:21:00.054Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b52957f5bbc9d5bd0d73b979d59dd022e7ed915ef69f90fb2db2cacd2e5840b4.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b52957f5bbc9d5bd0d73b979d59dd02
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry in Ancient Goddess Cultures | Free Book
-date: 2024-10-25 15:29:31
-updated: 2024-10-26 10:43:47
+date: 2024-10-24T22:21:34.295Z
+updated: 2024-10-26T21:47:09.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5bdae11208b3303a9deec443d182b6b3bbf110ca1b7b1b884ccc7fbb3d9c0573.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5bdae11208b3303a9deec443d182b6b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

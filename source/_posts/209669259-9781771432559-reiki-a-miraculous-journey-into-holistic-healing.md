@@ -1,7 +1,7 @@
 ---
 title: "Reiki: A Miraculous Journey into Holistic Healing | Free Book"
-date: 2024-10-23 23:21:25
-updated: 2024-10-26 12:16:22
+date: 2024-10-21T17:24:17.614Z
+updated: 2024-10-26T20:48:29.547Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5937f667fe073f2ac898dd2a34af1b6123fef5640e114057be974248b0b03225.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5937f667fe073f2ac898dd2a34af1b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

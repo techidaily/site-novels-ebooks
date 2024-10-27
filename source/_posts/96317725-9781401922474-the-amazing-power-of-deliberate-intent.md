@@ -1,7 +1,7 @@
 ---
 title: The Amazing Power of Deliberate Intent | Free Book
-date: 2024-10-23 15:12:57
-updated: 2024-10-26 10:12:25
+date: 2024-10-19T17:38:40.802Z
+updated: 2024-10-26T19:44:35.894Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/706d7450f385cc823346233a898ef3cb040de8da509e0597b8d54e92589ae4c1.jpg
@@ -257,3 +257,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/706d7450f385cc823346233a898ef3c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

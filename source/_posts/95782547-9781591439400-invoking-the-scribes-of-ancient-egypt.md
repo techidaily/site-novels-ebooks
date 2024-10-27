@@ -1,7 +1,7 @@
 ---
 title: Invoking the Scribes of Ancient Egypt | Free Book
-date: 2024-10-23 16:12:54
-updated: 2024-10-26 10:43:44
+date: 2024-10-22T03:06:45.870Z
+updated: 2024-10-26T22:12:51.144Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/77c0cb1d04bff2cc585c1b2ae1ae799068255055aca96495d6167ccef7e8c05c.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/77c0cb1d04bff2cc585c1b2ae1ae799
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

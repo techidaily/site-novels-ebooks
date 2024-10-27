@@ -1,7 +1,7 @@
 ---
 title: The Lost Worlds of Ancient America | Free Book
-date: 2024-10-24 23:16:45
-updated: 2024-10-26 11:14:21
+date: 2024-10-21T17:56:30.707Z
+updated: 2024-10-26T21:02:13.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72661c44eb7b2ace0a18ff0b2082857092eb3d0666b5a065e4480817866acb0c.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72661c44eb7b2ace0a18ff0b2082857
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

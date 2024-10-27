@@ -1,7 +1,7 @@
 ---
 title: The Philosophy of Natural Magic | Free Book
-date: 2024-10-24 20:20:36
-updated: 2024-10-26 11:51:17
+date: 2024-10-19T22:52:46.782Z
+updated: 2024-10-27T02:32:56.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d2c91e1b3e6dd924c0108036098651da3edd5ce26551f5c21cc4a6d113f2d31.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d2c91e1b3e6dd924c0108036098651
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

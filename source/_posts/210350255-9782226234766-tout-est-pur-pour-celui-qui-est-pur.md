@@ -1,7 +1,7 @@
 ---
 title: \"Tout est pur pour celui qui est pur\" | Free Book
-date: 2024-10-24 21:11:15
-updated: 2024-10-26 11:26:59
+date: 2024-10-21T23:10:21.961Z
+updated: 2024-10-26T21:58:47.214Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42ceeb070d84426a939158ce92b3e07dbdc4009384ea5fa19a93966c8333d755.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42ceeb070d84426a939158ce92b3e07
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

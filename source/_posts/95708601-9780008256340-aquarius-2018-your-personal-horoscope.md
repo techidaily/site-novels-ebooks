@@ -1,7 +1,7 @@
 ---
 title: "Aquarius 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-24 23:36:13
-updated: 2024-10-26 10:15:42
+date: 2024-10-22T21:56:27.868Z
+updated: 2024-10-26T21:13:05.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2aa97309012e0bd10fe5c1efd666f69fd40883b1872f567c6860bb8de1659d0e.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2aa97309012e0bd10fe5c1efd666f69
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

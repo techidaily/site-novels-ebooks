@@ -1,7 +1,7 @@
 ---
 title: Visions, Trips, and Crowded Rooms | Free Book
-date: 2024-10-23 19:46:30
-updated: 2024-10-26 12:34:42
+date: 2024-10-23T18:56:04.886Z
+updated: 2024-10-26T19:22:19.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a27c314d43d51e6635ba01e9931c97d9fa031b44385b62aa49bb32e965e0a90.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a27c314d43d51e6635ba01e9931c97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

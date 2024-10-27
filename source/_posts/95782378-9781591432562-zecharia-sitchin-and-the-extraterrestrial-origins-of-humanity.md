@@ -1,7 +1,7 @@
 ---
 title: Zecharia Sitchin and the Extraterrestrial Origins of Humanity | Free Book
-date: 2024-10-23 19:23:38
-updated: 2024-10-26 11:20:31
+date: 2024-10-24T02:01:16.540Z
+updated: 2024-10-27T02:49:32.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ed7a82598063d92ca14a8b1f2edea9bf11d09cb98d950a2efa0feb815810aac.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ed7a82598063d92ca14a8b1f2edea9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

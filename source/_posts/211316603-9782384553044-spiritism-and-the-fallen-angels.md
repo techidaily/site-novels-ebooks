@@ -1,7 +1,7 @@
 ---
 title: Spiritism and the Fallen Angels | Free Book
-date: 2024-10-23 14:11:59
-updated: 2024-10-26 12:36:56
+date: 2024-10-25T01:46:06.546Z
+updated: 2024-10-26T16:48:10.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b5cd0a017fce0d6a9005c7fee5340619372954a4ca120df4c2dc9aa3af55f97.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b5cd0a017fce0d6a9005c7fee53406
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

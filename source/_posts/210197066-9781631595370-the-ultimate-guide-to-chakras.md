@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Chakras | Free Book
-date: 2024-10-25 11:23:38
-updated: 2024-10-26 10:13:12
+date: 2024-10-26T05:15:41.987Z
+updated: 2024-10-26T18:01:47.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c882663f1ab758969e62e86cfc7cc59c06cabb0f9ebb7a499387d650e94f27a.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c882663f1ab758969e62e86cfc7cc5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

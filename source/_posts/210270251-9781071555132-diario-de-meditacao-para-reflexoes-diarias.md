@@ -1,7 +1,7 @@
 ---
 title: Diário de Meditação para  Reflexões Diárias | Free Book
-date: 2024-10-23 17:49:10
-updated: 2024-10-26 10:30:29
+date: 2024-10-23T01:02:20.466Z
+updated: 2024-10-27T01:35:52.866Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0db7b847c8af34e1bf86dab4bd860a7a251e6957945d395c30f3c34d1d8a2947.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0db7b847c8af34e1bf86dab4bd860a7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

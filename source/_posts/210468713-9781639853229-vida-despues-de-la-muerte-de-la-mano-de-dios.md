@@ -1,7 +1,7 @@
 ---
 title: VIDA DESPUES DE LA MUERTE  DE LA MANO DE DIOS | Free Book
-date: 2024-10-24 21:22:25
-updated: 2024-10-26 10:10:39
+date: 2024-10-23T02:02:00.899Z
+updated: 2024-10-26T21:56:40.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35b84cc7d33f8661cb4a5e89b6d52db24da2176840a471088833f52516062d65.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35b84cc7d33f8661cb4a5e89b6d52db
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

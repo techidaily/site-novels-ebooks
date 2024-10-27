@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of Secret Signs and Symbols | Free Book
-date: 2024-10-23 22:25:52
-updated: 2024-10-26 10:40:28
+date: 2024-10-19T17:25:49.846Z
+updated: 2024-10-26T18:38:12.745Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/690cdfba36c34e474e44407eb913347f10ae0fd324d8909de68c2baa6b096017.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/690cdfba36c34e474e44407eb913347
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

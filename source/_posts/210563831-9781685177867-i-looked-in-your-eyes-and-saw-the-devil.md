@@ -1,7 +1,7 @@
 ---
 title: I Looked in Your Eyes and Saw the Devil | Free Book
-date: 2024-10-23 10:46:23
-updated: 2024-10-26 11:32:16
+date: 2024-10-25T04:17:26.133Z
+updated: 2024-10-26T21:02:21.942Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b29f9ee38d66889a1362506de0e9e4ab6774ae66779dfd0d1339664e6bcaeec.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b29f9ee38d66889a1362506de0e9e4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

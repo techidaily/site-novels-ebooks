@@ -1,7 +1,7 @@
 ---
 title: Clouds of Heaven, Beings of Light | Free Book
-date: 2024-10-24 22:40:32
-updated: 2024-10-26 10:43:47
+date: 2024-10-20T04:55:18.296Z
+updated: 2024-10-26T23:41:37.140Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9011c2c78850a5aae5da945a85404d59b369d325b8f674b68686008bf527b3d0.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9011c2c78850a5aae5da945a85404d5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

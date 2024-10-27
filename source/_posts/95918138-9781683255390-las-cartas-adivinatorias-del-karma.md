@@ -1,7 +1,7 @@
 ---
 title: Las cartas adivinatorias del karma | Free Book
-date: 2024-10-23 21:22:41
-updated: 2024-10-26 12:38:37
+date: 2024-10-23T00:46:39.615Z
+updated: 2024-10-26T16:32:02.394Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79201849da999e65541e56013ef5ac17c229842fe342341435192ebd860072ea.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79201849da999e65541e56013ef5ac1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

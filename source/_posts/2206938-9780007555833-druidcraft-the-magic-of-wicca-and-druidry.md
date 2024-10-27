@@ -1,7 +1,7 @@
 ---
 title: "Druidcraft: The Magic of Wicca and Druidry | Free Book"
-date: 2024-10-24 22:49:34
-updated: 2024-10-26 12:13:37
+date: 2024-10-26T05:06:00.529Z
+updated: 2024-10-26T18:41:41.904Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b10ba40c234289107abde43d29b9f029098163e83da6a14b811c341c8baffcbb.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b10ba40c234289107abde43d29b9f02
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

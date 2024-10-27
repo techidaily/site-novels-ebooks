@@ -1,7 +1,7 @@
 ---
 title: Messages from the Masters | Free Book
-date: 2024-10-23 15:50:53
-updated: 2024-10-26 11:56:12
+date: 2024-10-21T21:28:50.312Z
+updated: 2024-10-27T03:31:43.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b44cfb46a3406ce6a9973ed50b3795eb39aad62c357ab1cfd8002d1012e677c.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b44cfb46a3406ce6a9973ed50b3795
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

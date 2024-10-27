@@ -1,7 +1,7 @@
 ---
 title: Inspired Meditations Book III | Free Book
-date: 2024-10-24 23:52:37
-updated: 2024-10-26 11:50:17
+date: 2024-10-22T16:22:43.405Z
+updated: 2024-10-27T01:28:05.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43f197b15f52a35e9b240bdd9d82d174e396855cbc17e7fe620e1d86dcccf546.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43f197b15f52a35e9b240bdd9d82d17
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

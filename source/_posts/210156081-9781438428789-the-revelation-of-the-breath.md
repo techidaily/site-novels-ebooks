@@ -1,7 +1,7 @@
 ---
 title: The Revelation of the Breath | Free Book
-date: 2024-10-23 13:25:10
-updated: 2024-10-26 12:14:12
+date: 2024-10-23T04:42:34.065Z
+updated: 2024-10-26T16:36:04.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/af61f094da2f7f194a62da535a7bfc854eafc59189ea982302dd84eb2a3b663d.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/af61f094da2f7f194a62da535a7bfc8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

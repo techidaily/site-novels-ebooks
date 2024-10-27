@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Sacred Stones | Free Book
-date: 2024-10-23 10:18:32
-updated: 2024-10-26 10:32:18
+date: 2024-10-23T22:15:35.025Z
+updated: 2024-10-27T01:13:51.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c2342d3f9628aa1746820b2356f8531168276.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c234
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

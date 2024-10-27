@@ -1,7 +1,7 @@
 ---
 title: Estimated Time of Departure | Free Book
-date: 2024-10-23 19:45:22
-updated: 2024-10-26 11:57:21
+date: 2024-10-24T19:05:13.051Z
+updated: 2024-10-27T05:37:24.188Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0698a8f19265a30a554eea6c15831da64b69855c53453d09ca1a11f91ddd3c4a.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0698a8f19265a30a554eea6c15831da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

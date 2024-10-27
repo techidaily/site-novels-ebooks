@@ -1,7 +1,7 @@
 ---
 title: Lessons from the Twelve Archangels | Free Book
-date: 2024-10-24 10:25:26
-updated: 2024-10-26 10:45:40
+date: 2024-10-25T02:11:12.949Z
+updated: 2024-10-26T16:41:41.090Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82793d83013b1dc8a3debff10a3fe53f556b3d7867056c4f2905180ca494eb0b.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82793d83013b1dc8a3debff10a3fe53
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

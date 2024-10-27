@@ -1,7 +1,7 @@
 ---
 title: Stellar Sativas and Cosmic Indicas | Free Book
-date: 2024-10-23 22:25:13
-updated: 2024-10-26 12:23:10
+date: 2024-10-25T05:19:12.304Z
+updated: 2024-10-27T04:10:56.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e268f487f0e58ca8681d1b42b2f0cbacefdeb7009b5a7e34ebb7394022cb456.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e268f487f0e58ca8681d1b42b2f0cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

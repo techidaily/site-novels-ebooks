@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales of Michigan (2nd ed.) | Free Book
-date: 2024-10-25 13:47:47
-updated: 2024-10-26 10:30:34
+date: 2024-10-21T23:49:43.455Z
+updated: 2024-10-26T17:20:50.166Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b40695abe0f1ec2dc19f28e98c522115aabf79b6b72c6d71e1e4925b3d3f9661.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b40695abe0f1ec2dc19f28e98c52211
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

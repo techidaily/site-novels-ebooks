@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Creative Visualization | Free Book
-date: 2024-10-24 13:28:36
-updated: 2024-10-26 11:35:54
+date: 2024-10-25T22:33:54.928Z
+updated: 2024-10-26T19:04:00.826Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3839f6d1f6c00a9e7dac953b00a227acd650a07442bbb342e10a9532742f0812.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3839f6d1f6c00a9e7dac953b00a227a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Karma of Anthroposophy | Free Book
-date: 2024-10-23 17:24:43
-updated: 2024-10-26 11:37:33
+date: 2024-10-19T18:25:38.305Z
+updated: 2024-10-26T20:57:34.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ef27de467016d405cdbc16b91d78562287cbad304ef3127c0ce5729f56cf2bb.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ef27de467016d405cdbc16b91d7856
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Practical Zen for Health, Wealth and Mindfulness | Free Book
-date: 2024-10-24 14:21:45
-updated: 2024-10-26 12:15:14
+date: 2024-10-19T20:05:13.290Z
+updated: 2024-10-27T01:38:58.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80bbafd3619a605ef94d78236a1a79d4066e78e36d6272e2fb3df0c9446e7ed8.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80bbafd3619a605ef94d78236a1a79d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

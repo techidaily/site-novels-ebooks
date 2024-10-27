@@ -1,7 +1,7 @@
 ---
 title: "Moving Beyond the Christian Myth: The Next Step in Our Spiritual Evolution | Free Book"
-date: 2024-10-23 18:41:10
-updated: 2024-10-26 12:53:49
+date: 2024-10-23T00:39:18.596Z
+updated: 2024-10-26T20:54:56.287Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9036aced120e9640df88729f3104d885709eddf1f22fb6df792cf572e7274ecc.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9036aced120e9640df88729f3104d88
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

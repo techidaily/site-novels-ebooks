@@ -1,7 +1,7 @@
 ---
 title: "Unwavering Focus: Journey to Excellence through Philippians 3 | Free Book"
-date: 2024-10-24 15:19:24
-updated: 2024-10-26 12:31:43
+date: 2024-10-25T18:53:04.240Z
+updated: 2024-10-26T16:12:21.505Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/86563246f8ab113148be4977d8d714d02382435ffe9a4eb5a91c5d54243f1295.jpg
@@ -208,3 +208,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/86563246f8ab113148be4977d8d714d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

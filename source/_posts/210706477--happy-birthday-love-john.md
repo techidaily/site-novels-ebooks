@@ -1,7 +1,7 @@
 ---
 title: Happy Birthday-Love, John | Free Book
-date: 2024-10-23 13:31:35
-updated: 2024-10-26 12:34:28
+date: 2024-10-26T00:54:39.330Z
+updated: 2024-10-26T20:46:42.153Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/25e4ab51ef1873f867b05be7f7cf3f22f79c6ee721216860df125e6aa237223e.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25e4ab51ef1873f867b05be7f7cf3f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

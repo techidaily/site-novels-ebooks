@@ -1,7 +1,7 @@
 ---
 title: "Numbers and You: A Numerology Guide for Everyday Living | Free Book"
-date: 2024-10-24 14:22:51
-updated: 2024-10-26 11:21:36
+date: 2024-10-20T16:36:55.527Z
+updated: 2024-10-26T21:35:57.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3200c01530140985313e8416f7f02d4bfe12799ffae0a1fc814b34b0a3fc174a.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3200c01530140985313e8416f7f02d4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

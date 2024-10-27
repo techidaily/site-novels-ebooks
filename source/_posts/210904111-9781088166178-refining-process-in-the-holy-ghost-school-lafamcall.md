@@ -1,7 +1,7 @@
 ---
 title: REFINING PROCESS IN THE HOLY GHOST SCHOOL  - LaFAMCALL | Free Book
-date: 2024-10-24 15:57:28
-updated: 2024-10-26 12:33:46
+date: 2024-10-22T02:34:46.347Z
+updated: 2024-10-26T21:55:50.492Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/092db967b3b2bfa483ac787fe200ec95f275e95cda40ca516bb4388e05d5a213.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/092db967b3b2bfa483ac787fe200ec9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

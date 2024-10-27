@@ -1,7 +1,7 @@
 ---
 title: Mindful Moments | Free Book
-date: 2024-10-25 19:42:23
-updated: 2024-10-26 11:21:54
+date: 2024-10-22T23:56:46.922Z
+updated: 2024-10-26T22:06:43.670Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9b60192b68811fd558ab02563ee9fac6ed983dc427a837f730bb5a5ed5441ea.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9b60192b68811fd558ab02563ee9fa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Possession - Demoniacal and Other | Free Book
-date: 2024-10-24 14:27:14
-updated: 2024-10-26 11:16:44
+date: 2024-10-23T20:51:30.347Z
+updated: 2024-10-26T18:49:41.720Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a98b131d8a4dedbb21b123cf29025879a50416b7f341256bcdd6ca3add49d2c6.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a98b131d8a4dedbb21b123cf2902587
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Manifesting | Free Book
-date: 2024-10-25 22:49:54
-updated: 2024-10-26 11:54:38
+date: 2024-10-24T00:26:48.949Z
+updated: 2024-10-26T21:01:34.845Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d001d99a920b71471f7ea4769042042ed58e0e5a4935966c8453f9681de4843.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d001d99a920b71471f7ea476904204
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

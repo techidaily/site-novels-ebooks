@@ -1,7 +1,7 @@
 ---
 title: Past Reality Integration | Free Book
-date: 2024-10-24 12:14:43
-updated: 2024-10-26 12:42:43
+date: 2024-10-21T22:48:57.436Z
+updated: 2024-10-26T17:46:55.995Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f14cd2d0a41078590bfe2f98a3befab887cbc8fd6b585d8e83856b435556718b.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f14cd2d0a41078590bfe2f98a3befab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

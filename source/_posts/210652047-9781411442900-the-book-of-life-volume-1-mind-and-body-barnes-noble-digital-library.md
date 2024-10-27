@@ -1,7 +1,7 @@
 ---
 title: "The Book of Life : Volume 1, Mind and Body (Barnes & Noble Digital Library) | Free Book"
-date: 2024-10-23 13:26:47
-updated: 2024-10-26 12:42:57
+date: 2024-10-23T21:43:23.504Z
+updated: 2024-10-26T16:08:01.922Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b16131a6d1bef441907a4de1fa8c7421c73219de5530c0baec5f1e2d6ea62529.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b16131a6d1bef441907a4de1fa8c742
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

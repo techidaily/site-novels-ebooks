@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2017: Your Personal Horoscope | Free Book"
-date: 2024-10-23 11:27:15
-updated: 2024-10-26 12:24:25
+date: 2024-10-22T00:52:37.263Z
+updated: 2024-10-26T21:33:25.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df47737af188d94ae872811bcf15dfa1cf576c3325c7533daeef7298b62824cb.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df47737af188d94ae872811bcf15dfa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

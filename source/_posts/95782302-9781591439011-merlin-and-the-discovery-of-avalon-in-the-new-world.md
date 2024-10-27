@@ -1,7 +1,7 @@
 ---
 title: Merlin and the Discovery of Avalon in the New World | Free Book
-date: 2024-10-24 15:35:56
-updated: 2024-10-26 12:34:46
+date: 2024-10-21T23:36:59.897Z
+updated: 2024-10-26T18:32:09.268Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ac5758a0024925b7e40e552a23df27a71d7a15eb84f86c27a3be3b959882138.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ac5758a0024925b7e40e552a23df27
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

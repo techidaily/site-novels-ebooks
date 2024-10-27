@@ -1,7 +1,7 @@
 ---
 title: The Everyday Ayurveda Cookbook | Free Book
-date: 2024-10-23 10:47:48
-updated: 2024-10-26 11:53:34
+date: 2024-10-19T18:56:54.428Z
+updated: 2024-10-26T17:31:48.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b98692bc8924442b90b643e20014854097c6484ab74e094d10db1870fb8f7de.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b98692bc8924442b90b643e2001485
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

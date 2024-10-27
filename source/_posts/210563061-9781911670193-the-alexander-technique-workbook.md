@@ -1,7 +1,7 @@
 ---
 title: The Alexander Technique Workbook | Free Book
-date: 2024-10-24 13:15:29
-updated: 2024-10-26 10:37:40
+date: 2024-10-22T22:20:51.343Z
+updated: 2024-10-26T17:34:17.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1ea4ef6a938fa90eb2a372cea9ae40f9a7fba0b92807c9be7ff3443558e5a02.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1ea4ef6a938fa90eb2a372cea9ae40
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

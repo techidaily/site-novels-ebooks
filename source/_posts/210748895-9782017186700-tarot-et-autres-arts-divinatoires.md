@@ -1,7 +1,7 @@
 ---
 title: Tarot et autres arts divinatoires | Free Book
-date: 2024-10-24 16:34:29
-updated: 2024-10-26 11:34:43
+date: 2024-10-24T05:02:59.811Z
+updated: 2024-10-27T02:40:13.454Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f82d9882563e57286a895076d38473c5a333792eafdbecf08fbc8d7e414d8014.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f82d9882563e57286a895076d38473c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

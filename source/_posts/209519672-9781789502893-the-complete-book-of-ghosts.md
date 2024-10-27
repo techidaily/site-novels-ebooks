@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Ghosts | Free Book
-date: 2024-10-25 16:52:34
-updated: 2024-10-26 12:41:16
+date: 2024-10-20T03:31:31.875Z
+updated: 2024-10-27T01:37:33.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c7529dd0d0e40eb9021f7b63f339378a6b9ae50f5c9e1f1284469ba19efae79.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c7529dd0d0e40eb9021f7b63f33937
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

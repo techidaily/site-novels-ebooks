@@ -1,7 +1,7 @@
 ---
 title: Medieval Heresy and the Inquisition | Free Book
-date: 2024-10-24 23:33:22
-updated: 2024-10-26 11:44:19
+date: 2024-10-26T03:52:03.184Z
+updated: 2024-10-27T00:51:36.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8463b4398cdb37819afaa11eeca64cdc36912872e68292b1cf067bc24d788399.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8463b4398cdb37819afaa11eeca64cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

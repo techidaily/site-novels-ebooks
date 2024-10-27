@@ -1,7 +1,7 @@
 ---
 title: A Guiding Light To The Future | Free Book
-date: 2024-10-25 14:40:28
-updated: 2024-10-26 12:33:32
+date: 2024-10-24T04:09:18.482Z
+updated: 2024-10-26T17:26:50.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa1220a4f5417086a43b1b567277fb6cf8a07b1519591c2a333ad6e7ff34d381.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa1220a4f5417086a43b1b567277fb6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

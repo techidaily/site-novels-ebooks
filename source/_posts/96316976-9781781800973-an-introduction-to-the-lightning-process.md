@@ -1,7 +1,7 @@
 ---
 title: An Introduction to the Lightning Process | Free Book
-date: 2024-10-23 17:51:19
-updated: 2024-10-26 12:28:15
+date: 2024-10-21T22:19:09.705Z
+updated: 2024-10-27T00:50:11.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4697a3be4289e7547c2b12655c17f88c5901432b55fee35f38efb60bd8d43a90.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4697a3be4289e7547c2b12655c17f88
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

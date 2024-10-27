@@ -1,7 +1,7 @@
 ---
 title: The Six Archetypes of Love | Free Book
-date: 2024-10-24 14:35:29
-updated: 2024-10-26 12:57:42
+date: 2024-10-19T21:12:50.403Z
+updated: 2024-10-27T02:30:53.870Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da50de09bd697e244998b525996e47e3432fa1aacf3db7bf10982b841beb05e7.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da50de09bd697e244998b525996e47e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

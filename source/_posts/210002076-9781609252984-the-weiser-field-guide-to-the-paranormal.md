@@ -1,7 +1,7 @@
 ---
 title: The Weiser Field Guide to the Paranormal | Free Book
-date: 2024-10-23 16:59:24
-updated: 2024-10-26 10:50:42
+date: 2024-10-21T04:29:24.369Z
+updated: 2024-10-26T19:29:45.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac1ea49602c6fe828927611d646bb3425799ecd2b06f7e125cf97044b57c1260.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac1ea49602c6fe828927611d646bb34
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

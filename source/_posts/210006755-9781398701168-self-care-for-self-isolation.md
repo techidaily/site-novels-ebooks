@@ -1,7 +1,7 @@
 ---
 title: Self-Care for Self-Isolation | Free Book
-date: 2024-10-24 19:44:56
-updated: 2024-10-26 10:15:18
+date: 2024-10-25T22:39:42.554Z
+updated: 2024-10-27T02:39:32.077Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6be469322b627b884b3a7774199b60b1d9263c9451c8a5df4aadeeeec258c870.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6be469322b627b884b3a7774199b60b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

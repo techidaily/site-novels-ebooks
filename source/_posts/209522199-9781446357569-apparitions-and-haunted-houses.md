@@ -1,7 +1,7 @@
 ---
 title: Apparitions and Haunted Houses | Free Book
-date: 2024-10-24 11:29:49
-updated: 2024-10-26 12:57:52
+date: 2024-10-25T05:15:53.711Z
+updated: 2024-10-27T02:09:18.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84a969388c01edaf5b78f5e46f08d0b16679eea84f1f275fd771fafc88aca1fe.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84a969388c01edaf5b78f5e46f08d0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

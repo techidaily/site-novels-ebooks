@@ -1,7 +1,7 @@
 ---
 title: The Seeker and The Teacher of Light | Free Book
-date: 2024-10-25 23:52:33
-updated: 2024-10-26 11:50:21
+date: 2024-10-21T22:27:20.665Z
+updated: 2024-10-27T02:06:11.474Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b05ac69472aa76f99f0d52e45e140704ca50475a375290a4ea7678fa662bbe74.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b05ac69472aa76f99f0d52e45e14070
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

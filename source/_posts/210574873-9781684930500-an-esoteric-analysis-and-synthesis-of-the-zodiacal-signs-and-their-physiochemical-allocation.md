@@ -1,7 +1,7 @@
 ---
 title: An Esoteric Analysis and Synthesis of the Zodiacal Signs and Their Physiochemical Allocation | Free Book
-date: 2024-10-24 16:19:59
-updated: 2024-10-26 10:21:37
+date: 2024-10-26T05:21:45.480Z
+updated: 2024-10-27T04:56:06.840Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/939093a29e560eb573913e01ab51b3d7107598aefb2540ad87bf51674915bd81.jpg
@@ -209,3 +209,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/939093a29e560eb573913e01ab51b3d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

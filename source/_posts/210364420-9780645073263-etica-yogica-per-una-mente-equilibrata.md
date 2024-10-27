@@ -1,7 +1,7 @@
 ---
 title: Etica Yogica per Una Mente Equilibrata | Free Book
-date: 2024-10-23 13:41:39
-updated: 2024-10-26 11:58:51
+date: 2024-10-25T03:12:07.014Z
+updated: 2024-10-26T18:19:54.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e6ee68b509112fc6efd57267d05872ae465f64a17a6a7a2d1e3b42fddaaa8f2.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e6ee68b509112fc6efd57267d05872
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

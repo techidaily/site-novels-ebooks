@@ -1,7 +1,7 @@
 ---
 title: The Way of the Fertile Soul | Free Book
-date: 2024-10-24 10:31:41
-updated: 2024-10-26 11:39:59
+date: 2024-10-23T20:20:27.128Z
+updated: 2024-10-27T05:39:23.740Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/370a9b9ed43d148ef2ae087c91c2d2dc76fb5881b608d410bbb25f82bf346a83.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/370a9b9ed43d148ef2ae087c91c2d2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

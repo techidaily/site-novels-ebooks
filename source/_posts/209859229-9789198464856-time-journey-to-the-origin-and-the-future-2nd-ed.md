@@ -1,7 +1,7 @@
 ---
 title: Time Journey to the Origin and the Future (2nd ed.) | Free Book
-date: 2024-10-24 18:14:15
-updated: 2024-10-26 11:37:37
+date: 2024-10-24T04:53:56.170Z
+updated: 2024-10-27T02:43:22.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a8e3d807fed455c3f9e04ca695df8c9ba8f92b224d1db9b09342f119a5a40ef.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a8e3d807fed455c3f9e04ca695df8c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

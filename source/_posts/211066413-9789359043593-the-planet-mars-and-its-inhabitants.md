@@ -1,7 +1,7 @@
 ---
 title: The Planet Mars And Its Inhabitants | Free Book
-date: 2024-10-24 18:42:42
-updated: 2024-10-26 12:37:26
+date: 2024-10-25T02:25:58.426Z
+updated: 2024-10-26T16:01:52.454Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7508115dd3e3bc9e995d885abf3121dcaf4b7ea29df24e611e8fe349e7d142af.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7508115dd3e3bc9e995d885abf3121d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

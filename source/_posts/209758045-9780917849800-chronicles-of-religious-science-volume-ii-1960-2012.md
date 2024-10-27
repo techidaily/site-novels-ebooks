@@ -1,7 +1,7 @@
 ---
 title: Chronicles of Religious Science, Volume II,  1960-2012 | Free Book
-date: 2024-10-24 22:43:57
-updated: 2024-10-26 12:15:35
+date: 2024-10-21T16:58:34.673Z
+updated: 2024-10-26T21:51:59.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09cfea73a6e3128dff1858dac889a7eddf48b9f5cc1db5e7e9342d57c2cfbc6f.jpg
@@ -241,3 +241,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09cfea73a6e3128dff1858dac889a7e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

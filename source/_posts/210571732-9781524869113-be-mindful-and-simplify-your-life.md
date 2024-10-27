@@ -1,7 +1,7 @@
 ---
 title: Be Mindful and Simplify Your Life | Free Book
-date: 2024-10-23 12:15:15
-updated: 2024-10-26 12:30:31
+date: 2024-10-23T18:16:25.257Z
+updated: 2024-10-26T18:54:45.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bfce2af9b86cf6e5ce2ad7f4162acd3adfd36fd10d490cc079a8995cc03606b.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bfce2af9b86cf6e5ce2ad7f4162acd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

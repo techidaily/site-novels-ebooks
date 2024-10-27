@@ -1,7 +1,7 @@
 ---
 title: Awaken to Unconditional Love | Free Book
-date: 2024-10-24 12:16:33
-updated: 2024-10-26 11:45:56
+date: 2024-10-19T17:40:58.023Z
+updated: 2024-10-26T16:56:56.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b1b162660ece06cd1da8e36e9347669eec2a65730224c6f444200466d1f8cbc.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b1b162660ece06cd1da8e36e934766
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

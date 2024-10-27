@@ -1,7 +1,7 @@
 ---
 title: Tarô Arcanos Menores, seus significados sem necessidade de memorizar | Free Book
-date: 2024-10-23 21:13:41
-updated: 2024-10-26 11:24:46
+date: 2024-10-23T20:40:54.757Z
+updated: 2024-10-26T22:43:39.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/402248116dfbfc51141ab63c17e31d346c8d2d8c1bbd0dc5f6dd5dd88a7e29e9.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/402248116dfbfc51141ab63c17e31d3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

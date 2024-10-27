@@ -1,7 +1,7 @@
 ---
 title: Meditación. Técnicas Para Mejorar El Sueño (Mindfulness Para Principiantes). | Free Book
-date: 2024-10-25 13:22:41
-updated: 2024-10-26 11:51:45
+date: 2024-10-22T05:46:51.459Z
+updated: 2024-10-26T19:44:41.858Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e4ae6d1cae55cdf01994ad5e23e92e7a2facb21c96421822e9578545410fd04e.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e4ae6d1cae55cdf01994ad5e23e92e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

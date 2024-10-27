@@ -1,7 +1,7 @@
 ---
 title: Gracious Ghosts of Cheyenne | Free Book
-date: 2024-10-25 14:56:51
-updated: 2024-10-26 10:42:16
+date: 2024-10-24T05:59:27.472Z
+updated: 2024-10-27T01:30:12.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f35683035a75c8abc2ba53c7d20e79044bbdc6ab82bb0abac25ca9756618474.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f35683035a75c8abc2ba53c7d20e79
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

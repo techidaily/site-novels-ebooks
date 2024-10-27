@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Cancer | Free Book
-date: 2024-10-25 14:26:36
-updated: 2024-10-26 12:30:56
+date: 2024-10-23T01:42:06.313Z
+updated: 2024-10-26T16:24:07.840Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09b6a05434ba2724f8540d90eeb65d75e19e44cfc1207987db7481310c643e5d.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09b6a05434ba2724f8540d90eeb65d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

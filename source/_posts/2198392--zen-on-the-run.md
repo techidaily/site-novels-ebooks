@@ -1,7 +1,7 @@
 ---
 title: Zen on the Run | Free Book
-date: 2024-10-25 23:22:50
-updated: 2024-10-26 11:56:39
+date: 2024-10-20T02:51:31.063Z
+updated: 2024-10-26T21:47:19.153Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d104dec7cf7388acf9163d346208689ed4a930e46db16ffc6cb406f724182e8.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d104dec7cf7388acf9163d34620868
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

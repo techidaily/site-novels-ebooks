@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wellness for Life | Free Book
-date: 2024-10-24 18:24:15
-updated: 2024-10-26 11:43:39
+date: 2024-10-25T00:09:49.729Z
+updated: 2024-10-26T19:11:42.313Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66e1a5f3ee77060e604ebb95f265f67162e3221d69ab3df43c22e35d9307ec5b.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66e1a5f3ee77060e604ebb95f265f67
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

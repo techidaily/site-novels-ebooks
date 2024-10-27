@@ -1,7 +1,7 @@
 ---
 title: "MY TIME: Keeping The Light Shining | Free Book"
-date: 2024-10-25 22:36:23
-updated: 2024-10-26 10:48:36
+date: 2024-10-24T18:08:04.698Z
+updated: 2024-10-27T04:19:15.646Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/daa5aa3afee6568ab8e421c0742ab3c9c97da4790d65ce3cacef0caea9b59858.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/daa5aa3afee6568ab8e421c0742ab3c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

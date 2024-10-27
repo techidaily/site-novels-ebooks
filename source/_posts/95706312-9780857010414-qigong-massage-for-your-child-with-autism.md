@@ -1,7 +1,7 @@
 ---
 title: Qigong Massage for Your Child with Autism | Free Book
-date: 2024-10-25 19:11:49
-updated: 2024-10-26 12:42:57
+date: 2024-10-20T00:00:02.100Z
+updated: 2024-10-27T03:28:47.724Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1aa14674f717c6fb793b82aacd5ac4f863331c09d09331b2e20fa1e0cd48440e.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1aa14674f717c6fb793b82aacd5ac4f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

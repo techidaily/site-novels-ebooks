@@ -1,7 +1,7 @@
 ---
 title: Reflexiones sobre la naturaleza y el universo | Free Book
-date: 2024-10-25 12:43:44
-updated: 2024-10-26 11:16:16
+date: 2024-10-22T01:44:45.939Z
+updated: 2024-10-26T16:58:15.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92f40c54ae10f053e8de729001475c6761fbbfb3b2d3c09eb8f2a098f5dabbfa.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92f40c54ae10f053e8de729001475c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

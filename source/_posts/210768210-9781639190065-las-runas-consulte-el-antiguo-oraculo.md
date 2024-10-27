@@ -1,7 +1,7 @@
 ---
 title: Las Runas. Consulte el antiguo oráculo | Free Book
-date: 2024-10-25 14:27:31
-updated: 2024-10-26 12:15:57
+date: 2024-10-25T00:48:40.169Z
+updated: 2024-10-26T16:58:57.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fd015d46aa025430f28d0186014b9533b89c8bf2037810547bd13c7b637a85a.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fd015d46aa025430f28d0186014b95
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

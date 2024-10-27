@@ -1,7 +1,7 @@
 ---
 title: Sacred Trickery and the Way of Kindness | Free Book
-date: 2024-10-24 21:12:22
-updated: 2024-10-26 10:24:21
+date: 2024-10-22T04:55:04.432Z
+updated: 2024-10-26T20:03:21.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea276488b756d19850da0d86b0ab95edd05d566497d4a2342f6d65596c3afabc.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea276488b756d19850da0d86b0ab95e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

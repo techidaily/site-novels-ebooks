@@ -1,7 +1,7 @@
 ---
 title: The Gospel of John in the Light of Indian Mysticism (3rd ed.) | Free Book
-date: 2024-10-23 13:17:11
-updated: 2024-10-26 10:40:50
+date: 2024-10-20T01:27:33.923Z
+updated: 2024-10-26T17:22:20.743Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d4ad4450cf5900a85fdc42d10996885a1e3bfee26ec213a35350734d66ead04.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d4ad4450cf5900a85fdc42d1099688
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

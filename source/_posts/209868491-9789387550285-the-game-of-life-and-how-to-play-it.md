@@ -1,7 +1,7 @@
 ---
 title: The Game of Life and How to Play It | Free Book
-date: 2024-10-24 15:40:21
-updated: 2024-10-26 11:36:26
+date: 2024-10-19T20:41:24.983Z
+updated: 2024-10-27T02:31:10.123Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b6c6717c0e6a01d9bfcc8afa793fb587e82ff90594953468013bfa2b4aac710a.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b6c6717c0e6a01d9bfcc8afa793fb58
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

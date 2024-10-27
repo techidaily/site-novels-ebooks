@@ -1,7 +1,7 @@
 ---
 title: The Seven Secrets to Healthy, Happy Relationships | Free Book
-date: 2024-10-23 10:32:54
-updated: 2024-10-26 10:42:25
+date: 2024-10-23T23:47:51.545Z
+updated: 2024-10-26T23:35:49.664Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21502fa32d01487da0fdd176ed3c05a47d8a6ca6e56fc330deb1d21ca32df109.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21502fa32d01487da0fdd176ed3c05a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

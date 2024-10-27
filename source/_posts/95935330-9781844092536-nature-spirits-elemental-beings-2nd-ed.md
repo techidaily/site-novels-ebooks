@@ -1,7 +1,7 @@
 ---
 title: Nature Spirits & Elemental Beings (2nd ed.) | Free Book
-date: 2024-10-24 14:58:51
-updated: 2024-10-26 12:10:56
+date: 2024-10-20T01:27:46.480Z
+updated: 2024-10-27T01:02:35.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9eff09fef0ef5a83f51856dd1c9e12734f25b3f8be1dd3ec2a9de0a50e9333f.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9eff09fef0ef5a83f51856dd1c9e12
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Book of Dreams and Ghosts | Free Book
-date: 2024-10-24 16:22:37
-updated: 2024-10-26 12:46:55
+date: 2024-10-23T20:29:44.205Z
+updated: 2024-10-27T03:31:27.673Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe42a0f76a37f93d01f5ba1e4e7da37b3701b0058e0f56866006d91982e87737.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe42a0f76a37f93d01f5ba1e4e7da37
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

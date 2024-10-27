@@ -1,7 +1,7 @@
 ---
 title: Volume Iii     Clinical and Medical Hypnotherapy | Free Book
-date: 2024-10-23 16:12:21
-updated: 2024-10-26 10:21:43
+date: 2024-10-20T01:35:19.473Z
+updated: 2024-10-26T20:06:17.987Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95ca40116291435bdce18cf1c2f14b2a6a5c23ee77bb7e78bdaaef5b09a3ad95.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95ca40116291435bdce18cf1c2f14b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

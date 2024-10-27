@@ -1,7 +1,7 @@
 ---
 title: HASTH REKHA VIGYAN (Hindi) | Free Book
-date: 2024-10-24 20:57:15
-updated: 2024-10-26 12:45:41
+date: 2024-10-22T23:18:43.412Z
+updated: 2024-10-26T19:08:51.011Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6b26eae0f4a6a01d1fb8bbf93caf2237438fa2c90342938e48a6a96fb4c13ed.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6b26eae0f4a6a01d1fb8bbf93caf22
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

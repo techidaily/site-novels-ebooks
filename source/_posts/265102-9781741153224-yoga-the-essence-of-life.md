@@ -1,7 +1,7 @@
 ---
 title: "Yoga: The Essence of Life | Free Book"
-date: 2024-10-25 13:56:40
-updated: 2024-10-26 11:35:52
+date: 2024-10-24T02:41:13.798Z
+updated: 2024-10-27T03:44:36.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/639cc6be407d0d0d4ff618b035729498481cdf687b37ced689acb91de5a4283b.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/639cc6be407d0d0d4ff618b03572949
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

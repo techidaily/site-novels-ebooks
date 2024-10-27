@@ -1,7 +1,7 @@
 ---
 title: La ciencia y las prácticas espirituales | Free Book
-date: 2024-10-24 16:51:41
-updated: 2024-10-26 12:10:41
+date: 2024-10-24T00:37:09.269Z
+updated: 2024-10-27T05:45:11.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8b922efae3662eb81d72d01b3606cfe41c467d471911b849c080ee6cd71a1a2.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8b922efae3662eb81d72d01b3606cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

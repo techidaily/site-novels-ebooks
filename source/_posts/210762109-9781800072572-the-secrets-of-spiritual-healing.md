@@ -1,7 +1,7 @@
 ---
 title: The Secrets of Spiritual Healing | Free Book
-date: 2024-10-25 16:19:19
-updated: 2024-10-26 12:27:38
+date: 2024-10-21T20:51:59.038Z
+updated: 2024-10-26T22:48:01.087Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a879dc1e7252561195b0448a41059b6089564c9dc8731c934a3ae4ed2c4b50a1.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a879dc1e7252561195b0448a41059b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

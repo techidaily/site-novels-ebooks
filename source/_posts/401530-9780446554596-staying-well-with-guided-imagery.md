@@ -1,7 +1,7 @@
 ---
 title: Staying Well With Guided Imagery | Free Book
-date: 2024-10-24 15:51:16
-updated: 2024-10-26 12:11:46
+date: 2024-10-22T22:19:22.783Z
+updated: 2024-10-27T03:43:13.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bba75e6d57f2180757d693c507decc325a9a460d12a335ea2f63fee83c710e26.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bba75e6d57f2180757d693c507decc3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

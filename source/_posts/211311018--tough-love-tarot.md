@@ -1,7 +1,7 @@
 ---
 title: Tough Love Tarot | Free Book
-date: 2024-10-25 11:30:20
-updated: 2024-10-26 11:34:58
+date: 2024-10-20T00:34:11.129Z
+updated: 2024-10-27T05:25:28.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/133d9c465c273d3cf6a51c46a5df331d6ef586eeb8e2d1c2ac049e88efcc2c1e.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/133d9c465c273d3cf6a51c46a5df331
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

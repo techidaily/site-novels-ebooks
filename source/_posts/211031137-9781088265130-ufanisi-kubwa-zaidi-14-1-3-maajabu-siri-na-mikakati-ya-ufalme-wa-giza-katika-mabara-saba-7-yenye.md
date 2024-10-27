@@ -1,7 +1,7 @@
 ---
 title: Ufanisi Kubwa zaidi 14 (1-3) MAAJABU SIRI na Mikakati YA UFALME WA Giza katika Mabara Saba 7 Yenye | Free Book
-date: 2024-10-25 17:30:25
-updated: 2024-10-26 12:50:38
+date: 2024-10-22T19:22:14.184Z
+updated: 2024-10-26T23:35:14.040Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/64463aac91c1107ad86f90d63c8ac14b0ecadce2a8ff088d27d515d578a38e93.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/64463aac91c1107ad86f90d63c8ac14
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Astrology of Love, Sex and Attraction | Free Book
-date: 2024-10-24 16:34:46
-updated: 2024-10-26 11:37:35
+date: 2024-10-24T02:35:30.810Z
+updated: 2024-10-27T01:25:02.727Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0833297aca3a912802d36e3577b3e95ef214fb8d61d092053d63f2432654be13.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0833297aca3a912802d36e3577b3e95
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

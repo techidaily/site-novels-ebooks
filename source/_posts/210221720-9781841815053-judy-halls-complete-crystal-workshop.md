@@ -1,7 +1,7 @@
 ---
 title: Judy Hall's Complete Crystal Workshop | Free Book
-date: 2024-10-25 10:20:57
-updated: 2024-10-26 10:19:56
+date: 2024-10-23T20:16:25.823Z
+updated: 2024-10-26T17:06:46.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/308379e5620731afa2e9030b868e6d8d70446200c08a105be70b29afb26ccffc.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/308379e5620731afa2e9030b868e6d8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

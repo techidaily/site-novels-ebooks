@@ -1,7 +1,7 @@
 ---
 title: The Fifth Season | Free Book
-date: 2024-10-24 13:11:56
-updated: 2024-10-26 12:43:28
+date: 2024-10-25T23:15:49.663Z
+updated: 2024-10-27T03:59:44.146Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/278621e0476ebe5a697fb8e475b3b422902b12abdbda62ab6107017ce29cce97.jpg
@@ -116,3 +116,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/278621e0476ebe5a697fb8e475b3b42
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

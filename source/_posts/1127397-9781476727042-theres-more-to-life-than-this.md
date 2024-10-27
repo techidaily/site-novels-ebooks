@@ -1,7 +1,7 @@
 ---
 title: There's More to Life Than This | Free Book
-date: 2024-10-24 14:36:53
-updated: 2024-10-26 11:17:51
+date: 2024-10-21T02:30:17.345Z
+updated: 2024-10-26T20:04:04.028Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b646975ee29c1ba02edddc05b25fd9b6a0608d7c60aa9abea67ebcfd05284e16.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b646975ee29c1ba02edddc05b25fd9b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

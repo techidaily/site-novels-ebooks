@@ -1,7 +1,7 @@
 ---
 title: The Smart Girl's Guide to Tarot | Free Book
-date: 2024-10-24 15:23:16
-updated: 2024-10-26 11:47:29
+date: 2024-10-24T20:49:58.110Z
+updated: 2024-10-26T22:01:52.562Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2708b7b4dbf4b38499bac5f61eef1ab3be816adc90dc35adb6cf0ccb3030034c.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2708b7b4dbf4b38499bac5f61eef1ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

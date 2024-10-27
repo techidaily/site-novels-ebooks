@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds | Free Book
-date: 2024-10-24 23:20:22
-updated: 2024-10-26 12:22:44
+date: 2024-10-23T19:00:44.335Z
+updated: 2024-10-27T03:23:48.327Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2cbe14a4cbe90ce36436affacc4280884ce3643d73b5014b6858b59b94552400.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2cbe14a4cbe90ce36436affacc42808
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Weiser Fields Guide to Ascension | Free Book
-date: 2024-10-24 20:29:41
-updated: 2024-10-26 11:38:23
+date: 2024-10-24T21:29:44.274Z
+updated: 2024-10-26T23:17:01.827Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/840cea0cccc12c717136b34309ef6a897e4457f4850531e42893ca387f8909a5.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/840cea0cccc12c717136b34309ef6a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

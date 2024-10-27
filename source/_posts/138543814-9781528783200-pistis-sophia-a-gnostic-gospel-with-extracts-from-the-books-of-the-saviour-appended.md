@@ -1,7 +1,7 @@
 ---
 title: Pistis Sophia - A Gnostic Gospel (With Extracts from the Books of the Saviour Appended) | Free Book
-date: 2024-10-23 18:23:12
-updated: 2024-10-26 10:12:10
+date: 2024-10-23T04:58:41.530Z
+updated: 2024-10-26T20:43:15.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4662cc40c1a1d78050f9c7ff5d25adef72dc1796dbe28a93a52121b1d3ac5828.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4662cc40c1a1d78050f9c7ff5d25ade
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

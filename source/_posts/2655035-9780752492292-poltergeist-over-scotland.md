@@ -1,7 +1,7 @@
 ---
 title: Poltergeist Over Scotland | Free Book
-date: 2024-10-23 13:21:37
-updated: 2024-10-26 10:38:29
+date: 2024-10-20T02:03:51.321Z
+updated: 2024-10-27T01:07:21.744Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e94536eb93deebc626b0c0e6ec5f74bb2c532d287fd5eefa2e9d7a2a156d1fbc.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e94536eb93deebc626b0c0e6ec5f74b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

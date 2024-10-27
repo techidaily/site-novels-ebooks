@@ -1,7 +1,7 @@
 ---
 title: Message for the Tribe of Many Colors | Free Book
-date: 2024-10-24 17:55:32
-updated: 2024-10-26 12:32:54
+date: 2024-10-22T03:39:30.485Z
+updated: 2024-10-26T21:56:07.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1433b1dae24e5f46a651765460234c089551678daaf5c93ad9015ec0df9bf703.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1433b1dae24e5f46a651765460234c0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

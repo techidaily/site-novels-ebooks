@@ -1,7 +1,7 @@
 ---
 title: Empath, Psychic Abilities & Self-Love | Free Book
-date: 2024-10-23 10:24:35
-updated: 2024-10-26 11:51:14
+date: 2024-10-26T02:02:23.459Z
+updated: 2024-10-26T20:49:55.543Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3dc0a0a25c9c98c5d36d6248601656060512f3b408c369ef080a82033823cdb1.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3dc0a0a25c9c98c5d36d62486016560
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

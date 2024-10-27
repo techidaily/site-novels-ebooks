@@ -1,7 +1,7 @@
 ---
 title: Redistribution Of Wealth In America And Beyond - The New Civil War | Free Book
-date: 2024-10-25 19:59:33
-updated: 2024-10-26 10:43:41
+date: 2024-10-21T17:53:20.557Z
+updated: 2024-10-26T20:52:11.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac305543bf1a005d6f3b5d172d000d0932c9e9f85c685cf1d25a0fa5f42e9b61.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac305543bf1a005d6f3b5d172d000d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

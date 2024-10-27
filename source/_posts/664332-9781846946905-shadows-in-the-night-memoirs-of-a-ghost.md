@@ -1,7 +1,7 @@
 ---
 title: "Shadows In The Night: Memoirs Of A Ghost | Free Book"
-date: 2024-10-24 13:16:35
-updated: 2024-10-26 10:16:58
+date: 2024-10-21T19:46:59.547Z
+updated: 2024-10-27T00:43:31.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90e5a22158d9d4e4330cb08698f5996536e92b0585d5c6aa9b37aad8d59283a7.jpg
@@ -118,3 +118,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90e5a22158d9d4e4330cb08698f5996
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

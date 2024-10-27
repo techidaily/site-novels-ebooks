@@ -1,7 +1,7 @@
 ---
 title: "Paying it Forward: How One Cup of Coffee Could Change the World (HarperTrue Life – A Short Read) | Free Book"
-date: 2024-10-24 21:26:50
-updated: 2024-10-26 12:52:59
+date: 2024-10-19T17:27:38.567Z
+updated: 2024-10-26T17:29:39.495Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89961c3a533f57b4a1b168d1edda06e8ff2fbd556e673c21fe873efdc5284f70.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89961c3a533f57b4a1b168d1edda06e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

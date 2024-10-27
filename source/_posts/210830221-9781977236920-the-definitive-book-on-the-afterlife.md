@@ -1,7 +1,7 @@
 ---
 title: The Definitive Book on the Afterlife | Free Book
-date: 2024-10-25 11:19:57
-updated: 2024-10-26 11:22:34
+date: 2024-10-24T04:58:07.548Z
+updated: 2024-10-26T16:55:06.294Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a26fad933572dc3221e229a7cb8ee6c3fa75ed87695c80506c1573a75ee29a5a.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a26fad933572dc3221e229a7cb8ee6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

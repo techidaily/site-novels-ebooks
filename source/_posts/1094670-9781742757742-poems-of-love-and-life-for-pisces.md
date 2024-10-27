@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Pisces | Free Book
-date: 2024-10-25 17:42:17
-updated: 2024-10-26 12:51:45
+date: 2024-10-21T22:40:32.393Z
+updated: 2024-10-26T18:48:12.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a2f51d864302a93947068e842dc12217eb331c99d0e12e692f821cee3a2ab86.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a2f51d864302a93947068e842dc122
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

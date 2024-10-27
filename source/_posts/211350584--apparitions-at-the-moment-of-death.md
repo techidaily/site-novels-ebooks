@@ -1,7 +1,7 @@
 ---
 title: Apparitions at the Moment of Death | Free Book
-date: 2024-10-24 14:38:30
-updated: 2024-10-26 10:25:24
+date: 2024-10-22T22:44:16.081Z
+updated: 2024-10-26T19:17:39.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/57c30c8a2c0a7b00c9322ff917ed6d7c4be6ed4813ee0b04d20ece2c0c825c73.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/57c30c8a2c0a7b00c9322ff917ed6d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

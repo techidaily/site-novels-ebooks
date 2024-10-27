@@ -1,7 +1,7 @@
 ---
 title: Letting Everything Become Your Teacher | Free Book
-date: 2024-10-23 16:39:48
-updated: 2024-10-26 12:30:20
+date: 2024-10-20T01:54:54.452Z
+updated: 2024-10-26T18:27:37.711Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32fbe8b616d4caf494280a006cbecf55e262ab61d09d0e8b767a3d5de9236ca1.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32fbe8b616d4caf494280a006cbecf5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

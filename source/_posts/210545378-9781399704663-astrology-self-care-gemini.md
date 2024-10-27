@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Gemini | Free Book"
-date: 2024-10-25 12:22:22
-updated: 2024-10-26 11:12:22
+date: 2024-10-24T00:41:10.919Z
+updated: 2024-10-26T23:03:05.035Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40e11f522dc9a6f8a81450e70fb1dbc7908899a0f3a2cd6cdb73f06ce3554910.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40e11f522dc9a6f8a81450e70fb1dbc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

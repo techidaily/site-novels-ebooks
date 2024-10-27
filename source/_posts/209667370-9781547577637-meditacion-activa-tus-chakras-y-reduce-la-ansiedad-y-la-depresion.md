@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Activa Tus Chakras Y Reduce La Ansiedad Y La Depresión | Free Book"
-date: 2024-10-25 22:36:40
-updated: 2024-10-26 10:51:32
+date: 2024-10-21T02:35:58.425Z
+updated: 2024-10-27T02:32:46.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba6d66f8801745ec33e3ff07c140ba6f21376bed1e72978da32fb4bc0b86c92.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba6d66f8801745ec33e3ff07c140ba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

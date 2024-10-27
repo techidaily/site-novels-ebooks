@@ -1,7 +1,7 @@
 ---
 title: Il risveglio di Kundalini - pratiche per risvegliare la tua energia shakti | Free Book
-date: 2024-10-25 17:51:57
-updated: 2024-10-26 10:30:49
+date: 2024-10-21T01:15:09.330Z
+updated: 2024-10-26T20:38:52.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b606504accf1255caf99ef024a92c061cd54924095b0eb97637f88d2ba7f1fe1.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b606504accf1255caf99ef024a92c06
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

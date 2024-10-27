@@ -1,7 +1,7 @@
 ---
 title: Have an Out-of-Body Experience in 30 Days (2nd ed.) | Free Book
-date: 2024-10-25 17:31:14
-updated: 2024-10-26 10:11:31
+date: 2024-10-23T01:57:18.833Z
+updated: 2024-10-26T18:54:41.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74c2a885267b761027229b7faf6fb3756bbe7e8338d003f1dbabaf2df2a5e418.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74c2a885267b761027229b7faf6fb37
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

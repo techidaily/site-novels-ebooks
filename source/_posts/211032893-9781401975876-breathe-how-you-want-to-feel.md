@@ -1,7 +1,7 @@
 ---
 title: Breathe How You Want to Feel | Free Book
-date: 2024-10-25 18:44:44
-updated: 2024-10-26 11:33:17
+date: 2024-10-21T21:54:33.032Z
+updated: 2024-10-26T22:37:10.038Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/268457f5af5d977668e21e0ee4bc4db1f5143655c69df359da6736ab14af2af5.jpg
@@ -251,3 +251,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/268457f5af5d977668e21e0ee4bc4db
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

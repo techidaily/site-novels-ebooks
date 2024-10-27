@@ -1,7 +1,7 @@
 ---
 title: The Lifetimes When Jesus and Buddha Knew Each Other | Free Book
-date: 2024-10-24 10:48:15
-updated: 2024-10-26 10:55:42
+date: 2024-10-24T21:41:34.982Z
+updated: 2024-10-26T23:01:25.380Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e851ae981b1ddd46e308dead01d7eadf664d1e02a1f580576b27e5beb44e7730.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e851ae981b1ddd46e308dead01d7ead
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

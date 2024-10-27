@@ -1,7 +1,7 @@
 ---
 title: The Simple Feeling of Being | Free Book
-date: 2024-10-25 11:37:22
-updated: 2024-10-26 10:56:11
+date: 2024-10-21T05:14:30.834Z
+updated: 2024-10-27T01:19:59.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14e262642d6c24761ddca9b2910d52996ab5758abeb7200d0cf0609639bc6b71.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14e262642d6c24761ddca9b2910d529
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

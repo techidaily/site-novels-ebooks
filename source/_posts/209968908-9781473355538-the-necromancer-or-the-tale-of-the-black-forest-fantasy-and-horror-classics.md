@@ -1,7 +1,7 @@
 ---
 title: The Necromancer - Or, The Tale of the Black Forest (Fantasy and Horror Classics) | Free Book
-date: 2024-10-24 12:39:19
-updated: 2024-10-26 12:37:48
+date: 2024-10-24T18:31:07.779Z
+updated: 2024-10-26T22:41:12.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd85424a8d1d8c2b7566a832bae6902c6246b8d822b215acfbf4e12ddf5f96e5.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd85424a8d1d8c2b7566a832bae6902
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

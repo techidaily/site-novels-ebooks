@@ -1,7 +1,7 @@
 ---
 title: Lost Teachings of the Runes | Free Book
-date: 2024-10-24 10:29:32
-updated: 2024-10-26 11:55:29
+date: 2024-10-23T05:10:39.712Z
+updated: 2024-10-27T02:19:35.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9d1031d86ad6d13aa79a4f15dbf1c34cd517b228b741df754d1576df6bd30e3.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9d1031d86ad6d13aa79a4f15dbf1c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

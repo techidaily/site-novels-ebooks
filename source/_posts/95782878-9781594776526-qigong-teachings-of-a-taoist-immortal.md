@@ -1,7 +1,7 @@
 ---
 title: Qigong Teachings of a Taoist Immortal | Free Book
-date: 2024-10-24 20:28:22
-updated: 2024-10-26 12:37:32
+date: 2024-10-21T00:11:22.162Z
+updated: 2024-10-26T22:54:58.728Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62c31fcdf34fdab72931c1b3d3d04a3ddd1007581b710d60b9c2a389f38b128b.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62c31fcdf34fdab72931c1b3d3d04a3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

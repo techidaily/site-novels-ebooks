@@ -1,7 +1,7 @@
 ---
 title: Quantum Science of Psychedelics | Free Book
-date: 2024-10-25 17:37:57
-updated: 2024-10-26 11:58:15
+date: 2024-10-23T05:26:01.024Z
+updated: 2024-10-26T16:25:26.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e9665e03fb42b558d573bbe226c6186f228dcd4e4663c4f1d71ffdc9ceba6a1f.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e9665e03fb42b558d573bbe226c6186
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

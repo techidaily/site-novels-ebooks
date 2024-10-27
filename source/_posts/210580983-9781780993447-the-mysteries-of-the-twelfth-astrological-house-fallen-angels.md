@@ -1,7 +1,7 @@
 ---
 title: "The Mysteries of the Twelfth Astrological House: Fallen Angels | Free Book"
-date: 2024-10-24 21:36:44
-updated: 2024-10-26 12:47:24
+date: 2024-10-20T05:36:04.962Z
+updated: 2024-10-27T00:59:37.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43d3c202bd71d5209aef0e81470857ebc19476f7aaa7a2fe94ed8364ebb12a2.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43d3c202bd71d5209aef0e81470857
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

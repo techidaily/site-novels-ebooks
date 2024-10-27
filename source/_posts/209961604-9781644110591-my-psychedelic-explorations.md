@@ -1,7 +1,7 @@
 ---
 title: My Psychedelic Explorations | Free Book
-date: 2024-10-24 11:14:26
-updated: 2024-10-26 10:41:58
+date: 2024-10-20T18:45:13.812Z
+updated: 2024-10-26T23:40:26.535Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/36e9bea80d9c38d1f4bd3cd9e02984a9d5119ea64090688f8e26fa3ca95c8be7.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/36e9bea80d9c38d1f4bd3cd9e02984a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Ghosts of the British Museum | Free Book
-date: 2024-10-25 22:14:27
-updated: 2024-10-26 11:25:33
+date: 2024-10-26T04:35:40.977Z
+updated: 2024-10-27T03:33:23.584Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95aa1738eb1e14fb7e9f5fde70f066e55eafc566547222b443cf5b13569ea5e2.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95aa1738eb1e14fb7e9f5fde70f066e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

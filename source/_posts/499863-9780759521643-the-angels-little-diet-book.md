@@ -1,7 +1,7 @@
 ---
 title: The Angels' Little Diet Book | Free Book
-date: 2024-10-24 22:35:44
-updated: 2024-10-26 10:57:42
+date: 2024-10-22T23:34:12.479Z
+updated: 2024-10-27T02:59:06.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9a162ef61796cd14f07ad838663d642fb59abc788c5cb9bc3fc8213748a78a.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9a162ef61796cd14f07ad838663d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

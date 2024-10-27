@@ -1,7 +1,7 @@
 ---
 title: The Book of Theanna, Updated Edition | Free Book
-date: 2024-10-25 21:18:56
-updated: 2024-10-26 10:29:15
+date: 2024-10-23T04:18:48.502Z
+updated: 2024-10-27T02:46:43.316Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d081525b9167fc3c8184530da9d953dd971098e4e76d8707ed064ba747cb0175.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d081525b9167fc3c8184530da9d953d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

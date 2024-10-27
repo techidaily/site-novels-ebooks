@@ -1,7 +1,7 @@
 ---
 title: Living in a Mindful Universe | Free Book
-date: 2024-10-23 15:45:47
-updated: 2024-10-26 11:56:59
+date: 2024-10-23T21:11:22.276Z
+updated: 2024-10-26T19:29:59.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a246f029fdcdbdb842026e1306589e9988a652b97a748c78f96969546289910.jpg
@@ -344,3 +344,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a246f029fdcdbdb842026e1306589e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

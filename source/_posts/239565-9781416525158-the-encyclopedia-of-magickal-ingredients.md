@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Magickal Ingredients | Free Book
-date: 2024-10-23 23:19:43
-updated: 2024-10-26 11:31:11
+date: 2024-10-19T18:51:48.205Z
+updated: 2024-10-27T00:43:00.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84471ea8d8b08cafe3aec305a38491913727dfb35af4669ad898d13f2ee40e0a.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84471ea8d8b08cafe3aec305a384919
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: How to Read the Akashic Records | Free Book
-date: 2024-10-23 21:45:42
-updated: 2024-10-26 10:37:11
+date: 2024-10-22T22:58:40.081Z
+updated: 2024-10-26T20:35:57.750Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7274bb1b07e9d188ff7fa31eaef877c8c00869d94ba9dd3f647365c82b3fe098.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7274bb1b07e9d188ff7fa31eaef877c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

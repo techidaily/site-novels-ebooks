@@ -1,7 +1,7 @@
 ---
 title: Secrets of Greek Mysticism | Free Book
-date: 2024-10-24 13:24:48
-updated: 2024-10-26 12:37:36
+date: 2024-10-25T22:58:35.595Z
+updated: 2024-10-26T20:52:47.486Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17184a649a998c0fdcb92d93bf089214bf2e55f9408ce72dfa7a5bd4fadb3b62.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17184a649a998c0fdcb92d93bf08921
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

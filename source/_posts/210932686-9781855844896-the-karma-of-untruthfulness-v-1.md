@@ -1,7 +1,7 @@
 ---
 title: "The Karma of Untruthfulness: v. 1 | Free Book"
-date: 2024-10-24 14:45:10
-updated: 2024-10-26 11:51:49
+date: 2024-10-22T01:53:06.734Z
+updated: 2024-10-27T05:07:14.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/316319056ad5d030da1b83bb050a6078f235a080b81616033b37d9f7639a2ecd.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/316319056ad5d030da1b83bb050a607
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

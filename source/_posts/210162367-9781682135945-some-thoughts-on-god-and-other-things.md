@@ -1,7 +1,7 @@
 ---
 title: Some Thoughts on God and Other Things | Free Book
-date: 2024-10-24 15:58:36
-updated: 2024-10-26 11:55:52
+date: 2024-10-20T18:37:26.935Z
+updated: 2024-10-27T01:01:35.198Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eaad718a39aee6092e6b84e2ca8c2697100fc4f095fb3ccd1ccd0193c2447cb5.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eaad718a39aee6092e6b84e2ca8c269
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: I Ching. Consult the oldest oracle | Free Book
-date: 2024-10-24 16:21:51
-updated: 2024-10-26 11:48:56
+date: 2024-10-25T05:39:30.074Z
+updated: 2024-10-26T18:28:45.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85b6d004038ac16adf14eec457de3f1d55bf8d852de36615e06b1ce09c4aaf0a.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85b6d004038ac16adf14eec457de3f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

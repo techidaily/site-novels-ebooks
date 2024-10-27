@@ -1,7 +1,7 @@
 ---
 title: A Practical Guide to Ascension with Archangel Metatron Volume 2 | Free Book
-date: 2024-10-23 20:16:22
-updated: 2024-10-26 12:51:14
+date: 2024-10-23T23:32:16.815Z
+updated: 2024-10-26T18:16:31.163Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6631920112d0c8e9cefdad0970b2f410df0c73dc245369c454af3b0a5000103f.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6631920112d0c8e9cefdad0970b2f41
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

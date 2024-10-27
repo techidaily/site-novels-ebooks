@@ -1,7 +1,7 @@
 ---
 title: Sagesse des chakras au féminin | Free Book
-date: 2024-10-25 20:21:15
-updated: 2024-10-26 11:44:32
+date: 2024-10-21T17:03:32.922Z
+updated: 2024-10-26T21:25:47.171Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d913e88b2fcdac222a1bf4c175b2f1f29edaeb1ba9e85b647779ec4a5cccbdc.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d913e88b2fcdac222a1bf4c175b2f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

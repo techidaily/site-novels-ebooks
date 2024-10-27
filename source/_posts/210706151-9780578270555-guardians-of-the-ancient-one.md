@@ -1,7 +1,7 @@
 ---
 title: Guardians of The Ancient One | Free Book
-date: 2024-10-25 18:31:53
-updated: 2024-10-26 12:43:18
+date: 2024-10-24T01:44:40.832Z
+updated: 2024-10-27T02:19:33.941Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3cb8415b90c534668e6d7e1c1e14a0d5cef15c06413a97989bc3c85055393441.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3cb8415b90c534668e6d7e1c1e14a0d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Mystery of Vibrated Prayer | Free Book
-date: 2024-10-23 10:51:12
-updated: 2024-10-26 11:42:11
+date: 2024-10-21T23:10:09.337Z
+updated: 2024-10-26T17:11:39.074Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/022a3a879bc5249be37c11ab0ff5008ef9076f7428f6ade5f9e572a5ed821d3f.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/022a3a879bc5249be37c11ab0ff5008
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

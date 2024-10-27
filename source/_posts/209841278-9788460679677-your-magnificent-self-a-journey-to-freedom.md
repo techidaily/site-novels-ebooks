@@ -1,7 +1,7 @@
 ---
 title: Your Magnificent Self... A Journey to Freedom | Free Book
-date: 2024-10-25 20:16:18
-updated: 2024-10-26 12:46:22
+date: 2024-10-22T23:43:15.508Z
+updated: 2024-10-27T05:38:35.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50a8c27f8b6ec3758e6d732d9e05777f380d7e56fdb3bd33c7290fa85a91ab56.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50a8c27f8b6ec3758e6d732d9e05777
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

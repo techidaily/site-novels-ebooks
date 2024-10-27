@@ -1,7 +1,7 @@
 ---
 title: The Eight Realizations of Great Beings | Free Book
-date: 2024-10-23 12:40:41
-updated: 2024-10-26 12:42:51
+date: 2024-10-22T03:31:01.864Z
+updated: 2024-10-26T21:14:14.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a1c8f49e2f2969e8c95afda35d1a26613a1d44af0aa7f39b7f4ef5b4799692e.jpg
@@ -226,3 +226,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a1c8f49e2f2969e8c95afda35d1a26
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

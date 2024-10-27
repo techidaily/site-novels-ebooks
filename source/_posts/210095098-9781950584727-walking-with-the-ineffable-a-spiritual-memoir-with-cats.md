@@ -1,7 +1,7 @@
 ---
 title: "Walking with the Ineffable: A Spiritual Memoir (with Cats) | Free Book"
-date: 2024-10-25 13:21:21
-updated: 2024-10-26 10:33:35
+date: 2024-10-25T20:52:02.499Z
+updated: 2024-10-26T19:20:29.682Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d625194eae7c163ac9d3cae16fa61c3f69d7b56ae79560a3e0a256ae80c95d4.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d625194eae7c163ac9d3cae16fa61c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

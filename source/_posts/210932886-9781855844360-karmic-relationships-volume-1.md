@@ -1,7 +1,7 @@
 ---
 title: "Karmic Relationships: Volume 1 | Free Book"
-date: 2024-10-25 13:14:52
-updated: 2024-10-26 10:14:45
+date: 2024-10-20T02:15:34.003Z
+updated: 2024-10-27T00:28:22.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b49be9cb584befd7aefaa2dd5e898bc0564c4b12841a09caaf1383516e66ff94.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b49be9cb584befd7aefaa2dd5e898bc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

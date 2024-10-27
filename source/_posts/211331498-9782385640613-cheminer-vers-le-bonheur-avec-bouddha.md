@@ -1,7 +1,7 @@
 ---
 title: Cheminer vers le bonheur avec Bouddha | Free Book
-date: 2024-10-24 13:28:47
-updated: 2024-10-26 12:34:47
+date: 2024-10-19T21:14:13.641Z
+updated: 2024-10-26T20:45:29.090Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/973071cbd90a367fcc543f0ab1ea482abcfa79eaf8c91845fcd2c53830221394.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/973071cbd90a367fcc543f0ab1ea482
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

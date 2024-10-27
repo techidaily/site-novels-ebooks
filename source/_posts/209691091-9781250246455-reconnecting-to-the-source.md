@@ -1,7 +1,7 @@
 ---
 title: Reconnecting to The Source | Free Book
-date: 2024-10-24 15:10:15
-updated: 2024-10-26 11:31:10
+date: 2024-10-19T17:34:41.137Z
+updated: 2024-10-27T01:44:41.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/709b0659a0d1114a82d6f121958bf04b3caf46e91b42094215605f9bb3eba9b7.jpg
@@ -214,3 +214,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/709b0659a0d1114a82d6f121958bf04
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

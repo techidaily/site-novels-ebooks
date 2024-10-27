@@ -1,7 +1,7 @@
 ---
 title: 20+ Guided Meditations For Deep Sleep, Anxiety & Self-Love (2 in 1) | Free Book
-date: 2024-10-23 13:49:47
-updated: 2024-10-26 11:59:42
+date: 2024-10-24T22:10:36.708Z
+updated: 2024-10-27T03:54:02.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/826e908496bfbe79460a372dd93408879a17ce31093486dcb04f0b17c66655fd.jpg
@@ -210,3 +210,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/826e908496bfbe79460a372dd934088
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

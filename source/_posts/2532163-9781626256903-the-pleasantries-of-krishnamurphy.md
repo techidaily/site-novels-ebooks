@@ -1,7 +1,7 @@
 ---
 title: The Pleasantries of Krishnamurphy | Free Book
-date: 2024-10-23 15:38:46
-updated: 2024-10-26 10:54:44
+date: 2024-10-21T21:40:49.164Z
+updated: 2024-10-26T20:51:18.661Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/828f73ff4f12903effed849dd60f4a15ecd821ab4941b65cc7976a6706492d2b.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/828f73ff4f12903effed849dd60f4a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

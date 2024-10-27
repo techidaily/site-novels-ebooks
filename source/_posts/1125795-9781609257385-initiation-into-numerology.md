@@ -1,7 +1,7 @@
 ---
 title: Initiation into Numerology | Free Book
-date: 2024-10-23 14:12:22
-updated: 2024-10-26 12:48:24
+date: 2024-10-20T18:38:36.314Z
+updated: 2024-10-27T05:08:53.694Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a417aa6d1017f7b49db6c1c9104aaa3d74f3a57bdd00dfdd2e3cb6a9006800f2.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a417aa6d1017f7b49db6c1c9104aaa3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

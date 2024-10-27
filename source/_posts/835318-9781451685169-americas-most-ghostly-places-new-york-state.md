@@ -1,7 +1,7 @@
 ---
 title: "America's Most Ghostly Places: New York State | Free Book"
-date: 2024-10-25 10:28:39
-updated: 2024-10-26 10:27:13
+date: 2024-10-19T19:47:58.023Z
+updated: 2024-10-27T01:09:02.094Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2f59f7586ebc6e1ee5f954008a1251a2af97ad43218cb4360e1a340c3228f95.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2f59f7586ebc6e1ee5f954008a1251
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

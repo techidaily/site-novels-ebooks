@@ -1,7 +1,7 @@
 ---
 title: The Book of Psychic Self-Defense | Free Book
-date: 2024-10-25 22:50:21
-updated: 2024-10-26 12:59:43
+date: 2024-10-25T02:10:28.214Z
+updated: 2024-10-27T01:02:08.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3c8b00f5cac95ef96d8325e48c13325f90efd3eeb9e2536d9dc567489aaf6db.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3c8b00f5cac95ef96d8325e48c1332
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

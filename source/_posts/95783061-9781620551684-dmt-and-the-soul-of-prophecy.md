@@ -1,7 +1,7 @@
 ---
 title: DMT and the Soul of Prophecy | Free Book
-date: 2024-10-24 18:15:43
-updated: 2024-10-26 12:51:20
+date: 2024-10-24T05:49:24.134Z
+updated: 2024-10-27T02:10:48.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2847be2f310df1396e2d8378f35e4b57814a8b2d403fde47fb5f7f29f0d23622.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2847be2f310df1396e2d8378f35e4b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

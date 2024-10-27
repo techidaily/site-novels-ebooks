@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: La Atención Plena para principiantes | Free Book"
-date: 2024-10-24 19:44:57
-updated: 2024-10-26 10:42:56
+date: 2024-10-20T16:56:25.592Z
+updated: 2024-10-27T02:30:56.617Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fcced07578812f1198679b510c598b901eafd43cc4f4fc549598c4f8ff57796c.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fcced07578812f1198679b510c598b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

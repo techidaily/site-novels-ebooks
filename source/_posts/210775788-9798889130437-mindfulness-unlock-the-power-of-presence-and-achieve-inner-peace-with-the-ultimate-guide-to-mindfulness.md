@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: Unlock the Power of Presence and Achieve Inner Peace with the Ultimate Guide to Mindfulness | Free Book"
-date: 2024-10-23 19:46:59
-updated: 2024-10-26 12:43:26
+date: 2024-10-24T18:08:56.960Z
+updated: 2024-10-27T03:15:32.603Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a38bfe5bd47f7e3a8ca43c5d58e67e3f6cf7d8929308723afd4f4f0d7d561c92.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a38bfe5bd47f7e3a8ca43c5d58e67e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

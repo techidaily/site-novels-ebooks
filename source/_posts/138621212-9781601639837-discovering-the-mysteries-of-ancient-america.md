@@ -1,7 +1,7 @@
 ---
 title: Discovering the Mysteries of Ancient America | Free Book
-date: 2024-10-24 21:16:20
-updated: 2024-10-26 10:19:33
+date: 2024-10-22T17:42:36.835Z
+updated: 2024-10-27T04:36:32.480Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c2cbd1bb338c3b4d3cede24b6878520a2283cdf6d6ed3d77e65aea2b2abfb66.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c2cbd1bb338c3b4d3cede24b687852
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

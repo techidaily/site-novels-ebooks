@@ -1,7 +1,7 @@
 ---
 title: Dreaming on Both Sides of the Brain | Free Book
-date: 2024-10-24 22:49:59
-updated: 2024-10-26 11:48:58
+date: 2024-10-23T21:56:49.571Z
+updated: 2024-10-26T17:26:16.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/286a79de22270c516e10ff24d2f29096e9f6c39b6bc644e626516ff3ada07481.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/286a79de22270c516e10ff24d2f2909
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The World's Most Haunted Hospitals | Free Book
-date: 2024-10-23 13:16:30
-updated: 2024-10-26 11:32:11
+date: 2024-10-23T02:13:50.789Z
+updated: 2024-10-26T19:01:42.439Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/502e27d2e7b0e85cab389c17d9652990e84e033499220e3c3eb4f53a74963dc0.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/502e27d2e7b0e85cab389c17d965299
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "The Prophet: The Complete Original Edition | Free Book"
-date: 2024-10-25 14:32:10
-updated: 2024-10-26 11:54:46
+date: 2024-10-25T16:37:04.414Z
+updated: 2024-10-27T04:40:10.945Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c64f0fb5dfdccbbed12af9025826d01a2ec2358715b4e497ee94d1e99a7b67c.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c64f0fb5dfdccbbed12af9025826d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

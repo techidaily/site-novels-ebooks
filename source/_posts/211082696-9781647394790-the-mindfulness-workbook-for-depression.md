@@ -1,7 +1,7 @@
 ---
 title: The Mindfulness Workbook for Depression | Free Book
-date: 2024-10-23 11:46:46
-updated: 2024-10-26 12:23:46
+date: 2024-10-23T16:26:03.716Z
+updated: 2024-10-26T22:39:46.493Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23f21890b8a5f950c58313014d972e7b7573a3dea743f444408e7cf489df9edd.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23f21890b8a5f950c58313014d972e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Morning Altars: A 7-Step Practice to Nourish Your Spirit through Nature, Art, and Ritual | Free Book"
-date: 2024-10-25 20:43:48
-updated: 2024-10-26 11:10:41
+date: 2024-10-23T18:25:46.473Z
+updated: 2024-10-26T21:03:37.846Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0ea5b485b1ea291378e060820eb83de517455859216b3e070d36694e01a9a1a.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0ea5b485b1ea291378e060820eb83d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

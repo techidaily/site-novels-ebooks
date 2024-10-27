@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Virgo | Free Book
-date: 2024-10-24 17:12:18
-updated: 2024-10-26 11:20:43
+date: 2024-10-22T20:57:45.105Z
+updated: 2024-10-27T04:31:41.563Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/955751cdd19b8bf2951e6d3fcae7423e6842d9755654d4b9bb41c92498d3a1b4.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/955751cdd19b8bf2951e6d3fcae7423
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

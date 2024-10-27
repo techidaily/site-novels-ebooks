@@ -1,7 +1,7 @@
 ---
 title: Finding The Spirit Within | Free Book
-date: 2024-10-25 21:15:33
-updated: 2024-10-26 12:52:28
+date: 2024-10-20T23:43:43.479Z
+updated: 2024-10-26T20:01:10.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d0ded1c2f4c5e0ab6ba7c33a802c8e25bc5a5336ef0ba84d148b75141661679.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d0ded1c2f4c5e0ab6ba7c33a802c8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

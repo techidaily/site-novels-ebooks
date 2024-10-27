@@ -1,7 +1,7 @@
 ---
 title: The Colonization of Earth and the Making of Mankind | Free Book
-date: 2024-10-23 20:14:11
-updated: 2024-10-26 10:49:34
+date: 2024-10-21T00:12:50.349Z
+updated: 2024-10-26T18:48:57.363Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/96eb89443e30a87a39a55420d9f6c71b965bc940abcc4b24b666da33a6ae2983.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/96eb89443e30a87a39a55420d9f6c71
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

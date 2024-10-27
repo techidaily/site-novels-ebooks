@@ -1,7 +1,7 @@
 ---
 title: "The Dog in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 11:42:21
-updated: 2024-10-26 10:34:40
+date: 2024-10-23T22:26:31.037Z
+updated: 2024-10-27T02:34:48.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2909871a6b05cd285ae46a64473ae3161786cd12a2612c0690fb75b3bc4ec490.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2909871a6b05cd285ae46a64473ae31
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

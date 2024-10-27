@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Black Magic | Free Book
-date: 2024-10-24 22:17:52
-updated: 2024-10-26 12:50:23
+date: 2024-10-26T00:11:46.905Z
+updated: 2024-10-26T21:12:24.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f8ba1894bea72580137fbcc96eedf9f0411670dab1fa802ddbf7ad13d65f0c08.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f8ba1894bea72580137fbcc96eedf9f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

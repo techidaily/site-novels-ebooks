@@ -1,7 +1,7 @@
 ---
 title: "The Horse in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-24 22:36:54
-updated: 2024-10-26 12:34:35
+date: 2024-10-22T00:40:03.340Z
+updated: 2024-10-26T23:22:16.221Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c103be732f0b9c175092c204b0877456e87bc8da611a06844e060fa5a7d481e.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c103be732f0b9c175092c204b08774
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

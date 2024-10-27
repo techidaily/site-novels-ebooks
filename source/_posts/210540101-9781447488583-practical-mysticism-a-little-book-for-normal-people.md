@@ -1,7 +1,7 @@
 ---
 title: Practical Mysticism - A Little Book for Normal People | Free Book
-date: 2024-10-25 21:11:24
-updated: 2024-10-26 12:58:46
+date: 2024-10-20T18:44:24.608Z
+updated: 2024-10-26T19:12:21.711Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ea45456c5b99a2f80b73c13a42e2f31ac4243d356e918309bace1e40fa6fb8d.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ea45456c5b99a2f80b73c13a42e2f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

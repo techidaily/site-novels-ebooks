@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Earth Magic | Free Book
-date: 2024-10-24 21:22:41
-updated: 2024-10-26 12:44:35
+date: 2024-10-24T17:54:25.908Z
+updated: 2024-10-26T18:34:08.510Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c33addf3dc7a5b15f8418e8eb7b4a921d74da19eecaf0190647d15dc0003349.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c33addf3dc7a5b15f8418e8eb7b4a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

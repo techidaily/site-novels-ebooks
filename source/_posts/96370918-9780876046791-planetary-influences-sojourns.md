@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2024-10-24 20:50:14
-updated: 2024-10-26 12:30:43
+date: 2024-10-22T20:58:52.907Z
+updated: 2024-10-27T05:44:51.919Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

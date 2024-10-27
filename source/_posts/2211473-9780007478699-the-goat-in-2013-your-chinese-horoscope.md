@@ -1,7 +1,7 @@
 ---
 title: "The Goat in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-24 23:41:42
-updated: 2024-10-26 10:39:39
+date: 2024-10-23T03:58:41.446Z
+updated: 2024-10-26T16:33:33.841Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/05d777541033e65d7b907a84a0608a4d414fda210d098601722a88b4622c3ffa.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/05d777541033e65d7b907a84a0608a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

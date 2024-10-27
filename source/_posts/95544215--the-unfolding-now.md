@@ -1,7 +1,7 @@
 ---
 title: The Unfolding Now | Free Book
-date: 2024-10-23 13:32:23
-updated: 2024-10-26 11:11:56
+date: 2024-10-20T22:29:54.371Z
+updated: 2024-10-26T17:05:02.397Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/6510c87fecc476a2212678dd7d285ee31510280a85f427ae9c88e850f4b5af21.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6510c87fecc476a2212678dd7d285ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

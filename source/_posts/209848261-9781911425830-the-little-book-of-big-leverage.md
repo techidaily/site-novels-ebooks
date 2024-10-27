@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Big Leverage | Free Book
-date: 2024-10-24 17:11:35
-updated: 2024-10-26 10:23:18
+date: 2024-10-23T00:51:32.696Z
+updated: 2024-10-26T21:04:48.634Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d66775cdf936d26bc89bda2bb30b090003c53de3a5b37af3f7624b91df4caaa.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d66775cdf936d26bc89bda2bb30b09
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Warrior Heart Practice | Free Book
-date: 2024-10-23 13:27:17
-updated: 2024-10-26 10:40:29
+date: 2024-10-25T22:41:40.631Z
+updated: 2024-10-26T23:29:40.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fbfb84b97c893b56f75764eb3e87c4a30ad0666172e1e72ccb84eef249c58b90.jpg
@@ -295,3 +295,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fbfb84b97c893b56f75764eb3e87c4a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

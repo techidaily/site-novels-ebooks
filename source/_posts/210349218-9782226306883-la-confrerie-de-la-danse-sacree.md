@@ -1,7 +1,7 @@
 ---
 title: La Confrérie de la danse sacrée | Free Book
-date: 2024-10-24 17:42:17
-updated: 2024-10-26 10:27:52
+date: 2024-10-23T17:38:02.552Z
+updated: 2024-10-26T21:47:48.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb0ddc5cf6d3c780b0a7db22b4eb4b60c26706e67ac10a8fa7d18ee7bc0ab84b.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb0ddc5cf6d3c780b0a7db22b4eb4b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Just What the Doctor Ordered | Free Book
-date: 2024-10-25 12:55:29
-updated: 2024-10-26 12:30:33
+date: 2024-10-22T17:51:05.711Z
+updated: 2024-10-27T00:55:37.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/faeea81843de2527707780258877466c9524fa3189c2717ee31783905c632ac1.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/faeea81843de2527707780258877466
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

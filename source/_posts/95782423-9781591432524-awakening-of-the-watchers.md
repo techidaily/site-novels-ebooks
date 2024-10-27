@@ -1,7 +1,7 @@
 ---
 title: Awakening of the Watchers | Free Book
-date: 2024-10-23 17:52:15
-updated: 2024-10-26 10:42:14
+date: 2024-10-23T23:48:39.289Z
+updated: 2024-10-26T16:07:19.778Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4d3962a72ad3ca71e94a9c5bd1800736a0863dc3de9304759a13e99e46035e2.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4d3962a72ad3ca71e94a9c5bd18007
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

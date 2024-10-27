@@ -1,7 +1,7 @@
 ---
 title: The Hidden Power of the Five Hearts | Free Book
-date: 2024-10-25 12:49:38
-updated: 2024-10-26 12:40:24
+date: 2024-10-22T05:56:44.061Z
+updated: 2024-10-26T20:16:54.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03ec98b372ce7b6dce4733295614cd4aca792cab01234029c4f76ad51be2e815.jpg
@@ -237,3 +237,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03ec98b372ce7b6dce4733295614cd4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

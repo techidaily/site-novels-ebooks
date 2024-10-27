@@ -1,7 +1,7 @@
 ---
 title: Mindfulness and Mysticism | Free Book
-date: 2024-10-24 15:27:37
-updated: 2024-10-26 10:49:53
+date: 2024-10-22T17:46:54.271Z
+updated: 2024-10-26T23:52:01.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c1aa495f2f01d10bfd5ca14c4e8d3123e5b99391f9eec02d23f306bda0b223a5.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c1aa495f2f01d10bfd5ca14c4e8d312
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

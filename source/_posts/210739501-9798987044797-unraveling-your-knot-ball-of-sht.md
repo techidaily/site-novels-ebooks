@@ -1,7 +1,7 @@
 ---
 title: Unraveling Your Knot Ball of Sh!t | Free Book
-date: 2024-10-25 20:30:42
-updated: 2024-10-26 12:21:46
+date: 2024-10-21T17:02:49.251Z
+updated: 2024-10-26T19:41:34.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dff20e44f009afd8f4cc4eebd7f98b56863cfe5e32336b4c5c7b41881d13af05.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dff20e44f009afd8f4cc4eebd7f98b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

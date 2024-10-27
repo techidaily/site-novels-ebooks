@@ -1,7 +1,7 @@
 ---
 title: The Bible of the Pure Soul and Mind | Free Book
-date: 2024-10-24 18:43:33
-updated: 2024-10-26 12:44:24
+date: 2024-10-26T05:44:18.811Z
+updated: 2024-10-26T19:13:41.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50760a1e2e8688379b19efddaa79e54f0cf56d1bc5cb77828f4444716c71d5b6.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50760a1e2e8688379b19efddaa79e54
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

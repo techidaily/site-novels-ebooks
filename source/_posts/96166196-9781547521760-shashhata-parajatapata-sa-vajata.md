@@ -1,7 +1,7 @@
 ---
 title: शोषित पराजित...पीड़िता से विजेता | Free Book
-date: 2024-10-25 16:28:46
-updated: 2024-10-26 11:27:47
+date: 2024-10-23T05:17:27.125Z
+updated: 2024-10-26T19:06:57.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/deecb39386425f0cafb42e5525db994f43e29c0ad5b2fd81e9b31c12c459a6f8.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/deecb39386425f0cafb42e5525db994
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

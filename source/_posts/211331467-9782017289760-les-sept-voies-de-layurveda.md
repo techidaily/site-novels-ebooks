@@ -1,7 +1,7 @@
 ---
 title: Les Sept Voies de l'Ayurveda | Free Book
-date: 2024-10-23 17:28:51
-updated: 2024-10-26 12:39:35
+date: 2024-10-20T18:15:35.687Z
+updated: 2024-10-26T21:36:45.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8854e8a6b60cfd9995c8bf182a7f3aa701fd00b49d49693b1bf7bca09a292880.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8854e8a6b60cfd9995c8bf182a7f3aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

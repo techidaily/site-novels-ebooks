@@ -1,7 +1,7 @@
 ---
 title: The English Heretic Collection | Free Book
-date: 2024-10-25 23:34:18
-updated: 2024-10-26 11:46:49
+date: 2024-10-22T17:52:52.524Z
+updated: 2024-10-27T04:12:46.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a84d90092888107a2e9c92ccef04d11b8eb9e16f638d2e5d7eb432fb9ea739d.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a84d90092888107a2e9c92ccef04d1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

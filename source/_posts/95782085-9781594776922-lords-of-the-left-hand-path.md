@@ -1,7 +1,7 @@
 ---
 title: Lords of the Left-Hand Path | Free Book
-date: 2024-10-24 16:43:20
-updated: 2024-10-26 10:33:27
+date: 2024-10-21T02:20:54.063Z
+updated: 2024-10-27T05:31:54.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37364d60195d7b5c91f084f1b2f2546b8e885a3af8f53c82ca0bcbe2c36eacc8.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37364d60195d7b5c91f084f1b2f2546
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

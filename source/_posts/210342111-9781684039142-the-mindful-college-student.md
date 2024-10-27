@@ -1,7 +1,7 @@
 ---
 title: The Mindful College Student | Free Book
-date: 2024-10-25 15:42:59
-updated: 2024-10-26 11:21:34
+date: 2024-10-22T05:00:25.514Z
+updated: 2024-10-27T00:45:57.142Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a19c94cc7cca4b86b19aa352746f6d7dd20da7e00a5f31ca67ccfd45d51db909.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a19c94cc7cca4b86b19aa352746f6d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

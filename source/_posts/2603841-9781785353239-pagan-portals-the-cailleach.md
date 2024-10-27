@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - The Cailleach | Free Book
-date: 2024-10-25 23:19:54
-updated: 2024-10-26 12:43:54
+date: 2024-10-21T23:44:41.260Z
+updated: 2024-10-27T04:08:33.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce11624ac1cd0327cf3df8efad70aafdeaa7753e3e7ea01f0702412b9ebcac5d.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce11624ac1cd0327cf3df8efad70aaf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Guided Journal for Healing From Trauma | Free Book
-date: 2024-10-24 12:12:45
-updated: 2024-10-26 10:15:16
+date: 2024-10-20T05:18:48.701Z
+updated: 2024-10-26T16:47:25.868Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/466ee824ad60f7023a204b3d01691845017d7fccd4abec9ed18da5004ef7b989.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/466ee824ad60f7023a204b3d0169184
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

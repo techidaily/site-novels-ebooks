@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Poltergeists and Haunted Houses | Free Book
-date: 2024-10-24 19:35:11
-updated: 2024-10-26 11:28:36
+date: 2024-10-19T19:47:51.286Z
+updated: 2024-10-26T16:49:13.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b10c7d2c1e9096d5776c25236c7e4f212e12be24af1fbbda9b5bd0bb7a2e0826.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b10c7d2c1e9096d5776c25236c7e4f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

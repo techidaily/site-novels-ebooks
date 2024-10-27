@@ -1,7 +1,7 @@
 ---
 title: "Zetetic Astronomy - Earth Not a Globe! An Experimental Inquiry into the True Figure of the Earth: Proving it a Plane, Without Axial or Orbital Motion; and the Only Material World in the Universe! | Free Book"
-date: 2024-10-25 11:31:32
-updated: 2024-10-26 12:44:27
+date: 2024-10-24T20:13:09.037Z
+updated: 2024-10-26T19:38:21.652Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f177a05994453bddc8b816d65f5e6497386fc54b98198321e2b5300cea50911b.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f177a05994453bddc8b816d65f5e649
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

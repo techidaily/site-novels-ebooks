@@ -1,7 +1,7 @@
 ---
 title: Les Clés de l'ésotérisme - Géométrie sacrée | Free Book
-date: 2024-10-24 19:20:21
-updated: 2024-10-26 12:59:59
+date: 2024-10-22T17:32:17.015Z
+updated: 2024-10-26T17:30:02.182Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60a52bbe81d1e69b4477b3ff45ab2622c984907883d8e05fdc53e2fb5728312d.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60a52bbe81d1e69b4477b3ff45ab262
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

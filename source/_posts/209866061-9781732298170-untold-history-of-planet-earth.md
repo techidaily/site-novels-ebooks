@@ -1,7 +1,7 @@
 ---
 title: Untold History of Planet Earth | Free Book
-date: 2024-10-25 15:28:20
-updated: 2024-10-26 10:41:55
+date: 2024-10-22T04:39:26.917Z
+updated: 2024-10-27T02:38:24.353Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa9e7b3bfe829cacd57e9f1f8659870f3da296a94c0ac966c1990c53e0575769.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa9e7b3bfe829cacd57e9f1f8659870
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

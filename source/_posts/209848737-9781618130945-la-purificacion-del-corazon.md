@@ -1,7 +1,7 @@
 ---
 title: La Purificación del Corazón | Free Book
-date: 2024-10-24 23:35:20
-updated: 2024-10-26 10:54:16
+date: 2024-10-20T01:24:06.829Z
+updated: 2024-10-27T00:57:47.638Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1605d1a7c92866c83469af6eb67147af32c3f0f75f5e70c39c831a9c443a4516.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1605d1a7c92866c83469af6eb67147a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

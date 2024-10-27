@@ -1,7 +1,7 @@
 ---
 title: CHAKRAS HEALING FOR BEGINNERS | Free Book
-date: 2024-10-23 23:17:31
-updated: 2024-10-26 12:35:50
+date: 2024-10-19T23:46:34.017Z
+updated: 2024-10-27T00:57:04.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26c0dfb0c8b2c21ca69cfb0865c6f3ac15dab7cc6fc4a253c804ad7866b89106.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26c0dfb0c8b2c21ca69cfb0865c6f3a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Dissolving the Ego, Realizing the Self | Free Book
-date: 2024-10-25 20:57:23
-updated: 2024-10-26 11:35:51
+date: 2024-10-21T00:05:32.002Z
+updated: 2024-10-26T21:31:14.051Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/872cb481b1fce9c297f4e6fcf65317a7ef2c9446043657d25ca6d62a984c7273.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/872cb481b1fce9c297f4e6fcf65317a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

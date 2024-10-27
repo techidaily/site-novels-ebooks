@@ -1,7 +1,7 @@
 ---
 title: The Voice of Eros (Illustrated) | Free Book
-date: 2024-10-23 11:56:42
-updated: 2024-10-26 10:21:37
+date: 2024-10-21T20:10:23.961Z
+updated: 2024-10-27T01:31:41.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6a5b4f58f32b7db9e1ea7970733ae2891cf25755dfc83bde801640d7599709c.jpg
@@ -253,3 +253,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6a5b4f58f32b7db9e1ea7970733ae2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

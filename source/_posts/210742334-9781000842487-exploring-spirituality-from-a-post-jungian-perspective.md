@@ -1,7 +1,7 @@
 ---
 title: Exploring Spirituality from a Post-Jungian Perspective | Free Book
-date: 2024-10-25 17:25:24
-updated: 2024-10-26 12:39:50
+date: 2024-10-23T16:06:17.597Z
+updated: 2024-10-26T17:36:06.135Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21fcf465cd1b202c69a3109448227d7fecb0ddbfc13518e1302bfa4140dff8f5.jpg
@@ -247,3 +247,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21fcf465cd1b202c69a3109448227d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

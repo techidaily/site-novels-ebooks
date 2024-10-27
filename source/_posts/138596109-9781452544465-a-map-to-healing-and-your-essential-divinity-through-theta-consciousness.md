@@ -1,7 +1,7 @@
 ---
 title: A Map to Healing and Your Essential Divinity Through Theta Consciousness | Free Book
-date: 2024-10-23 23:25:34
-updated: 2024-10-26 11:33:34
+date: 2024-10-25T19:37:06.414Z
+updated: 2024-10-27T01:25:04.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3549054dbf94d65d0a9e51565de8bc6a3c593d684d666d59778f021016f9a780.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3549054dbf94d65d0a9e51565de8bc6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

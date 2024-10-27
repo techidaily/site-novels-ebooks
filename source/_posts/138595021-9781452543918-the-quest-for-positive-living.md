@@ -1,7 +1,7 @@
 ---
 title: The Quest for Positive Living | Free Book
-date: 2024-10-23 15:54:10
-updated: 2024-10-26 11:48:18
+date: 2024-10-22T02:14:34.590Z
+updated: 2024-10-27T03:13:12.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9d285d2fd0c5ff99af36585529e1e1e678849964c0804ba274e17dda6e6fad.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9d285d2fd0c5ff99af36585529e1e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

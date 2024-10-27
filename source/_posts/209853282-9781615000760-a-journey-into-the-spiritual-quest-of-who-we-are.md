@@ -1,7 +1,7 @@
 ---
 title: A Journey Into The Spiritual Quest of Who We Are | Free Book
-date: 2024-10-23 11:47:39
-updated: 2024-10-26 10:41:30
+date: 2024-10-26T04:14:00.073Z
+updated: 2024-10-26T23:37:42.304Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f517a3785acc2465dcdbdec7f436a8202bb34c5251d4aef994ecef994931aa24.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f517a3785acc2465dcdbdec7f436a82
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

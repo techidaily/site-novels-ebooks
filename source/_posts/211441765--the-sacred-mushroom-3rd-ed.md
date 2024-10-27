@@ -1,7 +1,7 @@
 ---
 title: The Sacred Mushroom (3rd ed.) | Free Book
-date: 2024-10-25 19:41:51
-updated: 2024-10-26 12:26:27
+date: 2024-10-26T03:50:42.655Z
+updated: 2024-10-27T01:59:18.853Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7a944d2cc959abb8252d1cd0c954380af6b73ce227a78ef170e229f2ed8544f.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7a944d2cc959abb8252d1cd0c95438
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

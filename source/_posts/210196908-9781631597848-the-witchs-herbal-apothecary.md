@@ -1,7 +1,7 @@
 ---
 title: The Witch's Herbal Apothecary | Free Book
-date: 2024-10-25 20:31:22
-updated: 2024-10-26 10:32:31
+date: 2024-10-22T18:02:21.095Z
+updated: 2024-10-27T02:21:26.838Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9156a24356c4ba1aa64145ab247e2ef4a14d1a4d7d6d6dca5c1dffd7f2ca12c.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9156a24356c4ba1aa64145ab247e2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

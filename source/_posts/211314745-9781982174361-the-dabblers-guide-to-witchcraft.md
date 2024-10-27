@@ -1,7 +1,7 @@
 ---
 title: The Dabbler's Guide to Witchcraft | Free Book
-date: 2024-10-23 11:11:20
-updated: 2024-10-26 11:21:45
+date: 2024-10-20T20:05:05.997Z
+updated: 2024-10-26T18:11:44.325Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75a79ec8e3709d492091ee4db34787a63ea4cb4760660bebf60eeeae47fbd863.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75a79ec8e3709d492091ee4db34787a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

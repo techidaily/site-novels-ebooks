@@ -1,7 +1,7 @@
 ---
 title: Sis Keep Your Head Up, It Gets Better | Free Book
-date: 2024-10-25 15:30:22
-updated: 2024-10-26 12:34:33
+date: 2024-10-20T22:18:15.212Z
+updated: 2024-10-27T05:08:04.685Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b4084dd655e84ee79c15bb5d43e1c6601715ddd8bd05e37a0ec0231a477c4900.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b4084dd655e84ee79c15bb5d43e1c66
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

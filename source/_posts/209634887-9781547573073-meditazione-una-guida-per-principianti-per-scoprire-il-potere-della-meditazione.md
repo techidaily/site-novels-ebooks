@@ -1,7 +1,7 @@
 ---
 title: "Meditazione: una guida per principianti per scoprire il potere della meditazione | Free Book"
-date: 2024-10-23 15:59:10
-updated: 2024-10-26 12:45:12
+date: 2024-10-24T19:41:05.188Z
+updated: 2024-10-27T03:18:30.478Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afc4d74c3b353e4184c0acbd92b107354e0e2d17adab843d6a01c43676b8ef49.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afc4d74c3b353e4184c0acbd92b1073
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

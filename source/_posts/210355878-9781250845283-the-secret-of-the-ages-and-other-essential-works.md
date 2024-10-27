@@ -1,7 +1,7 @@
 ---
 title: "The Secret of the Ages: And Other Essential Works | Free Book"
-date: 2024-10-23 11:37:15
-updated: 2024-10-26 10:41:10
+date: 2024-10-25T01:00:45.573Z
+updated: 2024-10-27T01:17:04.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62f74cdfcf57989b026dc3f7edb2d8b2c2a4ab6fd6fed09261af2008a3bf8dbb.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62f74cdfcf57989b026dc3f7edb2d8b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

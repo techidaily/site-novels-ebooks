@@ -1,7 +1,7 @@
 ---
 title: "UFOs: A History of Alien Activity from Sightings to Abductions to Global Threat | Free Book"
-date: 2024-10-23 12:26:57
-updated: 2024-10-26 11:25:49
+date: 2024-10-22T04:58:17.934Z
+updated: 2024-10-26T21:32:40.998Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a252f445c0ec3a6e80ed420e88f3adb924793421c9c5b77345c0c7423358541e.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a252f445c0ec3a6e80ed420e88f3adb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

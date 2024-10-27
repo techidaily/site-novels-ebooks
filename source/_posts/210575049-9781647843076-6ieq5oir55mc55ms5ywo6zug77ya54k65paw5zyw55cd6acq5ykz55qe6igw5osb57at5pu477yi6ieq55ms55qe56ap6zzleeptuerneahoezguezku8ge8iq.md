@@ -1,7 +1,7 @@
 ---
 title: 自我療癒全集：為新地球預備的聖愛經書（自癒的福音-究竟的療癒！） | Free Book
-date: 2024-10-25 12:37:20
-updated: 2024-10-26 10:20:20
+date: 2024-10-24T18:22:11.477Z
+updated: 2024-10-27T01:54:32.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/525726f2d41b286f51fc100255fd32cf49c0d60e0e927d9741738a4472ee3c41.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/525726f2d41b286f51fc100255fd32c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

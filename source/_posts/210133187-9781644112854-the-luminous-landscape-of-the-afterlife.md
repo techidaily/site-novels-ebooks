@@ -1,7 +1,7 @@
 ---
 title: The Luminous Landscape of the Afterlife | Free Book
-date: 2024-10-24 12:19:56
-updated: 2024-10-26 11:20:51
+date: 2024-10-24T01:50:18.416Z
+updated: 2024-10-27T05:40:00.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5483a95599eaa63015aef43a6258c1fdf40ae2bd9a196246e5cf0fe90f2c4cb6.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5483a95599eaa63015aef43a6258c1f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

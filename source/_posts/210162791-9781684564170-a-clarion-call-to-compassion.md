@@ -1,7 +1,7 @@
 ---
 title: A Clarion Call to Compassion | Free Book
-date: 2024-10-25 13:37:57
-updated: 2024-10-26 11:46:27
+date: 2024-10-24T20:42:31.542Z
+updated: 2024-10-27T03:29:04.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94cc596c5daac15a6f4480c765ab355229eca92a3ade17935e8efe038d60df72.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94cc596c5daac15a6f4480c765ab355
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Live in One Light - Creating Heaven on Earth with the Light of Life within | Free Book
-date: 2024-10-25 13:16:46
-updated: 2024-10-26 10:12:24
+date: 2024-10-23T19:05:01.450Z
+updated: 2024-10-26T16:28:29.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab529f50caf89d59114eb4c3fc46d59766c822dbb6627eab24fc0ab9a4e50e8c.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab529f50caf89d59114eb4c3fc46d59
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

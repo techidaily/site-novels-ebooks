@@ -1,7 +1,7 @@
 ---
 title: The Hidden Power of Emotions | Free Book
-date: 2024-10-24 19:20:38
-updated: 2024-10-26 10:22:34
+date: 2024-10-25T17:55:37.662Z
+updated: 2024-10-26T18:47:19.197Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/655c2f44a374643c03a555f294b645e640f4464c3eba60fae9a60384d9fc9e91.jpg
@@ -217,3 +217,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/655c2f44a374643c03a555f294b645e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

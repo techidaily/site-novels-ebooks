@@ -1,7 +1,7 @@
 ---
 title: "Your Personal Horoscope 2013: Month-by-month forecasts for every sign | Free Book"
-date: 2024-10-25 21:46:36
-updated: 2024-10-26 12:54:51
+date: 2024-10-24T20:42:39.486Z
+updated: 2024-10-27T04:54:08.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/273759344b2dd6c2725f323d433cd5ee08fe70acde5e499f68aed21f9fd2c201.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/273759344b2dd6c2725f323d433cd5e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

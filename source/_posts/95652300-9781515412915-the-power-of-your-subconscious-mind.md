@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-10-23 22:52:19
-updated: 2024-10-26 10:22:25
+date: 2024-10-22T00:30:00.468Z
+updated: 2024-10-27T05:52:38.172Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8d911b8984c7f66b77502078cc88c8b4a13fcd1013b1e12092af58918bd1872.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8d911b8984c7f66b77502078cc88c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

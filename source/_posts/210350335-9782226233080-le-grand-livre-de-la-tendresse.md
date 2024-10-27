@@ -1,7 +1,7 @@
 ---
 title: Le Grand Livre de la tendresse | Free Book
-date: 2024-10-24 10:38:43
-updated: 2024-10-26 10:28:52
+date: 2024-10-21T05:01:50.507Z
+updated: 2024-10-27T02:31:14.753Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d45d740457d7979c62039b3b0311179b56dc818f18ec0764c9bee04271f5058.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d45d740457d7979c62039b3b031117
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

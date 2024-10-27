@@ -1,7 +1,7 @@
 ---
 title: Mothman and Other Curious Encounters | Free Book
-date: 2024-10-23 11:34:46
-updated: 2024-10-26 12:10:11
+date: 2024-10-22T22:22:26.164Z
+updated: 2024-10-26T16:07:37.760Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4786e2623b183f6e5224ff8668db138253fa9b88870d0d388c00ff64fae950a.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4786e2623b183f6e5224ff8668db13
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

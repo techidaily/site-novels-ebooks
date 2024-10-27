@@ -1,7 +1,7 @@
 ---
 title: "The Sons of Osiris: A Side Degree | Free Book"
-date: 2024-10-23 15:56:52
-updated: 2024-10-26 10:47:26
+date: 2024-10-25T16:05:01.691Z
+updated: 2024-10-27T00:21:29.890Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9413fc90f2fcf4c022bffc657d4875ccd390cb9d29884e95bc98d3075e55dec7.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9413fc90f2fcf4c022bffc657d4875c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

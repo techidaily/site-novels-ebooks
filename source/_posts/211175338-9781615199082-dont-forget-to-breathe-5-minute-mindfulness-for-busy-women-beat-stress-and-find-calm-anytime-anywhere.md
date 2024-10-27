@@ -1,7 +1,7 @@
 ---
 title: "Don't Forget to Breathe: 5-Minute Mindfulness for Busy Women - Beat Stress and Find Calm Anytime, Anywhere! | Free Book"
-date: 2024-10-23 17:31:55
-updated: 2024-10-26 12:18:53
+date: 2024-10-24T23:38:53.300Z
+updated: 2024-10-26T18:33:57.659Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9dce3579765e347252d4348f2293293bfe6f2e668b6ed74873e9493470082b12.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9dce3579765e347252d4348f2293293
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

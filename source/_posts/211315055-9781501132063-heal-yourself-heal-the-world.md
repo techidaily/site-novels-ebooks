@@ -1,7 +1,7 @@
 ---
 title: Heal Yourself, Heal the World | Free Book
-date: 2024-10-23 11:56:46
-updated: 2024-10-26 10:30:16
+date: 2024-10-24T05:13:26.986Z
+updated: 2024-10-26T19:24:11.658Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4eea32d8e058c33a0d9ad98ed11c77746e04f34556dc069bf63ef75a8ce7f70f.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4eea32d8e058c33a0d9ad98ed11c777
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

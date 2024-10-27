@@ -1,7 +1,7 @@
 ---
 title: Nighty Night Dreamtime Collection 2, Sleep Stories to Reduce Stress and Anxiety | Free Book
-date: 2024-10-23 12:51:52
-updated: 2024-10-26 10:28:59
+date: 2024-10-23T01:48:50.917Z
+updated: 2024-10-27T05:09:26.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/787406f9235188080f5c300db8c4a3c346484f9b3bfd7f07551a08e606b734d2.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/787406f9235188080f5c300db8c4a3c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

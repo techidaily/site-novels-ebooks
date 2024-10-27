@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Reincarnation of Biblical People | Free Book
-date: 2024-10-23 17:33:17
-updated: 2024-10-26 11:19:19
+date: 2024-10-19T23:17:19.389Z
+updated: 2024-10-26T21:04:59.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3585ac1e5009349ed5de096a48ff6c1b3955fa76921cfd5dd9336884de0d7c4a.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3585ac1e5009349ed5de096a48ff6c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

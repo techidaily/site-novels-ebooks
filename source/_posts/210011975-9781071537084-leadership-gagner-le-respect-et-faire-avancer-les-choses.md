@@ -1,7 +1,7 @@
 ---
 title: "Leadership: Gagner Le Respect Et Faire Avancer Les Choses | Free Book"
-date: 2024-10-23 12:15:53
-updated: 2024-10-26 10:45:36
+date: 2024-10-23T04:25:37.143Z
+updated: 2024-10-26T21:34:09.061Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5551e360075e934048c057d3c679b2d93b6fa9cd7bd44e2c5e42aa5b88d3911e.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5551e360075e934048c057d3c679b2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

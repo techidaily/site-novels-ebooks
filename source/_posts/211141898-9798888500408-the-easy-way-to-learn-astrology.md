@@ -1,7 +1,7 @@
 ---
 title: The Easy Way to Learn Astrology | Free Book
-date: 2024-10-24 17:41:55
-updated: 2024-10-26 12:21:43
+date: 2024-10-22T22:22:32.846Z
+updated: 2024-10-26T18:43:20.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6bf23fc01369b6110ef1704cb1ad518f67a7531642428d1e40e3f5b0d46295e3.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6bf23fc01369b6110ef1704cb1ad518
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Famous Western Sensitives | Free Book
-date: 2024-10-24 19:56:30
-updated: 2024-10-26 11:37:47
+date: 2024-10-19T20:20:39.530Z
+updated: 2024-10-26T23:03:15.776Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb5da90869ba4586f82bcb8e77db7f78ec47a2e9b46c13619dcfe95da3251728.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb5da90869ba4586f82bcb8e77db7f7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

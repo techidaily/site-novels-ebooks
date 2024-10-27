@@ -1,7 +1,7 @@
 ---
 title: Haunted Colleges and Universities | Free Book
-date: 2024-10-25 20:50:18
-updated: 2024-10-26 11:38:49
+date: 2024-10-23T16:53:01.720Z
+updated: 2024-10-27T00:07:01.809Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b6dc285a2e9f4ccfc23083b0889564c9c75914c3e61857b2b9c22ed31fa6003.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b6dc285a2e9f4ccfc23083b0889564
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

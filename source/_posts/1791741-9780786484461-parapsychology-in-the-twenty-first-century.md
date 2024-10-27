@@ -1,7 +1,7 @@
 ---
 title: Parapsychology in the Twenty-First Century | Free Book
-date: 2024-10-23 13:27:31
-updated: 2024-10-26 11:15:28
+date: 2024-10-21T05:26:25.792Z
+updated: 2024-10-27T02:40:23.399Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89a6d3c2444aea8b16847adc03897a9585b0d143b073778de230d18cf0cc200d.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89a6d3c2444aea8b16847adc03897a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: New Revolutions for a Small Planet | Free Book
-date: 2024-10-25 22:10:44
-updated: 2024-10-26 12:10:42
+date: 2024-10-25T21:53:47.889Z
+updated: 2024-10-26T18:43:08.490Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95ce9d7c3eafcb9c2f8efba7a22d404a8e5494b780c8909daa652558f5772455.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95ce9d7c3eafcb9c2f8efba7a22d404
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

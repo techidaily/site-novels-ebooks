@@ -1,7 +1,7 @@
 ---
 title: Shor Shamanic Epic Folktales | Free Book
-date: 2024-10-24 11:48:34
-updated: 2024-10-26 10:13:54
+date: 2024-10-19T16:34:20.035Z
+updated: 2024-10-27T04:58:56.835Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4ce0828e0e74d9b9593c5d0d4fd9328330722e1b61cb2146f829966d4f9a7cc0.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4ce0828e0e74d9b9593c5d0d4fd9328
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

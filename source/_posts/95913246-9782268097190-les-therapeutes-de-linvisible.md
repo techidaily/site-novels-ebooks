@@ -1,7 +1,7 @@
 ---
 title: Les thérapeutes de l'invisible | Free Book
-date: 2024-10-23 14:15:37
-updated: 2024-10-26 10:45:35
+date: 2024-10-25T16:05:14.534Z
+updated: 2024-10-26T19:15:02.600Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42906114ca332878512917b0a35d2761c50efa35d4b3c0ef4e65d561e1ae6653.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42906114ca332878512917b0a35d276
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: BEGINNER'S GUIDE TO CHAKRAS | Free Book
-date: 2024-10-24 11:18:58
-updated: 2024-10-26 10:41:36
+date: 2024-10-19T16:10:49.149Z
+updated: 2024-10-26T16:33:26.606Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/683facab94e8408f11bcf4479cf644acbdaddde310e93a9d06416b2bc382f515.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/683facab94e8408f11bcf4479cf644a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

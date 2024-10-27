@@ -1,7 +1,7 @@
 ---
 title: Allumez la puissance brute du feu en vous - Manuel de baptême du Saint-Esprit | Free Book
-date: 2024-10-24 10:47:26
-updated: 2024-10-26 10:15:42
+date: 2024-10-23T21:36:00.134Z
+updated: 2024-10-26T18:54:23.426Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f400831ee3b219961f4610bcafb0aab6dcbf3b7e127b807a21f3be375e186311.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f400831ee3b219961f4610bcafb0aab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

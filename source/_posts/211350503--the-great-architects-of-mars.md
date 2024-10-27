@@ -1,7 +1,7 @@
 ---
 title: The Great Architects of Mars | Free Book
-date: 2024-10-25 12:45:32
-updated: 2024-10-26 10:14:43
+date: 2024-10-23T18:19:34.399Z
+updated: 2024-10-27T01:32:23.452Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/542a9efa3205cea236188a7dbb8e9b4f27f832a70e763c7054eaa95655784782.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/542a9efa3205cea236188a7dbb8e9b4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

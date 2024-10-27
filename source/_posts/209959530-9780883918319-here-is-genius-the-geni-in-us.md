@@ -1,7 +1,7 @@
 ---
 title: "Here is Genius: The Geni-in-us | Free Book"
-date: 2024-10-25 18:59:25
-updated: 2024-10-26 12:30:24
+date: 2024-10-21T19:03:05.493Z
+updated: 2024-10-27T02:52:35.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a6cc26a8e94a7b70d379c1a75a4f4701a42673dcf34a722c4996b1a7f4739ec.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a6cc26a8e94a7b70d379c1a75a4f47
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

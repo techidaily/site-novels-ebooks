@@ -1,7 +1,7 @@
 ---
 title: Twilight Language of the Nagual | Free Book
-date: 2024-10-25 22:20:14
-updated: 2024-10-26 11:37:59
+date: 2024-10-26T01:52:45.742Z
+updated: 2024-10-26T22:30:12.738Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4931e9905ce84e00eb5c78b616a65de63d3587ee6fa8f03d79f98c070307dde6.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4931e9905ce84e00eb5c78b616a65de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

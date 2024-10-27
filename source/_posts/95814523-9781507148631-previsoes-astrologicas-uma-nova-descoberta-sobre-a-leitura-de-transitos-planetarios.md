@@ -1,7 +1,7 @@
 ---
 title: "Previsões astrológicas: uma nova descoberta sobre a leitura de trânsitos planetários | Free Book"
-date: 2024-10-24 16:53:32
-updated: 2024-10-26 12:15:19
+date: 2024-10-21T18:40:29.658Z
+updated: 2024-10-26T17:37:19.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fe279cadcf6c0be16b32339abb2626f9e765674e8678656070cf4bca3e91dfa.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fe279cadcf6c0be16b32339abb2626
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

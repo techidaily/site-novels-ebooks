@@ -1,7 +1,7 @@
 ---
 title: The Mystery of Spring-Heeled Jack | Free Book
-date: 2024-10-24 12:33:14
-updated: 2024-10-26 10:59:28
+date: 2024-10-24T20:04:05.420Z
+updated: 2024-10-26T18:07:49.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93aba708e9d07ab2af3e4e2f3e052d61af9155ed6f48fd6ff9712b2a5bc12a6e.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93aba708e9d07ab2af3e4e2f3e052d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

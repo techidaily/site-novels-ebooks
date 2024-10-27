@@ -1,7 +1,7 @@
 ---
 title: The Nightmare Dictionary | Free Book
-date: 2024-10-23 20:31:48
-updated: 2024-10-26 12:59:49
+date: 2024-10-19T18:23:06.453Z
+updated: 2024-10-26T17:51:35.173Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3949dd9c9da9eafdebd3e6221f9a95f02c71d8dc15ba52316bf030c6664e53a.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3949dd9c9da9eafdebd3e6221f9a95
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

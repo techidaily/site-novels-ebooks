@@ -1,7 +1,7 @@
 ---
 title: Crop Circles, Jung, and the Reemergence of the Archetypal Feminine | Free Book
-date: 2024-10-25 16:54:54
-updated: 2024-10-26 10:38:25
+date: 2024-10-25T18:10:08.956Z
+updated: 2024-10-26T21:48:59.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f69fd9813fc05c0518c45c01a86fe828a72e18114eabcf5d0873ef3ffcd5400.jpg
@@ -233,3 +233,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f69fd9813fc05c0518c45c01a86fe8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Essential Book of Tarot | Free Book
-date: 2024-10-24 18:39:31
-updated: 2024-10-26 10:45:34
+date: 2024-10-20T21:29:52.045Z
+updated: 2024-10-26T20:30:40.982Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/825c996e140f00bad10cb10b71f4d1be94bd2a232dc70715eb10fcc32314f290.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/825c996e140f00bad10cb10b71f4d1b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

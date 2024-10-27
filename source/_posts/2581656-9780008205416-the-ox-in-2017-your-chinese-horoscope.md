@@ -1,7 +1,7 @@
 ---
 title: "The Ox in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-24 22:24:23
-updated: 2024-10-26 11:43:17
+date: 2024-10-25T16:10:43.633Z
+updated: 2024-10-26T19:13:11.523Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de94051356154dcb88d9a8864990e159333e0f61db4618c33c492078a4804c6b.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de94051356154dcb88d9a8864990e15
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

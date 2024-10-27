@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2025: Your Personal Horoscope | Free Book"
-date: 2024-10-25 23:26:31
-updated: 2024-10-26 11:18:12
+date: 2024-10-25T22:36:51.676Z
+updated: 2024-10-27T03:34:37.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/924ff187e4f163580b10f1c4abe1bc2de645bda46744c1384fdeef5cf59ff452.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/924ff187e4f163580b10f1c4abe1bc2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

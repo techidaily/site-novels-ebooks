@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Through Daily Meditation Guide | Free Book
-date: 2024-10-24 10:32:41
-updated: 2024-10-26 12:33:46
+date: 2024-10-19T18:44:06.103Z
+updated: 2024-10-27T00:27:29.361Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec30b3d087a814e407757a404b87a6e83b0f6fea4bd0772bf2f0a88a755c9b2d.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec30b3d087a814e407757a404b87a6e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

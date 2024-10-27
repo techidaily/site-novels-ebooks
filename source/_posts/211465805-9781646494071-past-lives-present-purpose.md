@@ -1,7 +1,7 @@
 ---
 title: Past Lives & Present Purpose | Free Book
-date: 2024-10-24 15:57:26
-updated: 2024-10-26 12:14:28
+date: 2024-10-19T23:34:18.406Z
+updated: 2024-10-26T20:03:40.893Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6339c87deb9e47ca7b224ee3443bdef2e497e7fad33af093b59ac4a8b9c57703.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6339c87deb9e47ca7b224ee3443bdef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

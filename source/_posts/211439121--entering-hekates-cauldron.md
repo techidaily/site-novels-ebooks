@@ -1,7 +1,7 @@
 ---
 title: Entering Hekate's Cauldron | Free Book
-date: 2024-10-25 19:17:58
-updated: 2024-10-26 11:44:56
+date: 2024-10-20T19:56:31.464Z
+updated: 2024-10-26T17:16:13.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ad966c8585f9989f961dbc03bd90dd30942377a830371eb88d02f8ac04767e0.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ad966c8585f9989f961dbc03bd90dd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

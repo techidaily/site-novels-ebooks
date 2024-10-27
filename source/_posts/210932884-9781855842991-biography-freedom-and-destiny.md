@@ -1,7 +1,7 @@
 ---
 title: "Biography: Freedom and Destiny | Free Book"
-date: 2024-10-24 19:33:34
-updated: 2024-10-26 11:54:18
+date: 2024-10-22T03:31:18.722Z
+updated: 2024-10-26T21:26:12.027Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73f7244ad08b8c39c46e64ce698272320b56bbdb869dbbac26b7ea1660071fe3.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73f7244ad08b8c39c46e64ce6982723
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

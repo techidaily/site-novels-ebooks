@@ -1,7 +1,7 @@
 ---
 title: The Illustrated Calendar of the Soul | Free Book
-date: 2024-10-25 14:45:50
-updated: 2024-10-26 10:13:30
+date: 2024-10-21T16:21:32.028Z
+updated: 2024-10-27T05:19:52.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30105a88dc2aee9ac313b238448f526dcae9fabe98023b31d37f75cfa1393ef6.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30105a88dc2aee9ac313b238448f526
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

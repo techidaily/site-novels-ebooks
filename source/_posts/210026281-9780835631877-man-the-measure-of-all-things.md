@@ -1,7 +1,7 @@
 ---
 title: Man, the Measure of All Things | Free Book
-date: 2024-10-24 15:59:50
-updated: 2024-10-26 12:45:23
+date: 2024-10-26T01:24:21.369Z
+updated: 2024-10-27T00:36:13.636Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aec7b7ce1713e43cd0e849c72e7d55fab03ce1b85eaa1eb7e40b3983b459d324.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aec7b7ce1713e43cd0e849c72e7d55f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

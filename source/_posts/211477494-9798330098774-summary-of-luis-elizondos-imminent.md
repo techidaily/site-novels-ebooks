@@ -1,7 +1,7 @@
 ---
 title: Summary of Luis Elizondo’s Imminent | Free Book
-date: 2024-10-23 12:21:38
-updated: 2024-10-26 10:21:34
+date: 2024-10-23T23:08:42.143Z
+updated: 2024-10-26T22:30:02.325Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/294a0b88c8df7f63570855be111a5b74ae154b335164e814bc2838c40297e264.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/294a0b88c8df7f63570855be111a5b7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mindfulness in Reading | Free Book
-date: 2024-10-23 22:25:45
-updated: 2024-10-26 12:20:38
+date: 2024-10-20T03:38:50.499Z
+updated: 2024-10-26T19:36:40.084Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2dec284f7b45a70e33e0da055f097daa12dc694967093795f0f8993aed24f3bb.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2dec284f7b45a70e33e0da055f097da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

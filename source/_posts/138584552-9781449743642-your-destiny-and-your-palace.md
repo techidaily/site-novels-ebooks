@@ -1,7 +1,7 @@
 ---
 title: Your Destiny and Your Palace | Free Book
-date: 2024-10-25 21:45:15
-updated: 2024-10-26 10:58:40
+date: 2024-10-25T19:06:17.185Z
+updated: 2024-10-26T17:23:08.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/923dbcaf09d93712069608c3d28accbb117c0047e36c6ec111c38d5b3d0d43f5.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/923dbcaf09d93712069608c3d28accb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

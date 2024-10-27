@@ -1,7 +1,7 @@
 ---
 title: The New Science and Spirituality Reader | Free Book
-date: 2024-10-23 19:40:54
-updated: 2024-10-26 12:19:59
+date: 2024-10-26T01:12:25.986Z
+updated: 2024-10-27T02:21:33.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c856a0c60b74149478d1f28499e5059802cc80be04ddd70fff87c27b6c96f18f.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c856a0c60b74149478d1f28499e5059
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

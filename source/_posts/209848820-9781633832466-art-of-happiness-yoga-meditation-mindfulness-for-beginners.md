@@ -1,7 +1,7 @@
 ---
 title: "Art Of Happiness: Yoga Meditation Mindfulness For Beginners | Free Book"
-date: 2024-10-25 14:12:41
-updated: 2024-10-26 12:30:54
+date: 2024-10-24T18:29:20.874Z
+updated: 2024-10-26T18:42:43.857Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f2ec669b6a71b0cea8ae97ad63adac95c70a27de58e2159b2cdd45a1e9a54324.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f2ec669b6a71b0cea8ae97ad63adac9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

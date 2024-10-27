@@ -1,7 +1,7 @@
 ---
 title: The Secret to Perfect Living | Free Book
-date: 2024-10-24 10:48:17
-updated: 2024-10-26 12:37:24
+date: 2024-10-22T19:23:58.732Z
+updated: 2024-10-26T19:18:08.055Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60c7c3b4349b1ec5473e18c3f41c8ff8356c2c83d476dccb53f034c2ed500130.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60c7c3b4349b1ec5473e18c3f41c8ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

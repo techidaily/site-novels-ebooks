@@ -1,7 +1,7 @@
 ---
 title: Cosmic Christianity and the Impulse of Michael | Free Book
-date: 2024-10-25 16:56:58
-updated: 2024-10-26 12:31:14
+date: 2024-10-25T00:35:21.398Z
+updated: 2024-10-26T21:17:40.378Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a5624e52ed559d0b1498da61ecccc77e119de4e2cfd8de808b9db85c7c13ef0.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a5624e52ed559d0b1498da61ecccc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Exposed, Uncovered, & Declassified: Lost Civilizations & Secrets of the Past | Free Book"
-date: 2024-10-25 13:11:42
-updated: 2024-10-26 10:24:59
+date: 2024-10-24T02:54:32.520Z
+updated: 2024-10-27T05:12:52.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e141c2e92082d9cbfceb50f1c9986f4710d5941003e2adcd91e254489777a618.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e141c2e92082d9cbfceb50f1c9986f4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

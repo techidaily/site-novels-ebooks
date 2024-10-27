@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales of Wisconsin (2nd ed.) | Free Book
-date: 2024-10-24 20:44:43
-updated: 2024-10-26 10:17:31
+date: 2024-10-22T03:31:45.166Z
+updated: 2024-10-26T19:41:18.638Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09cf0f7485f8c923c324f29c2c3b30ea3c862ca7ee658309c9b0edc36e656f13.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09cf0f7485f8c923c324f29c2c3b30e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: UFOs, ETs, and Alien Abductions | Free Book
-date: 2024-10-25 16:26:32
-updated: 2024-10-26 12:47:19
+date: 2024-10-21T21:35:47.933Z
+updated: 2024-10-27T03:50:46.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bb826b76034aa633b89e9382ed35e9b13c4b8361e8866d65a3a5f1e8a0bdb18.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bb826b76034aa633b89e9382ed35e9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

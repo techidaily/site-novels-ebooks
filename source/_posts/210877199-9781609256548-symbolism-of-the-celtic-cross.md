@@ -1,7 +1,7 @@
 ---
 title: Symbolism of the Celtic Cross | Free Book
-date: 2024-10-24 23:27:21
-updated: 2024-10-26 12:19:10
+date: 2024-10-26T00:20:49.816Z
+updated: 2024-10-26T21:38:34.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94e58d18c686dd6f6d02b50bfc54aabd1375c51bc21a0398f44618e5c97d4c59.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94e58d18c686dd6f6d02b50bfc54aab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Summary of Mark Epstein's The Zen of Therapy | Free Book
-date: 2024-10-24 19:19:25
-updated: 2024-10-26 10:17:29
+date: 2024-10-22T18:29:29.270Z
+updated: 2024-10-26T18:27:39.510Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fae346e753749845c972e980875cbdd16f134da7a124d81735ecee639913a107.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fae346e753749845c972e980875cbdd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

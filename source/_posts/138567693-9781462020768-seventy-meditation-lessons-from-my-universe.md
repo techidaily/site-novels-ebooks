@@ -1,7 +1,7 @@
 ---
 title: Seventy Meditation Lessons from My Universe | Free Book
-date: 2024-10-23 17:25:26
-updated: 2024-10-26 12:53:29
+date: 2024-10-19T16:31:49.579Z
+updated: 2024-10-27T01:27:11.294Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0a3ea7eaf95c9f04a505c33fb52da31383536b8c443fd7dc85b61853d2c0811.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0a3ea7eaf95c9f04a505c33fb52da3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: When Silence is Misunderstood | Free Book
-date: 2024-10-24 19:42:27
-updated: 2024-10-26 11:34:30
+date: 2024-10-25T00:47:26.046Z
+updated: 2024-10-27T05:09:51.346Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f291f8ffb9b45a233ae4eb0052777971743be85c81e2dfd4b39e819b919a67f5.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f291f8ffb9b45a233ae4eb005277797
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

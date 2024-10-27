@@ -1,7 +1,7 @@
 ---
 title: Waarom egskeiding 'n moet is | Free Book
-date: 2024-10-24 20:16:47
-updated: 2024-10-26 11:21:25
+date: 2024-10-25T21:09:03.711Z
+updated: 2024-10-26T18:28:50.164Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5290c965de9796033737af25aba8cb5184fdd071d25eb055a108412209b592cc.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5290c965de9796033737af25aba8cb5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

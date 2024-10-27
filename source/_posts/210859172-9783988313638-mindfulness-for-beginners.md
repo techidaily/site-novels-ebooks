@@ -1,7 +1,7 @@
 ---
 title: MINDFULNESS FOR BEGINNERS | Free Book
-date: 2024-10-23 13:37:56
-updated: 2024-10-26 10:22:39
+date: 2024-10-20T19:48:26.621Z
+updated: 2024-10-27T02:02:08.600Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/437afcbeed13b4f9de6b0dfaed88f42e48cd6e73bb30788874104eda48ea2d36.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/437afcbeed13b4f9de6b0dfaed88f42
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

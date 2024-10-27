@@ -1,7 +1,7 @@
 ---
 title: The Inner Work of Racial Justice | Free Book
-date: 2024-10-25 10:52:31
-updated: 2024-10-26 10:18:54
+date: 2024-10-19T19:49:56.852Z
+updated: 2024-10-27T03:34:50.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae82f316a16786f302f0f6353dcd3ebf888be14dbba1a460235d54bbf28a8483.jpg
@@ -270,3 +270,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae82f316a16786f302f0f6353dcd3eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

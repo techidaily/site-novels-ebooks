@@ -1,7 +1,7 @@
 ---
 title: Principles of EFT (Emotional Freedom Technique) | Free Book
-date: 2024-10-24 10:46:34
-updated: 2024-10-26 12:42:51
+date: 2024-10-23T23:16:45.044Z
+updated: 2024-10-26T23:05:52.239Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7776efaef049aec9ae76cc8b409d87d71efce802662b76d387aafb76887e959b.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7776efaef049aec9ae76cc8b409d87d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

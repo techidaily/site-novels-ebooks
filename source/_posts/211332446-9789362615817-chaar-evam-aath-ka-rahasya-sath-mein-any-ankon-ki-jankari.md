@@ -1,7 +1,7 @@
 ---
 title: Chaar evam aath ka rahasya ,sath mein any ankon ki jankari | Free Book
-date: 2024-10-25 12:36:15
-updated: 2024-10-26 12:11:12
+date: 2024-10-25T18:57:11.323Z
+updated: 2024-10-27T04:59:16.505Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb633bf70be6ce081bcfd99167b1f2bcb6d6779658b45df6d00a1d0c8b38c829.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb633bf70be6ce081bcfd99167b1f2b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

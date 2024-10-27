@@ -1,7 +1,7 @@
 ---
 title: The Druidic Art of Divination | Free Book
-date: 2024-10-25 20:10:33
-updated: 2024-10-26 12:38:29
+date: 2024-10-24T18:08:38.627Z
+updated: 2024-10-26T19:40:47.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/506c89d96dac8ca464e9b7e0d442bf4645d2a374d52823cbe63b8870d159c13c.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/506c89d96dac8ca464e9b7e0d442bf4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

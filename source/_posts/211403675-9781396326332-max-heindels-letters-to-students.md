@@ -1,7 +1,7 @@
 ---
 title: Max Heindel's Letters to Students | Free Book
-date: 2024-10-25 12:55:44
-updated: 2024-10-26 10:36:50
+date: 2024-10-24T21:54:20.325Z
+updated: 2024-10-26T21:25:24.753Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/575433c00a183a53a3542bc81bdf98a3c956addeaa8f943df4141073a1c69820.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/575433c00a183a53a3542bc81bdf98a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

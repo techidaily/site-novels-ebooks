@@ -1,7 +1,7 @@
 ---
 title: "The Horse in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-23 16:55:55
-updated: 2024-10-26 11:43:25
+date: 2024-10-19T20:58:46.132Z
+updated: 2024-10-27T02:43:37.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71d4b3ef8c169d420e50d959c512c2efd43e8b40b5d12e3507d5f7d56f17e944.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71d4b3ef8c169d420e50d959c512c2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

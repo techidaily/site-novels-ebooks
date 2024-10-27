@@ -1,7 +1,7 @@
 ---
 title: Massachusetts Book of the Dead | Free Book
-date: 2024-10-24 20:43:53
-updated: 2024-10-26 10:50:57
+date: 2024-10-25T23:39:10.311Z
+updated: 2024-10-26T19:30:16.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ec2e136212c2c3175c43c4a54f1dea92ccf3178d0bf38d0332042a8534db2c9.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ec2e136212c2c3175c43c4a54f1dea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

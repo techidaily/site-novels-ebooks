@@ -1,7 +1,7 @@
 ---
 title: The Self-Actualizing Cosmos | Free Book
-date: 2024-10-23 14:54:35
-updated: 2024-10-26 12:22:58
+date: 2024-10-25T17:15:30.191Z
+updated: 2024-10-26T21:37:31.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab87a22169bd1ee83bccb40922acebabd90c8ffd80a748d176fc7da59b1a6891.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab87a22169bd1ee83bccb40922aceba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

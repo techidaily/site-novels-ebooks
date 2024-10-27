@@ -1,7 +1,7 @@
 ---
 title: Twenty-Five Doors to Meditation | Free Book
-date: 2024-10-24 15:23:34
-updated: 2024-10-26 10:16:48
+date: 2024-10-22T05:49:39.557Z
+updated: 2024-10-27T05:40:13.788Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd6c19d17d9f67d38055de5f0a8aefebc4b8d7ea597a3ec4bf6946cecc275d94.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd6c19d17d9f67d38055de5f0a8aefe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

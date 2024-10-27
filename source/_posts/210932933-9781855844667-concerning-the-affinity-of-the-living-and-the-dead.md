@@ -1,7 +1,7 @@
 ---
 title: Concerning The Affinity of The Living And The Dead | Free Book
-date: 2024-10-24 17:31:49
-updated: 2024-10-26 12:17:45
+date: 2024-10-25T02:06:51.437Z
+updated: 2024-10-27T05:35:21.534Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4316e1694ca250810401405e7c365d33878137ccb86034625e598d18bce204d6.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4316e1694ca250810401405e7c365d3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

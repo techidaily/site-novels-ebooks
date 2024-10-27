@@ -1,7 +1,7 @@
 ---
 title: The Vision Partner Journal | Free Book
-date: 2024-10-25 18:54:12
-updated: 2024-10-26 10:57:58
+date: 2024-10-24T20:09:48.675Z
+updated: 2024-10-27T04:55:06.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf3f19eeb4edf9507dae70e801256f24ef10f82fce46f4abe3123c66176e7598.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf3f19eeb4edf9507dae70e801256f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: From Sunspots to Strawberries | Free Book
-date: 2024-10-25 13:17:30
-updated: 2024-10-26 12:35:17
+date: 2024-10-24T03:15:37.546Z
+updated: 2024-10-27T01:24:02.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1772589db060f7df5d7f73f52a5510232024816c2106c0bea6ccf3d84aad58b6.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1772589db060f7df5d7f73f52a55102
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Essential Reiki Teaching Manual | Free Book
-date: 2024-10-23 21:11:42
-updated: 2024-10-26 12:12:39
+date: 2024-10-23T00:19:32.674Z
+updated: 2024-10-27T05:31:41.635Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4e66cee721fb58068987cbec8173e23991b37fb4d834b34c7e224adca2cbc32.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4e66cee721fb58068987cbec8173e2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

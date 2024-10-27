@@ -1,7 +1,7 @@
 ---
 title: The Pocket Book of Stones (3rd ed.) | Free Book
-date: 2024-10-23 13:35:53
-updated: 2024-10-26 10:41:56
+date: 2024-10-22T16:40:03.095Z
+updated: 2024-10-26T21:19:29.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aad8ba21742b0763eedab0f48bfed0a5b66eaf08230068130a0839f94bd091b7.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aad8ba21742b0763eedab0f48bfed0a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

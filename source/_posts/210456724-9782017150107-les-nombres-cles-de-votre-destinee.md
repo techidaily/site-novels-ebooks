@@ -1,7 +1,7 @@
 ---
 title: Les nombres clés de votre destinée | Free Book
-date: 2024-10-25 10:36:17
-updated: 2024-10-26 11:33:17
+date: 2024-10-20T21:05:50.910Z
+updated: 2024-10-27T03:27:18.940Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e2d19724dc91c5202dc099eabd5c07c6c9a4cdb8d67fa3527a437110383d091.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e2d19724dc91c5202dc099eabd5c07
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

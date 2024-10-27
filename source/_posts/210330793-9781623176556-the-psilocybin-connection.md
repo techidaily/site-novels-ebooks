@@ -1,7 +1,7 @@
 ---
 title: The Psilocybin Connection | Free Book
-date: 2024-10-25 22:31:19
-updated: 2024-10-26 12:45:43
+date: 2024-10-23T17:18:25.412Z
+updated: 2024-10-27T05:50:27.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9654e5f72fe7ea5f9357f491769493df860bd745d3770b0c01593643546bc15.jpg
@@ -235,3 +235,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9654e5f72fe7ea5f9357f491769493
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

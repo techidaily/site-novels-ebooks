@@ -1,7 +1,7 @@
 ---
 title: Quatre petits bouts de pain | Free Book
-date: 2024-10-25 23:27:53
-updated: 2024-10-26 11:13:47
+date: 2024-10-22T00:35:45.081Z
+updated: 2024-10-26T22:45:28.802Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/043f54247d4eaf9e9a1f3c82580f3d014376c7ff54c9299d2729d54ae8dfec89.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/043f54247d4eaf9e9a1f3c82580f3d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

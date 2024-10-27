@@ -1,7 +1,7 @@
 ---
 title: The Green Wiccan Magical Spell Book | Free Book
-date: 2024-10-23 19:58:23
-updated: 2024-10-26 11:13:27
+date: 2024-10-20T21:16:49.360Z
+updated: 2024-10-26T18:09:13.961Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d9cd7b91b758c320366c41abdc9fe98c9c4f5ed06ca93be1f0dfcd03fe60785.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d9cd7b91b758c320366c41abdc9fe9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

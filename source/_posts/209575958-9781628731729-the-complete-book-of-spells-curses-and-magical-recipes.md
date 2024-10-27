@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Spells, Curses, and Magical Recipes | Free Book
-date: 2024-10-25 15:10:19
-updated: 2024-10-26 12:59:14
+date: 2024-10-22T19:23:09.135Z
+updated: 2024-10-27T05:09:58.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78e734ea5fdcd20f02df222a90e33e8bdf6d3051d57180a283b8a728bc9cc2e2.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78e734ea5fdcd20f02df222a90e33e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret Teachings of the Tao Te Ching | Free Book
-date: 2024-10-25 17:34:31
-updated: 2024-10-26 10:14:28
+date: 2024-10-22T23:58:56.746Z
+updated: 2024-10-27T03:05:09.316Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a6d8e6d840d2a4f9ae2413c838cd666759c5d5e85ceb02bf8b433add5e1c8de.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a6d8e6d840d2a4f9ae2413c838cd66
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

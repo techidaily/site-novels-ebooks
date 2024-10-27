@@ -1,7 +1,7 @@
 ---
 title: How to Survive Life (and Death) | Free Book
-date: 2024-10-25 12:42:29
-updated: 2024-10-26 12:32:27
+date: 2024-10-19T22:24:17.662Z
+updated: 2024-10-27T01:41:05.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b3483475bfda2bc30099f89ad341457e7934bfc7fb3cf9e27376417052bbe6e.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b3483475bfda2bc30099f89ad34145
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

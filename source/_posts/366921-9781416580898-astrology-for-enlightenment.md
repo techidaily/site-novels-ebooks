@@ -1,7 +1,7 @@
 ---
 title: Astrology for Enlightenment | Free Book
-date: 2024-10-25 23:28:33
-updated: 2024-10-26 12:31:11
+date: 2024-10-26T00:38:52.484Z
+updated: 2024-10-27T03:41:44.189Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5553cf2ce6b8e03385d57fb02d9c93d3b17b86ca1105dedfb50b043047e4cd5e.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5553cf2ce6b8e03385d57fb02d9c93d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

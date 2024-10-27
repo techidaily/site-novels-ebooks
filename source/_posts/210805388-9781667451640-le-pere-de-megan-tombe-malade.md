@@ -1,7 +1,7 @@
 ---
 title: Le père de Megan tombe malade | Free Book
-date: 2024-10-23 10:44:36
-updated: 2024-10-26 10:10:38
+date: 2024-10-20T03:08:34.694Z
+updated: 2024-10-26T19:21:22.803Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e09cd1738f63bbf2b7e7d7f35a81b8791525b06423ea94a8fa60577aa687e048.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e09cd1738f63bbf2b7e7d7f35a81b87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

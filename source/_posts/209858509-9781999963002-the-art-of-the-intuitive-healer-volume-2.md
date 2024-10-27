@@ -1,7 +1,7 @@
 ---
 title: The art of the intuitive healer. Volume 2 | Free Book
-date: 2024-10-25 15:17:57
-updated: 2024-10-26 10:15:20
+date: 2024-10-24T21:16:59.283Z
+updated: 2024-10-27T04:15:49.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0aa41d1451e8ad2e398d77762c880c5ab457435bb3af59c06f39239775f9a6b7.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0aa41d1451e8ad2e398d77762c880c5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Only Little Prayer You Need | Free Book
-date: 2024-10-25 10:40:17
-updated: 2024-10-26 11:33:31
+date: 2024-10-25T01:02:01.532Z
+updated: 2024-10-27T00:37:29.312Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ba4b93499bb25a91ba9f9ecdb16dfd3c2fcb7734a181ea37a20c5bdf586f11e.jpg
@@ -205,3 +205,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ba4b93499bb25a91ba9f9ecdb16dfd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

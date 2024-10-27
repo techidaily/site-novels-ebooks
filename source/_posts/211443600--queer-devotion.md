@@ -1,7 +1,7 @@
 ---
 title: Queer Devotion | Free Book
-date: 2024-10-25 22:22:38
-updated: 2024-10-26 10:54:31
+date: 2024-10-23T05:34:31.130Z
+updated: 2024-10-26T22:47:13.788Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac26561af9baea9160a7fbf926343227b3ab0c6edf1ace2ed12255c6fc985f4c.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac26561af9baea9160a7fbf92634322
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

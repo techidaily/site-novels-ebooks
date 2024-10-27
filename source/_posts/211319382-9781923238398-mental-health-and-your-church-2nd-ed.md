@@ -1,7 +1,7 @@
 ---
 title: Mental Health and Your Church (2nd ed.) | Free Book
-date: 2024-10-24 21:11:16
-updated: 2024-10-26 11:51:25
+date: 2024-10-24T00:34:20.458Z
+updated: 2024-10-27T03:28:21.194Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c3b4b6a34957308801d97267c8a113eccd0806e2844c52faca09d00be57e0fa.jpg
@@ -202,3 +202,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c3b4b6a34957308801d97267c8a113
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

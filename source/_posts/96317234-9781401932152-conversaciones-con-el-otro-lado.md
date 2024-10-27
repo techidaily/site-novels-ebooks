@@ -1,7 +1,7 @@
 ---
 title: Conversaciones con el Otro Lado | Free Book
-date: 2024-10-23 18:14:13
-updated: 2024-10-26 11:25:23
+date: 2024-10-21T18:11:04.975Z
+updated: 2024-10-26T17:55:31.317Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc58ffecf7f10ccffa2ba1d2ca84c0200edc67190748231bb7b96faa7cf910a8.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc58ffecf7f10ccffa2ba1d2ca84c02
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

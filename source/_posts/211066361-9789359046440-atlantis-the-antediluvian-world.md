@@ -1,7 +1,7 @@
 ---
 title: "Atlantis: The Antediluvian World | Free Book"
-date: 2024-10-24 22:28:20
-updated: 2024-10-26 12:15:54
+date: 2024-10-23T00:01:47.060Z
+updated: 2024-10-26T22:16:22.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec3f112912004dcfa3050436005b84723554603130770e680170af1869c0f521.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec3f112912004dcfa3050436005b847
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Art of Worldly Wisdom | Free Book
-date: 2024-10-23 18:12:22
-updated: 2024-10-26 12:29:41
+date: 2024-10-20T03:08:10.442Z
+updated: 2024-10-26T21:02:55.358Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3daa949b7a82dadc7de547d8b6a8eaefce10df6432c753a7666083d3c4cd78b4.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3daa949b7a82dadc7de547d8b6a8eae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

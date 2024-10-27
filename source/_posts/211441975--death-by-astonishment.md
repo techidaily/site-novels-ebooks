@@ -1,7 +1,7 @@
 ---
 title: Death by Astonishment | Free Book
-date: 2024-10-24 15:46:58
-updated: 2024-10-26 11:55:36
+date: 2024-10-24T16:12:19.600Z
+updated: 2024-10-27T01:23:14.602Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb26a96a50c06cbdb9d5406b141d230350b8d3236385ceb95c04b83b8186294a.jpg
@@ -118,3 +118,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb26a96a50c06cbdb9d5406b141d230
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

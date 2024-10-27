@@ -1,7 +1,7 @@
 ---
 title: The Big Book of West Virginia Ghost Stories | Free Book
-date: 2024-10-23 18:10:38
-updated: 2024-10-26 12:58:30
+date: 2024-10-19T16:45:24.075Z
+updated: 2024-10-27T04:27:32.644Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c51016e6277d0b2d5d1c89dfee6b2018f9246b4aa9856c46b935ff0a0cf61ce.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c51016e6277d0b2d5d1c89dfee6b20
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

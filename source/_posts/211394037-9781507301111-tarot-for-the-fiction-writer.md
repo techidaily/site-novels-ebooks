@@ -1,7 +1,7 @@
 ---
 title: Tarot for the Fiction Writer | Free Book
-date: 2024-10-25 11:51:10
-updated: 2024-10-26 11:57:51
+date: 2024-10-20T01:35:07.701Z
+updated: 2024-10-27T01:23:14.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/af0f0705cd15abd85dc5b579512a1e1e0ffdfa9da29d3d53471a42c5ab1689c0.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/af0f0705cd15abd85dc5b579512a1e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

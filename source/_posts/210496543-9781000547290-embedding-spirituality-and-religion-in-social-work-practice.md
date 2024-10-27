@@ -1,7 +1,7 @@
 ---
 title: Embedding Spirituality and Religion in Social Work Practice | Free Book
-date: 2024-10-25 15:41:22
-updated: 2024-10-26 10:27:40
+date: 2024-10-26T03:02:53.056Z
+updated: 2024-10-27T00:42:05.901Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3090c6749b995466e4a581fa76ab7080ca75d9bc2363fbc1214c3cca80e2fef1.jpg
@@ -254,3 +254,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3090c6749b995466e4a581fa76ab708
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

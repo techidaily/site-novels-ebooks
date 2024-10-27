@@ -1,7 +1,7 @@
 ---
 title: Bíblia da Meditação Diária | Free Book
-date: 2024-10-24 22:36:41
-updated: 2024-10-26 12:13:28
+date: 2024-10-23T05:37:41.032Z
+updated: 2024-10-26T18:35:54.055Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8a232288a95334beec463c87453b8f6e5c4379297c980c116e2850992f1bcdb.jpg
@@ -262,3 +262,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8a232288a95334beec463c87453b8f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Seja resiliente contra o estresse e se acalme! | Free Book
-date: 2024-10-24 19:57:42
-updated: 2024-10-26 11:13:23
+date: 2024-10-20T05:01:52.111Z
+updated: 2024-10-27T05:45:43.772Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/591f414b94922022b467b105eebb5d031b7830706904647eed76aa9f5eeb4c29.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/591f414b94922022b467b105eebb5d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

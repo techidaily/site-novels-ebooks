@@ -1,7 +1,7 @@
 ---
 title: A Guide to Birthstones - A Collection of Historical Articles on the Gemstones Linked to Astrology | Free Book
-date: 2024-10-24 12:24:26
-updated: 2024-10-26 11:51:32
+date: 2024-10-20T05:41:09.186Z
+updated: 2024-10-26T19:40:12.920Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fda70e999e40c032d5835a87e227ff18f9cc0e8a2fb3e885001b705021dccb39.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fda70e999e40c032d5835a87e227ff1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

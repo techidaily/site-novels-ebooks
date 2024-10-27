@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2024-10-24 12:41:34
-updated: 2024-10-26 10:28:24
+date: 2024-10-23T19:09:10.442Z
+updated: 2024-10-26T20:11:11.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

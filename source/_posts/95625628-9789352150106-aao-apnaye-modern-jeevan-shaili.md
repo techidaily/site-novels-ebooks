@@ -1,7 +1,7 @@
 ---
 title: AAO APNAYE MODERN JEEVAN SHAILI | Free Book
-date: 2024-10-25 13:27:50
-updated: 2024-10-26 10:48:22
+date: 2024-10-25T04:40:20.865Z
+updated: 2024-10-26T19:46:47.342Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71612324a3e6a8eca9e4779bdadab3999f1f9570370155f04979c0efeb59d1ee.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71612324a3e6a8eca9e4779bdadab39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Unhappy/ Depressed  Are You In the Dark Night Of the Soul? Exit the Darkness and Into the Light & Heal | Free Book
-date: 2024-10-23 22:12:44
-updated: 2024-10-26 12:47:40
+date: 2024-10-24T04:00:56.008Z
+updated: 2024-10-26T19:02:04.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d107bc9c4cc82af77330a50aed258cc5109f402f8603e0f69a6eb8e2d4ad2d5b.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d107bc9c4cc82af77330a50aed258cc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Extraordinary Ordinary Forgiveness | Free Book
-date: 2024-10-24 13:49:10
-updated: 2024-10-26 10:21:28
+date: 2024-10-23T03:02:56.406Z
+updated: 2024-10-27T01:01:35.502Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c5c6303dec1365b52f0d4a1e06ba2ddac0692aa9a996c78e59fc9ba35c354ac.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c5c6303dec1365b52f0d4a1e06ba2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

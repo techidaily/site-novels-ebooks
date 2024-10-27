@@ -1,7 +1,7 @@
 ---
 title: Life Is Worth More Than Just Living | Free Book
-date: 2024-10-23 21:47:13
-updated: 2024-10-26 12:15:40
+date: 2024-10-21T19:03:46.400Z
+updated: 2024-10-26T18:42:20.488Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adc28e3188283f21c3d7a67a684b61a1176d9c1e398bd0fab3d1eb448caa3b0e.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adc28e3188283f21c3d7a67a684b61a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

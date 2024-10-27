@@ -1,7 +1,7 @@
 ---
 title: When Everything Changes, Change Everything | Free Book
-date: 2024-10-25 17:15:27
-updated: 2024-10-26 12:26:39
+date: 2024-10-24T19:38:47.147Z
+updated: 2024-10-26T21:52:10.941Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0fb86ac9676abe2efa51008bab574f46793ed83c759360288be173fa2642fa5.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0fb86ac9676abe2efa51008bab574f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

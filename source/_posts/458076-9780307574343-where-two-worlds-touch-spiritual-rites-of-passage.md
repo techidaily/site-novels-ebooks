@@ -1,7 +1,7 @@
 ---
 title: "Where Two Worlds Touch: Spiritual Rites of Passage | Free Book"
-date: 2024-10-23 17:13:39
-updated: 2024-10-26 10:36:24
+date: 2024-10-21T19:19:07.581Z
+updated: 2024-10-26T23:38:54.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2d1c9ffdf729927e15aa94e31770c03737bc0f631edd34914f1d4279d31456f.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2d1c9ffdf729927e15aa94e31770c0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

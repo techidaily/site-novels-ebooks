@@ -1,7 +1,7 @@
 ---
 title: "The Witches' Almanac: Issue 38, Spring 2019 to Spring 2020 | Free Book"
-date: 2024-10-25 19:39:37
-updated: 2024-10-26 10:51:46
+date: 2024-10-20T16:19:13.268Z
+updated: 2024-10-26T22:52:57.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51c4978886973cef8bc378531e6690594eb391684b9cd7e0290c6af6927e6dcb.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51c4978886973cef8bc378531e66905
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

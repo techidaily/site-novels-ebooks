@@ -1,7 +1,7 @@
 ---
 title: Heilung von emotionalen und physischen Schmerzen.. | Free Book
-date: 2024-10-25 18:15:36
-updated: 2024-10-26 11:47:57
+date: 2024-10-23T21:28:37.647Z
+updated: 2024-10-27T04:08:13.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98dfeebed4be58d298f985d59492869cffa494b8e4fb1a41aafb2ace670fe199.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98dfeebed4be58d298f985d59492869
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

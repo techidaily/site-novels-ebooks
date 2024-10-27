@@ -1,7 +1,7 @@
 ---
 title: The Candle Magic Banishing and Purification Instruction Booklet | Free Book
-date: 2024-10-25 20:34:47
-updated: 2024-10-26 12:37:35
+date: 2024-10-25T16:32:37.372Z
+updated: 2024-10-27T04:11:47.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f4cf61b0733b6bb939b0e8c31abe77ea84615d2fadb59c0d2a5b15d60f26369.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f4cf61b0733b6bb939b0e8c31abe77
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

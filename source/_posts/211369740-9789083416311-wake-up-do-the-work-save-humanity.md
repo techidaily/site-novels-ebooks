@@ -1,7 +1,7 @@
 ---
 title: Wake Up - Do the Work - Save Humanity | Free Book
-date: 2024-10-24 20:23:15
-updated: 2024-10-26 10:54:10
+date: 2024-10-25T00:21:52.156Z
+updated: 2024-10-27T03:09:01.691Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/defddaee587e254735ec961991c64096f55e29fdd666ae8439d8b4cd6a4358bb.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/defddaee587e254735ec961991c6409
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Radical Practice of Loving Everyone | Free Book
-date: 2024-10-23 21:35:34
-updated: 2024-10-26 10:24:24
+date: 2024-10-20T22:56:12.107Z
+updated: 2024-10-26T20:08:33.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35f7e3384d8d73b18dc313e64aa31664a8028009462130575787a801badf62c6.jpg
@@ -231,3 +231,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35f7e3384d8d73b18dc313e64aa3166
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

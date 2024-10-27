@@ -1,7 +1,7 @@
 ---
 title: Your Deepest Ground | Free Book
-date: 2024-10-24 22:41:14
-updated: 2024-10-26 12:34:12
+date: 2024-10-22T18:31:00.167Z
+updated: 2024-10-26T23:51:49.198Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99e8be59cf8d2bc7beb95e96e1d27716c589190c10006d3019feeb0dc5ad21a1.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99e8be59cf8d2bc7beb95e96e1d2771
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

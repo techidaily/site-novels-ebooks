@@ -1,7 +1,7 @@
 ---
 title: The Secret Language of Spirit | Free Book
-date: 2024-10-23 18:47:13
-updated: 2024-10-26 12:16:25
+date: 2024-10-24T00:53:55.851Z
+updated: 2024-10-26T18:16:14.644Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a819d1b8860cab7d016437a36a0ecf76aec9f241184e62d43657b04ba97a0c5.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a819d1b8860cab7d016437a36a0ecf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

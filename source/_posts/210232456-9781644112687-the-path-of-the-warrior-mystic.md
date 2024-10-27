@@ -1,7 +1,7 @@
 ---
 title: The Path of the Warrior-Mystic | Free Book
-date: 2024-10-25 16:54:10
-updated: 2024-10-26 12:17:46
+date: 2024-10-24T20:52:15.753Z
+updated: 2024-10-27T04:34:56.164Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20b2ceae17adcc7c56f8912f829c064f0ea593300362085853b57111cf1de768.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20b2ceae17adcc7c56f8912f829c064
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

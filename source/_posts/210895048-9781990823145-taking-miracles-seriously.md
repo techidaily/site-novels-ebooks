@@ -1,7 +1,7 @@
 ---
 title: Taking Miracles Seriously | Free Book
-date: 2024-10-24 18:55:58
-updated: 2024-10-26 11:44:27
+date: 2024-10-25T05:18:23.670Z
+updated: 2024-10-26T20:54:25.539Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92430888d56a89023d5a157aae13b4fe2777d1eba753d050a0224a8871447179.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92430888d56a89023d5a157aae13b4f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

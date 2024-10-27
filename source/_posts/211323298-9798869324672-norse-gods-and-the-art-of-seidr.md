@@ -1,7 +1,7 @@
 ---
 title: Norse Gods and the Art of Seidr | Free Book
-date: 2024-10-23 20:54:21
-updated: 2024-10-26 10:14:41
+date: 2024-10-20T17:27:15.464Z
+updated: 2024-10-26T19:27:27.115Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bef2a3477266b11201c244c3e8fe50217cbe3e477e4d8970c8bd1d0746863140.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bef2a3477266b11201c244c3e8fe502
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

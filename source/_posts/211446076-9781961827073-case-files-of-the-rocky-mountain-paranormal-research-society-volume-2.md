@@ -1,7 +1,7 @@
 ---
 title: Case Files of the Rocky Mountain Paranormal Research Society Volume 2 | Free Book
-date: 2024-10-23 23:13:50
-updated: 2024-10-26 11:56:28
+date: 2024-10-22T02:43:45.234Z
+updated: 2024-10-27T04:51:47.634Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd5e0ab66e20d1f688c48ec8aaf427d24f383e0ede0433015684b661bfc21399.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd5e0ab66e20d1f688c48ec8aaf427d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

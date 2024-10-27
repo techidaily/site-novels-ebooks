@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book
-date: 2024-10-24 14:37:27
-updated: 2024-10-26 10:54:11
+date: 2024-10-24T22:44:59.537Z
+updated: 2024-10-27T05:52:07.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d41743ab5752552b00f09b4ab8da73d12933c8a000b62c9e4f8fee26aa524f2.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d41743ab5752552b00f09b4ab8da73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Occultism - Two Essays from the Hibbert Journal | Free Book
-date: 2024-10-25 11:43:22
-updated: 2024-10-26 12:13:37
+date: 2024-10-20T02:34:00.321Z
+updated: 2024-10-27T04:10:20.957Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3af9005359fefe8a84b81062ee8a6cb28dda2ef27867692dc3460775bea62e53.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3af9005359fefe8a84b81062ee8a6cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

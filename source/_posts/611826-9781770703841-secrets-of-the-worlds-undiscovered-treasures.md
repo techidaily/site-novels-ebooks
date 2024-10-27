@@ -1,7 +1,7 @@
 ---
 title: Secrets of the World's Undiscovered Treasures | Free Book
-date: 2024-10-23 21:56:12
-updated: 2024-10-26 10:27:53
+date: 2024-10-20T19:34:22.011Z
+updated: 2024-10-27T02:27:07.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14ee684338bacf7118708d4bc4c29bc8fbf3b8a4fb90d56271054566a55269be.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14ee684338bacf7118708d4bc4c29bc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

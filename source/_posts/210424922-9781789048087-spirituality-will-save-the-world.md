@@ -1,7 +1,7 @@
 ---
 title: Spirituality Will Save The World | Free Book
-date: 2024-10-25 23:51:26
-updated: 2024-10-26 12:55:10
+date: 2024-10-19T17:35:55.005Z
+updated: 2024-10-26T19:30:05.839Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8df2d5a3e31712111130b1ffda2592f36de6885c2197889125c63ec9acc9862.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8df2d5a3e31712111130b1ffda2592
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

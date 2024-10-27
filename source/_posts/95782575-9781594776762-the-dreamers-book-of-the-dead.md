@@ -1,7 +1,7 @@
 ---
 title: The Dreamer's Book of the Dead | Free Book
-date: 2024-10-24 14:39:25
-updated: 2024-10-26 11:33:25
+date: 2024-10-23T05:35:42.718Z
+updated: 2024-10-26T18:19:35.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/611e28e75e3afef042a0d737b73d3717dfea673b43d961575530cdd4e19711de.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/611e28e75e3afef042a0d737b73d371
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

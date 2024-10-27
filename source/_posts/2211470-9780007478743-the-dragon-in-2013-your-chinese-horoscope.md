@@ -1,7 +1,7 @@
 ---
 title: "The Dragon in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 22:27:35
-updated: 2024-10-26 11:13:15
+date: 2024-10-22T19:44:28.778Z
+updated: 2024-10-27T03:07:25.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/53b3f56259bb98582c65654242b605e3c769311a0f7bacb47cb60a9bcb114be0.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/53b3f56259bb98582c65654242b605e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

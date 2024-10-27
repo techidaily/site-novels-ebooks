@@ -1,7 +1,7 @@
 ---
 title: The Archangel Guide to Enlightenment and Mastery | Free Book
-date: 2024-10-23 15:55:48
-updated: 2024-10-26 12:51:12
+date: 2024-10-22T01:43:14.293Z
+updated: 2024-10-27T04:04:33.264Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfb0bf60325a3a8f313397975d315ff57dbf5857fd8aff90aee9b9cca35a7edb.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfb0bf60325a3a8f313397975d315ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

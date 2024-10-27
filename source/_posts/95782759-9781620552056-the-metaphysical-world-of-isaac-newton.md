@@ -1,7 +1,7 @@
 ---
 title: The Metaphysical World of Isaac Newton | Free Book
-date: 2024-10-24 23:41:16
-updated: 2024-10-26 11:23:55
+date: 2024-10-20T05:27:33.671Z
+updated: 2024-10-26T16:12:57.497Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08eb6e2be6c87fbbbfb334998fdad4cb373d4effac7da5b5939b03e0901faba4.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08eb6e2be6c87fbbbfb334998fdad4c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

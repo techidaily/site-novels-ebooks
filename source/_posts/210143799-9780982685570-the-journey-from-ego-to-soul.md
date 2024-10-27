@@ -1,7 +1,7 @@
 ---
 title: The Journey from Ego to Soul | Free Book
-date: 2024-10-25 17:17:19
-updated: 2024-10-26 12:23:31
+date: 2024-10-26T00:34:50.798Z
+updated: 2024-10-26T19:34:22.964Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99ca1f5607e9388b8c746acd814bfbb662708d6a05ba052530bbe6d135a1e5eb.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99ca1f5607e9388b8c746acd814bfbb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Apparitions | Free Book
-date: 2024-10-24 12:54:45
-updated: 2024-10-26 10:35:48
+date: 2024-10-21T01:59:37.278Z
+updated: 2024-10-27T00:05:48.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ddaf4c2ac52612ef65a2666c2bad5a9b55efa2612532bf3d44590518f9d4c79e.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ddaf4c2ac52612ef65a2666c2bad5a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

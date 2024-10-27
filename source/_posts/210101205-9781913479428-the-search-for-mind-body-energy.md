@@ -1,7 +1,7 @@
 ---
 title: The Search for Mind-Body Energy | Free Book
-date: 2024-10-25 11:36:55
-updated: 2024-10-26 12:41:56
+date: 2024-10-25T23:53:59.242Z
+updated: 2024-10-27T00:24:51.444Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/152e10b5105cdc2cd4818de7b7a09b9609564cc92dd46bbfdb3547e7b1fc5b76.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/152e10b5105cdc2cd4818de7b7a09b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

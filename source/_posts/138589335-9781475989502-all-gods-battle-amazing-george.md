@@ -1,7 +1,7 @@
 ---
 title: All Gods Battle Amazing George | Free Book
-date: 2024-10-23 23:59:45
-updated: 2024-10-26 12:42:25
+date: 2024-10-22T17:21:24.778Z
+updated: 2024-10-27T05:07:17.187Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c908880e92e1d65be241ae144b43d2b9ae882b6a8d108afa9dd0ca954d12c60d.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c908880e92e1d65be241ae144b43d2b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

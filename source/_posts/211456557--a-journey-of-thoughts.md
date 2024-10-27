@@ -1,7 +1,7 @@
 ---
 title: A Journey of Thoughts | Free Book
-date: 2024-10-25 10:50:42
-updated: 2024-10-26 11:14:57
+date: 2024-10-22T03:24:29.280Z
+updated: 2024-10-26T16:44:01.729Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/844a1761c4aa5797c99efbf161869aad1f20b44f4ffe909bfb8450eff49779a9.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/844a1761c4aa5797c99efbf161869aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

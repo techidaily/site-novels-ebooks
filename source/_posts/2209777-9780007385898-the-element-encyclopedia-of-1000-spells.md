@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of 1000 Spells | Free Book
-date: 2024-10-24 17:35:17
-updated: 2024-10-26 10:19:37
+date: 2024-10-23T17:01:00.519Z
+updated: 2024-10-26T23:50:58.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ed381a61a80a1ba3c05306b10ea885116fd6366a1dca62cb7b4284aaee93cbd2.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ed381a61a80a1ba3c05306b10ea8851
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

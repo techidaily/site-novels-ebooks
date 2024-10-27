@@ -1,7 +1,7 @@
 ---
 title: Machine Intelligence and the Imaginal Realm | Free Book
-date: 2024-10-25 17:58:35
-updated: 2024-10-26 10:12:32
+date: 2024-10-22T04:02:55.616Z
+updated: 2024-10-26T19:48:39.002Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d89e2dd21dbeec041e4b3d0803c6ed0e487c9d16c0924d8af17ecd83a3d430ec.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d89e2dd21dbeec041e4b3d0803c6ed0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

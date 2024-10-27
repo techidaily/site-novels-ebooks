@@ -1,7 +1,7 @@
 ---
 title: "Psíquico: O Guia de Desenvolvimento de Psíquico para fortalecer suas Habilidades Psíquicas | Free Book"
-date: 2024-10-24 10:29:38
-updated: 2024-10-26 11:45:42
+date: 2024-10-20T18:02:43.926Z
+updated: 2024-10-27T01:48:17.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b05e4fccae2c6c0275ad09b311e0d7de4007a1bb850ce2685ea532212547080.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b05e4fccae2c6c0275ad09b311e0d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

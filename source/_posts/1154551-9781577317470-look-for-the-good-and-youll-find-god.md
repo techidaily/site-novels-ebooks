@@ -1,7 +1,7 @@
 ---
 title: Look for the Good and You'll Find God | Free Book
-date: 2024-10-23 21:23:25
-updated: 2024-10-26 11:46:36
+date: 2024-10-22T00:52:03.502Z
+updated: 2024-10-26T19:08:21.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/29c4be21d7e964a21c94e1c133f61da3d690f668bb415d4fe6c5a87ee93b3933.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/29c4be21d7e964a21c94e1c133f61da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

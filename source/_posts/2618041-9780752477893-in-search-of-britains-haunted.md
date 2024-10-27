@@ -1,7 +1,7 @@
 ---
 title: In Search of Britain's Haunted | Free Book
-date: 2024-10-25 22:16:57
-updated: 2024-10-26 12:14:51
+date: 2024-10-21T20:07:16.563Z
+updated: 2024-10-26T20:04:27.316Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/644e71f30fe0b04b7a50e87da48d414fa9315d8d0e865adc3a0fc66381c1213d.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/644e71f30fe0b04b7a50e87da48d414
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

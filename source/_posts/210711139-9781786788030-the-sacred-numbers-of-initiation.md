@@ -1,7 +1,7 @@
 ---
 title: The Sacred Numbers of Initiation | Free Book
-date: 2024-10-25 17:26:18
-updated: 2024-10-26 11:50:33
+date: 2024-10-23T22:31:07.328Z
+updated: 2024-10-27T04:39:57.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07b5d2fa9d91c320163430134ad206c15b14243aaf3a8169b55b738bd85efb09.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07b5d2fa9d91c320163430134ad206c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

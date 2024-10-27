@@ -1,7 +1,7 @@
 ---
 title: Man, Visible and Invisible (2nd ed.) | Free Book
-date: 2024-10-23 10:13:57
-updated: 2024-10-26 11:25:58
+date: 2024-10-20T00:28:38.703Z
+updated: 2024-10-26T19:49:20.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26c45f38e1b3df6313ae10b7bc9125abcf268d107108fd4528d93c187a2c2346.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26c45f38e1b3df6313ae10b7bc9125a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

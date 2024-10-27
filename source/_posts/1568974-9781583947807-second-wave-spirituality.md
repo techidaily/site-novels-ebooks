@@ -1,7 +1,7 @@
 ---
 title: Second Wave Spirituality | Free Book
-date: 2024-10-25 14:13:22
-updated: 2024-10-26 11:18:59
+date: 2024-10-22T19:04:03.247Z
+updated: 2024-10-26T21:22:40.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/860f0b35011bc0202789b12398ce2bb0aaa60ba9ca3fd5af22e1f037f08841df.jpg
@@ -238,3 +238,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/860f0b35011bc0202789b12398ce2bb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

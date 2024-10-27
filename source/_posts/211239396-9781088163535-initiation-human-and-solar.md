@@ -1,7 +1,7 @@
 ---
 title: Initiation, Human and Solar | Free Book
-date: 2024-10-23 23:42:15
-updated: 2024-10-26 10:54:27
+date: 2024-10-22T21:25:48.475Z
+updated: 2024-10-26T17:22:27.562Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4604d404370df1f4dc1ac364632ae402c324dc3fd238e1ae63750a167634836.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4604d404370df1f4dc1ac364632ae4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

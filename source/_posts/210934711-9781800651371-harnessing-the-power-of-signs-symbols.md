@@ -1,7 +1,7 @@
 ---
 title: Harnessing the Power of Signs & Symbols | Free Book
-date: 2024-10-25 19:13:40
-updated: 2024-10-26 11:17:28
+date: 2024-10-22T04:14:35.734Z
+updated: 2024-10-26T22:43:37.835Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/daf9990f2a387dd34bf0a0b5234ca29a8893445e60bc397d7c94087fcaa8838d.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/daf9990f2a387dd34bf0a0b5234ca29
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

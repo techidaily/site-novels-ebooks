@@ -1,7 +1,7 @@
 ---
 title: Protection & Reversal Magick  (Revised and Updated Edition) | Free Book
-date: 2024-10-25 21:37:14
-updated: 2024-10-26 10:41:23
+date: 2024-10-23T18:33:58.942Z
+updated: 2024-10-27T00:28:06.918Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f82d8c077cecc130d3e7c1ac0ea11c2dbb8789038b5060ed7ceb4c42071ae31a.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f82d8c077cecc130d3e7c1ac0ea11c2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

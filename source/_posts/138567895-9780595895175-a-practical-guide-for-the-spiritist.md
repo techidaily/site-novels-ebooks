@@ -1,7 +1,7 @@
 ---
 title: A Practical Guide for the Spiritist | Free Book
-date: 2024-10-25 14:56:46
-updated: 2024-10-26 10:22:54
+date: 2024-10-25T04:42:58.077Z
+updated: 2024-10-26T21:53:36.845Z
 categories:
   - Medical
 thumbnail: https://thmb-001-ebook.techidaily.com/7ceed52cc0b318ed0d6c24459a54a27063dcd60106c50546b060718bf0f493e9.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ceed52cc0b318ed0d6c24459a54a27
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

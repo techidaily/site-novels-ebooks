@@ -1,7 +1,7 @@
 ---
 title: IT Shouldn't Be in the Church | Free Book
-date: 2024-10-25 13:59:53
-updated: 2024-10-26 11:38:18
+date: 2024-10-25T17:17:26.676Z
+updated: 2024-10-27T04:47:31.277Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c9b6552576688973da42abb9847b8df5520a2d89a991dc637d52d1cf6c6b9c6.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c9b6552576688973da42abb9847b8d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

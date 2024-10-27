@@ -1,7 +1,7 @@
 ---
 title: The Illumination Process | Free Book
-date: 2024-10-25 15:57:31
-updated: 2024-10-26 10:56:17
+date: 2024-10-20T03:40:14.101Z
+updated: 2024-10-26T16:31:41.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de13589062942c19c254ac76399fbeb3eacf5baf8c239f81db291183897aabf0.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de13589062942c19c254ac76399fbeb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

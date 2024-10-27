@@ -1,7 +1,7 @@
 ---
 title: Encyclopedia of Norse and Germanic Folklore, Mythology, and Magic | Free Book
-date: 2024-10-25 12:33:46
-updated: 2024-10-26 10:40:21
+date: 2024-10-23T22:13:55.300Z
+updated: 2024-10-26T16:58:53.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d310f4ac13beee740bc3913355d07f877b9f5a24dce9fda68df3d56f1612eba.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d310f4ac13beee740bc3913355d07f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

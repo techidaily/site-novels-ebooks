@@ -1,7 +1,7 @@
 ---
 title: Seeing the Good in Unfamiliar Spiritualities | Free Book
-date: 2024-10-25 23:56:37
-updated: 2024-10-26 12:40:11
+date: 2024-10-21T18:17:53.808Z
+updated: 2024-10-27T03:07:57.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d672bf640a271cc60109c42e07ad7fb097ca31ac214d6e9ecabf7109b3f432fa.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d672bf640a271cc60109c42e07ad7fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: From Outer Space to Inner Space | Free Book
-date: 2024-10-25 14:17:52
-updated: 2024-10-26 12:21:35
+date: 2024-10-20T00:48:21.853Z
+updated: 2024-10-27T05:56:01.433Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e56159cae833c7cfa8777964d05132a562dbfcaec3af82c589f1216d471b478.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e56159cae833c7cfa8777964d05132
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

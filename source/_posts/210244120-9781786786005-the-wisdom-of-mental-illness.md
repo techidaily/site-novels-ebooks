@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Mental Illness | Free Book
-date: 2024-10-24 19:10:53
-updated: 2024-10-26 10:40:12
+date: 2024-10-24T19:38:56.144Z
+updated: 2024-10-27T02:17:15.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/339bf10ee5ea112a7b26a2f651809786e15c9648b26e1e9de91b61badcc84ef9.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/339bf10ee5ea112a7b26a2f65180978
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Sufi Path of Annihilation | Free Book
-date: 2024-10-23 17:37:55
-updated: 2024-10-26 10:31:28
+date: 2024-10-22T01:25:46.786Z
+updated: 2024-10-26T22:26:51.421Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7eee5ecd33a484fcfa38fdd1918cdc6cdcdc74489e7e18fe6c992dc6599e8aa8.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7eee5ecd33a484fcfa38fdd1918cdc6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

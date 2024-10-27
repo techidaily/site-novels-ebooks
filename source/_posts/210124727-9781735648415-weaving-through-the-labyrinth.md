@@ -1,7 +1,7 @@
 ---
 title: WEAVING THROUGH THE LABYRINTH | Free Book
-date: 2024-10-25 10:25:40
-updated: 2024-10-26 11:37:42
+date: 2024-10-19T16:21:36.044Z
+updated: 2024-10-26T23:29:17.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2741cd49eb086d49e5855619e5a10023b7d3a07de98e4ed00d21ea470c17f5f4.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2741cd49eb086d49e5855619e5a1002
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

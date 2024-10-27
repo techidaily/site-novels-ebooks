@@ -1,7 +1,7 @@
 ---
 title: "Black Athlete White Athlete : Mental Strength | Free Book"
-date: 2024-10-25 14:58:41
-updated: 2024-10-26 10:38:16
+date: 2024-10-22T20:48:56.939Z
+updated: 2024-10-27T01:42:29.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca7131187bf4b2bb0443b0949dabcfe3cfdfa797adf54e8f88607e35a187ebae.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca7131187bf4b2bb0443b0949dabcfe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

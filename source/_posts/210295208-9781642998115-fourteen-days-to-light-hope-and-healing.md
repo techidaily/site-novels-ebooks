@@ -1,7 +1,7 @@
 ---
 title: Fourteen Days To Light, Hope, and Healing | Free Book
-date: 2024-10-25 18:55:20
-updated: 2024-10-26 10:36:16
+date: 2024-10-23T01:38:18.651Z
+updated: 2024-10-26T16:42:23.738Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ec8e224d4c15e5e7ea27797fc25c2e8ce0a4614990da57d728fd6303e39448e.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ec8e224d4c15e5e7ea27797fc25c2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

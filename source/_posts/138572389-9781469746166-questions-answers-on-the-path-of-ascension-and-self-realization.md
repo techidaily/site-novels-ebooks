@@ -1,7 +1,7 @@
 ---
 title: Questions & Answers on the Path of Ascension and Self-Realization | Free Book
-date: 2024-10-25 13:58:10
-updated: 2024-10-26 11:20:17
+date: 2024-10-25T01:16:48.480Z
+updated: 2024-10-26T23:12:27.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8bc2af78257bd0caed05c631c8409aa00d55fe1abf6ee1435c1c2a7c527f5564.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8bc2af78257bd0caed05c631c8409aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

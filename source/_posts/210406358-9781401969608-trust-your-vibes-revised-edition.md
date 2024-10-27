@@ -1,7 +1,7 @@
 ---
 title: Trust Your Vibes (Revised Edition) | Free Book
-date: 2024-10-24 18:35:53
-updated: 2024-10-26 11:53:29
+date: 2024-10-21T16:39:32.289Z
+updated: 2024-10-27T03:31:03.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/948306966a9b316e7134a159fcf8d12d7bfa8e30e8abc20923cd9dacc1b20dc6.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/948306966a9b316e7134a159fcf8d12
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

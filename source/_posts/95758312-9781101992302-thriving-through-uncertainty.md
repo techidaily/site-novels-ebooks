@@ -1,7 +1,7 @@
 ---
 title: Thriving Through Uncertainty | Free Book
-date: 2024-10-25 21:23:10
-updated: 2024-10-26 12:22:18
+date: 2024-10-20T04:21:20.144Z
+updated: 2024-10-26T21:27:56.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bdbca5f588562ab6ad060cb7c5edd488e5d65707825118f11c20ceafe83069c7.jpg
@@ -230,3 +230,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bdbca5f588562ab6ad060cb7c5edd48
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

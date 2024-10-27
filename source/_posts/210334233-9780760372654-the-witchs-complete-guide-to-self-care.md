@@ -1,7 +1,7 @@
 ---
 title: The Witch's Complete Guide to Self-Care | Free Book
-date: 2024-10-25 13:43:11
-updated: 2024-10-26 10:45:45
+date: 2024-10-25T05:36:25.191Z
+updated: 2024-10-26T22:07:10.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47ccb1a4fb90558c092805ab49c15e85221b151cb8558a365b6d51a1d25ba5e3.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47ccb1a4fb90558c092805ab49c15e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Dreaming of the Council Ways | Free Book
-date: 2024-10-24 21:49:55
-updated: 2024-10-26 12:26:41
+date: 2024-10-22T00:59:44.999Z
+updated: 2024-10-26T16:47:07.862Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9712ee336c049a5ad7cefb1137532f83007cd2b0915c121f4ff771c3c942b214.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9712ee336c049a5ad7cefb1137532f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

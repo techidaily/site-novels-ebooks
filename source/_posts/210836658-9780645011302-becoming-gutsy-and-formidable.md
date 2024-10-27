@@ -1,7 +1,7 @@
 ---
 title: Becoming Gutsy and Formidable | Free Book
-date: 2024-10-25 19:22:59
-updated: 2024-10-26 10:48:40
+date: 2024-10-21T00:39:16.961Z
+updated: 2024-10-27T05:33:11.644Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50099411b9443bbb719624231e290e3ae8e1d55c5c7712603d15c79da0b5dfcd.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50099411b9443bbb719624231e290e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

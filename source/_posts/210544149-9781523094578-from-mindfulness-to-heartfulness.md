@@ -1,7 +1,7 @@
 ---
 title: From Mindfulness to Heartfulness | Free Book
-date: 2024-10-25 23:12:45
-updated: 2024-10-26 11:54:17
+date: 2024-10-24T02:19:44.611Z
+updated: 2024-10-26T20:55:00.172Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59a3c37fc593acf0b4906f32bc2b7451968d3b62e099d8208c4a31d950067d5c.jpg
@@ -327,3 +327,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59a3c37fc593acf0b4906f32bc2b745
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

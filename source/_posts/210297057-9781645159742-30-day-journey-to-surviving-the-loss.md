@@ -1,7 +1,7 @@
 ---
 title: 30 Day Journey to Surviving the Loss | Free Book
-date: 2024-10-23 13:31:55
-updated: 2024-10-26 12:18:25
+date: 2024-10-24T17:19:34.596Z
+updated: 2024-10-27T05:27:30.614Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a9543404bf5959a36656fd210e1ef2fdf32fad8310e887c01958749bfea1c79.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a9543404bf5959a36656fd210e1ef2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

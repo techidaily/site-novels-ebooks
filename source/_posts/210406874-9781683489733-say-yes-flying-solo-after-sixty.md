@@ -1,7 +1,7 @@
 ---
 title: SAY YES! Flying Solo After Sixty | Free Book
-date: 2024-10-24 16:14:51
-updated: 2024-10-26 12:59:31
+date: 2024-10-21T20:52:50.519Z
+updated: 2024-10-26T18:43:09.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0671504abf33c056bfff5844dac87f6dd6f21fd8ef93f2ab7441f0b822d3f3c5.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0671504abf33c056bfff5844dac87f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

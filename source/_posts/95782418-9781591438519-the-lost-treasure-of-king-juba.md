@@ -1,7 +1,7 @@
 ---
 title: The Lost Treasure of King Juba | Free Book
-date: 2024-10-23 13:23:17
-updated: 2024-10-26 10:19:49
+date: 2024-10-21T19:48:37.179Z
+updated: 2024-10-27T00:39:32.434Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3842dd979532338c06bd6a693d18710cb6de51258c5f2e6507e0c47cb8648377.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3842dd979532338c06bd6a693d18710
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

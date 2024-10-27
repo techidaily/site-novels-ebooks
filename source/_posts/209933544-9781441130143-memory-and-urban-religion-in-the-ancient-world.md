@@ -1,7 +1,7 @@
 ---
 title: Memory and Urban Religion in the Ancient World | Free Book
-date: 2024-10-24 19:54:38
-updated: 2024-10-26 10:54:12
+date: 2024-10-26T00:19:19.663Z
+updated: 2024-10-27T03:45:40.889Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adb5e9ee4cc6db338cfac62708a56a6784901d28f1118e6d81c1125fab58671b.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adb5e9ee4cc6db338cfac62708a56a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

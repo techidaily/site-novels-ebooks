@@ -1,7 +1,7 @@
 ---
 title: All the Joy You Can Stand | Free Book
-date: 2024-10-24 21:48:19
-updated: 2024-10-26 11:24:33
+date: 2024-10-22T02:55:32.341Z
+updated: 2024-10-26T22:29:18.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b6bc97f3814b2111b6e6e41228cfab09a6943c9a4ef8e1b7f3d5dfa2ed497bf.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b6bc97f3814b2111b6e6e41228cfab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

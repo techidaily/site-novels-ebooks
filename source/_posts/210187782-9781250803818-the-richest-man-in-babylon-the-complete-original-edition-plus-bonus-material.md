@@ -1,7 +1,7 @@
 ---
 title: "The Richest Man in Babylon: The Complete Original Edition Plus Bonus Material | Free Book"
-date: 2024-10-23 22:41:31
-updated: 2024-10-26 11:29:55
+date: 2024-10-23T21:52:42.232Z
+updated: 2024-10-27T04:11:21.951Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f4e867a86fe4c37a7ccad6d3072f43cd0d8cc7786ec077641311c66e71def00.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f4e867a86fe4c37a7ccad6d3072f43
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

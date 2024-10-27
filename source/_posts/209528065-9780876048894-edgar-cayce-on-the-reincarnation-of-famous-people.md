@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Reincarnation of Famous People | Free Book
-date: 2024-10-25 21:24:29
-updated: 2024-10-26 11:38:34
+date: 2024-10-21T22:55:22.526Z
+updated: 2024-10-26T18:59:27.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c30d8f4cfba3f1aecbdfc023d34ab5433f3fd9f03bfce66979f9d4acef67b697.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c30d8f4cfba3f1aecbdfc023d34ab54
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

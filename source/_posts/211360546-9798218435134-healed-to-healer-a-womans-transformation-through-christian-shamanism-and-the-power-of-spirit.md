@@ -1,7 +1,7 @@
 ---
 title: Healed to Healer A Woman's Transformation through Christian Shamanism and the Power of Spirit | Free Book
-date: 2024-10-25 20:30:33
-updated: 2024-10-26 12:55:39
+date: 2024-10-25T23:38:47.648Z
+updated: 2024-10-27T01:10:08.401Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7764a38e4e9b3b1ca7c0fc106d6a3cc3bf7378dab8f31065bdd328fff9f44ff.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7764a38e4e9b3b1ca7c0fc106d6a3c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

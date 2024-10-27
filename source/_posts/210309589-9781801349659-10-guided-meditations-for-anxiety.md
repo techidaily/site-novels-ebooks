@@ -1,7 +1,7 @@
 ---
 title: 10 Guided Meditations For Anxiety | Free Book
-date: 2024-10-24 17:31:51
-updated: 2024-10-26 10:33:55
+date: 2024-10-24T22:32:33.198Z
+updated: 2024-10-26T22:14:28.999Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62ff97985279f0c662875a8b7ab0067dbcff5f605bf18344b9f3be3f25b22505.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62ff97985279f0c662875a8b7ab0067
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

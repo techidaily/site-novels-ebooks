@@ -1,7 +1,7 @@
 ---
 title: Cosmic Cradle, Revised Edition | Free Book
-date: 2024-10-24 14:51:36
-updated: 2024-10-26 11:15:22
+date: 2024-10-20T02:27:25.709Z
+updated: 2024-10-27T04:23:54.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec053266c69114f88e49184865004751d7092851f8647cd5a6d74c67f0786394.jpg
@@ -299,3 +299,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec053266c69114f88e4918486500475
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "The Dragon in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 14:44:59
-updated: 2024-10-26 11:38:18
+date: 2024-10-25T16:16:44.600Z
+updated: 2024-10-26T22:47:04.096Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6e072ad4ae159d8d8b8d973f45196c65699704146cde843e647d52d651674bc.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6e072ad4ae159d8d8b8d973f45196c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

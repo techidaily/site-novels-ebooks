@@ -1,7 +1,7 @@
 ---
 title: Walkers Between the Worlds (2nd ed.) | Free Book
-date: 2024-10-24 23:18:19
-updated: 2024-10-26 10:17:55
+date: 2024-10-22T20:19:41.410Z
+updated: 2024-10-26T23:23:55.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc264c3f11123e7e367ea3ff74b63c7a3a95ac21bc1d4f15cf3b95560c64907f.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc264c3f11123e7e367ea3ff74b63c7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

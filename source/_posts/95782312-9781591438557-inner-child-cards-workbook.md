@@ -1,7 +1,7 @@
 ---
 title: Inner Child Cards Workbook | Free Book
-date: 2024-10-24 17:42:15
-updated: 2024-10-26 12:17:20
+date: 2024-10-20T19:45:22.508Z
+updated: 2024-10-27T00:37:32.825Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84c48ee580d6b72c630831cc3fe036b85244a78a38cd71f2677a903a46a36613.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84c48ee580d6b72c630831cc3fe036b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

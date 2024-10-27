@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書006：心性自然－靈性之修練與心性評量（養性篇）: The Great Tao of Spiritual Science Series 06: The Nature Spirituality \"Hsin Hsing\" | Free Book"
-date: 2024-10-25 19:22:12
-updated: 2024-10-26 12:11:43
+date: 2024-10-26T01:38:03.680Z
+updated: 2024-10-26T16:01:02.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f7074c66c5c0c35de1b4c975f0ef5a974e592364d32d0884e6a324a86b129c00.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f7074c66c5c0c35de1b4c975f0ef5a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

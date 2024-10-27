@@ -1,7 +1,7 @@
 ---
 title: Consciousness and Extraordinary Phenomena | Free Book
-date: 2024-10-23 10:35:33
-updated: 2024-10-26 10:17:42
+date: 2024-10-23T20:05:04.066Z
+updated: 2024-10-26T22:58:47.032Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f8afd44a0757998476733cec6f2bf07ff918de787c802efc790abb9bf2e12f0.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f8afd44a0757998476733cec6f2bf0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

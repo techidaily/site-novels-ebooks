@@ -1,7 +1,7 @@
 ---
 title: A History of Parapsychology | Free Book
-date: 2024-10-25 17:41:13
-updated: 2024-10-26 11:23:40
+date: 2024-10-24T20:50:43.680Z
+updated: 2024-10-26T16:32:05.005Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92d6a605833d63cec1d95f9fda72a09059ae8872a2296d5b5a10e968a7ca7da9.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92d6a605833d63cec1d95f9fda72a09
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Atlantis beneath the Ice (2nd ed.) | Free Book
-date: 2024-10-23 22:27:21
-updated: 2024-10-26 12:22:57
+date: 2024-10-20T16:06:13.247Z
+updated: 2024-10-26T18:02:48.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01996c9c0e0fba50e7ce65e57674dcc233faad62ebf577b93bfb9add4bc07755.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01996c9c0e0fba50e7ce65e57674dcc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

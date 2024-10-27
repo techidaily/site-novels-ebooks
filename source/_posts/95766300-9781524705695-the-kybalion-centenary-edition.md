@@ -1,7 +1,7 @@
 ---
 title: "The Kybalion: Centenary Edition | Free Book"
-date: 2024-10-24 23:48:33
-updated: 2024-10-26 12:51:40
+date: 2024-10-21T18:06:44.995Z
+updated: 2024-10-27T04:52:16.696Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8156f8926101cb77027ab9e94113d9a3e6559ea568d144725a78afa5100dade.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8156f8926101cb77027ab9e94113d9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

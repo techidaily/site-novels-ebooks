@@ -1,7 +1,7 @@
 ---
 title: Collapsing Consciously Meditations | Free Book
-date: 2024-10-25 16:35:58
-updated: 2024-10-26 12:19:44
+date: 2024-10-19T18:16:24.638Z
+updated: 2024-10-26T23:00:42.144Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/883e91c5f72fe6c9c01e4af24ab247cd3d976862d752874035244692610d8e54.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/883e91c5f72fe6c9c01e4af24ab247c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

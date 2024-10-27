@@ -1,7 +1,7 @@
 ---
 title: The Astrology of Self-Discovery | Free Book
-date: 2024-10-25 18:23:53
-updated: 2024-10-26 12:56:55
+date: 2024-10-20T04:53:31.115Z
+updated: 2024-10-26T20:39:35.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01a759216c4f4a1a5efae66786d1b477b80771a16fb322681d8d1d39c0f017f8.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01a759216c4f4a1a5efae66786d1b47
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

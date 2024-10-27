@@ -1,7 +1,7 @@
 ---
 title: The Witch's Complete Guide to Astrology | Free Book
-date: 2024-10-23 17:47:19
-updated: 2024-10-26 10:35:20
+date: 2024-10-22T19:35:00.615Z
+updated: 2024-10-26T18:01:30.249Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61da31ed502b83b9cc2dc0ce689c92ef0df1700628171eef84150f65dc38e675.jpg
@@ -210,3 +210,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61da31ed502b83b9cc2dc0ce689c92e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

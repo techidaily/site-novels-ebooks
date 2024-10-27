@@ -1,7 +1,7 @@
 ---
 title: How to Fight Darkness with Light | Free Book
-date: 2024-10-24 18:48:51
-updated: 2024-10-26 11:48:35
+date: 2024-10-21T03:50:02.902Z
+updated: 2024-10-26T16:46:11.364Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3245eccfc2cefe4cc651a659b618ff98fde9ffbabd1ec55a81f0c0746671ecb2.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3245eccfc2cefe4cc651a659b618ff9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

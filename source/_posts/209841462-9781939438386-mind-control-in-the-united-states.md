@@ -1,7 +1,7 @@
 ---
 title: Mind Control In The United States | Free Book
-date: 2024-10-24 23:17:33
-updated: 2024-10-26 11:12:59
+date: 2024-10-24T05:22:40.840Z
+updated: 2024-10-27T04:10:46.498Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e05d9b02220fc20a6da1d3c7d4e248b18a1a83140c1cd75ffa58659a4e42389.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e05d9b02220fc20a6da1d3c7d4e248
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

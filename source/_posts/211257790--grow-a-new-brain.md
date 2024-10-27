@@ -1,7 +1,7 @@
 ---
 title: Grow a New Brain | Free Book
-date: 2024-10-25 18:58:35
-updated: 2024-10-26 12:33:19
+date: 2024-10-22T16:18:45.245Z
+updated: 2024-10-27T03:10:40.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76480cbd71957184ddb592760a133390d2aed7275abf08d62251f38e104e26d3.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76480cbd71957184ddb592760a13339
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

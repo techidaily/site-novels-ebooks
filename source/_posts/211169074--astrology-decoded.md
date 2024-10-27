@@ -1,7 +1,7 @@
 ---
 title: Astrology Decoded | Free Book
-date: 2024-10-25 17:34:45
-updated: 2024-10-26 11:56:42
+date: 2024-10-24T00:23:06.510Z
+updated: 2024-10-26T23:07:52.408Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d31ec163c808d8ae95d88d33e0b9e3352a4b56a3d219bef16d791ac99d9ef845.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d31ec163c808d8ae95d88d33e0b9e33
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

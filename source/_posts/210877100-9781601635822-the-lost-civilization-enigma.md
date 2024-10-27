@@ -1,7 +1,7 @@
 ---
 title: The Lost Civilization Enigma | Free Book
-date: 2024-10-25 19:12:41
-updated: 2024-10-26 10:29:31
+date: 2024-10-20T23:38:23.809Z
+updated: 2024-10-26T16:58:59.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff0759f98d4b7db7b986568c6ad40bf1e3cfdcaebd4c27a7446e5037b6dedb94.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff0759f98d4b7db7b986568c6ad40bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

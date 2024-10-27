@@ -1,7 +1,7 @@
 ---
 title: The Power of Guided Meditation | Free Book
-date: 2024-10-25 12:38:21
-updated: 2024-10-26 12:56:30
+date: 2024-10-24T04:07:15.674Z
+updated: 2024-10-26T18:56:38.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6dc1913284ae6b30d36c35269bc843d03613955f40ea1535ce6e63adb226764.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6dc1913284ae6b30d36c35269bc843
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

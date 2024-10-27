@@ -1,7 +1,7 @@
 ---
 title: A Mother's Courage to Awaken | Free Book
-date: 2024-10-23 13:23:27
-updated: 2024-10-26 10:36:18
+date: 2024-10-25T05:39:16.309Z
+updated: 2024-10-27T00:24:56.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f2306c4c1f51e653da7d91b4a15548193ae3546d9ef7df67844ca166807ce88c.jpg
@@ -235,3 +235,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f2306c4c1f51e653da7d91b4a155481
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

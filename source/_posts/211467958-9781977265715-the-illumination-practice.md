@@ -1,7 +1,7 @@
 ---
 title: The Illumination Practice | Free Book
-date: 2024-10-23 20:50:50
-updated: 2024-10-26 12:46:40
+date: 2024-10-19T17:36:11.920Z
+updated: 2024-10-26T19:45:05.489Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cfe30ee21f41b70fc0aa556b211041efd504852d9caf62547b2b27ed91d03e2d.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cfe30ee21f41b70fc0aa556b211041e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

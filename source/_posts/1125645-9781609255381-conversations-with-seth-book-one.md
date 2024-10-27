@@ -1,7 +1,7 @@
 ---
 title: "Conversations With Seth: Book One | Free Book"
-date: 2024-10-23 12:44:31
-updated: 2024-10-26 11:31:13
+date: 2024-10-20T17:00:48.279Z
+updated: 2024-10-26T21:26:32.237Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9fde453110a6fc95364d0b91d77086106be036c151faa4dbd3516b7bf2fa5e.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9fde453110a6fc95364d0b91d7708
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

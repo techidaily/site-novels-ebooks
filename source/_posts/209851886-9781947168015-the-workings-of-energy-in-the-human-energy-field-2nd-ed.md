@@ -1,7 +1,7 @@
 ---
 title: The Workings of Energy in the Human Energy Field (2nd ed.) | Free Book
-date: 2024-10-23 16:31:41
-updated: 2024-10-26 11:42:49
+date: 2024-10-25T23:26:56.324Z
+updated: 2024-10-26T18:41:44.489Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fbe328d6592962d05447ebe61b4cc3d080eb6fbddc074040ff319933708aa76b.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fbe328d6592962d05447ebe61b4cc3d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

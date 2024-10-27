@@ -1,7 +1,7 @@
 ---
 title: Wisdomkeepers of Stonehenge | Free Book
-date: 2024-10-25 19:42:44
-updated: 2024-10-26 10:47:20
+date: 2024-10-21T19:31:54.724Z
+updated: 2024-10-27T00:42:29.054Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2facda3c46e68523c77ed307f3ca4d933dee1f64981c4deef184e4c5932952cd.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2facda3c46e68523c77ed307f3ca4d9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

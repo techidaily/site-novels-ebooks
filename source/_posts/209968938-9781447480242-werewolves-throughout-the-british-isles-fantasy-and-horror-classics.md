@@ -1,7 +1,7 @@
 ---
 title: Werewolves - Throughout the British Isles (Fantasy and Horror Classics) | Free Book
-date: 2024-10-23 15:47:39
-updated: 2024-10-26 10:24:48
+date: 2024-10-23T02:13:58.977Z
+updated: 2024-10-27T03:02:49.603Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e23c4c890a12882913335e23e8b2b74ceb2de8226d36230f01a20cb30824bc8.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e23c4c890a12882913335e23e8b2b7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

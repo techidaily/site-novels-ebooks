@@ -1,7 +1,7 @@
 ---
 title: "The Dragon in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 22:11:10
-updated: 2024-10-26 11:49:14
+date: 2024-10-19T17:36:34.700Z
+updated: 2024-10-26T17:55:15.445Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a54804046a94890cbb4834c484b6cc7f8277c214c1c7932337d020ede9fd59.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a54804046a94890cbb4834c484b6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

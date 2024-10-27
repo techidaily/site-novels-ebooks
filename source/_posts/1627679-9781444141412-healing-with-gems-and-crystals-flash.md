@@ -1,7 +1,7 @@
 ---
 title: "Healing with Gems and Crystals: Flash | Free Book"
-date: 2024-10-25 17:25:11
-updated: 2024-10-26 11:40:53
+date: 2024-10-21T02:11:47.731Z
+updated: 2024-10-26T22:47:44.667Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/136a5a894b51b9eb0c4388147047e11f51c47ce9a9848d84e4206b40d0b09695.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/136a5a894b51b9eb0c4388147047e11
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

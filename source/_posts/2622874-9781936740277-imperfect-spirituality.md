@@ -1,7 +1,7 @@
 ---
 title: Imperfect Spirituality | Free Book
-date: 2024-10-23 20:43:36
-updated: 2024-10-26 10:51:12
+date: 2024-10-25T20:23:14.488Z
+updated: 2024-10-26T18:52:11.001Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/040076aa808ba1fe15fd37a582e05f7440ed757d33889d5b345eb97779602dc6.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/040076aa808ba1fe15fd37a582e05f7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

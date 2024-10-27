@@ -1,7 +1,7 @@
 ---
 title: The Elixir of Immortality | Free Book
-date: 2024-10-23 15:52:37
-updated: 2024-10-26 11:27:26
+date: 2024-10-26T01:44:39.144Z
+updated: 2024-10-26T16:08:21.926Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fca9a4d083183813b5f82855876aecf66530349c5bd522c7c820f53a57f63929.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fca9a4d083183813b5f82855876aecf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

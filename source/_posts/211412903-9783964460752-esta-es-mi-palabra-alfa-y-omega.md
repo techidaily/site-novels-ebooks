@@ -1,7 +1,7 @@
 ---
 title: Esta es Mi Palabra. Alfa y Omega | Free Book
-date: 2024-10-23 18:40:46
-updated: 2024-10-26 10:41:46
+date: 2024-10-24T23:21:03.560Z
+updated: 2024-10-26T16:35:18.097Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fdd1c46bc98cf82731bb63538e1ca529c0e0e8c33e946e6c2b9c92c5866f4d5c.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fdd1c46bc98cf82731bb63538e1ca52
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

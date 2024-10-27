@@ -1,7 +1,7 @@
 ---
 title: Guided Mindfulness Meditations for Stressed Out Adults Beginners Meditation, Bedtime Stories & Hypnosis For Self-Healing, Deep Sleep, Anxiety, Relaxation, Insomnia & Overthinking | Free Book
-date: 2024-10-24 13:43:24
-updated: 2024-10-26 12:20:31
+date: 2024-10-22T19:39:25.900Z
+updated: 2024-10-27T03:51:35.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7493a4de48613e2d632ae39c77805304eeea23c72ff90eac2cabebc77d4ec467.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7493a4de48613e2d632ae39c7780530
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

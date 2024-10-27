@@ -1,7 +1,7 @@
 ---
 title: Símbolos curativos de los antiguos eslavos. Glagolítico. Terapia artística | Free Book
-date: 2024-10-25 13:35:18
-updated: 2024-10-26 11:58:58
+date: 2024-10-22T04:59:14.360Z
+updated: 2024-10-26T17:29:11.193Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc175e760c7a576f58c4ce3d0d6c7107cd3018a413425151bd14ccb98e3fe6bf.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc175e760c7a576f58c4ce3d0d6c710
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

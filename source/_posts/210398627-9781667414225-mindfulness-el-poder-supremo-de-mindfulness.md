@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: El poder supremo de Mindfulness | Free Book"
-date: 2024-10-24 14:22:27
-updated: 2024-10-26 12:22:49
+date: 2024-10-22T20:10:56.990Z
+updated: 2024-10-27T04:45:44.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/538ec4df92510196d7754938c9323834ff5176c12c1f440df0ca3d61a625d504.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/538ec4df92510196d7754938c932383
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

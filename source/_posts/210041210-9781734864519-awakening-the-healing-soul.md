@@ -1,7 +1,7 @@
 ---
 title: Awakening the Healing Soul | Free Book
-date: 2024-10-25 19:47:29
-updated: 2024-10-26 12:20:53
+date: 2024-10-23T22:32:01.622Z
+updated: 2024-10-26T23:54:40.788Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb9f40f31c34c7ac465ef252da6724d897e3d0bf9ecc69d5f8d3885def8d5744.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb9f40f31c34c7ac465ef252da6724d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

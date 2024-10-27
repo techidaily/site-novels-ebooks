@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-10-23 20:45:49
-updated: 2024-10-26 10:48:16
+date: 2024-10-23T18:41:45.951Z
+updated: 2024-10-26T18:16:04.109Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -119,3 +119,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

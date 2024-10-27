@@ -1,7 +1,7 @@
 ---
 title: "The Mindfulness Bell: No Birth, No Death, Only Continuation, Issue 90, 2022 | Free Book"
-date: 2024-10-24 18:12:36
-updated: 2024-10-26 11:48:21
+date: 2024-10-21T03:56:57.978Z
+updated: 2024-10-26T17:42:36.532Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4555511f544835a3b2e30dd143e280517545a27ccede2fb49d7b8db15866a6c4.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4555511f544835a3b2e30dd143e2805
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

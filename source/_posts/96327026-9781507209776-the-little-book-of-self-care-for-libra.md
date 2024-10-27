@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Libra | Free Book
-date: 2024-10-25 13:28:50
-updated: 2024-10-26 12:29:46
+date: 2024-10-21T20:22:06.805Z
+updated: 2024-10-27T01:58:29.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9c3e734e63a96b466b3af667a3a62c89c9.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

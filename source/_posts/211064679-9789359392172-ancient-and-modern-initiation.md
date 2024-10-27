@@ -1,7 +1,7 @@
 ---
 title: Ancient And Modern Initiation | Free Book
-date: 2024-10-25 16:30:30
-updated: 2024-10-26 10:37:11
+date: 2024-10-22T22:03:40.313Z
+updated: 2024-10-27T04:50:03.939Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b951aea25accdf3f97c88abddb3dafb9cda8462d6077e687362589de8748afe7.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b951aea25accdf3f97c88abddb3dafb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

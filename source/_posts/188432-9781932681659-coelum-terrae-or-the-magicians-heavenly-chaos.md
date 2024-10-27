@@ -1,7 +1,7 @@
 ---
 title: Coelum Terrae or The Magician's Heavenly Chaos | Free Book
-date: 2024-10-25 15:11:26
-updated: 2024-10-26 11:33:58
+date: 2024-10-23T00:07:50.677Z
+updated: 2024-10-27T00:24:46.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f98060af3eac384c7f7b6f8ef0215c0260e45a0cc64de209a320839c970c3fe0.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f98060af3eac384c7f7b6f8ef0215c0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

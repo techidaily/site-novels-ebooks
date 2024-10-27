@@ -1,7 +1,7 @@
 ---
 title: The Science of Enlightenment | Free Book
-date: 2024-10-23 20:42:34
-updated: 2024-10-26 10:57:29
+date: 2024-10-21T18:57:36.700Z
+updated: 2024-10-26T21:49:20.309Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e9a8f1263477476714cdbc0a32ecf59bdcb8f09e8d4b37526e84a71492e0e37e.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e9a8f1263477476714cdbc0a32ecf59
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Time and the Technosphere | Free Book
-date: 2024-10-25 21:39:58
-updated: 2024-10-26 12:14:52
+date: 2024-10-26T02:38:26.407Z
+updated: 2024-10-26T19:41:25.587Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/564215306a5db99c134c4d03ad42f739fbf026669193b7cd904887491b8a005b.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/564215306a5db99c134c4d03ad42f73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

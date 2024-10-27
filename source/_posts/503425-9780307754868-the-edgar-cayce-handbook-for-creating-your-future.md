@@ -1,7 +1,7 @@
 ---
 title: The Edgar Cayce Handbook for Creating Your Future | Free Book
-date: 2024-10-25 19:10:28
-updated: 2024-10-26 10:54:30
+date: 2024-10-25T04:16:32.192Z
+updated: 2024-10-27T00:41:24.039Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2fa3e7bf9829e6c9fa85a31d70356da82a57293ff5da65909efbaa20c23f630.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2fa3e7bf9829e6c9fa85a31d70356d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

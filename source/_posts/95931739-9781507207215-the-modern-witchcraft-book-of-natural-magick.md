@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Book of Natural Magick | Free Book
-date: 2024-10-24 22:58:38
-updated: 2024-10-26 10:55:44
+date: 2024-10-23T01:16:55.318Z
+updated: 2024-10-27T01:58:06.038Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/744e4a2af9c32112fc02624b6e57888a0c598218b58c8c9da7c7c80f4dd5f70c.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/744e4a2af9c32112fc02624b6e57888
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

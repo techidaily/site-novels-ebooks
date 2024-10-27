@@ -1,7 +1,7 @@
 ---
 title: Guia de Treinamento das Características da Empatia para | Free Book
-date: 2024-10-24 17:37:44
-updated: 2024-10-26 11:37:59
+date: 2024-10-19T21:00:26.448Z
+updated: 2024-10-27T05:50:15.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fff85022f21eb7a6ca747be1e07c2f77f90bbea3126272dfa849a55b6eef56b6.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fff85022f21eb7a6ca747be1e07c2f7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Wild Moon Healing Revolution | Free Book
-date: 2024-10-25 23:21:49
-updated: 2024-10-26 11:54:41
+date: 2024-10-24T22:24:39.394Z
+updated: 2024-10-27T05:24:19.092Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f623fbcc2213a135a687074df640315c31f2cb5df56a78519381284f53a94aa.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f623fbcc2213a135a687074df64031
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

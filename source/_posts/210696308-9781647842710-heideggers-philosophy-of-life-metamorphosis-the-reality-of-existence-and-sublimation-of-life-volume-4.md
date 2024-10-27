@@ -1,7 +1,7 @@
 ---
 title: "Heidegger's Philosophy of Life: Metamorphosis: The Reality of Existence and Sublimation of Life (Volume 4) | Free Book"
-date: 2024-10-24 20:20:46
-updated: 2024-10-26 12:16:56
+date: 2024-10-25T02:33:00.661Z
+updated: 2024-10-26T22:20:20.043Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5361d80224b0c0d38d2475d3a270b20c2d7848aec642a5a4bdb195e779d4196e.jpg
@@ -316,3 +316,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5361d80224b0c0d38d2475d3a270b20
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

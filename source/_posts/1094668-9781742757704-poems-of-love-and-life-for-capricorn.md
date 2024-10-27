@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Capricorn | Free Book
-date: 2024-10-25 11:27:24
-updated: 2024-10-26 12:35:14
+date: 2024-10-25T16:05:40.174Z
+updated: 2024-10-26T23:06:08.044Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3eb61f3acb361f60c86e7e3cf93d536d7ff4835f599d5da39722080d222bc3e2.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3eb61f3acb361f60c86e7e3cf93d536
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

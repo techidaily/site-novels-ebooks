@@ -1,7 +1,7 @@
 ---
 title: The Meditations of Marcus Aurelius | Free Book
-date: 2024-10-25 14:36:14
-updated: 2024-10-26 12:57:33
+date: 2024-10-24T00:15:57.033Z
+updated: 2024-10-26T21:11:36.831Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51c1089bfe19e0ed9e6751cff6ddbd57015aec45979f352d5a1848f7f9a2fe0d.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51c1089bfe19e0ed9e6751cff6ddbd5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

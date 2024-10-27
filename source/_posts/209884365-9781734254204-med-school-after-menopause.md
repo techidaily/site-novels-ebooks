@@ -1,7 +1,7 @@
 ---
 title: MED SCHOOL after MENOPAUSE | Free Book
-date: 2024-10-23 17:43:43
-updated: 2024-10-26 10:55:49
+date: 2024-10-24T00:44:27.653Z
+updated: 2024-10-27T03:46:27.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1feac524f08a3f02115050d8c9f5a75dc49d9fc668d9bcf27b1793b7eb7b6d27.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1feac524f08a3f02115050d8c9f5a75
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

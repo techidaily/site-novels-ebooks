@@ -1,7 +1,7 @@
 ---
 title: Journal M.A.G.I.C. | Free Book
-date: 2024-10-24 23:39:11
-updated: 2024-10-26 12:43:10
+date: 2024-10-19T20:45:09.678Z
+updated: 2024-10-26T23:06:12.264Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/254b8e88e0add0163f548906195d13e97b29063fec2dc07832b252a4f22be4ea.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/254b8e88e0add0163f548906195d13e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

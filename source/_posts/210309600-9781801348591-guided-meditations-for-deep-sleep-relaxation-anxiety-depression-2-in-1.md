@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations For Deep Sleep, Relaxation, Anxiety & Depression (2 in 1) | Free Book
-date: 2024-10-23 15:23:28
-updated: 2024-10-26 11:33:30
+date: 2024-10-20T01:32:00.401Z
+updated: 2024-10-27T03:14:34.944Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d287cb01a84ee0f3f6cdf208f99cd988ac8aa1d0c8bddbdbe23c7558870761b.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d287cb01a84ee0f3f6cdf208f99cd9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

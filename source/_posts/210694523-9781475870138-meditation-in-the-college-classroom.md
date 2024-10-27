@@ -1,7 +1,7 @@
 ---
 title: Meditation in the College Classroom | Free Book
-date: 2024-10-24 21:14:34
-updated: 2024-10-26 11:35:44
+date: 2024-10-26T00:30:53.825Z
+updated: 2024-10-26T20:28:46.802Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/65ccf88a9ed996b4fd73b1043460a5cbed5c443e3258b0521b32c41f0dda4ad7.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/65ccf88a9ed996b4fd73b1043460a5c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

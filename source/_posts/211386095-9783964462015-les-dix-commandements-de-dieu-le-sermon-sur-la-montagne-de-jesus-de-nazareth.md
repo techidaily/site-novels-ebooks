@@ -1,7 +1,7 @@
 ---
 title: Les Dix Commandements de Dieu & Le Sermon sur la Montagne de Jésus de Nazareth | Free Book
-date: 2024-10-24 17:17:12
-updated: 2024-10-26 11:48:56
+date: 2024-10-26T05:48:22.308Z
+updated: 2024-10-26T19:41:54.185Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c263b81269d78a3956ddde8abd9672043439eeed89f87cc7d8e99d033e0b80ab.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c263b81269d78a3956ddde8abd96720
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

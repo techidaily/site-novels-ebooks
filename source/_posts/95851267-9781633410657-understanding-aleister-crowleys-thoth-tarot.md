@@ -1,7 +1,7 @@
 ---
 title: Understanding Aleister Crowley's Thoth Tarot | Free Book
-date: 2024-10-25 14:46:41
-updated: 2024-10-26 10:27:27
+date: 2024-10-24T16:00:41.069Z
+updated: 2024-10-26T23:47:34.649Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e040460d6f20859742a48c1559673cb1386fe008d1e4109676ce1fb34c831e21.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e040460d6f20859742a48c1559673cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

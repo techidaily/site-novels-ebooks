@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Confidence | Free Book
-date: 2024-10-25 19:58:48
-updated: 2024-10-26 10:23:59
+date: 2024-10-24T05:14:39.247Z
+updated: 2024-10-26T22:56:09.710Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a68598afbe80d16bfb0e369bed6f659cbbc4f51dcc5e67d0df91d0d8d68a0a72.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a68598afbe80d16bfb0e369bed6f659
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

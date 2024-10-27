@@ -1,7 +1,7 @@
 ---
 title: The Outer Limits of Edgar Cayce's Power | Free Book
-date: 2024-10-24 18:56:16
-updated: 2024-10-26 10:46:34
+date: 2024-10-20T02:13:43.618Z
+updated: 2024-10-27T04:49:29.090Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00c952cee46ac7344279037bbd05276512259f5ae85b2ef5d4b7af69e30fd47b.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00c952cee46ac7344279037bbd05276
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

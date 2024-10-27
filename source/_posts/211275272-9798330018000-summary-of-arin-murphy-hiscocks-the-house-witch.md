@@ -1,7 +1,7 @@
 ---
 title: Summary of Arin Murphy-Hiscock's The House Witch | Free Book
-date: 2024-10-23 13:49:49
-updated: 2024-10-26 10:43:28
+date: 2024-10-22T02:01:28.917Z
+updated: 2024-10-27T02:40:36.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44f1042883201631b324c19b12aafa62feeb0b8eee7f7fe09e6e044ad215738b.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44f1042883201631b324c19b12aafa6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

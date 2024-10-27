@@ -1,7 +1,7 @@
 ---
 title: "Soulager la douleur avec la pleine conscience : Apaiser réduire le stress et restaurer le bien-être - Programme Breathworks - MBPM | Free Book"
-date: 2024-10-23 16:58:31
-updated: 2024-10-26 12:35:47
+date: 2024-10-24T19:44:34.778Z
+updated: 2024-10-26T17:13:26.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d57ec2ce86683979f40d55016ce893ea0a88da7af8b6ceccc100e02d3428def.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d57ec2ce86683979f40d55016ce893
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

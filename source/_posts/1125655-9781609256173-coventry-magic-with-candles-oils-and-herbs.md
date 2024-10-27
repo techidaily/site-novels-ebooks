@@ -1,7 +1,7 @@
 ---
 title: Coventry Magic with Candles, Oils, and Herbs | Free Book
-date: 2024-10-23 18:47:34
-updated: 2024-10-26 11:12:26
+date: 2024-10-22T00:10:56.619Z
+updated: 2024-10-26T21:32:25.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa20670fc0d5097728963d9e979acb7774f1bb81e1b3d31bea15d89cbc99999a.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa20670fc0d5097728963d9e979acb7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

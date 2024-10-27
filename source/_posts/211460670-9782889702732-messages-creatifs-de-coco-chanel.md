@@ -1,7 +1,7 @@
 ---
 title: Messages créatifs de Coco Chanel | Free Book
-date: 2024-10-25 13:46:28
-updated: 2024-10-26 10:25:41
+date: 2024-10-19T18:01:14.361Z
+updated: 2024-10-27T04:18:50.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a8ad259942d200164a7c3ecf2400f02d7b4601b902c08b1fdb73dfc8ea196b41.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a8ad259942d200164a7c3ecf2400f02
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

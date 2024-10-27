@@ -1,7 +1,7 @@
 ---
 title: Witch, Warlock, and Magician - Historical Sketches of Magic and Witchcraft in England and Scotland | Free Book
-date: 2024-10-25 18:38:13
-updated: 2024-10-26 10:48:19
+date: 2024-10-20T20:50:18.266Z
+updated: 2024-10-27T00:04:32.373Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4673a5c8b277559b4dc6db65d6b9e328db7ad49138984ef50b2d19aa4544caec.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4673a5c8b277559b4dc6db65d6b9e32
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

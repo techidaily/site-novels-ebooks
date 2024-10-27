@@ -1,7 +1,7 @@
 ---
 title: Dr. Quantum's Little Book Of Big Ideas | Free Book
-date: 2024-10-24 22:31:52
-updated: 2024-10-26 11:27:41
+date: 2024-10-24T21:03:45.134Z
+updated: 2024-10-27T00:49:08.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f3e60576afe52898452c4c1ff259f5df578ab952484a6f868f84c372ae989684.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f3e60576afe52898452c4c1ff259f5d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

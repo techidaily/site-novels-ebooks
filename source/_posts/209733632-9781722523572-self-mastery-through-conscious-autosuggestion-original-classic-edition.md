@@ -1,7 +1,7 @@
 ---
 title: Self-Mastery Through Conscious Autosuggestion (Original Classic Edition) | Free Book
-date: 2024-10-25 14:41:25
-updated: 2024-10-26 11:22:48
+date: 2024-10-22T19:04:43.030Z
+updated: 2024-10-27T01:27:39.947Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e69bd6faa3eb4f9127d25878278bb81fbf60fb709fea25946648e07ed31ed7a.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e69bd6faa3eb4f9127d25878278bb8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Tipps für mehr Widerstandskraft in stressigen Zeiten | Free Book
-date: 2024-10-24 23:53:43
-updated: 2024-10-26 10:32:24
+date: 2024-10-20T22:10:59.050Z
+updated: 2024-10-27T04:47:38.574Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09668e5e5ab33e3e41643b5aacf48f69a3c43ae60b90a377d7a75dbc51b3f203.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09668e5e5ab33e3e41643b5aacf48f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Fraternitas Saturni (5th ed.) | Free Book
-date: 2024-10-25 16:13:46
-updated: 2024-10-26 12:34:48
+date: 2024-10-26T03:46:59.253Z
+updated: 2024-10-26T23:59:25.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a53b742fee441b2b14ba8b8a640b64e97430736ec755fd4db092fe74eecf6590.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a53b742fee441b2b14ba8b8a640b64e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

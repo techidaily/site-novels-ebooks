@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2022: Your Personal Horoscope | Free Book"
-date: 2024-10-25 14:48:47
-updated: 2024-10-26 10:45:12
+date: 2024-10-21T20:11:15.127Z
+updated: 2024-10-26T21:19:33.220Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee203dcc5d37e6f4afd7c992b7b5c823af33b7ecb37cf2fd8d5d5e71f13a8d05.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee203dcc5d37e6f4afd7c992b7b5c82
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

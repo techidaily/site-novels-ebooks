@@ -1,7 +1,7 @@
 ---
 title: Life's a Journey, Not a Destination | Free Book
-date: 2024-10-25 21:48:39
-updated: 2024-10-26 10:39:49
+date: 2024-10-23T02:27:34.918Z
+updated: 2024-10-26T20:10:16.002Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8522dcd553233acfbb68586b242706563b356e6cd0cbfe74d1ca805279f8ab6f.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8522dcd553233acfbb68586b2427065
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Opening the Doors of Perception | Free Book
-date: 2024-10-25 11:12:40
-updated: 2024-10-26 12:22:56
+date: 2024-10-26T01:36:04.876Z
+updated: 2024-10-27T02:28:28.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c608c4f7f8f9078421aefbcdbf34009e71191c540a42f5a56695d2b63c6d2152.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c608c4f7f8f9078421aefbcdbf34009
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

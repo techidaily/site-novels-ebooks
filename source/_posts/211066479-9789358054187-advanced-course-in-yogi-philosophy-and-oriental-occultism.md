@@ -1,7 +1,7 @@
 ---
 title: Advanced Course in Yogi Philosophy and Oriental Occultism | Free Book
-date: 2024-10-25 19:25:19
-updated: 2024-10-26 12:30:55
+date: 2024-10-21T04:18:49.365Z
+updated: 2024-10-26T16:02:56.528Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4676a3ab767c3e48da0d763bd643d2bc26ccb56480897c219f8d5e16a488f65.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4676a3ab767c3e48da0d763bd643d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

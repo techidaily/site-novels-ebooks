@@ -1,7 +1,7 @@
 ---
 title: The Holistic Approach To Cancer | Free Book
-date: 2024-10-25 10:52:42
-updated: 2024-10-26 10:11:23
+date: 2024-10-24T16:39:01.959Z
+updated: 2024-10-27T01:15:53.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa844b81d4b5b13f3fcba8f9ad1b16fe79db6b4db387fb1bc1a69307156f2cc1.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa844b81d4b5b13f3fcba8f9ad1b16f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Tous fragiles tous humains | Free Book
-date: 2024-10-23 15:48:24
-updated: 2024-10-26 10:58:23
+date: 2024-10-25T18:51:58.331Z
+updated: 2024-10-26T19:43:04.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dc6880716b9a6492707e25a08b88a41377468e9fab72df9cbe617664e36ca98.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dc6880716b9a6492707e25a08b88a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

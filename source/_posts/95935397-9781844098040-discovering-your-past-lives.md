@@ -1,7 +1,7 @@
 ---
 title: Discovering Your Past Lives | Free Book
-date: 2024-10-23 21:53:28
-updated: 2024-10-26 11:32:59
+date: 2024-10-23T18:40:19.183Z
+updated: 2024-10-26T22:16:54.024Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c9fb6e12889555ec7719c8deff8e04ce10af72cadf854631b19fdd558c044fb.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c9fb6e12889555ec7719c8deff8e04
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

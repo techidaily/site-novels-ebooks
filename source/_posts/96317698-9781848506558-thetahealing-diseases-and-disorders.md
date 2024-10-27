@@ -1,7 +1,7 @@
 ---
 title: "ThetaHealing: Diseases and Disorders | Free Book"
-date: 2024-10-25 23:39:53
-updated: 2024-10-26 10:24:14
+date: 2024-10-20T23:52:23.862Z
+updated: 2024-10-27T02:03:02.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1beee72775d13a204a77302ea211fc5126d757eb4b41203fabc13f3f3a8127c8.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1beee72775d13a204a77302ea211fc5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

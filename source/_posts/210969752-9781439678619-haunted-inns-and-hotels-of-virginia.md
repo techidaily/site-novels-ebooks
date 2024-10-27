@@ -1,7 +1,7 @@
 ---
 title: Haunted Inns and Hotels of Virginia | Free Book
-date: 2024-10-24 10:58:26
-updated: 2024-10-26 10:33:21
+date: 2024-10-20T00:03:17.317Z
+updated: 2024-10-27T04:30:47.918Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bdc396ebf00cdd84760b636dfc4f70960a0efe6030535339ca0f1c9714e0834b.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bdc396ebf00cdd84760b636dfc4f709
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

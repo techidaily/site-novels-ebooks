@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Power of Amulets, Talismans, and Mascots | Free Book
-date: 2024-10-25 14:13:54
-updated: 2024-10-26 11:18:59
+date: 2024-10-25T18:23:57.393Z
+updated: 2024-10-27T00:03:04.878Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa12ff7f4b3a3beba63f44032fda18d343abdb65f5aad45bbe299c3af54d0e2e.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa12ff7f4b3a3beba63f44032fda18d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

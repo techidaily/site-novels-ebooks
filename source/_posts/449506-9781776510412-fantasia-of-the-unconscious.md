@@ -1,7 +1,7 @@
 ---
 title: Fantasia of the Unconscious | Free Book
-date: 2024-10-23 13:10:26
-updated: 2024-10-26 11:38:16
+date: 2024-10-24T05:23:36.694Z
+updated: 2024-10-26T20:09:36.062Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/904fe76c231de8ecfecb5b192ec97cbaa597faf6929154136726a48e4c687965.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/904fe76c231de8ecfecb5b192ec97cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

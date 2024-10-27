@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide Numerology Workbook | Free Book
-date: 2024-10-24 20:33:21
-updated: 2024-10-26 11:45:11
+date: 2024-10-25T21:19:16.488Z
+updated: 2024-10-27T01:14:56.653Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c05c7a5b3bea86e40db8ee6352b3c57748191d88a09f5fd0ed51616c9bbd9868.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c05c7a5b3bea86e40db8ee6352b3c57
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Something to Bear in Mind | Free Book
-date: 2024-10-24 20:47:44
-updated: 2024-10-26 11:38:58
+date: 2024-10-23T16:05:50.252Z
+updated: 2024-10-26T18:12:22.252Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db6dabce46b61cfb81bf31fe7a5267115bb6af6e9f6b52d8ce666b3f667a27bd.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db6dabce46b61cfb81bf31fe7a52671
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

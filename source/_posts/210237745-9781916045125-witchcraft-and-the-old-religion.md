@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and The Old Religion | Free Book
-date: 2024-10-24 17:49:33
-updated: 2024-10-26 12:19:11
+date: 2024-10-21T20:31:54.463Z
+updated: 2024-10-27T04:09:50.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f948cec7055e0a103c8eac192495486bd94300bde90bf12547905a6f9468e45a.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f948cec7055e0a103c8eac192495486
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

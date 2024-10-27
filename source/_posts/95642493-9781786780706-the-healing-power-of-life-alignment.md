@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Life Alignment | Free Book
-date: 2024-10-25 16:17:59
-updated: 2024-10-26 10:50:24
+date: 2024-10-21T17:17:50.278Z
+updated: 2024-10-26T16:11:40.219Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7266f2cef23533e667175724278ffd6ded285309cb1229904dbf2f3c0d5c25a1.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7266f2cef23533e667175724278ffd6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

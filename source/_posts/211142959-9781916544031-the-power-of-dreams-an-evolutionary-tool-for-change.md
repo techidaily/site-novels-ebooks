@@ -1,7 +1,7 @@
 ---
 title: The Power of Dreams - An evolutionary tool for change | Free Book
-date: 2024-10-25 16:21:25
-updated: 2024-10-26 11:21:49
+date: 2024-10-23T18:19:23.788Z
+updated: 2024-10-27T02:34:48.518Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2809f25cc38bffbfcf1bbdeb1079349dd5e39bbaa3803949b7bdf912bce520bb.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2809f25cc38bffbfcf1bbdeb1079349
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Life After Death by God's Hands | Free Book
-date: 2024-10-23 18:38:40
-updated: 2024-10-26 10:56:25
+date: 2024-10-20T04:13:25.540Z
+updated: 2024-10-27T02:08:42.569Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa4b9186c8944e3e01d4a8ef635dc42381ff9b8ae55f727af6e9e801f1c9199d.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa4b9186c8944e3e01d4a8ef635dc42
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

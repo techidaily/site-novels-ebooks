@@ -1,7 +1,7 @@
 ---
 title: And the Trust Shall Set Us Free | Free Book
-date: 2024-10-24 15:59:22
-updated: 2024-10-26 11:38:58
+date: 2024-10-21T18:21:11.370Z
+updated: 2024-10-27T01:36:41.305Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b4b964c9328c0871b54d617ce82e2ce10553bf21ee7272b1b62a5c0ef18f09e.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b4b964c9328c0871b54d617ce82e2c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

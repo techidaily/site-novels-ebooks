@@ -1,7 +1,7 @@
 ---
 title: Riding with Ghosts, Angels, and the Spirits of the Dead | Free Book
-date: 2024-10-24 19:35:14
-updated: 2024-10-26 11:42:21
+date: 2024-10-21T01:09:20.218Z
+updated: 2024-10-26T22:46:00.265Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7d219d8115e709e6b127533e849d9d04c101643fb2f0706b6703584e02e586b.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7d219d8115e709e6b127533e849d9d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

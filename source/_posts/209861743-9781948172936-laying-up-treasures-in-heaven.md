@@ -1,7 +1,7 @@
 ---
 title: Laying Up Treasures In Heaven | Free Book
-date: 2024-10-24 17:45:23
-updated: 2024-10-26 10:54:17
+date: 2024-10-22T05:57:12.992Z
+updated: 2024-10-26T22:26:17.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e8a1e14b31a612dcb9ac4b7baea151ea1ea06612e134c490489ff0856179926.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e8a1e14b31a612dcb9ac4b7baea151
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

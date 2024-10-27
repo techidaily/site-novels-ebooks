@@ -1,7 +1,7 @@
 ---
 title: I Didn't Ask For This Devotional | Free Book
-date: 2024-10-23 14:59:56
-updated: 2024-10-26 10:32:41
+date: 2024-10-21T17:15:52.007Z
+updated: 2024-10-26T18:40:29.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66338b3b5afda30decb101f0d166d75ee5734772596e905568b096c86a5243e8.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66338b3b5afda30decb101f0d166d75
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

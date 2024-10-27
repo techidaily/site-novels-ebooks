@@ -1,7 +1,7 @@
 ---
 title: "Shaman Pathways - Aubry's Dog: Power Animals In Traditional Witchcraft | Free Book"
-date: 2024-10-25 16:41:43
-updated: 2024-10-26 10:48:20
+date: 2024-10-26T05:33:15.904Z
+updated: 2024-10-27T05:34:25.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32451dbf3d1a3035544dff8962de59551791d497ae890a6d471628ea5c4667fb.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32451dbf3d1a3035544dff8962de595
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

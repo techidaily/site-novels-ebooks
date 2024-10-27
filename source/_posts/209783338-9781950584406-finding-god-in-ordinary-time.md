@@ -1,7 +1,7 @@
 ---
 title: Finding God in Ordinary Time | Free Book
-date: 2024-10-24 15:53:29
-updated: 2024-10-26 10:12:43
+date: 2024-10-23T05:28:15.650Z
+updated: 2024-10-26T17:25:53.403Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/41e72fea5f307fac4546499224ca01d4d286764b597c014d9273bde8256325d8.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/41e72fea5f307fac4546499224ca01d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

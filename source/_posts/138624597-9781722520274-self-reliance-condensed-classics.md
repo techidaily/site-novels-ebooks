@@ -1,7 +1,7 @@
 ---
 title: Self-Reliance (Condensed Classics) | Free Book
-date: 2024-10-23 19:24:47
-updated: 2024-10-26 11:48:14
+date: 2024-10-23T04:34:40.386Z
+updated: 2024-10-26T23:39:56.442Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ee3d5a3866c2789601ab841cd465d5306fb12e33632547c3057abeba9b215de.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ee3d5a3866c2789601ab841cd465d5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

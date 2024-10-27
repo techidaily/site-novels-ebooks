@@ -1,7 +1,7 @@
 ---
 title: The History of Spiritualism | Free Book
-date: 2024-10-23 12:45:27
-updated: 2024-10-26 11:58:59
+date: 2024-10-24T21:50:45.030Z
+updated: 2024-10-26T19:54:20.772Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb2d4e2d37bb5eebb99e38fbbf4385dc6ccbb5e8fcb940adc25ca044fe6f4a19.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb2d4e2d37bb5eebb99e38fbbf4385d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

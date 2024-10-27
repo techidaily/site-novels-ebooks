@@ -1,7 +1,7 @@
 ---
 title: The Religion of Ayahuasca (2nd ed.) | Free Book
-date: 2024-10-23 19:28:23
-updated: 2024-10-26 12:38:40
+date: 2024-10-19T16:00:51.284Z
+updated: 2024-10-26T18:47:31.834Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7aebee2eb26d8b9467a997e049411f3db5ff84f406c5408a9f35fca2f9deb96a.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7aebee2eb26d8b9467a997e049411f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

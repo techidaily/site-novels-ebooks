@@ -1,7 +1,7 @@
 ---
 title: Witness to Roswell, 75th Anniversary Edition | Free Book
-date: 2024-10-25 21:39:43
-updated: 2024-10-26 10:43:24
+date: 2024-10-21T18:18:35.681Z
+updated: 2024-10-27T00:20:51.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c926396b5a1251c7a9ec12f4d82d139a36fbfa6328581bf85ccfc6bf6b50161c.jpg
@@ -207,3 +207,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c926396b5a1251c7a9ec12f4d82d139
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Creative Meditation & Visualisation | Free Book
-date: 2024-10-23 11:29:23
-updated: 2024-10-26 12:59:17
+date: 2024-10-20T21:23:11.373Z
+updated: 2024-10-27T04:09:10.600Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/602a940ff5fe92f52a4e6b8d4868e421248cb71098cef42a824cf971085561fb.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/602a940ff5fe92f52a4e6b8d4868e42
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

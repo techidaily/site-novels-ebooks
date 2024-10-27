@@ -1,7 +1,7 @@
 ---
 title: China's Cosmological Prehistory | Free Book
-date: 2024-10-25 14:55:58
-updated: 2024-10-26 12:28:35
+date: 2024-10-20T19:54:51.353Z
+updated: 2024-10-27T03:48:57.407Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1c86e1e469b8bc82a0c83445c2461192c6cf67d9fa5222b3452b0483b7cd553.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1c86e1e469b8bc82a0c83445c24611
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

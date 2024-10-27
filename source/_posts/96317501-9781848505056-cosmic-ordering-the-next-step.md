@@ -1,7 +1,7 @@
 ---
 title: "Cosmic Ordering: The Next Step | Free Book"
-date: 2024-10-24 14:17:49
-updated: 2024-10-26 10:35:47
+date: 2024-10-21T01:40:29.773Z
+updated: 2024-10-26T17:30:26.273Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b98b1a48d51217b310d1e3faa147c9c5a939e030bcbde6d54e10654bd07b4f1.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b98b1a48d51217b310d1e3faa147c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

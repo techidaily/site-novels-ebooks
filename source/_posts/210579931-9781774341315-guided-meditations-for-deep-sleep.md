@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations for Deep Sleep | Free Book
-date: 2024-10-25 17:40:22
-updated: 2024-10-26 10:52:12
+date: 2024-10-19T20:51:56.314Z
+updated: 2024-10-27T03:51:44.808Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/562bc07cb96d96759faa422d206a55d5ec9f5e38cc4c93aac739fcbb019b19ad.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/562bc07cb96d96759faa422d206a55d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

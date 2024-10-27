@@ -1,7 +1,7 @@
 ---
 title: Teens with the Courage to Give | Free Book
-date: 2024-10-24 10:41:22
-updated: 2024-10-26 12:22:31
+date: 2024-10-25T00:58:20.792Z
+updated: 2024-10-26T22:50:24.102Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/41576fb2156e539cbba7be3e6711d5bb8001445f281c505918b30118c9da5b2a.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/41576fb2156e539cbba7be3e6711d5b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

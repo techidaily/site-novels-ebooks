@@ -1,7 +1,7 @@
 ---
 title: The Case Against Spiritualism | Free Book
-date: 2024-10-24 14:52:23
-updated: 2024-10-26 12:46:14
+date: 2024-10-24T16:15:17.492Z
+updated: 2024-10-26T21:23:40.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8e2f29ea817b5ab0ae9a251229e21c71aa74c66141bd42564da13fe348751670.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8e2f29ea817b5ab0ae9a251229e21c7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

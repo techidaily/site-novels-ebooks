@@ -1,7 +1,7 @@
 ---
 title: Sanctuary of the Divine Presence | Free Book
-date: 2024-10-25 16:48:43
-updated: 2024-10-26 11:51:53
+date: 2024-10-21T16:10:58.488Z
+updated: 2024-10-26T17:08:32.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/941916c1a44f0121e4372c4c6a1574f7dabe58e0e4f0099ec1ced105814bbc4d.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/941916c1a44f0121e4372c4c6a1574f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

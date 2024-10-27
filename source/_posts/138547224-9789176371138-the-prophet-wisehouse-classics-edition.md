@@ -1,7 +1,7 @@
 ---
 title: THE PROPHET (Wisehouse Classics Edition) | Free Book
-date: 2024-10-24 13:59:49
-updated: 2024-10-26 12:17:38
+date: 2024-10-22T19:49:20.125Z
+updated: 2024-10-27T02:33:47.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7013bf29980d2ab993cc2690d9aedaf264a0e90615a77223ceeddd9b926775d6.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7013bf29980d2ab993cc2690d9aedaf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

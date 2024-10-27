@@ -1,7 +1,7 @@
 ---
 title: The Kingdom of God is Within You | Free Book
-date: 2024-10-25 19:42:48
-updated: 2024-10-26 12:37:31
+date: 2024-10-24T02:26:00.945Z
+updated: 2024-10-27T04:11:23.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f3a5e99a707ad7e529517fbc51850a62db4c76bf31168a48b45eda9361863d8.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f3a5e99a707ad7e529517fbc51850a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

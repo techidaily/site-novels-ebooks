@@ -1,7 +1,7 @@
 ---
 title: The Five Healing Tibetans | Free Book
-date: 2024-10-25 23:26:28
-updated: 2024-10-26 10:49:45
+date: 2024-10-24T00:47:52.254Z
+updated: 2024-10-26T20:38:27.291Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b11a47180e652dc7d8d53003e8682c66e0d73f28be3471b9dc8a8227b32a485.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b11a47180e652dc7d8d53003e8682c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

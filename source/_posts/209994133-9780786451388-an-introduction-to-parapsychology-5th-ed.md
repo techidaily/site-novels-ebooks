@@ -1,7 +1,7 @@
 ---
 title: An Introduction to Parapsychology, 5th ed. | Free Book
-date: 2024-10-25 22:42:13
-updated: 2024-10-26 11:29:14
+date: 2024-10-20T05:20:38.883Z
+updated: 2024-10-26T17:59:04.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75e8d005cdc61887bc093317a3fad74e5e467cfc7270781a1715a3f28c9d198a.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75e8d005cdc61887bc093317a3fad74
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

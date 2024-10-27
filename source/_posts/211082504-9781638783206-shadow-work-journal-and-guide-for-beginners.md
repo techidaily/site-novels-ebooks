@@ -1,7 +1,7 @@
 ---
 title: Shadow Work Journal and Guide for Beginners | Free Book
-date: 2024-10-25 14:46:51
-updated: 2024-10-26 12:32:38
+date: 2024-10-24T01:14:36.471Z
+updated: 2024-10-26T20:18:15.653Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fcf452a29f31f3293ed6c7ad39ec25ae38789cfc70bc04322de748b2fcb2209.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fcf452a29f31f3293ed6c7ad39ec25
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

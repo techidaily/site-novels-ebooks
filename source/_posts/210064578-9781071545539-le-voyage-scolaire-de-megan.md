@@ -1,7 +1,7 @@
 ---
 title: Le voyage scolaire de Megan | Free Book
-date: 2024-10-24 10:20:23
-updated: 2024-10-26 12:11:51
+date: 2024-10-23T01:10:15.384Z
+updated: 2024-10-27T01:26:23.833Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b836a7b39cc5b2857ebae279e465672669048e945769283a3257c79ca7c5796d.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b836a7b39cc5b2857ebae279e465672
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

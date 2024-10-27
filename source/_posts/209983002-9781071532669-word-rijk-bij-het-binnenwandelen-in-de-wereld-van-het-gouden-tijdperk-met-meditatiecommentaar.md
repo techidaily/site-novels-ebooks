@@ -1,7 +1,7 @@
 ---
 title: Word rijk bij het binnenwandelen in de wereld van het gouden tijdperk (met meditatiecommentaar) | Free Book
-date: 2024-10-24 14:32:33
-updated: 2024-10-26 11:18:30
+date: 2024-10-23T19:12:00.387Z
+updated: 2024-10-27T04:34:16.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/633bb6875c3e9b21948114e665fe7fd5b53d16448a5391815142f3a4a224333b.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/633bb6875c3e9b21948114e665fe7fd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

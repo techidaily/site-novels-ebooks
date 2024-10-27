@@ -1,7 +1,7 @@
 ---
 title: The Rosicrucian Mysteries | Free Book
-date: 2024-10-23 17:54:18
-updated: 2024-10-26 10:28:37
+date: 2024-10-26T02:36:33.602Z
+updated: 2024-10-27T02:13:40.866Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6795a2ca9d229da9dcff5e5500a1f12f3b03e8d0282f0720dadb3729b3cc025f.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6795a2ca9d229da9dcff5e5500a1f12
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

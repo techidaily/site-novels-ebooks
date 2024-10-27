@@ -1,7 +1,7 @@
 ---
 title: What is the Carat of Your Diamond? | Free Book
-date: 2024-10-23 21:53:12
-updated: 2024-10-26 11:12:25
+date: 2024-10-24T02:10:52.537Z
+updated: 2024-10-27T01:00:43.349Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3d9f2415531bb4e1af450e511d0fc0f8fdb4e22981578db28029b83326859dc3.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3d9f2415531bb4e1af450e511d0fc0f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Return to the Brain of Eden (3rd ed.) | Free Book
-date: 2024-10-23 20:47:41
-updated: 2024-10-26 12:42:55
+date: 2024-10-25T00:50:36.462Z
+updated: 2024-10-26T19:49:45.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a05c51f3c452e1ea0d37b5a40b9c9a98bcbfe8c9c81cf3e1e50b441f04572f.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a05c51f3c452e1ea0d37b5a40b9c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

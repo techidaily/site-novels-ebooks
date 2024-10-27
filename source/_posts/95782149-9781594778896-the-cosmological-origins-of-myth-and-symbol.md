@@ -1,7 +1,7 @@
 ---
 title: The Cosmological Origins of Myth and Symbol | Free Book
-date: 2024-10-25 19:47:24
-updated: 2024-10-26 10:32:36
+date: 2024-10-21T04:52:58.774Z
+updated: 2024-10-26T17:15:17.178Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/013296d73a3f956803164434f74a91e46984ec59beb600ad68edf59ad816d425.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/013296d73a3f956803164434f74a91e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

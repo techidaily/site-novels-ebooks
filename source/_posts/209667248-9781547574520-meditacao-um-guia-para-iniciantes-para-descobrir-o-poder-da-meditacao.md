@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Um Guia Para Iniciantes Para Descobrir O Poder Da Meditação | Free Book"
-date: 2024-10-24 20:31:33
-updated: 2024-10-26 10:24:15
+date: 2024-10-20T20:08:39.175Z
+updated: 2024-10-27T05:48:20.744Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a929ca4e4d836061a8eddb2ae9dca86b448ca8e64ab1c418ea54ba9bb4257f62.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a929ca4e4d836061a8eddb2ae9dca86
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

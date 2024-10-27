@@ -1,7 +1,7 @@
 ---
 title: Big Book of New Jersey Ghost Stories | Free Book
-date: 2024-10-24 23:27:55
-updated: 2024-10-26 11:35:59
+date: 2024-10-23T04:02:33.729Z
+updated: 2024-10-27T03:31:11.653Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eaddeed504e048bd08959f8317495160fb85bcbf5fb9ea07fa058318ca7a6c14.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eaddeed504e048bd08959f831749516
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

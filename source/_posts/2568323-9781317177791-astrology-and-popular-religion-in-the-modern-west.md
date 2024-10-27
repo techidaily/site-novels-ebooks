@@ -1,7 +1,7 @@
 ---
 title: Astrology and Popular Religion in the Modern West | Free Book
-date: 2024-10-23 19:50:27
-updated: 2024-10-26 12:14:41
+date: 2024-10-20T05:32:08.183Z
+updated: 2024-10-27T02:21:22.299Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b6b8fbcd121a7be8f34d51f8776857adb2f6b586e9023bffde24b72cb5c1490.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b6b8fbcd121a7be8f34d51f8776857
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

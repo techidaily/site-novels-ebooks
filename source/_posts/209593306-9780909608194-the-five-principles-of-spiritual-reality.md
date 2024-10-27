@@ -1,7 +1,7 @@
 ---
 title: The Five Principles of Spiritual Reality | Free Book
-date: 2024-10-25 16:51:46
-updated: 2024-10-26 10:51:51
+date: 2024-10-20T04:10:43.018Z
+updated: 2024-10-26T21:38:08.797Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/25033f95e4e76235f3f2e9137befe3fb619de25d4de984e028b4661d0438ce7a.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25033f95e4e76235f3f2e9137befe3f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

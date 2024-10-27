@@ -1,7 +1,7 @@
 ---
 title: The Neurolinguistic Programming in the Holy Quran | Free Book
-date: 2024-10-25 22:23:38
-updated: 2024-10-26 12:42:41
+date: 2024-10-22T00:08:22.712Z
+updated: 2024-10-26T19:46:02.778Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f63d28f412dee3f8e4154619dbd562afe2a59f414c2c82e1b63e1b97e788a650.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f63d28f412dee3f8e4154619dbd562a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

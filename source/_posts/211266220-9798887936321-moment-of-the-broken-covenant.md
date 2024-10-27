@@ -1,7 +1,7 @@
 ---
 title: Moment of the Broken Covenant | Free Book
-date: 2024-10-23 11:44:17
-updated: 2024-10-26 12:10:30
+date: 2024-10-22T22:45:42.687Z
+updated: 2024-10-27T01:32:32.333Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/706fb08c4f983d14cf03f47c145a097493604b2049a8403319363567f6225ffb.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/706fb08c4f983d14cf03f47c145a097
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

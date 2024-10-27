@@ -1,7 +1,7 @@
 ---
 title: Confessions Of A Preacher's Kid | Free Book
-date: 2024-10-23 20:36:27
-updated: 2024-10-26 12:26:20
+date: 2024-10-22T00:44:05.033Z
+updated: 2024-10-26T16:20:11.438Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a58cfb44dc93e2f7ba1a6f756f6091ad226f1c10fd8c8c70c3d58f80e46471d8.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a58cfb44dc93e2f7ba1a6f756f6091a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Revelações a Baron A. Deschauer | Free Book
-date: 2024-10-23 21:15:53
-updated: 2024-10-26 10:59:12
+date: 2024-10-22T04:51:10.417Z
+updated: 2024-10-27T04:05:43.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92f38a333999a9ee8644b88cbb8c1cb88a444206ffecdf3266256999c3afcbda.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92f38a333999a9ee8644b88cbb8c1cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

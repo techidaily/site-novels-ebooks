@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Science of the Stars | Free Book
-date: 2024-10-23 20:33:52
-updated: 2024-10-26 11:46:57
+date: 2024-10-25T19:59:02.928Z
+updated: 2024-10-27T04:08:39.067Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/392a03b577634dd04920fe8b3c5162de3bed3b8aac54dc4580a8d94c22169eaa.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/392a03b577634dd04920fe8b3c5162d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

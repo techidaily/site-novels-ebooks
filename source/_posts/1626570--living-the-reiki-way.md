@@ -1,7 +1,7 @@
 ---
 title: Living The Reiki Way | Free Book
-date: 2024-10-25 22:52:11
-updated: 2024-10-26 12:38:37
+date: 2024-10-19T19:46:53.144Z
+updated: 2024-10-26T18:59:20.203Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/c24f61391d6233976a19140213460a89beeac036deb26a5b782746f60ad0b106.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c24f61391d6233976a19140213460a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

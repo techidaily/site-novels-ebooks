@@ -1,7 +1,7 @@
 ---
 title: My Adventures as a Psychic Nurse & Medium | Free Book
-date: 2024-10-25 13:59:18
-updated: 2024-10-26 10:53:18
+date: 2024-10-20T23:57:16.011Z
+updated: 2024-10-27T00:31:57.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e49f5d3ca2fb9f9b7a2fc844a98df7bfc8bb4e7557c0a6e1d226bf0f4cca14c7.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e49f5d3ca2fb9f9b7a2fc844a98df7b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

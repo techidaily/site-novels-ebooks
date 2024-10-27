@@ -1,7 +1,7 @@
 ---
 title: Of Occult Philosophy or of Magical Ceremonies | Free Book
-date: 2024-10-24 17:24:53
-updated: 2024-10-26 10:28:29
+date: 2024-10-21T23:10:36.774Z
+updated: 2024-10-27T02:16:12.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea834bc4f13a240d132f40682a7254cae0c57c01f221f73d6ef5d20f09aa69ea.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea834bc4f13a240d132f40682a7254c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

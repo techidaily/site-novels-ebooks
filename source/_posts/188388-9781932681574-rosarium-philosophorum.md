@@ -1,7 +1,7 @@
 ---
 title: Rosarium Philosophorum | Free Book
-date: 2024-10-24 19:38:52
-updated: 2024-10-26 10:20:30
+date: 2024-10-22T22:09:38.247Z
+updated: 2024-10-26T20:35:24.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cec9fdc37e23d90731313da4b451050c425cc840ec517000e09d6e1f569dd1a9.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cec9fdc37e23d90731313da4b451050
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

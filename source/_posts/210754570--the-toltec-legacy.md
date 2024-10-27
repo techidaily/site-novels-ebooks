@@ -1,7 +1,7 @@
 ---
 title: The Toltec Legacy | Free Book
-date: 2024-10-24 23:28:48
-updated: 2024-10-26 10:32:40
+date: 2024-10-20T20:41:55.700Z
+updated: 2024-10-26T17:25:13.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28736bb33f766e4195f21c83f2835d2297b26f72a2ccebcbe9349f654ae40f9f.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28736bb33f766e4195f21c83f2835d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

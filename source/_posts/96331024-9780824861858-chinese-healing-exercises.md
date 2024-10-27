@@ -1,7 +1,7 @@
 ---
 title: Chinese Healing Exercises | Free Book
-date: 2024-10-24 20:52:41
-updated: 2024-10-26 10:28:53
+date: 2024-10-25T16:19:59.051Z
+updated: 2024-10-27T05:40:30.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/721841b5e0d89bdd9e4cd3861a816fbd793cfcb6aa286d2d9b68065f60c6dcd1.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/721841b5e0d89bdd9e4cd3861a816fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

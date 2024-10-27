@@ -1,7 +1,7 @@
 ---
 title: "Peaceful Mind: 3 Books in 1: Chakras for Beginners, Buddhism, 5 Essential Mindful Habits: 3 Books in 1 | Free Book"
-date: 2024-10-24 11:15:46
-updated: 2024-10-26 10:43:37
+date: 2024-10-22T21:42:10.931Z
+updated: 2024-10-26T22:12:46.755Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f711a236783b7d0f828c9ccf25ace1cf7b7a86fec928842db38a8f9921b0f3ee.jpg
@@ -228,3 +228,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f711a236783b7d0f828c9ccf25ace1c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Russian Edition - Legacy of Sonship | Free Book
-date: 2024-10-25 14:26:58
-updated: 2024-10-26 10:30:59
+date: 2024-10-20T00:31:49.658Z
+updated: 2024-10-26T18:10:36.142Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b6a467b8ae165f0a55ece3d112cd90312cf1d5ba2a3c0ecc1820817a1155fbd.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b6a467b8ae165f0a55ece3d112cd90
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Color Therapy Plain & Simple | Free Book
-date: 2024-10-25 22:31:26
-updated: 2024-10-26 11:32:21
+date: 2024-10-23T18:46:13.415Z
+updated: 2024-10-27T03:27:58.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a12d88e4f438ef50b72e7a40eba0eec67b0799614bf9d67cf3ce98f95a6cbb6.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a12d88e4f438ef50b72e7a40eba0ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

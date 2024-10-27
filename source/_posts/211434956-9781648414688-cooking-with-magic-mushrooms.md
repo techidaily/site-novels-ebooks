@@ -1,7 +1,7 @@
 ---
 title: Cooking with Magic Mushrooms | Free Book
-date: 2024-10-23 15:42:14
-updated: 2024-10-26 12:38:11
+date: 2024-10-21T21:48:59.725Z
+updated: 2024-10-26T20:28:07.383Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84ce5a2b637c1e44a2a1b45098e007d942cd1080c9d6fcdfd95c1caec3116701.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84ce5a2b637c1e44a2a1b45098e007d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

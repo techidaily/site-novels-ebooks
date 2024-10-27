@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry of Nature | Free Book
-date: 2024-10-24 20:42:25
-updated: 2024-10-26 11:22:25
+date: 2024-10-24T00:52:51.957Z
+updated: 2024-10-27T03:54:48.035Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3056bf784a7c362e46da33438db8806a3a5b441bcee2d6d1b67e27b3aa0b885.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3056bf784a7c362e46da33438db880
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

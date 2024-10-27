@@ -1,7 +1,7 @@
 ---
 title: Healing into Possibility | Free Book
-date: 2024-10-23 21:39:47
-updated: 2024-10-26 12:34:10
+date: 2024-10-21T02:22:45.851Z
+updated: 2024-10-27T01:16:37.932Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/525a7dec5ee2039ff0d222dc3b36c3f037483f253d3c8bbf752851d811febeb7.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/525a7dec5ee2039ff0d222dc3b36c3f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

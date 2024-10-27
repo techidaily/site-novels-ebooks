@@ -1,7 +1,7 @@
 ---
 title: Conversations with God, Books 2 & 3 | Free Book
-date: 2024-10-24 12:24:31
-updated: 2024-10-26 10:45:53
+date: 2024-10-25T21:36:20.634Z
+updated: 2024-10-26T20:35:19.219Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/96bb73b06df90921773c3fbbfb85870a32c350f62dfb8f03fa7e7ba63650cdd1.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/96bb73b06df90921773c3fbbfb85870
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

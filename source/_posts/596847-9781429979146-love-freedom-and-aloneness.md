@@ -1,7 +1,7 @@
 ---
 title: Love, Freedom, and Aloneness | Free Book
-date: 2024-10-24 16:34:16
-updated: 2024-10-26 12:57:24
+date: 2024-10-19T21:26:32.659Z
+updated: 2024-10-26T22:31:39.734Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0a62f5214c0e1a69e232a1584b09609b4ede40ae2ed4044157c3a5661b25b84.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0a62f5214c0e1a69e232a1584b0960
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

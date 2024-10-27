@@ -1,7 +1,7 @@
 ---
 title: The Journey Beyond Enlightenment | Free Book
-date: 2024-10-25 11:35:19
-updated: 2024-10-26 10:14:18
+date: 2024-10-24T19:10:10.348Z
+updated: 2024-10-26T17:30:23.192Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d496c63518be0235852f307ab3f0c644866dc0f66c8ba6b653077be3fa832110.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d496c63518be0235852f307ab3f0c64
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

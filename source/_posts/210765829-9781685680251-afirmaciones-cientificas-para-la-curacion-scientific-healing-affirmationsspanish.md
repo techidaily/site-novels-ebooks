@@ -1,7 +1,7 @@
 ---
 title: Afirmaciones científicas para la curación (Scientific Healing Affirmations—Spanish) | Free Book
-date: 2024-10-23 14:23:56
-updated: 2024-10-26 10:50:41
+date: 2024-10-20T03:39:15.980Z
+updated: 2024-10-26T18:10:00.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/961597816674332ca73609e4fcde3e0b30bba09846423979d01d2320f1a77a32.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/961597816674332ca73609e4fcde3e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Finding Joy When Life Gets Tough | Free Book
-date: 2024-10-23 23:49:56
-updated: 2024-10-26 10:15:24
+date: 2024-10-22T23:17:48.800Z
+updated: 2024-10-26T20:06:38.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70e3f3ff8411ecadfdd79d0b9ba7eb74b7b4393d37f3fa8d1d51632543ca866c.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70e3f3ff8411ecadfdd79d0b9ba7eb7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

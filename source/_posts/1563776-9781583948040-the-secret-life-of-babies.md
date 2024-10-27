@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of Babies | Free Book
-date: 2024-10-23 17:50:20
-updated: 2024-10-26 10:19:26
+date: 2024-10-23T02:28:24.643Z
+updated: 2024-10-26T16:46:38.667Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d01482dd4e19531f2485e30e7e53e564acf525948efc1c33cf8ed97e60c5d30.jpg
@@ -261,3 +261,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d01482dd4e19531f2485e30e7e53e5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

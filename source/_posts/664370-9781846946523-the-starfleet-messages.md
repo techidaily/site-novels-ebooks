@@ -1,7 +1,7 @@
 ---
 title: The Starfleet Messages | Free Book
-date: 2024-10-25 16:48:30
-updated: 2024-10-26 11:22:37
+date: 2024-10-23T21:00:07.195Z
+updated: 2024-10-27T03:04:06.569Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f137d7c5e14b3bb22f4571d16cd2306220b21c9f8f3d52a77f75c17adae768fb.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f137d7c5e14b3bb22f4571d16cd2306
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

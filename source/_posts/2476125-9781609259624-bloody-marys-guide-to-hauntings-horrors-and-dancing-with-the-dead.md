@@ -1,7 +1,7 @@
 ---
 title: Bloody Mary's Guide to Hauntings, Horrors, and Dancing with the Dead | Free Book
-date: 2024-10-25 22:50:57
-updated: 2024-10-26 12:22:37
+date: 2024-10-19T16:48:26.488Z
+updated: 2024-10-27T00:48:24.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1cbc937f5665ecd43d3cdc55db97f7623895525db35ba818c7be63b12e0bb1b6.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1cbc937f5665ecd43d3cdc55db97f76
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

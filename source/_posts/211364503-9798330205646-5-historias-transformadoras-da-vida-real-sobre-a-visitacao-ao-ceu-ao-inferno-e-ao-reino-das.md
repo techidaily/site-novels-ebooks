@@ -1,7 +1,7 @@
 ---
 title: 5 histórias transformadoras da vida real sobre a visitação ao céu, ao inferno e ao reino das.. | Free Book
-date: 2024-10-25 15:45:55
-updated: 2024-10-26 11:32:49
+date: 2024-10-20T21:40:50.964Z
+updated: 2024-10-27T04:00:42.210Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/957f13031a53806e5820a93928dacfd037830274f7cbf02dbd6466e0b4b9e329.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/957f13031a53806e5820a93928dacfd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

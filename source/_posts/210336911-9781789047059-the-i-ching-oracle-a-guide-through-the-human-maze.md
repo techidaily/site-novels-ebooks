@@ -1,7 +1,7 @@
 ---
 title: "The I Ching Oracle: A Guide Through The Human Maze | Free Book"
-date: 2024-10-24 18:42:57
-updated: 2024-10-26 11:59:59
+date: 2024-10-23T17:23:40.521Z
+updated: 2024-10-27T01:12:47.992Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98b8ca0a79c593b32a55b5f2d4c1e91d60a2eb1b22aef0af2bc1beb2c8932ee8.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98b8ca0a79c593b32a55b5f2d4c1e91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

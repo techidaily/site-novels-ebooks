@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Reincarnation | Free Book
-date: 2024-10-23 11:21:42
-updated: 2024-10-26 11:25:17
+date: 2024-10-21T05:44:49.494Z
+updated: 2024-10-27T05:17:22.646Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ca424a131c60ae9630a29daf05305d575bbd44ff8c60c673242b986105a8b55.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ca424a131c60ae9630a29daf05305d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

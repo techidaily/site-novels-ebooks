@@ -1,7 +1,7 @@
 ---
 title: Psychedelics and the Coming Singularity | Free Book
-date: 2024-10-24 11:22:29
-updated: 2024-10-26 10:15:41
+date: 2024-10-25T02:03:16.733Z
+updated: 2024-10-26T16:21:19.435Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/86aab6abc8df2bceaebae5ccbcc49f1fd8ba649ec9e41857a384d7d7b7a58b1c.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/86aab6abc8df2bceaebae5ccbcc49f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

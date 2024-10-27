@@ -1,7 +1,7 @@
 ---
 title: Reiki as a Spiritual Practice | Free Book
-date: 2024-10-24 11:55:11
-updated: 2024-10-26 11:17:37
+date: 2024-10-25T04:20:27.998Z
+updated: 2024-10-27T00:19:16.241Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5508b170337066dd1c639b6927e65395dc4eaa3507b05db639df4db725840911.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5508b170337066dd1c639b6927e6539
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

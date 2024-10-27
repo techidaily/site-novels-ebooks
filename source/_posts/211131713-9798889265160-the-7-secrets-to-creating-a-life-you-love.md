@@ -1,7 +1,7 @@
 ---
 title: The 7 Secrets to Creating a Life You Love | Free Book
-date: 2024-10-25 17:13:51
-updated: 2024-10-26 10:20:48
+date: 2024-10-25T19:06:18.707Z
+updated: 2024-10-26T20:43:07.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b090870c855d6168a1b058c03e485fe1cba215d509e2f7f86840b7713bbbda42.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b090870c855d6168a1b058c03e485fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

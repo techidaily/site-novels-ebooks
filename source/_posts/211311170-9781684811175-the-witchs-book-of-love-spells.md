@@ -1,7 +1,7 @@
 ---
 title: The Witch's Book of Love Spells | Free Book
-date: 2024-10-23 22:46:23
-updated: 2024-10-26 12:14:37
+date: 2024-10-22T20:08:42.272Z
+updated: 2024-10-26T22:45:55.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d729671900c063dd730fe10b3498b1fa52ca0cee208eb0458f7e29e317d15f73.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d729671900c063dd730fe10b3498b1f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

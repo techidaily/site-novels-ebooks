@@ -1,7 +1,7 @@
 ---
 title: Passe Backstage Para O Outro Lado | Free Book
-date: 2024-10-24 16:46:41
-updated: 2024-10-26 12:46:11
+date: 2024-10-21T17:56:43.605Z
+updated: 2024-10-26T19:41:37.835Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d576f84ede93b903ba48447ad1efd0b28a9610f7a0d2bc864ff6e3c8c022928f.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d576f84ede93b903ba48447ad1efd0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

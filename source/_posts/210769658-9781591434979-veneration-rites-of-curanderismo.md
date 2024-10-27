@@ -1,7 +1,7 @@
 ---
 title: Veneration Rites of Curanderismo | Free Book
-date: 2024-10-24 22:33:15
-updated: 2024-10-26 10:59:47
+date: 2024-10-24T23:21:54.017Z
+updated: 2024-10-26T17:20:36.366Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4b17ac315ce4c99d6a5803b6caccba5d56c7a89cb86ddd396528e354614184d7.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4b17ac315ce4c99d6a5803b6caccba5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

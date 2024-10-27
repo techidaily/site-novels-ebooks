@@ -1,7 +1,7 @@
 ---
 title: The Sacred Cow Free Devotionals Volume 5 | Free Book
-date: 2024-10-23 23:32:49
-updated: 2024-10-26 11:40:17
+date: 2024-10-22T03:31:25.513Z
+updated: 2024-10-26T16:49:47.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cc02b725c169bc2c82d4bd209dc883e1fb87493da6a9f0b4543254bc8dbddaf.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cc02b725c169bc2c82d4bd209dc883
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to the Power of Chakras | Free Book
-date: 2024-10-25 20:20:10
-updated: 2024-10-26 12:29:24
+date: 2024-10-25T23:02:18.670Z
+updated: 2024-10-27T03:53:42.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc66b25283abba82edd47f570914eccd140a6978aad919e56b44a5a2ef7128e9.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc66b25283abba82edd47f570914ecc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

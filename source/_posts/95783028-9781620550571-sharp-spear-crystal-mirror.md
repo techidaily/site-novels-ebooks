@@ -1,7 +1,7 @@
 ---
 title: Sharp Spear, Crystal Mirror | Free Book
-date: 2024-10-25 20:47:29
-updated: 2024-10-26 10:23:38
+date: 2024-10-24T21:03:34.473Z
+updated: 2024-10-27T01:54:50.917Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82863a0a79dbdd2ebd3c906d8746679bd03dbb9782d65871f6f871e54236438e.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82863a0a79dbdd2ebd3c906d8746679
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

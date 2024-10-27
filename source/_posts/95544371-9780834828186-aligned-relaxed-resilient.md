@@ -1,7 +1,7 @@
 ---
 title: Aligned, Relaxed, Resilient | Free Book
-date: 2024-10-23 15:48:17
-updated: 2024-10-26 12:15:21
+date: 2024-10-24T19:18:00.182Z
+updated: 2024-10-26T22:17:16.910Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff5edbfb649c07d06f0beb374a6b13158ebbe322ecdf1a89d7bf2e4f24879423.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff5edbfb649c07d06f0beb374a6b131
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Through the Stars | Free Book
-date: 2024-10-23 13:58:31
-updated: 2024-10-26 11:34:37
+date: 2024-10-22T05:24:06.601Z
+updated: 2024-10-26T21:22:08.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1169639b438a09ee555ea45bc4249830b7fd35b1b1ae0e3d9a00b5bf825b8f52.jpg
@@ -256,3 +256,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1169639b438a09ee555ea45bc424983
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

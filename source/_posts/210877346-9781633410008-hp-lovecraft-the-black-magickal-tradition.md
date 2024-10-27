@@ -1,7 +1,7 @@
 ---
 title: H.P. Lovecraft & the Black Magickal Tradition | Free Book
-date: 2024-10-25 13:31:49
-updated: 2024-10-26 10:29:39
+date: 2024-10-22T19:02:25.805Z
+updated: 2024-10-27T03:45:27.695Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d7f3119d963d150e8ffca67d104c76d9acb500c8c3bc2965449234d9467ffca.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d7f3119d963d150e8ffca67d104c76
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

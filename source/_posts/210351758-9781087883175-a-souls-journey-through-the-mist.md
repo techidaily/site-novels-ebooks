@@ -1,7 +1,7 @@
 ---
 title: A Souls Journey Through the Mist | Free Book
-date: 2024-10-24 10:45:11
-updated: 2024-10-26 10:36:50
+date: 2024-10-26T04:09:37.780Z
+updated: 2024-10-26T23:58:57.096Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d9d80bc848b91a9856c62e81b8360c80893df17bbb8ccd7a71d9a1fb98627bd.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d9d80bc848b91a9856c62e81b8360c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

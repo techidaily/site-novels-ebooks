@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Sagittarius | Free Book
-date: 2024-10-25 15:37:33
-updated: 2024-10-26 10:14:18
+date: 2024-10-23T19:12:24.678Z
+updated: 2024-10-27T01:35:57.903Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6d9870c540a69e39d2f657770470973e07c0c5adece13e19b554b8dcd65aa90.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6d9870c540a69e39d2f65777047097
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

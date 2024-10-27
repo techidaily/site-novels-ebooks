@@ -1,7 +1,7 @@
 ---
 title: 10 Guided Meditations For Anxiety, Depression & Deep Sleep | Free Book
-date: 2024-10-24 21:29:19
-updated: 2024-10-26 11:51:51
+date: 2024-10-23T01:14:11.973Z
+updated: 2024-10-26T19:23:57.628Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4ea5ade1e878d3ddf70dd3faa5c99bfb086b58e17d7af3bf3c3ffba40524ba68.jpg
@@ -205,3 +205,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4ea5ade1e878d3ddf70dd3faa5c99bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

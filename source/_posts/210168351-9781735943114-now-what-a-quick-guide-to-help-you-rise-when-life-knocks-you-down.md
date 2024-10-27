@@ -1,7 +1,7 @@
 ---
 title: Now What? A quick guide to help you rise when life knocks you down | Free Book
-date: 2024-10-24 14:21:45
-updated: 2024-10-26 12:30:43
+date: 2024-10-23T21:02:34.418Z
+updated: 2024-10-26T22:19:08.436Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f9de5845f435b6ebd5a242c683167a8bc625d491603004660c4636034abb99a.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f9de5845f435b6ebd5a242c683167a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

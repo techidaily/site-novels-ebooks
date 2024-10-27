@@ -1,7 +1,7 @@
 ---
 title: The Uncommon Book of Prayer | Free Book
-date: 2024-10-23 21:46:37
-updated: 2024-10-26 11:20:38
+date: 2024-10-20T00:03:22.911Z
+updated: 2024-10-27T00:56:07.635Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c41eb587ebf402e6d0e53025b9b19949163661fd903851c102e5804e925d7f5.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c41eb587ebf402e6d0e53025b9b199
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

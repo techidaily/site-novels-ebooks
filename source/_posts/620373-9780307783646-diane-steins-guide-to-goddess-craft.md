@@ -1,7 +1,7 @@
 ---
 title: Diane Stein's Guide to Goddess Craft | Free Book
-date: 2024-10-24 17:15:42
-updated: 2024-10-26 12:12:58
+date: 2024-10-26T01:32:17.843Z
+updated: 2024-10-26T16:49:42.725Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa6f77aac3c485b948516dce1e1063c75085a5d6a19f6cbbfc28b535036b5497.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa6f77aac3c485b948516dce1e1063c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

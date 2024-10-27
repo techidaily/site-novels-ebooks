@@ -1,7 +1,7 @@
 ---
 title: Not Here, Present Elsewhere | Free Book
-date: 2024-10-24 15:22:21
-updated: 2024-10-26 10:11:34
+date: 2024-10-20T23:19:43.740Z
+updated: 2024-10-26T16:37:16.203Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b02485078562d448ce2cf7b551720f2601f4984f53cd3de15243a13533ff7c8.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b02485078562d448ce2cf7b551720f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

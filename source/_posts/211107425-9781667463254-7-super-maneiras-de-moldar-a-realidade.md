@@ -1,7 +1,7 @@
 ---
 title: 7 Super Maneiras de Moldar a Realidade | Free Book
-date: 2024-10-25 23:42:11
-updated: 2024-10-26 11:32:52
+date: 2024-10-22T03:26:25.118Z
+updated: 2024-10-27T04:51:48.317Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfb06574c937e814770ffc65b4462e524b2697729efc35c787ed7e1bb4ad856b.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfb06574c937e814770ffc65b4462e5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Padroneggiare la saggezza | Free Book
-date: 2024-10-23 12:48:37
-updated: 2024-10-26 11:35:45
+date: 2024-10-20T05:49:19.727Z
+updated: 2024-10-26T20:56:42.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd18fb737ab9598bb0d7fb5e51ddfc26662c94f84dd6436b5530af9689461283.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd18fb737ab9598bb0d7fb5e51ddfc2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

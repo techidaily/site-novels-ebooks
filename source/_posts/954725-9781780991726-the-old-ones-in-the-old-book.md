@@ -1,7 +1,7 @@
 ---
 title: The Old Ones in the Old Book | Free Book
-date: 2024-10-25 11:54:23
-updated: 2024-10-26 10:24:51
+date: 2024-10-21T16:23:11.881Z
+updated: 2024-10-27T04:07:30.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b014741afeaad4a679505ed251e7eed8a1dd8252d0cb50fb6749fa82c2680e3f.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b014741afeaad4a679505ed251e7eed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

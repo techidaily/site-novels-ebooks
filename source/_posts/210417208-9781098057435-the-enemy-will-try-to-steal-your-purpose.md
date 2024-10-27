@@ -1,7 +1,7 @@
 ---
 title: The Enemy Will Try to Steal Your Purpose | Free Book
-date: 2024-10-25 10:28:42
-updated: 2024-10-26 12:25:49
+date: 2024-10-21T21:38:37.709Z
+updated: 2024-10-27T03:13:32.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ffb2b5011dcb72d6001598c9f589b1bd9a327af7d2868f282f3d582fd76bef7.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ffb2b5011dcb72d6001598c9f589b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

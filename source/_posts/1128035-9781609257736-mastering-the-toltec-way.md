@@ -1,7 +1,7 @@
 ---
 title: Mastering the Toltec Way | Free Book
-date: 2024-10-25 17:54:37
-updated: 2024-10-26 11:23:10
+date: 2024-10-22T05:32:16.333Z
+updated: 2024-10-26T20:46:13.973Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4903203b546256246e2fb04963aa57050c1fd9eae67b0668cac4156e017e9b8a.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4903203b546256246e2fb04963aa570
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

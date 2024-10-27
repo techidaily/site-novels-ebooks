@@ -1,7 +1,7 @@
 ---
 title: Shamanic Healing for Toxic Relationships | Free Book
-date: 2024-10-23 17:10:36
-updated: 2024-10-26 10:55:37
+date: 2024-10-22T05:09:28.058Z
+updated: 2024-10-26T19:04:47.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c5edaef0546339cf0c4c287e9d5654cc16082b13c96b07877270010ebb5e903.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c5edaef0546339cf0c4c287e9d5654
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

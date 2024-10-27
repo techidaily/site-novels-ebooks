@@ -1,7 +1,7 @@
 ---
 title: Retire Your Family Karma | Free Book
-date: 2024-10-24 10:32:16
-updated: 2024-10-26 11:17:20
+date: 2024-10-21T16:39:52.975Z
+updated: 2024-10-26T23:32:08.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8e85bbcef75a542a95bcc05ab2d8c872eab0fbd72c4cc530b2ce02a776658ad.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8e85bbcef75a542a95bcc05ab2d8c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

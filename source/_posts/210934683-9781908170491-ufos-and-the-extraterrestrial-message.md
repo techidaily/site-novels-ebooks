@@ -1,7 +1,7 @@
 ---
 title: UFOs and the Extraterrestrial Message | Free Book
-date: 2024-10-25 17:22:12
-updated: 2024-10-26 11:37:27
+date: 2024-10-22T21:37:46.043Z
+updated: 2024-10-26T17:32:16.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/86feb5a20324cd03a8836281f36a06c7c8c9626e073b460b5b8db1bebd1e97ef.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/86feb5a20324cd03a8836281f36a06c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

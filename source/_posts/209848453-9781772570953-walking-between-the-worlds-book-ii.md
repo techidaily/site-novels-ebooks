@@ -1,7 +1,7 @@
 ---
 title: Walking Between the Worlds ─ Book II | Free Book
-date: 2024-10-25 13:27:26
-updated: 2024-10-26 12:47:52
+date: 2024-10-19T20:13:25.204Z
+updated: 2024-10-27T02:19:16.735Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6bfadb6a3d9fde20f40f3301a1a6ec25a2a186dcba036e0e607eed635800e46d.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6bfadb6a3d9fde20f40f3301a1a6ec2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

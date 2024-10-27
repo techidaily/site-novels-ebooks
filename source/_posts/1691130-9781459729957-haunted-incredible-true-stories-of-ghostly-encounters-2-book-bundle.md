@@ -1,7 +1,7 @@
 ---
 title: Haunted — Incredible True Stories of Ghostly Encounters 2-Book Bundle | Free Book
-date: 2024-10-23 18:31:32
-updated: 2024-10-26 10:34:17
+date: 2024-10-24T16:54:45.069Z
+updated: 2024-10-26T17:11:21.353Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d425852956d22888279e613eed9ab919581a4bccc04db8f8af7702328ae4699b.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d425852956d22888279e613eed9ab91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

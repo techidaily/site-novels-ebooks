@@ -1,7 +1,7 @@
 ---
 title: Mindful Thoughts for City Dwellers | Free Book
-date: 2024-10-24 10:52:42
-updated: 2024-10-26 10:40:22
+date: 2024-10-25T18:49:50.490Z
+updated: 2024-10-26T16:42:01.983Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/592fcc8a1d12f2d63dd628820a0aed7b84ff44eff9abc8ee69292a2afcbcbea6.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/592fcc8a1d12f2d63dd628820a0aed7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

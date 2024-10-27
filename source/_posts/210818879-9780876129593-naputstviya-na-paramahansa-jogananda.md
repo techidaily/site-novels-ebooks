@@ -1,7 +1,7 @@
 ---
 title: Напътствия на Парамаханса Йогананда | Free Book
-date: 2024-10-23 14:23:26
-updated: 2024-10-26 11:34:11
+date: 2024-10-21T19:44:16.414Z
+updated: 2024-10-27T05:48:57.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d663c82b1e572ab78f68b40966fc10ea31d98b6e1e4a4fec9fca6008fdee7904.jpg
@@ -2131,3 +2131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d663c82b1e572ab78f68b40966fc10e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

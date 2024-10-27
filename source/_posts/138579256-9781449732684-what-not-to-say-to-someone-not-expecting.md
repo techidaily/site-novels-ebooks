@@ -1,7 +1,7 @@
 ---
 title: What Not to Say to Someone Not Expecting | Free Book
-date: 2024-10-24 23:29:20
-updated: 2024-10-26 12:57:41
+date: 2024-10-22T04:37:16.232Z
+updated: 2024-10-26T18:48:04.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a25f453e55d2ecb3784fd19c6afaaa2db225f538d251d08bf667d5fc3c4b780f.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a25f453e55d2ecb3784fd19c6afaaa2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

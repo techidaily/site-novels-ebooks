@@ -1,7 +1,7 @@
 ---
 title: The Great Companion to Meditations & Aphorisms for Moral Transformation | Free Book
-date: 2024-10-23 11:14:46
-updated: 2024-10-26 10:47:48
+date: 2024-10-21T21:42:33.495Z
+updated: 2024-10-26T23:17:26.296Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/28ea25837bb41ab552d17c98f4fa360a536c49d489522cec820c38db2792cd81.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28ea25837bb41ab552d17c98f4fa360
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

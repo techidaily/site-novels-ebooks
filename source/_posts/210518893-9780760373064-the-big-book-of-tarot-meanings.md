@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Tarot Meanings | Free Book
-date: 2024-10-23 23:36:21
-updated: 2024-10-26 11:12:53
+date: 2024-10-25T21:31:45.666Z
+updated: 2024-10-27T05:07:21.205Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3dab7e0886d5512bca917dc5494e24a1ffc29717213433b08128417a31575f97.jpg
@@ -209,3 +209,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3dab7e0886d5512bca917dc5494e24a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Crystal Basics Pocket Encyclopedia | Free Book
-date: 2024-10-24 22:40:35
-updated: 2024-10-26 12:43:29
+date: 2024-10-23T05:34:49.826Z
+updated: 2024-10-26T19:24:11.417Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/605afd315ea1aaa306501bfc6f7b40ec9fb9a88936a9ac0e8bce98382ae113ac.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/605afd315ea1aaa306501bfc6f7b40e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

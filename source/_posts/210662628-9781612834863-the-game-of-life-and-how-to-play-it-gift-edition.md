@@ -1,7 +1,7 @@
 ---
 title: The Game of Life and How to Play It (Gift Edition) | Free Book
-date: 2024-10-24 15:45:32
-updated: 2024-10-26 10:22:48
+date: 2024-10-25T17:10:03.644Z
+updated: 2024-10-26T21:16:00.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23902c39331d03c41f8ed70f03d2d6f05561e1752292015de8f5dd2acacff20e.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23902c39331d03c41f8ed70f03d2d6f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

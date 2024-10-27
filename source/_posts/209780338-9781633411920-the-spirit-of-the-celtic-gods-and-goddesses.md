@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Celtic Gods and Goddesses | Free Book
-date: 2024-10-24 17:33:32
-updated: 2024-10-26 11:28:35
+date: 2024-10-26T05:03:54.915Z
+updated: 2024-10-27T04:49:27.096Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cfb004aaa799c3bbb45b2483d8ed932ec823346743d5931d3837cd3b408ca1f0.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cfb004aaa799c3bbb45b2483d8ed932
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

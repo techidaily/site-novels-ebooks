@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Melhore O Seu Foco Com Técnicas Simples De Meditação (Mindfulness Budista Para Iniciante) | Free Book"
-date: 2024-10-25 11:26:42
-updated: 2024-10-26 10:41:14
+date: 2024-10-23T22:30:25.092Z
+updated: 2024-10-26T22:17:48.135Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa7de91697668120d7b16334da47720e49d13ad26383c81a3d937cc27fe65093.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa7de91697668120d7b16334da47720
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

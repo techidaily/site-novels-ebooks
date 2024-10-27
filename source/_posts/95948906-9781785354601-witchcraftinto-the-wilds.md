@@ -1,7 +1,7 @@
 ---
 title: Witchcraft…Into the Wilds | Free Book
-date: 2024-10-23 15:30:39
-updated: 2024-10-26 12:41:13
+date: 2024-10-23T04:33:23.304Z
+updated: 2024-10-27T05:51:16.415Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e82be6e15d7e8bd476d71bbe3789499132f979516da9f39310f47286f44cdcb3.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e82be6e15d7e8bd476d71bbe3789499
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

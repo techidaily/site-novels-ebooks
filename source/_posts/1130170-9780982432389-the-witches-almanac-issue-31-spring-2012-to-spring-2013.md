@@ -1,7 +1,7 @@
 ---
 title: "The Witches' Almanac: Issue 31, Spring 2012 to Spring 2013 | Free Book"
-date: 2024-10-25 12:35:51
-updated: 2024-10-26 11:44:52
+date: 2024-10-24T05:25:39.291Z
+updated: 2024-10-27T01:06:26.385Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a02783203b74bda5dc4aa6bf83c473eeb470397aaeb830c8f706255dd53729ef.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a02783203b74bda5dc4aa6bf83c473e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

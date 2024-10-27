@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Practical Magic | Free Book
-date: 2024-10-25 18:35:47
-updated: 2024-10-26 11:23:47
+date: 2024-10-22T03:42:24.817Z
+updated: 2024-10-26T21:21:32.794Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8ac2d5e051a35f708d4ccd313a307e3ba2beb17bc5086b7ddce11518f889ec2.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8ac2d5e051a35f708d4ccd313a307e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

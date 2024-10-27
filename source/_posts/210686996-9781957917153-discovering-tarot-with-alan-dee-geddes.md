@@ -1,7 +1,7 @@
 ---
 title: Discovering Tarot with Alan Dee Geddes | Free Book
-date: 2024-10-23 11:47:31
-updated: 2024-10-26 11:11:24
+date: 2024-10-23T03:23:15.883Z
+updated: 2024-10-26T19:32:19.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eceb036ad22a84e13287cb9d538a5f08284f5fd1bc38f5e9963b20e1ed9c2ba4.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eceb036ad22a84e13287cb9d538a5f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

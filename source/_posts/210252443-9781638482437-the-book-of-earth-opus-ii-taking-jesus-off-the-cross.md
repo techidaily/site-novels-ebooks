@@ -1,7 +1,7 @@
 ---
 title: The Book of Earth Opus II - Taking Jesus Off the Cross | Free Book
-date: 2024-10-23 19:26:43
-updated: 2024-10-26 12:59:12
+date: 2024-10-25T19:16:45.329Z
+updated: 2024-10-26T21:57:50.566Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e00c2697af562fa0ed446390124dba156712efc01097a783729c2fcdb541a93d.jpg
@@ -253,3 +253,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e00c2697af562fa0ed446390124dba1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

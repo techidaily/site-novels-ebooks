@@ -1,7 +1,7 @@
 ---
 title: "Gemini 2022: Your Personal Horoscope | Free Book"
-date: 2024-10-25 18:41:30
-updated: 2024-10-26 10:36:37
+date: 2024-10-26T03:22:27.472Z
+updated: 2024-10-26T16:30:34.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f07f2e6b73e336e80004965f6861fb28708a8383f1c5722ec9a3c768949f27fe.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f07f2e6b73e336e80004965f6861fb2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

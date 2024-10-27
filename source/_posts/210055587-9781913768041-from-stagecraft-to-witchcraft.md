@@ -1,7 +1,7 @@
 ---
 title: From Stagecraft to Witchcraft | Free Book
-date: 2024-10-24 12:20:41
-updated: 2024-10-26 12:27:52
+date: 2024-10-21T22:07:05.263Z
+updated: 2024-10-26T16:38:15.389Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c40cd8374f866a0ce3fff0777573af5b182011d42e8abd155779157b14201cb.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c40cd8374f866a0ce3fff0777573af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

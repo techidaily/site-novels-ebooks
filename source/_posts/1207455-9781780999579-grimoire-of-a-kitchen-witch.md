@@ -1,7 +1,7 @@
 ---
 title: Grimoire of a Kitchen Witch | Free Book
-date: 2024-10-24 23:52:18
-updated: 2024-10-26 10:39:42
+date: 2024-10-24T18:54:37.713Z
+updated: 2024-10-27T04:33:33.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0408b492f49d7f5a8d0a14cfbdb2e4009f0f9872d3d1077fa9820b8db92910f8.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0408b492f49d7f5a8d0a14cfbdb2e40
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

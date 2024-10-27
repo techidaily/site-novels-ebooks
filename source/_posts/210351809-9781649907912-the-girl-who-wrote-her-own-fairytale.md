@@ -1,7 +1,7 @@
 ---
 title: The Girl Who Wrote Her Own Fairytale | Free Book
-date: 2024-10-23 16:43:54
-updated: 2024-10-26 10:30:47
+date: 2024-10-25T16:36:23.091Z
+updated: 2024-10-26T16:39:16.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15fadb55cd38655d7dc1bdd91b8646cb41973f4cacc014ddbf54d1236dba1589.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15fadb55cd38655d7dc1bdd91b8646c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

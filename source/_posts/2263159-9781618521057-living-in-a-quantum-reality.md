@@ -1,7 +1,7 @@
 ---
 title: Living In a Quantum Reality | Free Book
-date: 2024-10-24 22:23:52
-updated: 2024-10-26 11:41:38
+date: 2024-10-25T03:25:37.439Z
+updated: 2024-10-27T05:59:59.744Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6f257a0030ea9c97cd0583eacfb4255f105391155faa4f51098a52037868a88f.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6f257a0030ea9c97cd0583eacfb4255
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

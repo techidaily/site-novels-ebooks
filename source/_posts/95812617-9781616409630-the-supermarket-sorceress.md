@@ -1,7 +1,7 @@
 ---
 title: The Supermarket Sorceress | Free Book
-date: 2024-10-24 10:33:28
-updated: 2024-10-26 12:22:26
+date: 2024-10-21T04:52:02.519Z
+updated: 2024-10-27T03:12:51.994Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c27cabd6984017043069eacf4b99de270e885b177dc58e03138063e4e343265f.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c27cabd6984017043069eacf4b99de2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

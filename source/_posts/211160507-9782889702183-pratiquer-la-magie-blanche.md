@@ -1,7 +1,7 @@
 ---
 title: Pratiquer la magie blanche | Free Book
-date: 2024-10-23 22:22:35
-updated: 2024-10-26 10:56:58
+date: 2024-10-20T05:14:16.966Z
+updated: 2024-10-26T16:37:42.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5bc7178d4f8c4e21a8e4a1a726eb8ff49e423fb87875a1cc03b8ad79eb8a76d2.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5bc7178d4f8c4e21a8e4a1a726eb8ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

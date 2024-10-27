@@ -1,7 +1,7 @@
 ---
 title: "The Spirituality of Dreaming: Unlocking the Wisdom of Our Sleeping Selves | Free Book"
-date: 2024-10-24 17:56:11
-updated: 2024-10-26 10:43:41
+date: 2024-10-22T02:36:14.999Z
+updated: 2024-10-27T03:05:56.576Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/849040bcf253b66a71cbd30be55f288841b1bd10daace4773daae66fa2994266.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/849040bcf253b66a71cbd30be55f288
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

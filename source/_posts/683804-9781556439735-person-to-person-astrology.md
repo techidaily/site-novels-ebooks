@@ -1,7 +1,7 @@
 ---
 title: Person-to-Person Astrology | Free Book
-date: 2024-10-24 12:35:24
-updated: 2024-10-26 11:23:56
+date: 2024-10-22T00:10:25.211Z
+updated: 2024-10-26T22:55:47.883Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9079c7cd6527c108c819b38da80877820df2ea7502ee377c1b7c13f8dfa85a4.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9079c7cd6527c108c819b38da80877
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

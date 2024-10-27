@@ -1,7 +1,7 @@
 ---
 title: John Hudson's How to Survive a Pandemic | Free Book
-date: 2024-10-24 12:37:42
-updated: 2024-10-26 12:26:52
+date: 2024-10-21T20:46:40.914Z
+updated: 2024-10-27T02:33:59.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/969d08c86c6f64bf1cbcec36b04ab41d0ddb3606e303fba8efa25de072034e4a.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/969d08c86c6f64bf1cbcec36b04ab41
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

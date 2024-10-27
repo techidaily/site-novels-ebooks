@@ -1,7 +1,7 @@
 ---
 title: Falling Back in Love with Being Human | Free Book
-date: 2024-10-25 22:36:18
-updated: 2024-10-26 12:58:49
+date: 2024-10-21T00:46:52.809Z
+updated: 2024-10-26T21:25:20.915Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/270a739ee8edff10dcc512e9028445b47374f6da82ce07914a2b8d0cf1305b80.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/270a739ee8edff10dcc512e9028445b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

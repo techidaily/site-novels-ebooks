@@ -1,7 +1,7 @@
 ---
 title: People from the Other Side | Free Book
-date: 2024-10-23 11:50:41
-updated: 2024-10-26 12:10:10
+date: 2024-10-24T02:18:47.015Z
+updated: 2024-10-26T23:26:38.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4e80cbecf7373c4e49776bad489991c4ae80a8a2ba19370c271455d4a281721.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4e80cbecf7373c4e49776bad489991
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

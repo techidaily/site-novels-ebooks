@@ -1,7 +1,7 @@
 ---
 title: Witchcraft in Colonial Virginia | Free Book
-date: 2024-10-25 11:24:21
-updated: 2024-10-26 10:11:27
+date: 2024-10-25T17:41:10.304Z
+updated: 2024-10-27T03:01:07.076Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b6087b2d7d2a127dcfa9a150f54b7d831bdd69567cb8fc5b9e835945baf76e1a.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b6087b2d7d2a127dcfa9a150f54b7d8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

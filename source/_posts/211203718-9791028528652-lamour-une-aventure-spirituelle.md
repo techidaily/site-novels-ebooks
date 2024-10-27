@@ -1,7 +1,7 @@
 ---
 title: L'Amour, une aventure spirituelle | Free Book
-date: 2024-10-25 19:41:38
-updated: 2024-10-26 10:17:10
+date: 2024-10-22T20:04:47.705Z
+updated: 2024-10-26T20:59:03.477Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/729a00a34378f044604269e18f1694c74e11e1a369c758d7d8216f6e1a8a01d3.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/729a00a34378f044604269e18f1694c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

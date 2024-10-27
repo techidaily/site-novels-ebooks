@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Guide to Attracting Prosperity | Free Book
-date: 2024-10-25 22:18:10
-updated: 2024-10-26 10:40:51
+date: 2024-10-22T17:22:58.041Z
+updated: 2024-10-27T04:32:59.330Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c51450b99dbb23b1fa1fe9b55db459d4aa32123403562c0a9b2aef5672bcd7bd.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c51450b99dbb23b1fa1fe9b55db459d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Pocket Guide to the Tarot, Revised | Free Book
-date: 2024-10-23 13:26:54
-updated: 2024-10-26 12:55:38
+date: 2024-10-23T04:24:57.645Z
+updated: 2024-10-27T03:16:23.679Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3426209e99718c043307106ff72627d092a53a433b662d34ac067c628a6f4bb.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3426209e99718c043307106ff72627
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

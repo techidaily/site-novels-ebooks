@@ -1,7 +1,7 @@
 ---
 title: Jean D'Espagnet's The Summary of Physics Restored | Free Book
-date: 2024-10-23 16:30:23
-updated: 2024-10-26 12:10:28
+date: 2024-10-24T22:03:24.412Z
+updated: 2024-10-26T21:13:37.419Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e57e6ae815990f4596c5d158dc2f18f11fafa58b5818daf13e9c3ea7c31d2857.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e57e6ae815990f4596c5d158dc2f18f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

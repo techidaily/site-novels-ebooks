@@ -1,7 +1,7 @@
 ---
 title: Mindfulness in the Modern World | Free Book
-date: 2024-10-25 18:59:16
-updated: 2024-10-26 12:16:29
+date: 2024-10-20T22:00:23.914Z
+updated: 2024-10-27T00:14:21.670Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89354d6596e17cf73b60fe64e94d844a37d506d06adffd56b405e6962c575824.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89354d6596e17cf73b60fe64e94d844
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

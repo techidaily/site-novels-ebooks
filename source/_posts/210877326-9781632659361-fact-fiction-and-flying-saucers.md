@@ -1,7 +1,7 @@
 ---
 title: Fact, Fiction, and Flying Saucers | Free Book
-date: 2024-10-25 23:25:49
-updated: 2024-10-26 11:53:21
+date: 2024-10-24T20:08:04.053Z
+updated: 2024-10-26T16:26:02.916Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d625cf30a175e5207778a282ae0820e1604b0430035473718c75afd55091a9a9.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d625cf30a175e5207778a282ae0820e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

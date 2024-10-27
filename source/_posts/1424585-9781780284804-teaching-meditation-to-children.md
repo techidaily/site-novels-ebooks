@@ -1,7 +1,7 @@
 ---
 title: Teaching Meditation to Children | Free Book
-date: 2024-10-25 12:47:43
-updated: 2024-10-26 11:59:50
+date: 2024-10-21T16:53:43.806Z
+updated: 2024-10-26T17:04:38.336Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a88bfcf5f704c7c9bf7c572b59d518228e2ce554e51371290230c1bd864ba86.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a88bfcf5f704c7c9bf7c572b59d518
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

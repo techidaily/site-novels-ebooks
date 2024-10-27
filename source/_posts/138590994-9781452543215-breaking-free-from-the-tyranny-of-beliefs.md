@@ -1,7 +1,7 @@
 ---
 title: Breaking Free from the Tyranny of Beliefs | Free Book
-date: 2024-10-23 20:48:25
-updated: 2024-10-26 10:13:19
+date: 2024-10-22T01:16:32.200Z
+updated: 2024-10-26T23:31:38.534Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8d7e6628f58dcc58d7fb08cd68f1a5c6a93f4a2e4421aed43df5ce50bfce1fe.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8d7e6628f58dcc58d7fb08cd68f1a5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

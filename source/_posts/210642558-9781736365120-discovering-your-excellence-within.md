@@ -1,7 +1,7 @@
 ---
 title: Discovering Your Excellence Within | Free Book
-date: 2024-10-25 21:44:38
-updated: 2024-10-26 10:26:48
+date: 2024-10-24T23:23:09.728Z
+updated: 2024-10-26T21:41:04.389Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/469ad4a6a349e20c145dbdae556802cf8d7a20dac110f28677e840b34a971138.jpg
@@ -250,3 +250,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/469ad4a6a349e20c145dbdae556802c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

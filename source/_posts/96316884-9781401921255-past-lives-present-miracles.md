@@ -1,7 +1,7 @@
 ---
 title: Past Lives, Present Miracles | Free Book
-date: 2024-10-25 16:25:33
-updated: 2024-10-26 11:41:43
+date: 2024-10-22T05:50:32.049Z
+updated: 2024-10-26T21:20:41.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/642d8c68a28481aaa6a4672de06c656bb86cd6b8e36ecce669338b1d336b6b10.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/642d8c68a28481aaa6a4672de06c656
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

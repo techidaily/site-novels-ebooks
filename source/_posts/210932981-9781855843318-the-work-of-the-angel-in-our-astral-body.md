@@ -1,7 +1,7 @@
 ---
 title: The Work of the Angel in Our Astral Body | Free Book
-date: 2024-10-25 22:53:36
-updated: 2024-10-26 12:10:15
+date: 2024-10-23T00:55:03.504Z
+updated: 2024-10-27T05:40:30.752Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18411d39d60a082e8059dbb9aa25adabadd4b7ecad834f551bfabbb4119d5dfd.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18411d39d60a082e8059dbb9aa25ada
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

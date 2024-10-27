@@ -1,7 +1,7 @@
 ---
 title: Creando la Baraja de Tarot de Visconti-Sforza | Free Book
-date: 2024-10-24 18:42:53
-updated: 2024-10-26 11:58:27
+date: 2024-10-22T02:12:26.779Z
+updated: 2024-10-26T21:19:34.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0270947872a8006d975bc67c507a40540e973a6c46bd0c6a9c1ddfc163c18de.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0270947872a8006d975bc67c507a40
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

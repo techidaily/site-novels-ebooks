@@ -1,7 +1,7 @@
 ---
 title: In Communication With The Deceased | Free Book
-date: 2024-10-25 20:12:50
-updated: 2024-10-26 12:57:23
+date: 2024-10-25T03:59:58.944Z
+updated: 2024-10-26T19:06:16.437Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40cf4b656ba4dba64b51c2bd46ab979402fca06f4cd4e632c3f103e12635c5ce.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40cf4b656ba4dba64b51c2bd46ab979
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

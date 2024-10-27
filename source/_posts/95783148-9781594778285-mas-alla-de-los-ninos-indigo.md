@@ -1,7 +1,7 @@
 ---
 title: Más allá de los niños índigo | Free Book
-date: 2024-10-24 13:17:27
-updated: 2024-10-26 11:20:58
+date: 2024-10-20T22:34:41.677Z
+updated: 2024-10-26T16:23:04.346Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50489f4d8d10e66342d9c93ffa3c8940750fc96dac274c9fc3f765b2ff63d733.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50489f4d8d10e66342d9c93ffa3c894
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Survival Research: Problems and Possibilites | Free Book"
-date: 2024-10-23 19:50:31
-updated: 2024-10-26 11:44:38
+date: 2024-10-23T18:28:15.564Z
+updated: 2024-10-26T19:06:10.275Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3f4f14204e4bbfefb452bc9322c173536b0d89ce6823515ad09a88e2cea41c7.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3f4f14204e4bbfefb452bc9322c173
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

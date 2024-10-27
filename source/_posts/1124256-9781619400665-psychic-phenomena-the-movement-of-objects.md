@@ -1,7 +1,7 @@
 ---
 title: "Psychic Phenomena: The Movement of Objects | Free Book"
-date: 2024-10-23 21:44:36
-updated: 2024-10-26 12:25:44
+date: 2024-10-24T02:56:10.141Z
+updated: 2024-10-26T20:24:14.066Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01027f37490d36558c44f4ce80c3c93d899b6c4f5a990188ed4d6f9089a9f85a.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01027f37490d36558c44f4ce80c3c93
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

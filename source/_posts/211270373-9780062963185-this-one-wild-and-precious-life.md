@@ -1,7 +1,7 @@
 ---
 title: This One Wild and Precious Life | Free Book
-date: 2024-10-24 16:48:27
-updated: 2024-10-26 12:26:24
+date: 2024-10-26T02:23:58.213Z
+updated: 2024-10-26T16:09:14.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/216ac483be620ff8e79ba077c83da2dc02b6fe14f9e6b719538f76c8c0f66afd.jpg
@@ -231,3 +231,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/216ac483be620ff8e79ba077c83da2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

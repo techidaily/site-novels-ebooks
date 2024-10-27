@@ -1,7 +1,7 @@
 ---
 title: Theurgy, or the Hermetic Practice | Free Book
-date: 2024-10-25 15:26:40
-updated: 2024-10-26 11:35:46
+date: 2024-10-25T19:58:08.899Z
+updated: 2024-10-26T18:00:52.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/878b77200ef2156d841147d4145c514ac45f42971c3033e5fc41c454fe573431.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/878b77200ef2156d841147d4145c514
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

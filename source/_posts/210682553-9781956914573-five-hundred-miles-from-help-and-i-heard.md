@@ -1,7 +1,7 @@
 ---
 title: Five Hundred Miles From Help And I Heard... | Free Book
-date: 2024-10-24 10:36:40
-updated: 2024-10-26 12:51:48
+date: 2024-10-25T20:04:10.988Z
+updated: 2024-10-27T00:06:21.982Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59a097d101b8f4697cf1a7567865968662b6bdb61a810b45c96681e3504093a8.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59a097d101b8f4697cf1a7567865968
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

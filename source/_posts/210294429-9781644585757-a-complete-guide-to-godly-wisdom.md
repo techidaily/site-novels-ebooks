@@ -1,7 +1,7 @@
 ---
 title: A Complete Guide to Godly Wisdom | Free Book
-date: 2024-10-23 23:10:13
-updated: 2024-10-26 10:46:38
+date: 2024-10-25T19:20:34.631Z
+updated: 2024-10-26T17:47:48.994Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/87ab0b078f952a7bae2b8ac0303c36dc6e8d33cb6217e51cf060b32cccf94b76.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/87ab0b078f952a7bae2b8ac0303c36d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

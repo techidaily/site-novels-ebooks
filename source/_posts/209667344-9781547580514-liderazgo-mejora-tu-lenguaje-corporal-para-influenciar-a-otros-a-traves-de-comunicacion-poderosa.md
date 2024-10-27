@@ -1,7 +1,7 @@
 ---
 title: "Liderazgo: Mejora Tu Lenguaje Corporal Para Influenciar A Otros A Través De Comunicación Poderosa | Free Book"
-date: 2024-10-23 12:46:15
-updated: 2024-10-26 12:30:50
+date: 2024-10-26T03:17:26.411Z
+updated: 2024-10-27T00:03:34.490Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a8a02a406c513e4bf22898929ce974047993e2702775a7fc647c298cc658e6ea.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a8a02a406c513e4bf22898929ce9740
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

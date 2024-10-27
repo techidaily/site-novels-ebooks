@@ -1,7 +1,7 @@
 ---
 title: L'Interprète des désirs (2nd ed.) | Free Book
-date: 2024-10-25 21:43:25
-updated: 2024-10-26 11:11:44
+date: 2024-10-20T16:08:36.188Z
+updated: 2024-10-27T03:31:59.366Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b94d1ef2ea2b803beaf7540c75625ba46a3fd365f998e3e27d470251279a4f06.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b94d1ef2ea2b803beaf7540c75625ba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

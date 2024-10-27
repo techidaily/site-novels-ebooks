@@ -1,7 +1,7 @@
 ---
 title: The Psychic Life of Abraham Lincoln | Free Book
-date: 2024-10-25 12:26:39
-updated: 2024-10-26 11:32:47
+date: 2024-10-21T20:49:30.904Z
+updated: 2024-10-27T03:14:56.836Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15c0af307ddca3db22d58b80c06ca0903f15f1a24c49246edf322ae2914f5da1.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15c0af307ddca3db22d58b80c06ca09
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

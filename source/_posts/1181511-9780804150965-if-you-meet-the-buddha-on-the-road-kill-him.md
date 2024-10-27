@@ -1,7 +1,7 @@
 ---
 title: If You Meet the Buddha on the Road, Kill Him | Free Book
-date: 2024-10-23 15:46:10
-updated: 2024-10-26 10:35:25
+date: 2024-10-21T16:18:00.342Z
+updated: 2024-10-27T01:48:33.938Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f04c9be6308244a82e1a2ea7406bbddc3b1bbfde7c50204df06a52cf1362c86d.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f04c9be6308244a82e1a2ea7406bbdd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

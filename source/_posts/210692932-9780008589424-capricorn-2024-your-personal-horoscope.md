@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2024: Your Personal Horoscope | Free Book"
-date: 2024-10-23 22:33:16
-updated: 2024-10-26 12:30:59
+date: 2024-10-20T02:59:25.707Z
+updated: 2024-10-26T21:08:33.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e9d69632486f8580bc5eb914a1653403785cf2d0adb2d12e3ad72275e036a361.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e9d69632486f8580bc5eb914a165340
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

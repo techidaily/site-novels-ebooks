@@ -1,7 +1,7 @@
 ---
 title: Advances in Parapsychological Research 10 | Free Book
-date: 2024-10-24 18:53:13
-updated: 2024-10-26 11:47:52
+date: 2024-10-21T04:14:20.088Z
+updated: 2024-10-26T22:52:09.776Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a214a838327be5d7292198a3fab650589d1c1a84220d2ef56a7ed20631c51d5a.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a214a838327be5d7292198a3fab6505
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

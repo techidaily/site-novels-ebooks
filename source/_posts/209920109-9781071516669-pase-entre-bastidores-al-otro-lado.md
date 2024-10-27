@@ -1,7 +1,7 @@
 ---
 title: "Pase Entre Bastidores al Otro Lado: | Free Book"
-date: 2024-10-25 20:29:40
-updated: 2024-10-26 12:29:28
+date: 2024-10-23T21:08:13.094Z
+updated: 2024-10-26T21:10:28.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe1b3c6cbfc734ba0cf571185c4db529228ed007c1fe279de12c8381ab3b2512.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe1b3c6cbfc734ba0cf571185c4db52
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: An Energy Healer's Book of Dying | Free Book
-date: 2024-10-24 14:16:48
-updated: 2024-10-26 12:26:39
+date: 2024-10-20T20:24:53.128Z
+updated: 2024-10-27T00:15:07.989Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5609490c92867e231c420472c03ae909bb69000db2c9d1c25e6f5b98d97a4871.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5609490c92867e231c420472c03ae90
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

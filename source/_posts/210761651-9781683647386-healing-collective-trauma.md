@@ -1,7 +1,7 @@
 ---
 title: Healing Collective Trauma | Free Book
-date: 2024-10-25 19:54:34
-updated: 2024-10-26 11:30:39
+date: 2024-10-20T22:19:10.550Z
+updated: 2024-10-27T02:43:00.765Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c96cbba14e2aeb0c541c919c0bcbc8712e90ca626e2601888190d0a481c2ab2a.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c96cbba14e2aeb0c541c919c0bcbc87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

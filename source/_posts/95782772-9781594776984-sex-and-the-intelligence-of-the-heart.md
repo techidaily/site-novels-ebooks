@@ -1,7 +1,7 @@
 ---
 title: Sex and the Intelligence of the Heart | Free Book
-date: 2024-10-23 22:50:31
-updated: 2024-10-26 12:16:19
+date: 2024-10-23T21:41:07.157Z
+updated: 2024-10-26T21:49:56.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d7c81351b6d49c07315d9104218f56fd1bc31fcbf8c6886245f54e63b39d7e7.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d7c81351b6d49c07315d9104218f56
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

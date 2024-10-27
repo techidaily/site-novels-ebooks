@@ -1,7 +1,7 @@
 ---
 title: The Basic Code of the Universe | Free Book
-date: 2024-10-24 20:50:22
-updated: 2024-10-26 11:57:11
+date: 2024-10-25T03:37:39.496Z
+updated: 2024-10-27T04:25:05.591Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/573738f193ad84ac32a5d1714a67f4d75af50ec1db4d6dc45be4441d1046795c.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/573738f193ad84ac32a5d1714a67f4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

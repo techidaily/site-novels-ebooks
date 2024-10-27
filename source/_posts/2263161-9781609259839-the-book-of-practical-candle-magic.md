@@ -1,7 +1,7 @@
 ---
 title: The Book of Practical Candle Magic | Free Book
-date: 2024-10-23 20:45:17
-updated: 2024-10-26 11:59:24
+date: 2024-10-22T04:04:58.312Z
+updated: 2024-10-26T17:59:53.010Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/656591c1832332d3d851d31715f93c4a552a950a01558c1a04d6af92311e47d4.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/656591c1832332d3d851d31715f93c4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

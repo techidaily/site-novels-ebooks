@@ -1,7 +1,7 @@
 ---
 title: This Minute Matters--The Essence of Presence | Free Book
-date: 2024-10-24 22:56:10
-updated: 2024-10-26 11:26:39
+date: 2024-10-24T00:55:05.326Z
+updated: 2024-10-26T18:26:59.431Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0aa72e1cba830d48ad94460f91c8099b8ae2244238ada54331093e5b26fd34f.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0aa72e1cba830d48ad94460f91c809
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: God's Poetic and Creational Word | Free Book
-date: 2024-10-23 22:42:18
-updated: 2024-10-26 11:26:45
+date: 2024-10-20T22:26:37.512Z
+updated: 2024-10-27T01:44:32.295Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6c78aa335463d67f6508021700bab6e3dee6cd8a2d79e9e98e10a85d00f74813.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6c78aa335463d67f6508021700bab6e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

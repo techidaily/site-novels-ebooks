@@ -1,7 +1,7 @@
 ---
 title: The Call of the Old Gods | Free Book
-date: 2024-10-23 19:32:37
-updated: 2024-10-26 10:50:44
+date: 2024-10-24T03:07:27.148Z
+updated: 2024-10-26T18:13:44.197Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a32aa94d880a8f4c33dac687880f5a40bfa804bb065e69d6f156051e6fe78cbe.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a32aa94d880a8f4c33dac687880f5a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

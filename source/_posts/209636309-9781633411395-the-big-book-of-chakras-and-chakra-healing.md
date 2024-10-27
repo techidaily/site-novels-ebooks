@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Chakras and Chakra Healing | Free Book
-date: 2024-10-23 18:43:46
-updated: 2024-10-26 12:40:45
+date: 2024-10-26T03:29:25.936Z
+updated: 2024-10-26T19:13:28.056Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/430a7f2abfc40b7e42122266aeb535b9f4ff60c47b598fb7a1c81e36e12bf8e2.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/430a7f2abfc40b7e42122266aeb535b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

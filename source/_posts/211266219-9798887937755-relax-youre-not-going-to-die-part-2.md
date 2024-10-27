@@ -1,7 +1,7 @@
 ---
 title: Relax. . . You're Not Going to Die Part 2 | Free Book
-date: 2024-10-24 18:32:11
-updated: 2024-10-26 11:29:21
+date: 2024-10-20T22:33:54.957Z
+updated: 2024-10-26T18:08:34.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0db5013d59d22f0765bcb6b694ccfd86051dc030d4c86c57295aebb9f3ea49c.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0db5013d59d22f0765bcb6b694ccfd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

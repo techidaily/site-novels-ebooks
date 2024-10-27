@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Moon Magic | Free Book
-date: 2024-10-24 12:52:31
-updated: 2024-10-26 11:14:48
+date: 2024-10-25T18:16:58.564Z
+updated: 2024-10-27T05:34:04.991Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/817ce17ab28fb0ac0c737c3da7192e1d6740368d169e42ebe5285e2ffc544fd4.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/817ce17ab28fb0ac0c737c3da7192e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

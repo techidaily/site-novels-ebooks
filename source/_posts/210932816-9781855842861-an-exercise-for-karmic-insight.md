@@ -1,7 +1,7 @@
 ---
 title: An Exercise for Karmic Insight | Free Book
-date: 2024-10-24 10:21:13
-updated: 2024-10-26 11:38:40
+date: 2024-10-23T02:24:59.619Z
+updated: 2024-10-26T22:34:50.487Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/434f41764e4616d776bf766850241c0c0d44ce26ff73c15acb5b4d89998dcd6b.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/434f41764e4616d776bf766850241c0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

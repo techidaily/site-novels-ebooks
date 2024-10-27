@@ -1,7 +1,7 @@
 ---
 title: Healing the Eternal Soul - Insights from Past Life and Spiritual Regression | Free Book
-date: 2024-10-23 11:20:12
-updated: 2024-10-26 12:29:27
+date: 2024-10-26T01:38:45.198Z
+updated: 2024-10-27T05:31:30.434Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acb3e8dee93f402b19f771b6ea5ced49f42c721eda894f858dcb649b45f4d811.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acb3e8dee93f402b19f771b6ea5ced4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

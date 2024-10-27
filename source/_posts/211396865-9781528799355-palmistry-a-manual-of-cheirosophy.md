@@ -1,7 +1,7 @@
 ---
 title: Palmistry - A Manual of Cheirosophy | Free Book
-date: 2024-10-24 22:34:49
-updated: 2024-10-26 11:21:17
+date: 2024-10-25T20:49:22.502Z
+updated: 2024-10-26T18:38:59.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d67aa754863055fbcd273af458968be81f086cc60c3c88120c3ab45af217e2f.jpg
@@ -120,3 +120,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d67aa754863055fbcd273af458968b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

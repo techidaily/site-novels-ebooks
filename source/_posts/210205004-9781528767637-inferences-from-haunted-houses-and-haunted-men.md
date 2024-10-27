@@ -1,7 +1,7 @@
 ---
 title: Inferences from Haunted Houses and Haunted Men | Free Book
-date: 2024-10-23 14:57:57
-updated: 2024-10-26 11:59:41
+date: 2024-10-22T19:03:06.106Z
+updated: 2024-10-26T17:36:03.595Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d7708a6da5049f98157cb69c1bcc5edd56157ab8644d6ac702037342f3537d.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d7708a6da5049f98157cb69c1bcc5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

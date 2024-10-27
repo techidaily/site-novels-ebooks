@@ -1,7 +1,7 @@
 ---
 title: Introduction to Magic, Volume II | Free Book
-date: 2024-10-24 12:22:12
-updated: 2024-10-26 10:56:59
+date: 2024-10-24T23:13:51.982Z
+updated: 2024-10-27T05:25:43.540Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff1539f111f1f78ca980a174eac0be2958eccf6dbd68039883cd70fd5f601dc7.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff1539f111f1f78ca980a174eac0be2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

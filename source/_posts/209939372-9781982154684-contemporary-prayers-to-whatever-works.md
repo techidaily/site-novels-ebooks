@@ -1,7 +1,7 @@
 ---
 title: Contemporary Prayers to Whatever Works | Free Book
-date: 2024-10-25 10:34:43
-updated: 2024-10-26 12:25:49
+date: 2024-10-25T20:27:38.475Z
+updated: 2024-10-27T04:36:49.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb56cba954e4387dcbf63b035ecca8f1f32509e072daf93fdf220d6f31a06f8a.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb56cba954e4387dcbf63b035ecca8f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

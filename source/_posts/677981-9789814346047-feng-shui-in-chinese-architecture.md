@@ -1,7 +1,7 @@
 ---
 title: Feng Shui in Chinese Architecture | Free Book
-date: 2024-10-25 20:30:44
-updated: 2024-10-26 10:48:56
+date: 2024-10-23T03:31:25.817Z
+updated: 2024-10-26T19:28:40.630Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7644a5710717222ad9f2c9c225b6bd288c4c57631e40c30af20f47d8f4338639.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7644a5710717222ad9f2c9c225b6bd2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

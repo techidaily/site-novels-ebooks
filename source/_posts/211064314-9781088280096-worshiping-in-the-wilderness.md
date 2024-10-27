@@ -1,7 +1,7 @@
 ---
 title: Worshiping in the Wilderness | Free Book
-date: 2024-10-25 11:47:30
-updated: 2024-10-26 10:15:32
+date: 2024-10-24T05:10:35.967Z
+updated: 2024-10-26T17:16:12.670Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1a305c590bb007e26e10cfa711ca32686eb74c07cf2b4ae839968071a93d48e.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1a305c590bb007e26e10cfa711ca32
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

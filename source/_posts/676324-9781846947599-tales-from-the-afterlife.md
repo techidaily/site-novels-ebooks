@@ -1,7 +1,7 @@
 ---
 title: Tales From the Afterlife | Free Book
-date: 2024-10-25 21:38:25
-updated: 2024-10-26 11:11:45
+date: 2024-10-24T20:53:17.718Z
+updated: 2024-10-26T18:39:29.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5511e3f28f8c176b915b899a7a937c932b200221246eee764ee24e4eb7d3d304.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5511e3f28f8c176b915b899a7a937c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

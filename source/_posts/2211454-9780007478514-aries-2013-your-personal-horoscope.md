@@ -1,7 +1,7 @@
 ---
 title: "Aries 2013: Your Personal Horoscope | Free Book"
-date: 2024-10-24 17:46:27
-updated: 2024-10-26 11:52:20
+date: 2024-10-21T23:42:48.138Z
+updated: 2024-10-26T19:59:09.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a98d94e7c0f4be680ab19b9571c804eee62c20c5828c41bb4494cb7ffb2d7ba4.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a98d94e7c0f4be680ab19b9571c804e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

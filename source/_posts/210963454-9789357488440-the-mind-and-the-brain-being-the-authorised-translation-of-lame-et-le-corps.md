@@ -1,7 +1,7 @@
 ---
 title: The Mind And The Brain Being The Authorised Translation Of L'Âme Et Le Corps | Free Book
-date: 2024-10-23 12:52:10
-updated: 2024-10-26 11:46:20
+date: 2024-10-20T16:05:34.674Z
+updated: 2024-10-26T18:12:37.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae137066708cca4502709655e79ae6cfbb0d5b3b085fad16359e78ac7547919a.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae137066708cca4502709655e79ae6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

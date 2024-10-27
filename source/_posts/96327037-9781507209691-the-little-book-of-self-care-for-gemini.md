@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Gemini | Free Book
-date: 2024-10-23 11:27:54
-updated: 2024-10-26 11:43:39
+date: 2024-10-25T03:20:42.310Z
+updated: 2024-10-26T17:26:29.229Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b70899244b6afd8c15f35581b3b721bc2026f4.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b7089
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Ten Times Happier: How to Let Go of What’s Holding You Back | Free Book"
-date: 2024-10-25 12:15:40
-updated: 2024-10-26 10:19:57
+date: 2024-10-20T16:49:44.518Z
+updated: 2024-10-26T18:07:56.488Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1e41c6099021886cef65ff73ded9f04713edbe87697a25e3e79ea77ed776a01.jpg
@@ -221,3 +221,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1e41c6099021886cef65ff73ded9f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

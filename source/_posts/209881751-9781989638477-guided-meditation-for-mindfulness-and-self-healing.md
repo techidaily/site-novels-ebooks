@@ -1,7 +1,7 @@
 ---
 title: Guided Meditation for Mindfulness and Self-Healing | Free Book
-date: 2024-10-25 17:14:42
-updated: 2024-10-26 12:24:24
+date: 2024-10-24T03:12:09.558Z
+updated: 2024-10-27T02:15:12.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c624dc8e72a03cda96cb4caebdd321822bb4eb74fb847c4ef0a0d6bed228038c.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c624dc8e72a03cda96cb4caebdd3218
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Discovering Your Soul's Purpose | Free Book
-date: 2024-10-24 22:58:51
-updated: 2024-10-26 11:37:43
+date: 2024-10-21T00:52:31.157Z
+updated: 2024-10-26T20:28:55.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8a516f25e2e9d41d12f40bce0c1b170667298ee83d26015aaba2282af1caae1.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8a516f25e2e9d41d12f40bce0c1b17
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

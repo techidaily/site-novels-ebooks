@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2023: Your Personal Horoscope | Free Book"
-date: 2024-10-24 23:36:37
-updated: 2024-10-26 10:23:44
+date: 2024-10-24T05:55:11.879Z
+updated: 2024-10-26T23:17:00.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/835cec4361adf27b425c1d50f11a2eb5b1f67c80c0c61a92483e3360ec473bc5.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/835cec4361adf27b425c1d50f11a2eb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

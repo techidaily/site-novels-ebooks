@@ -1,7 +1,7 @@
 ---
 title: True Tales of the Paranormal | Free Book
-date: 2024-10-24 20:48:42
-updated: 2024-10-26 11:52:38
+date: 2024-10-22T20:45:46.387Z
+updated: 2024-10-27T04:32:43.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b39914280454ae266ae8d8b84762d7a10361cfa7424e568094030eeac13acfc2.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b39914280454ae266ae8d8b84762d7a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

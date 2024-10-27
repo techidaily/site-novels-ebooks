@@ -1,7 +1,7 @@
 ---
 title: The Step-by-Step Astrology Workbook | Free Book
-date: 2024-10-25 12:56:23
-updated: 2024-10-26 10:45:38
+date: 2024-10-20T05:11:10.790Z
+updated: 2024-10-26T16:28:58.617Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1d31fe1544d84874fd3c514d173390b067111bc3f28fd62e869224532693720.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1d31fe1544d84874fd3c514d173390
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

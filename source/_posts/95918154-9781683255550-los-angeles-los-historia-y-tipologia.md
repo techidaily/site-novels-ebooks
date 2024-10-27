@@ -1,7 +1,7 @@
 ---
 title: Los ángeles. Los historia y tipología | Free Book
-date: 2024-10-23 18:13:34
-updated: 2024-10-26 12:39:27
+date: 2024-10-23T18:23:31.210Z
+updated: 2024-10-26T18:08:35.388Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20afe55f0610200c4c7de76163b17409e854b915ed6d4bd896764c6b1fbe392f.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20afe55f0610200c4c7de76163b1740
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

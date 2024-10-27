@@ -1,7 +1,7 @@
 ---
 title: The Lucid Dreaming Workbook | Free Book
-date: 2024-10-25 13:56:28
-updated: 2024-10-26 10:47:29
+date: 2024-10-26T05:04:32.173Z
+updated: 2024-10-27T03:08:03.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d534c66031b3082b4be7cab0dee82c665872f3a855612afb6efda70bbe5883b.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d534c66031b3082b4be7cab0dee82c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Power of our Relationships | Free Book
-date: 2024-10-24 22:56:54
-updated: 2024-10-26 11:39:38
+date: 2024-10-25T02:15:24.018Z
+updated: 2024-10-27T00:34:30.308Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c1a37f5d7156bc1bc7a1f1c15aba1e91e41aae23133348401a5b26b6a8adcfe4.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c1a37f5d7156bc1bc7a1f1c15aba1e9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Understanding the Essence of Your Soul | Free Book
-date: 2024-10-24 18:17:14
-updated: 2024-10-26 10:36:41
+date: 2024-10-24T23:32:18.964Z
+updated: 2024-10-26T22:37:02.360Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a4993024b29af5b5c8c03fcd83bca4cd3707627158792faed7893a3ce5a7697.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a4993024b29af5b5c8c03fcd83bca4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

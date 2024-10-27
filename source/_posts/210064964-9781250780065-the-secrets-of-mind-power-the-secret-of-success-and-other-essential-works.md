@@ -1,7 +1,7 @@
 ---
 title: "The Secrets of Mind Power: The Secret of Success and Other Essential Works | Free Book"
-date: 2024-10-25 19:31:55
-updated: 2024-10-26 11:33:52
+date: 2024-10-23T01:31:07.825Z
+updated: 2024-10-26T18:54:00.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07080e3cb5a070ff94f0b9d2fa3bdd9ac051fb8aa1791c249222bb3741a9fc41.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07080e3cb5a070ff94f0b9d2fa3bdd9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

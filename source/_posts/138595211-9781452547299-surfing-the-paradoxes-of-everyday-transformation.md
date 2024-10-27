@@ -1,7 +1,7 @@
 ---
 title: Surfing the Paradoxes of Everyday Transformation | Free Book
-date: 2024-10-24 14:51:15
-updated: 2024-10-26 10:36:42
+date: 2024-10-25T22:38:39.067Z
+updated: 2024-10-26T20:43:12.839Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/254ae334955eb31ac0f2b5bd10313907b3b9ca5ed9e8cbd3b6c9c619b8a91943.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/254ae334955eb31ac0f2b5bd1031390
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

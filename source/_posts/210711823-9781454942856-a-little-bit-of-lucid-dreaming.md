@@ -1,7 +1,7 @@
 ---
 title: A Little Bit of Lucid Dreaming | Free Book
-date: 2024-10-24 14:36:57
-updated: 2024-10-26 11:37:36
+date: 2024-10-19T22:29:20.835Z
+updated: 2024-10-27T04:08:10.441Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59b84c0194cef1ef305579c5f262ed7c95176bdb30545aba536a1c5a2bbe6ea9.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59b84c0194cef1ef305579c5f262ed7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

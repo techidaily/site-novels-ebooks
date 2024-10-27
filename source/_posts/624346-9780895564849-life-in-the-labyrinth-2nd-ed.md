@@ -1,7 +1,7 @@
 ---
 title: Life in the Labyrinth (2nd ed.) | Free Book
-date: 2024-10-23 19:40:31
-updated: 2024-10-26 11:31:50
+date: 2024-10-21T00:02:37.855Z
+updated: 2024-10-27T05:32:18.938Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e36b0b1b42038a23b1ab07c1b202fc113c2e56aa3612485eda4de149cf3e973f.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e36b0b1b42038a23b1ab07c1b202fc1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

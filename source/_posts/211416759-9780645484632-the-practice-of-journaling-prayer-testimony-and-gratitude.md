@@ -1,7 +1,7 @@
 ---
 title: The Practice of Journaling Prayer, Testimony, and Gratitude | Free Book
-date: 2024-10-25 21:25:43
-updated: 2024-10-26 10:36:48
+date: 2024-10-19T17:25:34.199Z
+updated: 2024-10-27T00:02:18.156Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/063edf79b834d28833971d9e08009078b50df570e1da468871aa5502003a9e10.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/063edf79b834d28833971d9e0800907
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

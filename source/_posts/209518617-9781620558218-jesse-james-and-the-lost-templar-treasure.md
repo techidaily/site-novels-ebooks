@@ -1,7 +1,7 @@
 ---
 title: Jesse James and the Lost Templar Treasure | Free Book
-date: 2024-10-23 13:21:19
-updated: 2024-10-26 10:50:49
+date: 2024-10-22T02:32:44.590Z
+updated: 2024-10-26T23:08:17.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fe4ed79b8ddc7640055683c99493a7f40810f207539cf9c99ed79b5cb4db1e7.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fe4ed79b8ddc7640055683c99493a7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

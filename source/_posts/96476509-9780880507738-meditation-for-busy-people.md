@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2024-10-23 19:21:21
-updated: 2024-10-26 10:53:27
+date: 2024-10-19T18:13:28.841Z
+updated: 2024-10-27T01:22:09.112Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

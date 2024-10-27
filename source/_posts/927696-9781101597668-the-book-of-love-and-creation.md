@@ -1,7 +1,7 @@
 ---
 title: The Book of Love and Creation | Free Book
-date: 2024-10-24 19:30:52
-updated: 2024-10-26 11:36:30
+date: 2024-10-24T19:09:33.250Z
+updated: 2024-10-26T19:39:06.360Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f37e6d6dd611a473330a03c083aeb37c9a1099aa5de780a84afa2ed67ebbb7e0.jpg
@@ -208,3 +208,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f37e6d6dd611a473330a03c083aeb37
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

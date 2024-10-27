@@ -1,7 +1,7 @@
 ---
 title: Spirit Guides for Beginners | Free Book
-date: 2024-10-25 12:11:19
-updated: 2024-10-26 12:54:54
+date: 2024-10-25T02:21:24.254Z
+updated: 2024-10-27T01:35:26.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59ab52d1356da3c5f7b04e9e5ac42ea6807a5879843e657b64a6ef97b678a1e8.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59ab52d1356da3c5f7b04e9e5ac42ea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

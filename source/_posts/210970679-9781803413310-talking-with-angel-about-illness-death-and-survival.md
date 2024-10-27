@@ -1,7 +1,7 @@
 ---
 title: Talking with Angel about Illness, Death and Survival | Free Book
-date: 2024-10-25 12:33:18
-updated: 2024-10-26 12:57:24
+date: 2024-10-26T00:54:15.189Z
+updated: 2024-10-26T16:03:06.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c23e714b931c85c1f614978efe0b324b9886686505d350217f8bf7169f60552.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c23e714b931c85c1f614978efe0b32
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

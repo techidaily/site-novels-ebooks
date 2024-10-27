@@ -1,7 +1,7 @@
 ---
 title: Doenças Psicossomáticas | Free Book
-date: 2024-10-23 13:53:46
-updated: 2024-10-26 10:41:15
+date: 2024-10-21T00:07:34.109Z
+updated: 2024-10-26T23:49:14.033Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb5c264619a9e1b61dadfa911f71f98f40023f99a51f5ca339f4f88cff5c91d0.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb5c264619a9e1b61dadfa911f71f98
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2025: Your Personal Horoscope | Free Book"
-date: 2024-10-25 16:28:39
-updated: 2024-10-26 12:58:30
+date: 2024-10-20T02:21:22.150Z
+updated: 2024-10-27T02:08:56.339Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c38a4e269e636469b3318cd54739d68972f3ff1a29e6a89e9f9318d602483b65.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c38a4e269e636469b3318cd54739d68
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

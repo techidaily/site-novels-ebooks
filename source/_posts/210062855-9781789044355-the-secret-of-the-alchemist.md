@@ -1,7 +1,7 @@
 ---
 title: The Secret of The Alchemist | Free Book
-date: 2024-10-23 18:46:55
-updated: 2024-10-26 10:43:48
+date: 2024-10-23T05:06:49.665Z
+updated: 2024-10-27T02:12:14.592Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e951dfbdcbf3ca6269d829276fc1e1df7ac556b5d1c2143a010dab52b942d94.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e951dfbdcbf3ca6269d829276fc1e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

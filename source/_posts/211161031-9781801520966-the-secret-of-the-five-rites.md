@@ -1,7 +1,7 @@
 ---
 title: The Secret of the Five Rites | Free Book
-date: 2024-10-25 10:23:39
-updated: 2024-10-26 12:33:33
+date: 2024-10-23T22:14:13.619Z
+updated: 2024-10-27T04:58:47.157Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b28e15ce93884290e2e745b0995d6893710be045f4f3349126975178cba766ce.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b28e15ce93884290e2e745b0995d689
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

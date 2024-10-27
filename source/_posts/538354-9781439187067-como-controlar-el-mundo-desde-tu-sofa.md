@@ -1,7 +1,7 @@
 ---
 title: Como controlar el mundo desde tu sofá | Free Book
-date: 2024-10-24 12:10:55
-updated: 2024-10-26 12:58:48
+date: 2024-10-25T16:00:01.989Z
+updated: 2024-10-26T17:50:29.289Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/122d543383d754fe9d21998593e6a4dfb049da14f97170ff02429e0f2a9ba4db.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/122d543383d754fe9d21998593e6a4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Entendiendo la Codependencia | Free Book
-date: 2024-10-24 23:16:35
-updated: 2024-10-26 12:37:51
+date: 2024-10-23T19:16:47.404Z
+updated: 2024-10-26T20:41:50.835Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fa27402e534a1aedadcda28822e7353ded6196670432b48e7b42d500b02ea72.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fa27402e534a1aedadcda28822e735
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

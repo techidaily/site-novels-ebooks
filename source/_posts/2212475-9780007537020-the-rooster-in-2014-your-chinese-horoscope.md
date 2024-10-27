@@ -1,7 +1,7 @@
 ---
 title: "The Rooster in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-24 16:22:24
-updated: 2024-10-26 12:35:30
+date: 2024-10-21T21:53:46.580Z
+updated: 2024-10-26T17:00:51.600Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c5d1f02c9e7564f7a367fa567483ac9724fed743f242dfb7684337bf6f5a371.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c5d1f02c9e7564f7a367fa567483ac
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

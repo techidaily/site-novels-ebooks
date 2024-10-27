@@ -1,7 +1,7 @@
 ---
 title: The Short Path to Enlightenment | Free Book
-date: 2024-10-23 15:38:34
-updated: 2024-10-26 11:19:33
+date: 2024-10-25T02:00:10.828Z
+updated: 2024-10-27T01:12:15.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b004286868f4ab5b7c246b3b520e5cd62a51ced8d9703c1cbdb2a58c643795e.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b004286868f4ab5b7c246b3b520e5c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

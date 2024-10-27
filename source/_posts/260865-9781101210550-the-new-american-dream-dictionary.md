@@ -1,7 +1,7 @@
 ---
 title: The New American Dream Dictionary | Free Book
-date: 2024-10-24 21:48:15
-updated: 2024-10-26 11:38:21
+date: 2024-10-23T01:11:58.122Z
+updated: 2024-10-27T01:12:15.455Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0b53aadc47c2e5dec9e830513be2b1f37c7edf5a03fd688a8c5a9ef7109f4e4.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0b53aadc47c2e5dec9e830513be2b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

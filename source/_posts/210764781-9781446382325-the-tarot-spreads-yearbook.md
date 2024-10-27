@@ -1,7 +1,7 @@
 ---
 title: The Tarot Spreads Yearbook | Free Book
-date: 2024-10-25 19:56:23
-updated: 2024-10-26 12:47:49
+date: 2024-10-23T21:33:48.595Z
+updated: 2024-10-27T00:22:59.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a8fb22ed75390f937c68aa6c600229c9de439a28368304b1350f3eb9000b5627.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a8fb22ed75390f937c68aa6c600229c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

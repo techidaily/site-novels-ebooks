@@ -1,7 +1,7 @@
 ---
 title: "The Young Man with the Rag Doll: Experiments in Mentalism | Free Book"
-date: 2024-10-23 19:13:15
-updated: 2024-10-26 12:22:33
+date: 2024-10-22T03:02:19.747Z
+updated: 2024-10-26T20:19:39.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a151bbf065564760c9a2722921515dedecfb97b87b957cced142d5d5a2938b4.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a151bbf065564760c9a2722921515d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

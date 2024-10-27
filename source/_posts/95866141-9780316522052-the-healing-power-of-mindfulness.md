@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Mindfulness | Free Book
-date: 2024-10-25 22:22:34
-updated: 2024-10-26 10:58:10
+date: 2024-10-20T05:39:13.783Z
+updated: 2024-10-26T23:00:46.597Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40ee497cef74d2f55ebd8ce604d3b9c8012d0a9ecdb8ad0417cc3747dc7aeef8.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40ee497cef74d2f55ebd8ce604d3b9c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

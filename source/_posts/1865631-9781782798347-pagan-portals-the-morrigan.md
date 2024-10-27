@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - The Morrigan | Free Book
-date: 2024-10-24 18:15:53
-updated: 2024-10-26 11:20:40
+date: 2024-10-22T01:01:52.926Z
+updated: 2024-10-27T01:25:30.993Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c81674e47a155d77944ebe94fd801a1d7ceb5f20a70d638de3ee4c61694973a2.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c81674e47a155d77944ebe94fd801a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

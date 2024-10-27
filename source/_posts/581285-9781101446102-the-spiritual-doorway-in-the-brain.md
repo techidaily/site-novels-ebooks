@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Doorway in the Brain | Free Book
-date: 2024-10-25 21:24:29
-updated: 2024-10-26 10:50:14
+date: 2024-10-21T21:32:17.736Z
+updated: 2024-10-26T20:15:42.518Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d53f6faf67527adb629d2aebbac22b5db82945e074d94f0d2d8ce757d2e6bba9.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d53f6faf67527adb629d2aebbac22b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

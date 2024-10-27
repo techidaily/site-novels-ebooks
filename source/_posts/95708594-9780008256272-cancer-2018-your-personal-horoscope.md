@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-25 14:45:34
-updated: 2024-10-26 12:58:42
+date: 2024-10-21T16:23:32.736Z
+updated: 2024-10-26T22:23:38.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ddef3226f3bfa75024934740345d2c0b85a928273b46abecdbf24f442c4cfda.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ddef3226f3bfa75024934740345d2c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret of the Ages (Condensed Classics) | Free Book
-date: 2024-10-23 15:50:20
-updated: 2024-10-26 11:46:54
+date: 2024-10-22T19:19:40.251Z
+updated: 2024-10-27T05:34:15.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80b1e294236fd28f853d11da6763f2657f84856f31c648476b201ffbcaeadf84.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80b1e294236fd28f853d11da6763f26
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Every Little Thing Matters | Free Book
-date: 2024-10-25 10:31:13
-updated: 2024-10-26 10:11:42
+date: 2024-10-25T05:32:52.499Z
+updated: 2024-10-26T17:32:56.735Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6edffa7787905ad35dc17252c40bebf16720b5b59ee5d2454562667977a5534e.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6edffa7787905ad35dc17252c40bebf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

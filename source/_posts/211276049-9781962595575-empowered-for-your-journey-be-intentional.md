@@ -1,7 +1,7 @@
 ---
 title: Empowered For Your Journey Be Intentional | Free Book
-date: 2024-10-24 20:23:58
-updated: 2024-10-26 11:10:50
+date: 2024-10-23T00:51:01.252Z
+updated: 2024-10-27T05:21:15.614Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/155c04d2941892f095ec1284414e72e8df9e6806d8e2b4023f96d5455a84bd5b.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/155c04d2941892f095ec1284414e72e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

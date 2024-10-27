@@ -1,7 +1,7 @@
 ---
 title: La Lumière de l'ennéagramme | Free Book
-date: 2024-10-25 17:59:50
-updated: 2024-10-26 11:32:39
+date: 2024-10-26T05:57:55.037Z
+updated: 2024-10-27T00:21:00.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a88f7d97cf499450b8fc0f20ca964f70867de1bb28624efa8d3ed0916d5e6364.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a88f7d97cf499450b8fc0f20ca964f7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

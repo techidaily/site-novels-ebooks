@@ -1,7 +1,7 @@
 ---
 title: Captured! The Betty and Barney Hill UFO Experience (60th Anniversary Edition) | Free Book
-date: 2024-10-24 16:52:32
-updated: 2024-10-26 12:54:49
+date: 2024-10-23T05:41:11.515Z
+updated: 2024-10-26T21:14:47.463Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/935a8b4ba7d327101d1fd6a0c8d763ac761546b7f082973c6ed0ea9e70ff5999.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/935a8b4ba7d327101d1fd6a0c8d763a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

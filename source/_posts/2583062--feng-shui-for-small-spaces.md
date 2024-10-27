@@ -1,7 +1,7 @@
 ---
 title: Feng Shui for Small Spaces | Free Book
-date: 2024-10-24 19:59:15
-updated: 2024-10-26 10:43:46
+date: 2024-10-25T23:53:13.561Z
+updated: 2024-10-26T21:50:10.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/139ef499ac5834cffa2919214fa0809bee48e046dc3a5717f337be6092dc9c81.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/139ef499ac5834cffa2919214fa0809
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

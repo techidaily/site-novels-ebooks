@@ -1,7 +1,7 @@
 ---
 title: Science and the Afterlife Experience | Free Book
-date: 2024-10-24 20:19:50
-updated: 2024-10-26 12:41:30
+date: 2024-10-25T20:00:05.491Z
+updated: 2024-10-26T18:09:31.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1a06e1a629668e1d5682ada86798731aa1dea4198a96abd4680fecca945edda.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1a06e1a629668e1d5682ada8679873
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

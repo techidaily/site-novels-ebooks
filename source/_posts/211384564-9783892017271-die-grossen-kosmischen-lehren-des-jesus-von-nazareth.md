@@ -1,7 +1,7 @@
 ---
 title: Die großen kosmischen Lehren des Jesus von Nazareth | Free Book
-date: 2024-10-24 14:34:50
-updated: 2024-10-26 11:50:27
+date: 2024-10-20T18:14:16.942Z
+updated: 2024-10-26T19:03:35.559Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21a6f6da3d658efcb82f5a3236dc84532c3dfcf5c53f3bdb5bce042a05398623.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21a6f6da3d658efcb82f5a3236dc845
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

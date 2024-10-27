@@ -1,7 +1,7 @@
 ---
 title: Relation of the Mineral Salts of the Body to the Signs of the Zodiac | Free Book
-date: 2024-10-25 16:54:21
-updated: 2024-10-26 12:33:48
+date: 2024-10-20T19:37:49.490Z
+updated: 2024-10-27T04:27:50.525Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be3b5ce7706e1b4ce11c01b3bc9073a4cb75767130778212fe0e755110c9d275.jpg
@@ -215,3 +215,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be3b5ce7706e1b4ce11c01b3bc9073a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

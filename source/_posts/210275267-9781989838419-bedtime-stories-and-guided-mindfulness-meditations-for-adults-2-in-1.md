@@ -1,7 +1,7 @@
 ---
 title: Bedtime Stories And Guided Mindfulness Meditations For Adults (2 In 1) | Free Book
-date: 2024-10-24 16:53:12
-updated: 2024-10-26 12:50:18
+date: 2024-10-24T17:54:33.232Z
+updated: 2024-10-26T18:13:32.904Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/002f522d948c4b16bdd1afa0b65e83b8a9ed959074bf807636300eae8383909c.jpg
@@ -230,3 +230,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/002f522d948c4b16bdd1afa0b65e83b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Consciousness Dialogues | Free Book
-date: 2024-10-25 13:37:37
-updated: 2024-10-26 10:17:54
+date: 2024-10-20T19:49:42.056Z
+updated: 2024-10-26T19:12:47.919Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/27feecee0a88ecaafdd7ff473795a5ad8298f1d5f90958021dfb3a3796e34cd3.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/27feecee0a88ecaafdd7ff473795a5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

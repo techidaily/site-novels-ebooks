@@ -1,7 +1,7 @@
 ---
 title: Keep Telling YOUrself That | Free Book
-date: 2024-10-23 22:25:25
-updated: 2024-10-26 10:40:54
+date: 2024-10-23T03:23:44.535Z
+updated: 2024-10-26T22:58:00.196Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7452fb85eaee253854933b406642ff4c39a0396281d5532c6b0560f2160bf1ea.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7452fb85eaee253854933b406642ff4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

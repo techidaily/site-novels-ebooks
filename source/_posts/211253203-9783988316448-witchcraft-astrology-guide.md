@@ -1,7 +1,7 @@
 ---
 title: WITCHCRAFT ASTROLOGY GUIDE | Free Book
-date: 2024-10-23 21:44:35
-updated: 2024-10-26 11:18:35
+date: 2024-10-22T00:51:40.497Z
+updated: 2024-10-27T00:14:45.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3087aac6af698b009b3044edd7ca3e8eac5cf9eecb5992212d955a31199abc83.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3087aac6af698b009b3044edd7ca3e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

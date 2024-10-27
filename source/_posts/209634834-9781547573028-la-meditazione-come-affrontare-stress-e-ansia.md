@@ -1,7 +1,7 @@
 ---
 title: La Meditazione come affrontare stress e ansia | Free Book
-date: 2024-10-24 15:16:52
-updated: 2024-10-26 12:47:47
+date: 2024-10-19T18:10:03.560Z
+updated: 2024-10-26T16:36:38.208Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a233559d68c8ff36842266ca05a3696fdb8e44c1642ca6f18ce6be772aa59be.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a233559d68c8ff36842266ca05a369
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

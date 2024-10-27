@@ -1,7 +1,7 @@
 ---
 title: 5 סיפורי חיים אמיתיים טרנספורמטיביים על ביקור בגן עדן, בגיהנום ובממלכה האפלה | Free Book
-date: 2024-10-24 14:21:48
-updated: 2024-10-26 11:47:27
+date: 2024-10-25T00:22:40.742Z
+updated: 2024-10-26T17:18:37.613Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f24f1a74493ac58de901a4fd6405471628162f3fd09c0381cd7e29cae20fdc0f.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f24f1a74493ac58de901a4fd6405471
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

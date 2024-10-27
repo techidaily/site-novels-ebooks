@@ -1,7 +1,7 @@
 ---
 title: God Image Handbook for Spiritual Counseling and Psychotherapy | Free Book
-date: 2024-10-24 21:16:10
-updated: 2024-10-26 12:14:20
+date: 2024-10-19T22:17:43.055Z
+updated: 2024-10-27T05:13:52.388Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b96ac7f3b6d570d4dd59628f0cb92485dcb2ed5f34e095325c72da35880660e.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b96ac7f3b6d570d4dd59628f0cb924
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Technique for Meditation | Free Book
-date: 2024-10-24 11:25:46
-updated: 2024-10-26 10:28:51
+date: 2024-10-20T04:10:38.712Z
+updated: 2024-10-26T22:18:13.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ccdf2a5a00528f88004b79c66d4bba60475e308784a41513695fca7690d75c9.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ccdf2a5a00528f88004b79c66d4bba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

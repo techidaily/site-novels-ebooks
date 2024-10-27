@@ -1,7 +1,7 @@
 ---
 title: Lessons from the Afterlife | Free Book
-date: 2024-10-24 14:11:19
-updated: 2024-10-26 12:58:57
+date: 2024-10-20T19:49:04.329Z
+updated: 2024-10-27T01:27:32.545Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/425be91b1e4db7855f9603e8926b405116e53e665cc767eb397114d7217c0b7c.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/425be91b1e4db7855f9603e8926b405
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

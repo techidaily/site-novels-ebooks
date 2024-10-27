@@ -1,7 +1,7 @@
 ---
 title: The Story of Woman The Mountain | Free Book
-date: 2024-10-24 15:38:34
-updated: 2024-10-26 10:25:55
+date: 2024-10-22T01:17:50.839Z
+updated: 2024-10-27T02:24:12.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/68a728593b06660adfc341cedff8ee744f4b25675660c2f3ea140d3bf232269d.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/68a728593b06660adfc341cedff8ee7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Astrology: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-23 11:36:10
-updated: 2024-10-26 11:16:23
+date: 2024-10-22T03:38:30.138Z
+updated: 2024-10-26T22:57:22.294Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3d179da90306221f0daec1d3697b783b5f78a81422206bbfc6a91dd4cf75b70.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3d179da90306221f0daec1d3697b78
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Recollections of a Future Ghost | Free Book
-date: 2024-10-25 15:22:58
-updated: 2024-10-26 10:21:19
+date: 2024-10-22T03:12:22.176Z
+updated: 2024-10-26T20:23:00.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6317da1474f0e393b8d5b96f2256973e3b4eb885574357b91852057e7dd0a7b1.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6317da1474f0e393b8d5b96f2256973
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

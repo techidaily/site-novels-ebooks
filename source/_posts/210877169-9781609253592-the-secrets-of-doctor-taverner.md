@@ -1,7 +1,7 @@
 ---
 title: The Secrets of Doctor Taverner | Free Book
-date: 2024-10-25 21:26:37
-updated: 2024-10-26 12:44:29
+date: 2024-10-25T23:00:43.526Z
+updated: 2024-10-27T05:39:27.393Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6f60d7c5ebd1b45286eac4340eca071c071c19f6a1cd3e13a5068c54569f7560.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6f60d7c5ebd1b45286eac4340eca071
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

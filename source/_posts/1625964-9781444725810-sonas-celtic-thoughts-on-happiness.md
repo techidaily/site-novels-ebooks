@@ -1,7 +1,7 @@
 ---
 title: "Sonas: Celtic Thoughts on Happiness | Free Book"
-date: 2024-10-25 14:49:21
-updated: 2024-10-26 11:27:12
+date: 2024-10-22T16:04:18.090Z
+updated: 2024-10-26T16:52:27.478Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8847a4690c2ed6bf49f88b919958119dd8077c5906171b865f1c750064543a8.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8847a4690c2ed6bf49f88b91995811
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

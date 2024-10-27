@@ -1,7 +1,7 @@
 ---
 title: The Medium, the Mystic, and the Physicist | Free Book
-date: 2024-10-23 18:27:59
-updated: 2024-10-26 12:57:40
+date: 2024-10-22T03:38:28.839Z
+updated: 2024-10-27T03:20:12.734Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4595b26e24f0f3065fbbce0e197f9508003dfbe5151c9223b9962d822a4d6100.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4595b26e24f0f3065fbbce0e197f950
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

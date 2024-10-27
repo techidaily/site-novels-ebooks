@@ -1,7 +1,7 @@
 ---
 title: Seasonal Self-Care Rituals | Free Book
-date: 2024-10-23 12:57:29
-updated: 2024-10-26 11:20:57
+date: 2024-10-22T01:43:28.194Z
+updated: 2024-10-27T02:22:38.003Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/faf9888508c73324f1dfcfad69d2f27b53037971db64414f4ce31d08f061272b.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/faf9888508c73324f1dfcfad69d2f27
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

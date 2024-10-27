@@ -1,7 +1,7 @@
 ---
 title: Introducción a la astrología | Free Book
-date: 2024-10-24 16:29:16
-updated: 2024-10-26 12:47:50
+date: 2024-10-21T05:22:10.893Z
+updated: 2024-10-26T16:07:48.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21843ca6a2f0fd767e05c0f1e7c0942c39a66e6de4ccd1313f83324fbc2addcc.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21843ca6a2f0fd767e05c0f1e7c0942
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

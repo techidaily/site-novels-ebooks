@@ -1,7 +1,7 @@
 ---
 title: The Girl with the Faraway Eyes | Free Book
-date: 2024-10-23 19:19:11
-updated: 2024-10-26 10:19:36
+date: 2024-10-21T21:28:29.362Z
+updated: 2024-10-26T23:55:55.241Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f2c9e6f550b9f9936e1c67d3e66c0df5f7abac7096c05c64d1fd1be2ca48abf.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f2c9e6f550b9f9936e1c67d3e66c0d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

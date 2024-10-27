@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories and Legends of Prince Edward Island (2nd ed.) | Free Book
-date: 2024-10-23 14:35:39
-updated: 2024-10-26 10:25:51
+date: 2024-10-20T16:07:58.030Z
+updated: 2024-10-26T23:39:00.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf7e860da7a43d1e0258b6c9dfe017aa63494a825dc81a523a08fad48fe85c70.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf7e860da7a43d1e0258b6c9dfe017a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

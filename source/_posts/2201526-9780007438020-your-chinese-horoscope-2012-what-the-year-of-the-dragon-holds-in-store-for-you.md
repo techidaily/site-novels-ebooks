@@ -1,7 +1,7 @@
 ---
 title: "Your Chinese Horoscope 2012: What the year of the dragon holds in store for you | Free Book"
-date: 2024-10-24 15:19:38
-updated: 2024-10-26 10:45:45
+date: 2024-10-23T22:59:14.535Z
+updated: 2024-10-27T05:36:10.942Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3dadcfc78e00c071ecc6ab8b9504de5c596d440526233230034206f1c4eb7cb.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3dadcfc78e00c071ecc6ab8b9504de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

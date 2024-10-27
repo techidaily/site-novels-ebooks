@@ -1,7 +1,7 @@
 ---
 title: "Karmic Relationships: Volume 8 | Free Book"
-date: 2024-10-24 22:54:39
-updated: 2024-10-26 12:53:18
+date: 2024-10-20T20:36:01.533Z
+updated: 2024-10-27T03:04:58.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9828f84173026ae723edf58941eca6c57ce13f65ed10e71702bd39ae9ac7fc9.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9828f84173026ae723edf58941eca6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

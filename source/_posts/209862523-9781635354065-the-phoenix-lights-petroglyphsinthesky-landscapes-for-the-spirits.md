@@ -1,7 +1,7 @@
 ---
 title: The Phoenix Lights- Petroglyphsinthesky (Landscapes for the Spirits) | Free Book
-date: 2024-10-25 20:53:27
-updated: 2024-10-26 11:36:54
+date: 2024-10-20T23:59:42.178Z
+updated: 2024-10-27T03:49:34.600Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0c2b9aa8d45c6f5b2b34a61118383c16dc018806cc9bce71a1facad423177ef.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0c2b9aa8d45c6f5b2b34a61118383c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

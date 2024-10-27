@@ -1,7 +1,7 @@
 ---
 title: The Synchronicity Journal | Free Book
-date: 2024-10-24 14:30:57
-updated: 2024-10-26 11:21:13
+date: 2024-10-24T21:59:51.863Z
+updated: 2024-10-26T16:45:14.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03131a87238f061bfcf8f706c9b088ede61e80c0bb76715e9b68175e0544afad.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03131a87238f061bfcf8f706c9b088e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

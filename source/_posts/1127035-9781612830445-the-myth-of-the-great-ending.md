@@ -1,7 +1,7 @@
 ---
 title: The Myth of the Great Ending | Free Book
-date: 2024-10-25 20:44:31
-updated: 2024-10-26 10:18:30
+date: 2024-10-25T03:54:45.029Z
+updated: 2024-10-26T22:15:34.057Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4eb5396b1beea1a08ac2032e3fdc988233985d1e1d6a89c25a79390c1264abe9.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4eb5396b1beea1a08ac2032e3fdc988
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

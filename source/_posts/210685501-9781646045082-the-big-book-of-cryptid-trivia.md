@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Cryptid Trivia | Free Book
-date: 2024-10-24 10:37:25
-updated: 2024-10-26 10:49:56
+date: 2024-10-25T16:39:51.697Z
+updated: 2024-10-26T22:05:43.333Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b536bf842a3fb7226383becc11541be5dac94556a95623d19e18db2196cc2da.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b536bf842a3fb7226383becc11541b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

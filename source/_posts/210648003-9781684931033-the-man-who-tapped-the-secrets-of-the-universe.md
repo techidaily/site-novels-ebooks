@@ -1,7 +1,7 @@
 ---
 title: The Man Who Tapped the Secrets of the Universe | Free Book
-date: 2024-10-24 18:13:59
-updated: 2024-10-26 10:56:56
+date: 2024-10-23T00:09:55.413Z
+updated: 2024-10-26T16:41:19.596Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9351434613318fba54427419648619ffb1d1e4261de518b95e537620f4a3956.jpg
@@ -211,3 +211,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9351434613318fba54427419648619
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

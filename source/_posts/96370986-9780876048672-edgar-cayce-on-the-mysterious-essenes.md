@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Mysterious Essenes | Free Book
-date: 2024-10-23 13:57:51
-updated: 2024-10-26 10:35:58
+date: 2024-10-19T21:46:18.074Z
+updated: 2024-10-27T03:42:51.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1682a8a7aa5bc6a00a5d4d4f134ff00a15.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

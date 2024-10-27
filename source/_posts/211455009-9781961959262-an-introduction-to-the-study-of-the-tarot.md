@@ -1,7 +1,7 @@
 ---
 title: An Introduction to the Study of The Tarot | Free Book
-date: 2024-10-23 17:34:59
-updated: 2024-10-26 12:51:55
+date: 2024-10-23T19:31:43.884Z
+updated: 2024-10-26T23:35:17.318Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a55e77352b38e9a8e00e1fd7c3d8d109d8607d83c0a323dd83989c92407d8bc2.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a55e77352b38e9a8e00e1fd7c3d8d10
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

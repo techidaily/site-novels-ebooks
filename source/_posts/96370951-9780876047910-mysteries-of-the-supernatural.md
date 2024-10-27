@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Supernatural | Free Book
-date: 2024-10-25 17:13:38
-updated: 2024-10-26 11:53:41
+date: 2024-10-20T21:39:02.604Z
+updated: 2024-10-26T23:47:23.936Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566938aa6bc3f19a4f2c2da321ce85b9b240.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

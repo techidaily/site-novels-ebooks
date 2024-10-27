@@ -1,7 +1,7 @@
 ---
 title: "Libra 2013: Your Personal Horoscope | Free Book"
-date: 2024-10-23 15:50:29
-updated: 2024-10-26 10:30:39
+date: 2024-10-20T21:24:38.612Z
+updated: 2024-10-26T18:46:41.652Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cda656f1afae374900f581492ea42a15022b929913df0bd4fdd7e5f4d6e5f564.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cda656f1afae374900f581492ea42a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

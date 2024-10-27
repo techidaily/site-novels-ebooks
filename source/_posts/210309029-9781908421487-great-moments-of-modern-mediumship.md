@@ -1,7 +1,7 @@
 ---
 title: Great Moments of Modern Mediumship | Free Book
-date: 2024-10-25 19:18:48
-updated: 2024-10-26 12:50:39
+date: 2024-10-24T22:12:11.311Z
+updated: 2024-10-27T02:46:28.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4dde813e252e8b0d7f31fd9cbb22d5b2b86cda1bd2f0ecabd8c06baee2e3aeb3.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4dde813e252e8b0d7f31fd9cbb22d5b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Practical School of the Holy Spirit - Part 5 of 8 - Activate 12 Ministry Gifts in You | Free Book
-date: 2024-10-25 12:39:33
-updated: 2024-10-26 10:56:28
+date: 2024-10-19T18:42:13.418Z
+updated: 2024-10-27T05:59:20.359Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c03c6065102897a38c3ad5ce65c910aad5735e33fc9c56979e124a7f71630475.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c03c6065102897a38c3ad5ce65c910a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

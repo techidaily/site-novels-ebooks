@@ -1,7 +1,7 @@
 ---
 title: Third Eye Awakening, Kundalini For Beginners&amp; Energy Healing (4 in 1) | Free Book
-date: 2024-10-25 14:21:54
-updated: 2024-10-26 10:48:46
+date: 2024-10-25T05:59:16.072Z
+updated: 2024-10-26T18:13:49.401Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b63134df3a73b0872dd9eba92aa91403272a9a81c50331c8e3180c5863f54495.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b63134df3a73b0872dd9eba92aa9140
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

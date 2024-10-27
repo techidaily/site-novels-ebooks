@@ -1,7 +1,7 @@
 ---
 title: "Vibrational Healing: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-23 12:58:21
-updated: 2024-10-26 10:47:39
+date: 2024-10-23T00:48:30.450Z
+updated: 2024-10-26T20:08:10.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b72da450efb4f7b48cafa952ae243dc2ec4bb88d14ab4eb653da5c60d25453a3.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b72da450efb4f7b48cafa952ae243dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

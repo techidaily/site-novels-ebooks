@@ -1,7 +1,7 @@
 ---
 title: Journeys to the Mythical Past (2nd ed.) | Free Book
-date: 2024-10-23 21:47:51
-updated: 2024-10-26 11:58:10
+date: 2024-10-20T02:53:26.040Z
+updated: 2024-10-27T02:02:58.860Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d985aabf13c312282a203fe73c6a7abdc6471ec4b04ebcfdb368b32c37a649ce.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d985aabf13c312282a203fe73c6a7ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

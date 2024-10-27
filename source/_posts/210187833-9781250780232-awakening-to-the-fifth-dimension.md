@@ -1,7 +1,7 @@
 ---
 title: Awakening to the Fifth Dimension | Free Book
-date: 2024-10-25 12:43:35
-updated: 2024-10-26 12:25:54
+date: 2024-10-25T21:22:59.139Z
+updated: 2024-10-27T00:18:51.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8b428fec36aa559bd0442d5136e9cbf235678d243c1b52f5e359b28232fc695.jpg
@@ -370,3 +370,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8b428fec36aa559bd0442d5136e9cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

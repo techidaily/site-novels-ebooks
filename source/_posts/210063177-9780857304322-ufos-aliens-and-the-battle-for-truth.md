@@ -1,7 +1,7 @@
 ---
 title: UFOs, Aliens and the Battle for Truth | Free Book
-date: 2024-10-23 22:38:29
-updated: 2024-10-26 10:36:42
+date: 2024-10-22T00:12:52.543Z
+updated: 2024-10-27T05:08:00.409Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88fb50c9042f3b05d3c822edb80f45f25605971011c44af2b6e9b27997792728.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88fb50c9042f3b05d3c822edb80f45f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

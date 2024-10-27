@@ -1,7 +1,7 @@
 ---
 title: Scott Cunningham—The Path Taken | Free Book
-date: 2024-10-23 15:14:31
-updated: 2024-10-26 11:58:49
+date: 2024-10-19T20:34:20.463Z
+updated: 2024-10-27T02:39:28.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/620d4fa1aad19404cf3fc032c9e25b46b55b8ce270b24db74e00d70c14dae71b.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/620d4fa1aad19404cf3fc032c9e25b4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

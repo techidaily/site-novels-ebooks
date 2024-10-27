@@ -1,7 +1,7 @@
 ---
 title: Monsters of Pennsylvania | Free Book
-date: 2024-10-25 22:36:42
-updated: 2024-10-26 11:29:10
+date: 2024-10-24T22:48:30.983Z
+updated: 2024-10-26T17:43:42.821Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a9f3e4b7959f379e54bd0dfc718477acfc52a8dc4a16f639d510754ae723d708.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a9f3e4b7959f379e54bd0dfc718477a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

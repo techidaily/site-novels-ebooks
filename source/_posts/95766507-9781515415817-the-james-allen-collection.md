@@ -1,7 +1,7 @@
 ---
 title: The James Allen Collection | Free Book
-date: 2024-10-23 20:35:21
-updated: 2024-10-26 11:22:25
+date: 2024-10-22T03:21:38.257Z
+updated: 2024-10-26T23:52:13.686Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e223d0b046cad8fd848c6d69fa4462cd2151e0c95ae751b6107c667db892472a.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e223d0b046cad8fd848c6d69fa4462c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

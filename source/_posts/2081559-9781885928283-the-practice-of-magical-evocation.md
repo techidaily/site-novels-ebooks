@@ -1,7 +1,7 @@
 ---
 title: The Practice of Magical Evocation | Free Book
-date: 2024-10-25 22:31:29
-updated: 2024-10-26 12:19:10
+date: 2024-10-24T05:40:51.081Z
+updated: 2024-10-27T00:29:31.156Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de5622a8ebfa92d30bec10bbd54445200aa9124a0c111bc357e2125166745184.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de5622a8ebfa92d30bec10bbd544452
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

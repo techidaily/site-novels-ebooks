@@ -1,7 +1,7 @@
 ---
 title: The Ascension Mysteries | Free Book
-date: 2024-10-24 15:50:13
-updated: 2024-10-26 11:22:21
+date: 2024-10-26T05:21:49.355Z
+updated: 2024-10-26T22:55:25.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d562e889c49ae6968d1f1f1a4f35bb15803886645c482cf4feacb5af1c50ae69.jpg
@@ -202,3 +202,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d562e889c49ae6968d1f1f1a4f35bb1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

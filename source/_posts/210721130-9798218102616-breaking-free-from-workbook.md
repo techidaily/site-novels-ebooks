@@ -1,7 +1,7 @@
 ---
 title: Breaking Free From... Workbook | Free Book
-date: 2024-10-24 20:21:44
-updated: 2024-10-26 11:19:27
+date: 2024-10-23T00:54:25.067Z
+updated: 2024-10-26T21:59:33.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/008c3b3704aa134473f48a5cbe0b7161cba88a0714693c35b696990a8c91cd7c.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/008c3b3704aa134473f48a5cbe0b716
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

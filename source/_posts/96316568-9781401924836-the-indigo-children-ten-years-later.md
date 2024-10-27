@@ -1,7 +1,7 @@
 ---
 title: The Indigo Children Ten Years Later | Free Book
-date: 2024-10-25 10:10:41
-updated: 2024-10-26 11:10:50
+date: 2024-10-26T00:22:59.241Z
+updated: 2024-10-27T01:01:11.300Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3c23b4ba8662a79ef61a6dada0d0dcff521bf07ca5632f3f2e8d24c2bd87cf3.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3c23b4ba8662a79ef61a6dada0d0dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Prophesying to Awaken the Spirit to Purpose | Free Book
-date: 2024-10-23 14:13:20
-updated: 2024-10-26 12:34:34
+date: 2024-10-21T19:21:15.028Z
+updated: 2024-10-26T16:00:19.307Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18f959dd8a010641fb36cdf2e28bc79121cc9b54ec9e994d7be6e3b0ff50784.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18f959dd8a010641fb36cdf2e28bc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

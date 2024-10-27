@@ -1,7 +1,7 @@
 ---
 title: Tarot Pairings between Major and Minor Arcana | Free Book
-date: 2024-10-23 17:40:27
-updated: 2024-10-26 12:12:33
+date: 2024-10-26T02:39:12.285Z
+updated: 2024-10-26T17:22:22.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75c66a481a99e79d3072b77d5342c050eaa503acf1e221591b061206266109a5.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75c66a481a99e79d3072b77d5342c05
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mysteries of Templar Treasure & the Holy Grail | Free Book
-date: 2024-10-24 10:44:23
-updated: 2024-10-26 12:27:46
+date: 2024-10-20T05:51:32.532Z
+updated: 2024-10-26T16:24:52.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45fb14638b52e7bc86d975505edb8945473c42572d5eef704bc85a925ae7f1c9.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45fb14638b52e7bc86d975505edb894
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

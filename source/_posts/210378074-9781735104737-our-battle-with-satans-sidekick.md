@@ -1,7 +1,7 @@
 ---
 title: Our Battle With Satan's Sidekick | Free Book
-date: 2024-10-25 18:13:50
-updated: 2024-10-26 11:36:55
+date: 2024-10-20T18:04:08.836Z
+updated: 2024-10-26T20:33:55.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e88137924609070f1b8cad7973e98aa9b68ff4597c9198a1008c764346a0696.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e88137924609070f1b8cad7973e98a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

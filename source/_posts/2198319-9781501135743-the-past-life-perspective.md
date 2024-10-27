@@ -1,7 +1,7 @@
 ---
 title: The Past Life Perspective | Free Book
-date: 2024-10-25 18:14:36
-updated: 2024-10-26 10:20:15
+date: 2024-10-21T22:22:18.511Z
+updated: 2024-10-26T23:08:41.181Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/477cd3d43b8df3f1a3e73eef8baf3d27c7a10852ced30490d6a9d8e3e986f631.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/477cd3d43b8df3f1a3e73eef8baf3d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

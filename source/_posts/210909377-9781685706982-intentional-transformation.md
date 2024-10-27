@@ -1,7 +1,7 @@
 ---
 title: Intentional Transformation | Free Book
-date: 2024-10-25 18:43:44
-updated: 2024-10-26 12:26:56
+date: 2024-10-21T04:38:55.153Z
+updated: 2024-10-26T21:32:14.144Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d5ee70f18d4b86eb1ad907e8309635b4bc6fe974c18c3d3b162291a293bf6566.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d5ee70f18d4b86eb1ad907e8309635b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

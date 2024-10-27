@@ -1,7 +1,7 @@
 ---
 title: Postmortem Life Continuation and Compelling Evidence | Free Book
-date: 2024-10-24 22:43:18
-updated: 2024-10-26 11:26:45
+date: 2024-10-22T02:06:21.706Z
+updated: 2024-10-26T17:09:38.343Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db313a8665a2d2c77b6ecbc2b57582e2cadf4a101b669b657908a1a87685ebd7.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db313a8665a2d2c77b6ecbc2b57582e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

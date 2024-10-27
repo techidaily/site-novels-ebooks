@@ -1,7 +1,7 @@
 ---
 title: "Yoga para principiantes: Yoga Mágico - Las mejores posturas de yoga suave | Free Book"
-date: 2024-10-24 16:33:29
-updated: 2024-10-26 12:17:21
+date: 2024-10-20T22:27:02.509Z
+updated: 2024-10-27T06:02:05.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a2da4ff0cdb70e9c23670dbcc14270982b03b4c480d32deae9f9234b858f2225.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a2da4ff0cdb70e9c23670dbcc142709
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

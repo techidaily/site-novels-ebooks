@@ -1,7 +1,7 @@
 ---
 title: Hurry Up and Meditate | Free Book
-date: 2024-10-23 12:51:47
-updated: 2024-10-26 12:47:39
+date: 2024-10-23T17:10:09.341Z
+updated: 2024-10-26T20:48:28.732Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/474f436a36bf156a0b9259341af8d46c1d5e82fa2f69a0b7606cce8daa473846.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/474f436a36bf156a0b9259341af8d46
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

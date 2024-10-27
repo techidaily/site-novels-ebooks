@@ -1,7 +1,7 @@
 ---
 title: The Universe in Black and White | Free Book
-date: 2024-10-24 20:49:34
-updated: 2024-10-26 11:21:12
+date: 2024-10-23T04:35:45.399Z
+updated: 2024-10-26T18:09:06.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03947c3c82e7232a4e08c450a78d71b978cd86c3fa634ba93c1a229348f8b948.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03947c3c82e7232a4e08c450a78d71b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

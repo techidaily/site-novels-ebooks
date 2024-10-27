@@ -1,7 +1,7 @@
 ---
 title: The Teachings of the Nephalim | Free Book
-date: 2024-10-25 12:16:24
-updated: 2024-10-26 10:25:52
+date: 2024-10-26T03:45:19.935Z
+updated: 2024-10-26T23:21:06.137Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df5e64c618161dd1433ee77b2fef1444e9bf39400110257a567936949f31296b.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df5e64c618161dd1433ee77b2fef144
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Guía De Atención Plena Para Eliminar El Estrés, La Ansiedad Y La Depresión | Free Book"
-date: 2024-10-24 16:53:24
-updated: 2024-10-26 12:13:15
+date: 2024-10-20T02:37:01.913Z
+updated: 2024-10-27T03:45:25.856Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85b849f5a04aff50dd670fcbbd86b92d690a90723310502c7e07f556f32e6c96.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85b849f5a04aff50dd670fcbbd86b92
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

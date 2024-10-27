@@ -1,7 +1,7 @@
 ---
 title: Modern Buddhist Healing | Free Book
-date: 2024-10-24 21:17:22
-updated: 2024-10-26 10:35:16
+date: 2024-10-23T23:32:00.600Z
+updated: 2024-10-27T05:24:36.855Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/972bf5e2ed8ddf5ec4840528c197274db823a66770fe55aca107349c4070e906.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/972bf5e2ed8ddf5ec4840528c197274
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

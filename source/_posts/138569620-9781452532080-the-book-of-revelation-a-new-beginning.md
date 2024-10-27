@@ -1,7 +1,7 @@
 ---
 title: "The Book of Revelation: a New Beginning | Free Book"
-date: 2024-10-25 22:22:45
-updated: 2024-10-26 11:33:46
+date: 2024-10-24T23:46:14.805Z
+updated: 2024-10-26T21:46:16.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8ce23daac066bbfa29ef1f313efce7b13bc5bdb932fe426d7d564cab56226e4.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8ce23daac066bbfa29ef1f313efce7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Taiji As Moving Meditation | Free Book
-date: 2024-10-23 18:10:13
-updated: 2024-10-26 10:54:31
+date: 2024-10-23T19:53:09.277Z
+updated: 2024-10-26T18:22:21.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5fb8bbb79d3cd9ba163510e981799321b40c7eea93950b1034c483a79bc20fa7.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5fb8bbb79d3cd9ba163510e98179932
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

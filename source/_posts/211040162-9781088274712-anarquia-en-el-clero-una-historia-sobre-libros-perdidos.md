@@ -1,7 +1,7 @@
 ---
 title: ANARQUÍA EN EL CLERO - UNA HISTORIA SOBRE LIBROS PERDIDOS | Free Book
-date: 2024-10-24 17:49:43
-updated: 2024-10-26 10:29:23
+date: 2024-10-20T22:32:54.718Z
+updated: 2024-10-27T05:37:40.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f9c04e0dad6817cbc04177ce1caaed006365cd670a5a06c9f5c2a059edab2d2.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f9c04e0dad6817cbc04177ce1caaed
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

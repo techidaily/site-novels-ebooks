@@ -1,7 +1,7 @@
 ---
 title: "Manifest Your Dreams: Rituals and Practices for Living Your Best Life | Free Book"
-date: 2024-10-25 12:58:21
-updated: 2024-10-26 10:42:59
+date: 2024-10-24T22:36:08.529Z
+updated: 2024-10-27T01:11:56.870Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22c29e64a7d6eddef32e769597fd6b9307b6f044e2b3faf62d6ee78af8ca39cb.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22c29e64a7d6eddef32e769597fd6b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

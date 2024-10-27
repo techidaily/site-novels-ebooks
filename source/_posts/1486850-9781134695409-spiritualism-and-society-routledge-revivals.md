@@ -1,7 +1,7 @@
 ---
 title: Spiritualism and Society (Routledge Revivals) | Free Book
-date: 2024-10-23 19:48:24
-updated: 2024-10-26 10:54:28
+date: 2024-10-20T22:55:57.315Z
+updated: 2024-10-26T20:23:21.632Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea47d5c96d4898ec48f2e9620c390ee41758dd172f019f65a7b5363bbda551b9.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea47d5c96d4898ec48f2e9620c390ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

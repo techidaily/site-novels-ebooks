@@ -1,7 +1,7 @@
 ---
 title: Everything You Wanted to Know about the Afterlife but Were Afraid to Ask | Free Book
-date: 2024-10-25 22:57:30
-updated: 2024-10-26 11:39:50
+date: 2024-10-22T22:59:53.932Z
+updated: 2024-10-26T18:54:27.060Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/55b20b98b6473f99c04f5d184a4fd0d53ef91d7324ff1587577a123de7b41755.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/55b20b98b6473f99c04f5d184a4fd0d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

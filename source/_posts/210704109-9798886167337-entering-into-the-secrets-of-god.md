@@ -1,7 +1,7 @@
 ---
 title: ENTERING INTO THE SECRETS OF GOD | Free Book
-date: 2024-10-25 12:49:18
-updated: 2024-10-26 10:58:48
+date: 2024-10-24T03:57:39.612Z
+updated: 2024-10-26T17:02:15.167Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1dbc4be6bf203c1bbb43fba71e1dd8e9493d9505d1269a6d2897ac4112978fea.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1dbc4be6bf203c1bbb43fba71e1dd8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

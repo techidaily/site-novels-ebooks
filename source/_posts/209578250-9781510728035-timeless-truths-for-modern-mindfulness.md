@@ -1,7 +1,7 @@
 ---
 title: Timeless Truths for Modern Mindfulness | Free Book
-date: 2024-10-25 17:30:50
-updated: 2024-10-26 11:58:31
+date: 2024-10-25T03:15:00.064Z
+updated: 2024-10-26T22:56:31.188Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/399ca55a37404eb89e2e3e1b45b09aac3fb8c2935bd35be349ce2d50f7684ce9.jpg
@@ -237,3 +237,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/399ca55a37404eb89e2e3e1b45b09aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

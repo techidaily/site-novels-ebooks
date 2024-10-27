@@ -1,7 +1,7 @@
 ---
 title: Reincarnation and the Law of Karma | Free Book
-date: 2024-10-25 16:17:46
-updated: 2024-10-26 12:25:27
+date: 2024-10-20T01:07:51.466Z
+updated: 2024-10-27T00:07:59.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca8a089431fc266b62a592f91b46ab0b6c0fa5e286552a6ae6718fb3dfc8ec9d.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca8a089431fc266b62a592f91b46ab0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

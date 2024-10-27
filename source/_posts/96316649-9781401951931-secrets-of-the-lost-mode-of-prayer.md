@@ -1,7 +1,7 @@
 ---
 title: Secrets of the Lost Mode of Prayer | Free Book
-date: 2024-10-25 10:58:27
-updated: 2024-10-26 10:51:51
+date: 2024-10-24T00:40:36.539Z
+updated: 2024-10-27T00:37:22.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d6059e0c198d3fd65f7e47374576dba7c51edfe5a8b7c20f1645686ed02d288.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d6059e0c198d3fd65f7e47374576db
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Be Good to People Be Good to Yourself | Free Book
-date: 2024-10-23 20:37:34
-updated: 2024-10-26 12:49:50
+date: 2024-10-20T23:46:07.038Z
+updated: 2024-10-26T16:20:48.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/87f8b29684ddee520494227fda6e9c1ed851165ba01763a28518a993f47d68ec.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/87f8b29684ddee520494227fda6e9c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

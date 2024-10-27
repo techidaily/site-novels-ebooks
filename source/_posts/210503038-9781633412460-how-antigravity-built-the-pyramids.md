@@ -1,7 +1,7 @@
 ---
 title: How Antigravity Built the Pyramids | Free Book
-date: 2024-10-23 17:41:58
-updated: 2024-10-26 11:21:11
+date: 2024-10-25T17:14:50.498Z
+updated: 2024-10-27T00:27:26.939Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4b452725187cfd52ba057717017a3c495b9df9af020ea347871c3fe89ff9937e.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4b452725187cfd52ba057717017a3c4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

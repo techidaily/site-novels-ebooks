@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Bible Verses | Free Book
-date: 2024-10-24 15:22:55
-updated: 2024-10-26 11:48:21
+date: 2024-10-23T00:40:31.626Z
+updated: 2024-10-26T19:08:44.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5dd54b82ada95e71bdcb32b1b90c23f79f9007461c1471393cb05922beac0896.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5dd54b82ada95e71bdcb32b1b90c23f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

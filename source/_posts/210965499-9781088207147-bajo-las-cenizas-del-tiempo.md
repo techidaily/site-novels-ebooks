@@ -1,7 +1,7 @@
 ---
 title: Bajo las Cenizas del Tiempo | Free Book
-date: 2024-10-25 11:19:35
-updated: 2024-10-26 12:51:48
+date: 2024-10-24T20:28:17.167Z
+updated: 2024-10-26T17:34:30.778Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ffcae79be8db9a0d0535f5fb37c66a5a49e22e2830fa0a47ea18e59c6dd7099a.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ffcae79be8db9a0d0535f5fb37c66a5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

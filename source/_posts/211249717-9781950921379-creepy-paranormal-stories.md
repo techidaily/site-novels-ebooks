@@ -1,7 +1,7 @@
 ---
 title: Creepy Paranormal Stories | Free Book
-date: 2024-10-23 19:20:15
-updated: 2024-10-26 11:47:34
+date: 2024-10-21T21:47:30.608Z
+updated: 2024-10-27T03:24:52.828Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21c5d69c391114fa78227588e0cfa20d0a8bf35cb277a9be71a6399fbb7a6711.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21c5d69c391114fa78227588e0cfa20
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Wealth | Free Book
-date: 2024-10-24 21:15:52
-updated: 2024-10-26 12:18:34
+date: 2024-10-22T17:53:57.811Z
+updated: 2024-10-27T05:56:28.877Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/24c42bf3ac7a38598d756774725369d8518c7e4c46c775e8bddbed63c40d98f8.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/24c42bf3ac7a38598d756774725369d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

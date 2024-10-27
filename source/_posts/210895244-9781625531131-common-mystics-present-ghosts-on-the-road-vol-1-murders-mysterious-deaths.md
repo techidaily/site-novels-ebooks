@@ -1,7 +1,7 @@
 ---
 title: Common Mystics Present Ghosts on the Road Vol. 1 Murders & Mysterious Deaths | Free Book
-date: 2024-10-25 12:11:55
-updated: 2024-10-26 11:50:27
+date: 2024-10-20T17:49:38.314Z
+updated: 2024-10-27T02:00:24.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f54be1e229aef5e17224b77450bf624595fc8e0bba1781a2d458b82ceb2054a.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f54be1e229aef5e17224b77450bf62
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

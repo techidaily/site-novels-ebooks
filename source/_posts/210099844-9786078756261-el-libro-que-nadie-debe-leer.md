@@ -1,7 +1,7 @@
 ---
 title: El Libro que nadie debe leer | Free Book
-date: 2024-10-25 21:50:57
-updated: 2024-10-26 11:16:42
+date: 2024-10-24T02:25:16.209Z
+updated: 2024-10-26T23:35:11.814Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8cb18e16912624b0332142c574c75a4759ab8322b4a641dcad1e8190cde9755.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8cb18e16912624b0332142c574c75a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

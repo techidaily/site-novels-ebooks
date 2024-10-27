@@ -1,7 +1,7 @@
 ---
 title: 法輪功的正念實踐 Mindful Practice of Falun Gong (Chinese Edition) | Free Book
-date: 2024-10-23 11:10:24
-updated: 2024-10-26 11:21:37
+date: 2024-10-24T16:06:28.019Z
+updated: 2024-10-27T05:46:32.400Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22e946973a8a0d7b3dc99c86aa5a8f74293ccd2fafba69ec6c9b6e4784aec7bb.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22e946973a8a0d7b3dc99c86aa5a8f7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

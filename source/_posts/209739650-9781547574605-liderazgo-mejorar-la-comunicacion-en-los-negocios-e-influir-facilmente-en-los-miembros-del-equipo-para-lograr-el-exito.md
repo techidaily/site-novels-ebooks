@@ -1,7 +1,7 @@
 ---
 title: "Liderazgo : Mejorar La Comunicación En Los Negocios E Influir Fácilmente En Los Miembros Del Equipo Para Lograr El Éxito | Free Book"
-date: 2024-10-24 13:39:25
-updated: 2024-10-26 12:11:25
+date: 2024-10-22T18:08:47.562Z
+updated: 2024-10-27T00:00:19.502Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb98a668c54dfc73288615f14649fb496a0b9cd4eb3c91c39c6e0ebc306f9042.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb98a668c54dfc73288615f14649fb4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Beyond the Miracle, Beyond the Grave | Free Book
-date: 2024-10-23 13:59:25
-updated: 2024-10-26 12:35:34
+date: 2024-10-24T02:36:00.158Z
+updated: 2024-10-26T19:10:21.837Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c7b57b1584ed162ce75abcb35a9a62e8d5b4a00a834828fc52fbe5d16f782d1f.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c7b57b1584ed162ce75abcb35a9a62e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

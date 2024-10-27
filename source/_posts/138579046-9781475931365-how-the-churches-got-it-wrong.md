@@ -1,7 +1,7 @@
 ---
 title: How the Churches Got It Wrong | Free Book
-date: 2024-10-24 11:29:32
-updated: 2024-10-26 10:55:36
+date: 2024-10-23T22:32:21.876Z
+updated: 2024-10-26T19:47:07.366Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de330ddb6f42d11442aabf62df8f7d566a9ad55cfe4a00850d3e79405550a289.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de330ddb6f42d11442aabf62df8f7d5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

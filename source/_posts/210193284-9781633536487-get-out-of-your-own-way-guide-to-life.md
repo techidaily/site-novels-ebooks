@@ -1,7 +1,7 @@
 ---
 title: Get Out of Your Own Way Guide to Life | Free Book
-date: 2024-10-23 13:57:23
-updated: 2024-10-26 11:42:11
+date: 2024-10-22T21:59:16.386Z
+updated: 2024-10-26T21:48:16.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc5f591b87eded9420e9a038e4852a8f340eee1f2050f219c37cd483bb9fb9da.jpg
@@ -228,3 +228,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc5f591b87eded9420e9a038e4852a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

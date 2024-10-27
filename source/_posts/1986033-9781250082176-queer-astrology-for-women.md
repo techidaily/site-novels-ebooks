@@ -1,7 +1,7 @@
 ---
 title: Queer Astrology for Women | Free Book
-date: 2024-10-25 19:43:42
-updated: 2024-10-26 10:59:38
+date: 2024-10-20T02:11:43.080Z
+updated: 2024-10-26T23:01:15.379Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20eb3a097550b73c01ab6442714d4c501185114b8bfb8ad391ecac3a0945071c.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20eb3a097550b73c01ab6442714d4c5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

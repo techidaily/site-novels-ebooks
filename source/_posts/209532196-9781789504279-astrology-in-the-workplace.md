@@ -1,7 +1,7 @@
 ---
 title: Astrology in the Workplace | Free Book
-date: 2024-10-23 15:44:46
-updated: 2024-10-26 10:57:28
+date: 2024-10-22T02:41:14.244Z
+updated: 2024-10-27T01:37:42.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/05e7dd7703dc17313609a3e0eed0c0b675afb512ccc269400665ad9d77151bea.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/05e7dd7703dc17313609a3e0eed0c0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

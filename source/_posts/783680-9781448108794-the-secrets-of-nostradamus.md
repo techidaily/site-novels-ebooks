@@ -1,7 +1,7 @@
 ---
 title: The Secrets Of Nostradamus | Free Book
-date: 2024-10-23 22:35:33
-updated: 2024-10-26 11:34:32
+date: 2024-10-21T18:48:19.538Z
+updated: 2024-10-27T02:42:11.736Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f81cee71accdc78b55c51030e72069b96d03e0b0a56dde5688ffc9a866d73ff.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f81cee71accdc78b55c51030e72069
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

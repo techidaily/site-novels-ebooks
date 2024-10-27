@@ -1,7 +1,7 @@
 ---
 title: "A World Made New: A Channeled Text | Free Book"
-date: 2024-10-23 21:40:42
-updated: 2024-10-26 12:13:38
+date: 2024-10-20T20:19:36.993Z
+updated: 2024-10-27T01:13:08.796Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd6fe65ec5cc687a983d10ca7f3dc54e97eabcf27f5b7799872903aa21f680d1.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd6fe65ec5cc687a983d10ca7f3dc54
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

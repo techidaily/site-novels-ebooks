@@ -1,7 +1,7 @@
 ---
 title: Guided meditation for Anxiety and Stress relief | Free Book
-date: 2024-10-24 23:20:29
-updated: 2024-10-26 11:25:24
+date: 2024-10-25T19:01:43.044Z
+updated: 2024-10-26T16:11:36.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f3bced1d34141c57411259a22789234a5ce391b56a9851258928ebf90f3ef73.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f3bced1d34141c57411259a2278923
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

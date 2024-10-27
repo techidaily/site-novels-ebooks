@@ -1,7 +1,7 @@
 ---
 title: "La nueva numerología: Guía Práctica. Sabiduría y curiosidades de los números para descubrir su futuro y el de los demas | Free Book"
-date: 2024-10-25 15:38:40
-updated: 2024-10-26 12:17:14
+date: 2024-10-23T18:17:14.972Z
+updated: 2024-10-26T22:54:19.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b02c4c1eded79517c3d1b344337bb842b9e24bf9dde88af878a916e8ea4b5d2d.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b02c4c1eded79517c3d1b344337bb84
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Freemasonry | Free Book
-date: 2024-10-23 12:53:47
-updated: 2024-10-26 12:47:15
+date: 2024-10-24T21:53:40.120Z
+updated: 2024-10-26T22:57:51.687Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/585bd6fcc40968348c8ee78808df46ea547a1991de41e799db5e5f916db754b2.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/585bd6fcc40968348c8ee78808df46e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

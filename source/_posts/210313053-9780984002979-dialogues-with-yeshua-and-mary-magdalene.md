@@ -1,7 +1,7 @@
 ---
 title: Dialogues with Yeshua and Mary Magdalene | Free Book
-date: 2024-10-25 22:21:55
-updated: 2024-10-26 10:50:22
+date: 2024-10-22T21:34:19.619Z
+updated: 2024-10-26T19:17:44.596Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a174c85482ab289026a4a1a21617c5ab6b0b69ff5ce556924c0acc10f1f902d4.jpg
@@ -291,3 +291,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a174c85482ab289026a4a1a21617c5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

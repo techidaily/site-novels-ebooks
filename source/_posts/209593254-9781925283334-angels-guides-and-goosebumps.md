@@ -1,7 +1,7 @@
 ---
 title: "Angels: Guides and Goosebumps | Free Book"
-date: 2024-10-23 14:13:32
-updated: 2024-10-26 10:26:38
+date: 2024-10-23T19:14:32.613Z
+updated: 2024-10-26T18:35:18.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d8f00ef949d5b661aae5e2f1d966ec856c77d673177f3b552a4f699b6e3a707.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d8f00ef949d5b661aae5e2f1d966ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

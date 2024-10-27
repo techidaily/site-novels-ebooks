@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Nevada Ghost Stories | Free Book
-date: 2024-10-25 14:47:38
-updated: 2024-10-26 12:25:27
+date: 2024-10-20T20:31:28.639Z
+updated: 2024-10-26T20:48:29.088Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/050155062a21abc3b0a8388a9545e7e5334cf39023487dfdbda4495e25eb7f4d.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/050155062a21abc3b0a8388a9545e7e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

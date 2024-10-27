@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on Angels and the Angelic Forces | Free Book
-date: 2024-10-25 19:44:41
-updated: 2024-10-26 10:44:34
+date: 2024-10-20T16:11:48.867Z
+updated: 2024-10-27T02:40:31.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fecf4f9cc0e857acf4d82f7b05ab4dddf9b46a2c2196077ff2b98b71051aa148.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fecf4f9cc0e857acf4d82f7b05ab4dd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

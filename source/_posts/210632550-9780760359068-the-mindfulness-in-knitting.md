@@ -1,7 +1,7 @@
 ---
 title: The Mindfulness in Knitting | Free Book
-date: 2024-10-24 11:44:54
-updated: 2024-10-26 12:12:24
+date: 2024-10-24T22:44:07.796Z
+updated: 2024-10-27T03:38:02.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4273aa9bcbf6ec16096025f8d47d2c9775abf2b232ea51d07f05e58b59c22651.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4273aa9bcbf6ec16096025f8d47d2c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

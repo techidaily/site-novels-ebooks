@@ -1,7 +1,7 @@
 ---
 title: "Meditazione: Guida Per Principianti Passo Dopo Passo Alla Consapevolezza E Ad Una Connessione | Free Book"
-date: 2024-10-23 22:30:51
-updated: 2024-10-26 11:15:16
+date: 2024-10-25T02:30:48.447Z
+updated: 2024-10-26T20:38:30.824Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a2684a7c5df277308ef51646e09886a7e58b6422b1e8042e5ff63bd2e468bc69.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a2684a7c5df277308ef51646e09886a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Good Thing About Mortar Shells | Free Book
-date: 2024-10-23 11:45:58
-updated: 2024-10-26 11:24:28
+date: 2024-10-24T02:41:22.266Z
+updated: 2024-10-26T20:29:18.987Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a87cb99ac549369211237aa51770adb5c6f8403383193a8643297f5ba7f0129.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a87cb99ac549369211237aa51770ad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

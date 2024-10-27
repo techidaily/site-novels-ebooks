@@ -1,7 +1,7 @@
 ---
 title: The Lost Tomb of King Arthur | Free Book
-date: 2024-10-25 15:37:11
-updated: 2024-10-26 12:42:28
+date: 2024-10-20T19:03:11.361Z
+updated: 2024-10-27T04:31:32.450Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6fb9a11f7bff65377faedc5baf1b72667eaf5c47bf810c6d7bd08e3135444e61.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6fb9a11f7bff65377faedc5baf1b726
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

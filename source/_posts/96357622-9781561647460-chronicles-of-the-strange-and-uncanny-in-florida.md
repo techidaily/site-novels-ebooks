@@ -1,7 +1,7 @@
 ---
 title: Chronicles of the Strange and Uncanny in Florida | Free Book
-date: 2024-10-25 15:12:56
-updated: 2024-10-26 10:48:59
+date: 2024-10-23T20:30:12.890Z
+updated: 2024-10-26T21:36:11.477Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce015e0475ce278eec2f74db690fa7d3ca82.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

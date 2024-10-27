@@ -1,7 +1,7 @@
 ---
 title: your Facts Are Not My Truths | Free Book
-date: 2024-10-25 13:13:31
-updated: 2024-10-26 10:22:27
+date: 2024-10-24T04:01:26.103Z
+updated: 2024-10-26T19:10:05.230Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8b86ec05b4320d1711788255f228ea87193afc6606562384795b76413a122bf.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8b86ec05b4320d1711788255f228ea
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

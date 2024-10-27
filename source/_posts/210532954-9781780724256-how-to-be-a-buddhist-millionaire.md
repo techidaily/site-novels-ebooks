@@ -1,7 +1,7 @@
 ---
 title: How to be a Buddhist Millionaire | Free Book
-date: 2024-10-23 15:53:56
-updated: 2024-10-26 10:29:55
+date: 2024-10-21T16:56:20.213Z
+updated: 2024-10-27T04:59:19.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d471164210eebe01935897b788efc11feedd3d76c84e24b294000363d735877.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d471164210eebe01935897b788efc1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

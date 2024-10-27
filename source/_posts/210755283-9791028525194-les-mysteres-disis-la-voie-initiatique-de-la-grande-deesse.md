@@ -1,7 +1,7 @@
 ---
 title: "Les Mystères d'Isis : La voie initiatique de la Grande Déesse | Free Book"
-date: 2024-10-23 23:28:14
-updated: 2024-10-26 11:25:56
+date: 2024-10-22T21:32:55.068Z
+updated: 2024-10-27T05:17:45.955Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7a17e732c0e693c421fb08e5435e3e84c3eb743b326ddd0f80a806d9e047bdf.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7a17e732c0e693c421fb08e5435e3e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

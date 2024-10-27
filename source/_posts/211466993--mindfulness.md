@@ -1,7 +1,7 @@
 ---
 title: Mindfulness | Free Book
-date: 2024-10-25 19:20:34
-updated: 2024-10-26 12:22:55
+date: 2024-10-22T21:26:13.806Z
+updated: 2024-10-27T04:21:48.623Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de315ba66b82df66c5dff2d799b00a6ed1f5c2067c52affad671832f4660cee0.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de315ba66b82df66c5dff2d799b00a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

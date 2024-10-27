@@ -1,7 +1,7 @@
 ---
 title: Historical Dictionary of Witchcraft (2nd ed.) | Free Book
-date: 2024-10-24 21:52:31
-updated: 2024-10-26 10:52:41
+date: 2024-10-23T02:15:52.849Z
+updated: 2024-10-27T05:30:20.394Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8aa39ebefeb55decef57ed5332a22ecd9129223ca630cab2c7c9686499c6a0a9.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8aa39ebefeb55decef57ed5332a22ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

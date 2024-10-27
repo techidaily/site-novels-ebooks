@@ -1,7 +1,7 @@
 ---
 title: At the Borders of the Wondrous and Magical | Free Book
-date: 2024-10-23 18:29:27
-updated: 2024-10-26 10:59:26
+date: 2024-10-26T04:49:56.717Z
+updated: 2024-10-27T00:46:25.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/550192d23a58d22fa5cd84461b4af9241b9df26137a740c5fe11fe31a7f1bc75.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/550192d23a58d22fa5cd84461b4af92
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

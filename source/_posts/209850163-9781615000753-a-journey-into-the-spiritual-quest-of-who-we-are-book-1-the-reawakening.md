@@ -1,7 +1,7 @@
 ---
 title: A Journey into the Spiritual Quest of Who We Are - Book -1 The Reawakening | Free Book
-date: 2024-10-25 11:10:34
-updated: 2024-10-26 11:20:21
+date: 2024-10-24T16:49:19.229Z
+updated: 2024-10-26T20:08:09.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/13164e6967add9f99b206f0ea936fdac67432476936a89ea90f7c90b0e8d7a35.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/13164e6967add9f99b206f0ea936fda
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

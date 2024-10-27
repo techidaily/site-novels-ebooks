@@ -1,7 +1,7 @@
 ---
 title: Полный семейный сонник на каждый день. 12 в 1. (Polnyj semejnyj sonnik na kazhdyj den'. 12 v 1.) | Free Book
-date: 2024-10-24 14:55:30
-updated: 2024-10-26 12:13:10
+date: 2024-10-20T05:58:13.656Z
+updated: 2024-10-27T03:11:04.684Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/24f12964e13bab28792cd85ba55b733e2e71f41d4a774512d754d553e086990c.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/24f12964e13bab28792cd85ba55b733
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

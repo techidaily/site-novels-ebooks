@@ -1,7 +1,7 @@
 ---
 title: The Afterlife Experiments | Free Book
-date: 2024-10-24 19:10:20
-updated: 2024-10-26 10:58:26
+date: 2024-10-21T22:54:15.983Z
+updated: 2024-10-26T22:57:15.077Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f3023bbe8936fcb37505da229926bcf75122b2eb8c9eed4a92534adf671ea2bd.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f3023bbe8936fcb37505da229926bcf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

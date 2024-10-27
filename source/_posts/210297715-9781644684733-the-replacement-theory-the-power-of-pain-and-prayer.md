@@ -1,7 +1,7 @@
 ---
 title: "The Replacement Theory: The Power of Pain and Prayer | Free Book"
-date: 2024-10-23 18:14:48
-updated: 2024-10-26 10:50:10
+date: 2024-10-24T21:33:43.157Z
+updated: 2024-10-26T23:52:56.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d52eeb99842e3457cc16ebc6e17401d3ff7b583379c958fc25b60b3fa1384f3.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d52eeb99842e3457cc16ebc6e17401
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

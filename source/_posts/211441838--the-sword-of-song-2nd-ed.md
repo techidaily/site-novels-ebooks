@@ -1,7 +1,7 @@
 ---
 title: The Sword of Song (2nd ed.) | Free Book
-date: 2024-10-23 16:13:17
-updated: 2024-10-26 10:33:21
+date: 2024-10-24T20:25:15.845Z
+updated: 2024-10-26T22:31:53.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ebca8686229ba94b6b1f18606d9fb416782d5f4670bd4ea16f4c63d0949ddb6.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ebca8686229ba94b6b1f18606d9fb4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

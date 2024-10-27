@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Astrology | Free Book
-date: 2024-10-23 22:35:18
-updated: 2024-10-26 11:27:14
+date: 2024-10-21T21:52:43.067Z
+updated: 2024-10-26T18:30:50.962Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0220b593138f2bde1bed7f04017fbcc52c410afdbfee260fec9e48dd80bc1c4a.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0220b593138f2bde1bed7f04017fbcc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

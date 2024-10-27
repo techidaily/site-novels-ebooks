@@ -1,7 +1,7 @@
 ---
 title: The Psychedelic Future of the Mind | Free Book
-date: 2024-10-23 19:38:22
-updated: 2024-10-26 11:12:46
+date: 2024-10-20T21:29:36.386Z
+updated: 2024-10-26T16:55:50.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10932dbc7ff3d815545813872cd5db7f3ff5e4c28c6f3a96f17ead3ee528e477.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10932dbc7ff3d815545813872cd5db7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Five Levels of Attachment | Free Book
-date: 2024-10-25 19:24:35
-updated: 2024-10-26 12:26:45
+date: 2024-10-23T03:00:38.071Z
+updated: 2024-10-27T03:01:16.610Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f434a58f37d0fd2056115cc7405510e167d56ea1adeea0a39e4980e25c76725d.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f434a58f37d0fd2056115cc7405510e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

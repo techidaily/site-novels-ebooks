@@ -1,7 +1,7 @@
 ---
 title: The History of Last Night's Dream | Free Book
-date: 2024-10-23 17:47:14
-updated: 2024-10-26 11:13:40
+date: 2024-10-19T16:29:10.063Z
+updated: 2024-10-27T02:24:13.801Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0dcd61b08cf098a8486931fead5772b2e9f6464e63b82fd6d6a4d17b6821738a.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0dcd61b08cf098a8486931fead5772b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

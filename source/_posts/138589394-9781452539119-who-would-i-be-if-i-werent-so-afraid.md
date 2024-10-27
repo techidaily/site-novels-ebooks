@@ -1,7 +1,7 @@
 ---
 title: Who Would I Be If I Weren't so Afraid? | Free Book
-date: 2024-10-25 10:43:57
-updated: 2024-10-26 12:20:56
+date: 2024-10-25T03:04:15.772Z
+updated: 2024-10-26T20:18:31.262Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/927c23237f996a4f1bc64c5091069f90ad13d3e66b3a3040705697aeb6b6f220.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/927c23237f996a4f1bc64c5091069f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

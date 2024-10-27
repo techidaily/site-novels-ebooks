@@ -1,7 +1,7 @@
 ---
 title: In Case of Spiritual Emergency | Free Book
-date: 2024-10-25 19:30:42
-updated: 2024-10-26 11:36:32
+date: 2024-10-22T00:59:43.558Z
+updated: 2024-10-26T20:13:03.374Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51b0cca2ace52b17dc7ec5faf7d5daa1445ccf78dde37aad4c34c8b7d6dba3f8.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51b0cca2ace52b17dc7ec5faf7d5daa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

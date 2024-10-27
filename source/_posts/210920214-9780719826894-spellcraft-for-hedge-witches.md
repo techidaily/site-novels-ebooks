@@ -1,7 +1,7 @@
 ---
 title: Spellcraft for Hedge Witches | Free Book
-date: 2024-10-25 22:11:45
-updated: 2024-10-26 12:23:19
+date: 2024-10-22T03:36:42.651Z
+updated: 2024-10-26T16:05:17.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/298a036cc6aec99056da2384faf35f6e75d6e7f45afe960a73fc8abf50ec19f7.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/298a036cc6aec99056da2384faf35f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

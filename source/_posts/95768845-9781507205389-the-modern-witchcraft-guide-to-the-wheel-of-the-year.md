@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Guide to the Wheel of the Year | Free Book
-date: 2024-10-23 10:43:19
-updated: 2024-10-26 10:16:39
+date: 2024-10-19T21:45:46.288Z
+updated: 2024-10-26T20:02:55.876Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4d61d57d911c69d8a94919e703bf92c1261992f38ecac8d2f9b5cb00d4d6b96.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4d61d57d911c69d8a94919e703bf92
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

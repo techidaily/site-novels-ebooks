@@ -1,7 +1,7 @@
 ---
 title: Forgotten Civilization (2nd ed.) | Free Book
-date: 2024-10-23 23:21:48
-updated: 2024-10-26 11:57:25
+date: 2024-10-21T04:02:24.803Z
+updated: 2024-10-26T21:10:29.772Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9aa90f59f9975304aa0f9c7b79c309ac03542bb4a3608aaf6e3f4b1ac7c87e05.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9aa90f59f9975304aa0f9c7b79c309a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

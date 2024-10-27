@@ -1,7 +1,7 @@
 ---
 title: Tú mismo eres tu enfermedad y tu salud | Free Book
-date: 2024-10-25 17:59:27
-updated: 2024-10-26 10:26:27
+date: 2024-10-25T20:47:54.740Z
+updated: 2024-10-26T23:34:47.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9720314ce5a40e9d3c2e667155a5b5b87a66ca8833052fc53a96de2dbee0de4a.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9720314ce5a40e9d3c2e667155a5b5b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

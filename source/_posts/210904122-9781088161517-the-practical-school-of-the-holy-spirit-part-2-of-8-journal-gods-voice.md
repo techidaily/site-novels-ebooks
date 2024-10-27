@@ -1,7 +1,7 @@
 ---
 title: The Practical School of the Holy Spirit - Part 2 of 8 - Journal God's Voice | Free Book
-date: 2024-10-23 16:23:25
-updated: 2024-10-26 10:13:18
+date: 2024-10-23T03:23:08.677Z
+updated: 2024-10-27T05:35:12.314Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84910482dfee13bbde2216b7cf686656236bb8f1c73c7905ffa7cbb16667c830.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84910482dfee13bbde2216b7cf68665
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

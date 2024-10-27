@@ -1,7 +1,7 @@
 ---
 title: The Alignment of the Universe | Free Book
-date: 2024-10-23 12:10:40
-updated: 2024-10-26 10:25:12
+date: 2024-10-24T23:49:03.855Z
+updated: 2024-10-27T01:38:40.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59356e287741e7b4091fa9b1ea9176d8c097d9711a3164d5c5f54197c396cbfa.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59356e287741e7b4091fa9b1ea9176d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

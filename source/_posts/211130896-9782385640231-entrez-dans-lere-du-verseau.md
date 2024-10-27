@@ -1,7 +1,7 @@
 ---
 title: Entrez dans l'ère du Verseau | Free Book
-date: 2024-10-23 12:40:14
-updated: 2024-10-26 10:25:23
+date: 2024-10-24T04:35:21.606Z
+updated: 2024-10-26T20:08:25.250Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e455bcf872c3ac9215f022810261a7116aa392c0a916653aab76f13be45824e.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e455bcf872c3ac9215f022810261a7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

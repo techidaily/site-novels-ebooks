@@ -1,7 +1,7 @@
 ---
 title: The Conscious Mind and the Material World | Free Book
-date: 2024-10-23 19:43:43
-updated: 2024-10-26 11:25:23
+date: 2024-10-26T03:12:38.985Z
+updated: 2024-10-27T03:05:09.613Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1bed61f0ae18c9b6de44f4a2f1691d5d7827e7de5071f829426a8f36b73d84c.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1bed61f0ae18c9b6de44f4a2f1691d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

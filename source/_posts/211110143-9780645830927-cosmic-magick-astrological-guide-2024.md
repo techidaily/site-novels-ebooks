@@ -1,7 +1,7 @@
 ---
 title: Cosmic Magick - Astrological Guide - 2024 | Free Book
-date: 2024-10-24 12:29:35
-updated: 2024-10-26 10:55:15
+date: 2024-10-22T16:41:47.745Z
+updated: 2024-10-27T02:48:19.186Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eef3e3c96469118af8127917be4b0465afc18bcc3718126b21b28114bd644c24.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eef3e3c96469118af8127917be4b046
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

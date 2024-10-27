@@ -1,7 +1,7 @@
 ---
 title: "The Tiger in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 23:38:15
-updated: 2024-10-26 12:12:38
+date: 2024-10-23T01:46:21.342Z
+updated: 2024-10-26T16:05:24.092Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/384d71368399543fdec3adcbf285272db49d2db38c07e4f100833d3cdc8ed6e8.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/384d71368399543fdec3adcbf285272
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

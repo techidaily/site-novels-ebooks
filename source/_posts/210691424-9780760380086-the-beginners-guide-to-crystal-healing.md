@@ -1,7 +1,7 @@
 ---
 title: The Beginner's Guide to Crystal Healing | Free Book
-date: 2024-10-25 15:13:19
-updated: 2024-10-26 11:21:26
+date: 2024-10-23T22:33:35.782Z
+updated: 2024-10-27T00:33:59.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f8c4855b9210c02a06c4e000850d6a5d6eaa533f7e347e8b6ba34e7ba5831ee6.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f8c4855b9210c02a06c4e000850d6a5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

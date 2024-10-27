@@ -1,7 +1,7 @@
 ---
 title: Tarot in the Spirit of Zen | Free Book
-date: 2024-10-24 21:40:57
-updated: 2024-10-26 10:49:12
+date: 2024-10-23T03:01:19.992Z
+updated: 2024-10-26T18:31:00.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4979ddc56d8ba3fed603e1a5ab9b895e7188ef27df69b2490da4723e3be338b0.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4979ddc56d8ba3fed603e1a5ab9b895
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

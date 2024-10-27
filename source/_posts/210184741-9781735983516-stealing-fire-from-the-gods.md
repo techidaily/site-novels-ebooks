@@ -1,7 +1,7 @@
 ---
 title: Stealing Fire From The Gods | Free Book
-date: 2024-10-24 21:36:54
-updated: 2024-10-26 11:42:29
+date: 2024-10-22T23:54:37.290Z
+updated: 2024-10-27T05:50:55.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c6109d6f06f2da8fb65da4edb7dafc0c24ba95146446e288c4f4919a4bdbc3e.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c6109d6f06f2da8fb65da4edb7dafc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

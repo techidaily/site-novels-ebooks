@@ -1,7 +1,7 @@
 ---
 title: "Parkinson's: Life Lessons Five Years into the Journey | Free Book"
-date: 2024-10-24 22:57:15
-updated: 2024-10-26 11:21:38
+date: 2024-10-20T19:58:55.810Z
+updated: 2024-10-26T20:42:53.490Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fcae0d8361816c2c00cf1227e7f04612f6b25c04262d766dffe2c3be0aca6b25.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fcae0d8361816c2c00cf1227e7f0461
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Light of Conscience | Free Book
-date: 2024-10-24 11:23:29
-updated: 2024-10-26 11:20:36
+date: 2024-10-22T20:52:42.306Z
+updated: 2024-10-26T19:15:43.811Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4adb5ca8c0d877658aa1c9bcdba46c817e3db4be0db60d12b088c1886a64d267.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4adb5ca8c0d877658aa1c9bcdba46c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

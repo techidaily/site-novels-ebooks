@@ -1,7 +1,7 @@
 ---
 title: The Miraculous Healing Power of God | Free Book
-date: 2024-10-24 10:37:26
-updated: 2024-10-26 10:10:27
+date: 2024-10-22T16:35:03.220Z
+updated: 2024-10-26T22:35:31.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f3c0dc0632f5239c37f22ed5fb87e18e8ae2ce6202eccb8705faef7783c925a.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f3c0dc0632f5239c37f22ed5fb87e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

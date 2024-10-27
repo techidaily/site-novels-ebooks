@@ -1,7 +1,7 @@
 ---
 title: Her Assignment, My Identity, Our Curse, | Free Book
-date: 2024-10-24 11:17:55
-updated: 2024-10-26 10:52:32
+date: 2024-10-21T18:11:40.722Z
+updated: 2024-10-27T06:01:11.978Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de5a6c4b0f2c72d52a19a3f5f9e84057d0ab889d127c1335758af39abce8a23e.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de5a6c4b0f2c72d52a19a3f5f9e8405
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

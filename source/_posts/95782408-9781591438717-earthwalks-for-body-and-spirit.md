@@ -1,7 +1,7 @@
 ---
 title: Earthwalks for Body and Spirit | Free Book
-date: 2024-10-24 14:28:56
-updated: 2024-10-26 11:21:27
+date: 2024-10-19T23:08:35.530Z
+updated: 2024-10-27T04:41:59.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b01b30d0f23dc6b5412c1e145dc4e693d8f0b49db6286d3bb81669c206534c63.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b01b30d0f23dc6b5412c1e145dc4e69
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

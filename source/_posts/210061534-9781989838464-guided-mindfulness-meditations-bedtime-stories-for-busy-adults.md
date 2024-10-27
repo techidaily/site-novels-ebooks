@@ -1,7 +1,7 @@
 ---
 title: Guided Mindfulness Meditations & Bedtime Stories for Busy Adults | Free Book
-date: 2024-10-24 14:58:59
-updated: 2024-10-26 11:41:18
+date: 2024-10-20T03:31:03.686Z
+updated: 2024-10-27T02:38:56.288Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab9818b03aecdd0c669fa6d005b62706304fd63a35f6ec3083e3fd54100e35d7.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab9818b03aecdd0c669fa6d005b6270
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

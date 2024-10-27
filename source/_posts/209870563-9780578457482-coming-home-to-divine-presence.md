@@ -1,7 +1,7 @@
 ---
 title: Coming Home to Divine Presence | Free Book
-date: 2024-10-24 15:21:20
-updated: 2024-10-26 12:15:16
+date: 2024-10-24T16:27:03.082Z
+updated: 2024-10-27T00:58:18.271Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d016253feb6555c70959db061427ea166f6affb38a3300e046b37d5efb809384.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d016253feb6555c70959db061427ea1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Ghosts on the Coast of Maine | Free Book
-date: 2024-10-23 19:16:41
-updated: 2024-10-26 12:19:31
+date: 2024-10-26T02:32:52.251Z
+updated: 2024-10-26T19:42:30.302Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9642f9c62034dd40aaaaea8059dbb815643cbb51e74ada4c6568188b1684f8b9.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9642f9c62034dd40aaaaea8059dbb81
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Essence of Tarot | Free Book
-date: 2024-10-23 13:30:27
-updated: 2024-10-26 12:11:56
+date: 2024-10-21T19:48:05.225Z
+updated: 2024-10-26T20:25:19.488Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a39f8f3d9fea71d56fc0509efc57108339261e0fbb27676be44ab178c256b7e.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a39f8f3d9fea71d56fc0509efc5710
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

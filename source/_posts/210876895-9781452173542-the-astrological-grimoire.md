@@ -1,7 +1,7 @@
 ---
 title: The Astrological Grimoire | Free Book
-date: 2024-10-24 20:51:39
-updated: 2024-10-26 12:48:53
+date: 2024-10-19T20:14:31.390Z
+updated: 2024-10-27T04:29:52.762Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/690d1283371de085ab2e88ae50e3a73d174d6d1729c1c6306124f53ec6bea4ee.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/690d1283371de085ab2e88ae50e3a73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

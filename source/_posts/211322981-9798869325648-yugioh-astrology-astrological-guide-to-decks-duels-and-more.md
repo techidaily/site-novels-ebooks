@@ -1,7 +1,7 @@
 ---
 title: "Yugioh Astrology: Astrological Guide to Decks, Duels, and More | Free Book"
-date: 2024-10-23 15:56:21
-updated: 2024-10-26 12:52:30
+date: 2024-10-24T18:34:38.324Z
+updated: 2024-10-27T01:45:11.910Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6be43ce0142b53197ccedb2445348b60e3729a351b0f27ffddf241d9cdafeb07.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6be43ce0142b53197ccedb2445348b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

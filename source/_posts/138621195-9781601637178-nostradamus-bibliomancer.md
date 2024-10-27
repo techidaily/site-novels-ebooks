@@ -1,7 +1,7 @@
 ---
 title: Nostradamus, Bibliomancer | Free Book
-date: 2024-10-23 14:56:40
-updated: 2024-10-26 11:26:28
+date: 2024-10-19T18:17:12.495Z
+updated: 2024-10-26T19:09:14.150Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae4aae00b39a52c7aba90fa0a0d12bd5fb07519137bcb9d368ab8bebda6de3fe.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae4aae00b39a52c7aba90fa0a0d12bd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Find and Follow Your Inner Compass | Free Book
-date: 2024-10-24 16:24:52
-updated: 2024-10-26 10:43:41
+date: 2024-10-22T23:01:14.738Z
+updated: 2024-10-26T20:00:44.498Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a9225c58f8a2416ab00f4c76b7d6d3eae7382af39c15d436fcef68efa169dae2.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a9225c58f8a2416ab00f4c76b7d6d3e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

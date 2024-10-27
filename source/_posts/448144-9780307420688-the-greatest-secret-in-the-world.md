@@ -1,7 +1,7 @@
 ---
 title: The Greatest Secret in the World | Free Book
-date: 2024-10-25 22:47:46
-updated: 2024-10-26 10:39:12
+date: 2024-10-23T19:39:21.925Z
+updated: 2024-10-26T23:23:48.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6383a7a870cd7bff839fa8ebd7f31f210f5347a27c0a8452ac596b930226cdf.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6383a7a870cd7bff839fa8ebd7f31f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

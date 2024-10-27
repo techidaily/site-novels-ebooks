@@ -1,7 +1,7 @@
 ---
 title: David Wells's Psychic Secrets | Free Book
-date: 2024-10-25 13:44:39
-updated: 2024-10-26 11:45:25
+date: 2024-10-25T20:59:10.687Z
+updated: 2024-10-27T03:49:19.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/997ea9aa806293012c646259d09a922eba734e2183246b785155e1b1185fa81f.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/997ea9aa806293012c646259d09a922
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

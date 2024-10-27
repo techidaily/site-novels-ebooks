@@ -1,7 +1,7 @@
 ---
 title: Joyfulness. From looking in to looking after | Free Book
-date: 2024-10-25 12:29:40
-updated: 2024-10-26 11:14:44
+date: 2024-10-19T17:37:06.093Z
+updated: 2024-10-27T02:28:01.715Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35badd1d7284a675a3ff1fbfccf4980969fea12988675ea5a657b4d35fc1e2d1.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35badd1d7284a675a3ff1fbfccf4980
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

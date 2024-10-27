@@ -1,7 +1,7 @@
 ---
 title: Reweaving The Web- A Shamanic Journey of Connection | Free Book
-date: 2024-10-24 11:29:52
-updated: 2024-10-26 12:40:16
+date: 2024-10-23T00:35:02.895Z
+updated: 2024-10-27T04:35:14.276Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6327afaa3dcc5310c353e1f470d3d0c4ef64e5e56366bf60ece46e9696cfec8e.jpg
@@ -223,3 +223,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6327afaa3dcc5310c353e1f470d3d0c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

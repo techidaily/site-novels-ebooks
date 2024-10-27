@@ -1,7 +1,7 @@
 ---
 title: "Gemini 2021: Your Personal Horoscope | Free Book"
-date: 2024-10-25 22:31:44
-updated: 2024-10-26 11:54:11
+date: 2024-10-22T17:12:52.285Z
+updated: 2024-10-27T05:23:42.565Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35d3069def6d7fef694afbb82ee19bebad377f49028274e4325f3b0eca6e558a.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35d3069def6d7fef694afbb82ee19be
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

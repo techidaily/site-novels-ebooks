@@ -1,7 +1,7 @@
 ---
 title: "Quotes: The Famous and Not so Famous | Free Book"
-date: 2024-10-25 14:50:46
-updated: 2024-10-26 10:27:54
+date: 2024-10-23T04:10:43.883Z
+updated: 2024-10-27T04:09:14.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5a7f574fb0432b373b988f35c61e9198089f7b2840f0ca48f7e8d414550949c.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5a7f574fb0432b373b988f35c61e91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

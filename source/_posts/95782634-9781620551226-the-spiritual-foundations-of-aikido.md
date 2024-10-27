@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Foundations of Aikido | Free Book
-date: 2024-10-24 12:39:46
-updated: 2024-10-26 12:16:48
+date: 2024-10-21T01:37:56.166Z
+updated: 2024-10-26T17:07:48.376Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/773b09ee0a31c7f9cffa4d3a95eea5842ad6b725fafa32f6c350afe5c8a78e69.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/773b09ee0a31c7f9cffa4d3a95eea58
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

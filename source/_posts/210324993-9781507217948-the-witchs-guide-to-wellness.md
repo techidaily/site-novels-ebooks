@@ -1,7 +1,7 @@
 ---
 title: The Witch's Guide to Wellness | Free Book
-date: 2024-10-24 21:10:40
-updated: 2024-10-26 10:37:21
+date: 2024-10-24T03:31:01.973Z
+updated: 2024-10-26T20:31:47.997Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/604217ef5c52c394e626981b118fc3e5ec2d9ab9d3bbb2a597db5221ad8cceb1.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/604217ef5c52c394e626981b118fc3e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

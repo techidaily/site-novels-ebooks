@@ -1,7 +1,7 @@
 ---
 title: The Book of Jasher, Part Three | Free Book
-date: 2024-10-25 16:17:54
-updated: 2024-10-26 11:36:31
+date: 2024-10-24T03:36:04.172Z
+updated: 2024-10-26T18:48:07.754Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16ab936f60accbf657945314b081f70c22a3511e02a794dcb1adc4addfea66de.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16ab936f60accbf657945314b081f70
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

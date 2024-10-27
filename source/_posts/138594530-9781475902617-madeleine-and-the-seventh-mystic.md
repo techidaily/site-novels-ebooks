@@ -1,7 +1,7 @@
 ---
 title: Madeleine and the Seventh Mystic | Free Book
-date: 2024-10-25 13:36:54
-updated: 2024-10-26 11:46:26
+date: 2024-10-20T00:18:35.591Z
+updated: 2024-10-26T23:44:03.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f47bf1a3353932466766bd3435b979fc007ec2796ac7d4ee7ed106ce8663f675.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f47bf1a3353932466766bd3435b979f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

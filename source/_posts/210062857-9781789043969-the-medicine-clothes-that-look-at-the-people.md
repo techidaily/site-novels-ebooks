@@ -1,7 +1,7 @@
 ---
 title: The Medicine Clothes that Look at the People | Free Book
-date: 2024-10-25 15:30:20
-updated: 2024-10-26 12:17:12
+date: 2024-10-21T21:53:47.173Z
+updated: 2024-10-26T22:02:11.552Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79795e8f91413f3cc9c480866e624b549ab40215f5a8937ac317b6f2a3319b32.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79795e8f91413f3cc9c480866e624b5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

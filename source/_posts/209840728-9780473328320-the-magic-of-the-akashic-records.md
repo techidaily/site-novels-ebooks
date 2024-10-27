@@ -1,7 +1,7 @@
 ---
 title: The Magic of the Akashic Records | Free Book
-date: 2024-10-25 16:46:18
-updated: 2024-10-26 11:15:20
+date: 2024-10-23T16:34:39.601Z
+updated: 2024-10-26T16:31:24.220Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d9f4911c6823a27972b8659dfadb855d92b20e388ec7fa62c937e01b227914a.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d9f4911c6823a27972b8659dfadb85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

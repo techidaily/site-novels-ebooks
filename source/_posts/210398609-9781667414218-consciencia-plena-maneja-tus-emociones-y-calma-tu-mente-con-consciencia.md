@@ -1,7 +1,7 @@
 ---
 title: Consciencia plena - maneja tus emociones y calma tu mente con consciencia. | Free Book
-date: 2024-10-23 11:25:45
-updated: 2024-10-26 10:38:30
+date: 2024-10-24T21:18:44.003Z
+updated: 2024-10-26T20:25:38.339Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c1f7998521620131250bb0265182a6a6163534da7dfe45c1a9aa23dbbf3424a9.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c1f7998521620131250bb0265182a6a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Children's Unexplained Experiences in a Post Materialist World | Free Book
-date: 2024-10-25 20:49:14
-updated: 2024-10-26 11:43:25
+date: 2024-10-26T05:00:31.975Z
+updated: 2024-10-27T05:33:58.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c03aa19f8c95414b1e04967d2fba3811029094da97b41721c918aa32cecb00b8.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c03aa19f8c95414b1e04967d2fba381
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

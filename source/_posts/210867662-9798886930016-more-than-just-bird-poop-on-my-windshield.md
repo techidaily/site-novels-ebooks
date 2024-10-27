@@ -1,7 +1,7 @@
 ---
 title: More Than Just Bird Poop on my Windshield | Free Book
-date: 2024-10-23 21:40:45
-updated: 2024-10-26 11:37:57
+date: 2024-10-24T23:47:10.141Z
+updated: 2024-10-27T00:53:39.098Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf94fd8b579fadd60ef1bfe0c9cc3db56323cf00f876c499f83d2c7093ae914b.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf94fd8b579fadd60ef1bfe0c9cc3db
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

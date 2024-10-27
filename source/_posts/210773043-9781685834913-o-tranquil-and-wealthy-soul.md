@@ -1,7 +1,7 @@
 ---
 title: O Tranquil and Wealthy Soul | Free Book
-date: 2024-10-23 15:44:50
-updated: 2024-10-26 12:49:46
+date: 2024-10-22T02:47:21.791Z
+updated: 2024-10-27T05:24:58.047Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99fe6420e83876b93b9442246c9982c37cf3afcc1e586a800ba86ead228d27f3.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99fe6420e83876b93b9442246c9982c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

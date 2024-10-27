@@ -1,7 +1,7 @@
 ---
 title: THE EXTRATERRESTRIAL LIFE | Free Book
-date: 2024-10-25 13:41:59
-updated: 2024-10-26 10:17:38
+date: 2024-10-24T20:38:53.888Z
+updated: 2024-10-26T22:00:02.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/024bde76ed24f2577b638250439cc6971ff0258d34ce2d7793ad671d3211f276.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/024bde76ed24f2577b638250439cc69
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Insights and Prayers for the Spirit | Free Book
-date: 2024-10-24 22:53:46
-updated: 2024-10-26 12:50:57
+date: 2024-10-21T01:14:27.293Z
+updated: 2024-10-26T22:16:57.495Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7633082a3efe8109c61271cf7ef75f08d137aa18c21e156e29c269e85d57d134.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7633082a3efe8109c61271cf7ef75f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

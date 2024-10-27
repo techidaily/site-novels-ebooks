@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書012：道脈真傳與多神之島──華夏的創道與真道之脈傳（道脈篇）: The Great Tao of Spiritual Science Series 12 | Free Book"
-date: 2024-10-25 23:45:28
-updated: 2024-10-26 10:14:33
+date: 2024-10-21T04:19:10.309Z
+updated: 2024-10-26T19:27:24.441Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1cf12d5c044b36a2087d1145810c66f203a1a533c1e0a51ca64148412234752d.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1cf12d5c044b36a2087d1145810c66f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

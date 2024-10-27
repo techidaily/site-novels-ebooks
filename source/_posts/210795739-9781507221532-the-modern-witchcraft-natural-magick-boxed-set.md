@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Natural Magick Boxed Set | Free Book
-date: 2024-10-23 11:55:50
-updated: 2024-10-26 12:30:38
+date: 2024-10-21T18:56:57.036Z
+updated: 2024-10-26T18:19:55.603Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ba92703d571144f07c8ea462f61014f5058356f142dd640ac17ba26412e4d47.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ba92703d571144f07c8ea462f61014
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

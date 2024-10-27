@@ -1,7 +1,7 @@
 ---
 title: The Gates of the Necronomicon | Free Book
-date: 2024-10-23 12:52:14
-updated: 2024-10-26 11:38:28
+date: 2024-10-26T01:52:34.128Z
+updated: 2024-10-27T03:30:33.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd56d85aff2769ac0a2c3d563ca4811f33edc12f9edc56e1181581e908c68ffa.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd56d85aff2769ac0a2c3d563ca4811
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

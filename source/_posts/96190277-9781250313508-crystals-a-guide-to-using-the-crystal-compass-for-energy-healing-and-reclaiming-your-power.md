@@ -1,7 +1,7 @@
 ---
 title: "Crystals: A Guide to Using the Crystal Compass for Energy, Healing, and Reclaiming Your Power | Free Book"
-date: 2024-10-23 14:43:25
-updated: 2024-10-26 11:34:23
+date: 2024-10-22T19:41:44.648Z
+updated: 2024-10-26T17:17:18.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7944664b179e810626d8e8feaf36faa51f34c1cd43384421a4435ae6c79220c.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7944664b179e810626d8e8feaf36fa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

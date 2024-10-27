@@ -1,7 +1,7 @@
 ---
 title: The Journey to my Life Purpose | Free Book
-date: 2024-10-25 23:29:25
-updated: 2024-10-26 11:29:57
+date: 2024-10-24T00:36:52.723Z
+updated: 2024-10-26T22:13:35.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb345522437fb2dca4162f520e744f1af4b5d803f4a976e82d03102909e8555b.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb345522437fb2dca4162f520e744f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Cottage Witch's Guide to Magic | Free Book
-date: 2024-10-24 12:41:40
-updated: 2024-10-26 11:11:12
+date: 2024-10-20T05:29:19.843Z
+updated: 2024-10-26T19:37:41.371Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3fc7f240bc9b482d92a5b0aa7b42165d75280566e786c26fe01bf57c7d3db92.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3fc7f240bc9b482d92a5b0aa7b4216
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

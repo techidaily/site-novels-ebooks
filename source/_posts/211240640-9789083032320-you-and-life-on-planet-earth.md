@@ -1,7 +1,7 @@
 ---
 title: You and life on Planet Earth | Free Book
-date: 2024-10-25 19:38:50
-updated: 2024-10-26 11:24:15
+date: 2024-10-19T22:22:16.367Z
+updated: 2024-10-26T23:31:49.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75e8431402e417026663e1089345a6f91b7c55440089831c19ae6cd3a7b3c941.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75e8431402e417026663e1089345a6f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Histeria e Fenômenos Psíquicos | Free Book
-date: 2024-10-24 18:29:35
-updated: 2024-10-26 11:46:10
+date: 2024-10-19T17:16:26.784Z
+updated: 2024-10-26T16:10:58.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6fb53846a2a37329fef14f1e534a4fe08b6b84d6dbd1f112a1b59537316654e.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6fb53846a2a37329fef14f1e534a4f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

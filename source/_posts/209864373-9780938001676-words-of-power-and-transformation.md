@@ -1,7 +1,7 @@
 ---
 title: WORDS OF POWER and TRANSFORMATION | Free Book
-date: 2024-10-25 14:31:20
-updated: 2024-10-26 12:41:48
+date: 2024-10-22T03:59:31.512Z
+updated: 2024-10-26T17:47:34.764Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f48d66db92671a89d1be4068c96648d63536717cc3a2966e9b754124972e8a68.jpg
@@ -260,3 +260,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f48d66db92671a89d1be4068c96648d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

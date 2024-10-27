@@ -1,7 +1,7 @@
 ---
 title: A Workbook based on Meg Jay, PhD's #1 bestseller \"The Defining Decade | Free Book
-date: 2024-10-23 15:50:57
-updated: 2024-10-26 12:56:28
+date: 2024-10-20T23:44:56.628Z
+updated: 2024-10-27T04:37:57.328Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7a654eeec2bec8034948dd521fb5b806001edfcc457b6e84dc65bf93e9ac176.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7a654eeec2bec8034948dd521fb5b8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

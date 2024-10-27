@@ -1,7 +1,7 @@
 ---
 title: Practicing the Presence of the Goddess | Free Book
-date: 2024-10-23 11:23:26
-updated: 2024-10-26 12:53:28
+date: 2024-10-21T00:44:27.554Z
+updated: 2024-10-27T01:38:21.886Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79d6a54071dc9f15e54847b3cded6b10220acc9603669b3fe89f204f2029024a.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79d6a54071dc9f15e54847b3cded6b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

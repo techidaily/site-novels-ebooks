@@ -1,7 +1,7 @@
 ---
 title: Dominio de la Inteligencia Emocional | Free Book
-date: 2024-10-24 13:31:35
-updated: 2024-10-26 10:30:49
+date: 2024-10-20T00:19:24.669Z
+updated: 2024-10-27T04:55:40.694Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b21126ee9a63e07474b2a9da528bf4e11e1d568d66cdaa901972a3a41c0ac2ad.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b21126ee9a63e07474b2a9da528bf4e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Three Men Seeking Monsters | Free Book
-date: 2024-10-25 15:28:22
-updated: 2024-10-26 12:17:53
+date: 2024-10-24T02:33:10.268Z
+updated: 2024-10-26T23:02:23.744Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a6866474919dc890107c51f84cbdf4f54b3cb72a26d2e0aefe2bbdfd433799ca.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a6866474919dc890107c51f84cbdf4f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

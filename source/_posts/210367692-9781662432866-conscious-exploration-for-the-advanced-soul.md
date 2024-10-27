@@ -1,7 +1,7 @@
 ---
 title: Conscious Exploration for the Advanced Soul | Free Book
-date: 2024-10-25 18:19:59
-updated: 2024-10-26 12:54:36
+date: 2024-10-23T17:49:40.323Z
+updated: 2024-10-27T03:14:44.903Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21237c467fccca032a556b442d87748bdd01339bab7e8b7e037679da7e72fbc9.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21237c467fccca032a556b442d87748
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

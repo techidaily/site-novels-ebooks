@@ -1,7 +1,7 @@
 ---
 title: Birthing A New Civilization | Free Book
-date: 2024-10-23 19:27:31
-updated: 2024-10-26 11:10:37
+date: 2024-10-25T20:59:57.838Z
+updated: 2024-10-26T20:22:41.444Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a114922bcfd26c844e3f4fc5d7f4f2f2518ec4a6e18ef0c56c27ac0a4bca98e.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a114922bcfd26c844e3f4fc5d7f4f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Astrology of Family Dynamics | Free Book
-date: 2024-10-25 22:55:49
-updated: 2024-10-26 10:56:56
+date: 2024-10-24T05:56:49.869Z
+updated: 2024-10-27T05:12:57.279Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1aed6c9557c198c771a85e4a587d3e6ba488716cfea0e6f847dd7f6b99645031.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1aed6c9557c198c771a85e4a587d3e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Question Your Thinking, Change the World | Free Book
-date: 2024-10-25 12:52:50
-updated: 2024-10-26 10:24:14
+date: 2024-10-22T17:14:18.563Z
+updated: 2024-10-26T19:49:14.477Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/040f37ecf12da5f2a78621100e4b8a6cbfc1bd063b416880f3a9c4ccbf2abd66.jpg
@@ -211,3 +211,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/040f37ecf12da5f2a78621100e4b8a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

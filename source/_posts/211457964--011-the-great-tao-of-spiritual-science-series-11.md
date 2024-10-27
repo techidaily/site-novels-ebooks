@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書011：神靈通與靈學真理（靈通篇）: The Great Tao of Spiritual Science Series 11 | Free Book"
-date: 2024-10-23 12:20:36
-updated: 2024-10-26 11:35:24
+date: 2024-10-20T02:33:28.207Z
+updated: 2024-10-27T02:15:03.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cb1c88a6f41b97e2739e3756b96876f4c472d1071363dbeb67ef7e8931ffa534.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cb1c88a6f41b97e2739e3756b96876f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

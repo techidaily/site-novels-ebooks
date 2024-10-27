@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories of Saskatchewan | Free Book
-date: 2024-10-24 21:41:11
-updated: 2024-10-26 12:34:56
+date: 2024-10-21T03:36:14.728Z
+updated: 2024-10-26T17:05:43.328Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0d29f275e56c1b169f003983404509b5ab81fbb6cc57acf8a216f9784fd542b.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0d29f275e56c1b169f003983404509
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

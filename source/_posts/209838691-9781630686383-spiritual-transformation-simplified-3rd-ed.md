@@ -1,7 +1,7 @@
 ---
 title: Spiritual Transformation Simplified™ (3rd ed.) | Free Book
-date: 2024-10-23 15:25:45
-updated: 2024-10-26 11:16:24
+date: 2024-10-19T18:36:57.218Z
+updated: 2024-10-26T18:34:27.664Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/595856a77b00887b952431ecf206b747ff14630b4523fbca26689e69c1444453.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/595856a77b00887b952431ecf206b74
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

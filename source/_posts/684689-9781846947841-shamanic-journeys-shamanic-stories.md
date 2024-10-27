@@ -1,7 +1,7 @@
 ---
 title: Shamanic Journeys, Shamanic Stories | Free Book
-date: 2024-10-25 10:28:25
-updated: 2024-10-26 12:15:22
+date: 2024-10-20T19:04:11.767Z
+updated: 2024-10-27T04:39:07.545Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10d8ce0fc6fe8fd1bd3b04ff7264da5ed43daeb8e9f2b1574a5db875d501c4ed.jpg
@@ -119,3 +119,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10d8ce0fc6fe8fd1bd3b04ff7264da5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

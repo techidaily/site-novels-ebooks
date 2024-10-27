@@ -1,7 +1,7 @@
 ---
 title: PRAYER in the PRESENCE of GOD | Free Book
-date: 2024-10-24 13:58:38
-updated: 2024-10-26 11:14:32
+date: 2024-10-26T02:58:32.750Z
+updated: 2024-10-27T04:37:27.378Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82bfb72faebf0be31c6f0f6c7dbe2efd99d8f1effdef258b44e27425667f3269.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82bfb72faebf0be31c6f0f6c7dbe2ef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

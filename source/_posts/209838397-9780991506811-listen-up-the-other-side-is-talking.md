@@ -1,7 +1,7 @@
 ---
 title: Listen Up! the Other Side Is Talking. | Free Book
-date: 2024-10-24 11:31:58
-updated: 2024-10-26 10:43:29
+date: 2024-10-24T23:13:37.898Z
+updated: 2024-10-27T04:58:02.148Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e0beec27fd520bd67b01b6ea7f771b41e5dc6f7e47193b4cb1c2bea9d681d21.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e0beec27fd520bd67b01b6ea7f771b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

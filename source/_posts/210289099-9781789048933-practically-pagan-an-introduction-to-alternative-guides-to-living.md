@@ -1,7 +1,7 @@
 ---
 title: Practically Pagan - An Introduction to Alternative Guides to Living | Free Book
-date: 2024-10-24 23:28:51
-updated: 2024-10-26 11:17:18
+date: 2024-10-22T22:26:59.995Z
+updated: 2024-10-27T00:04:54.687Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/856d85933e47d22d761537e84ba190b9ab28e357362d343a781895db5c305862.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/856d85933e47d22d761537e84ba190b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

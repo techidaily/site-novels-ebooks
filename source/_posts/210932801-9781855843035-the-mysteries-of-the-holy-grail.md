@@ -1,7 +1,7 @@
 ---
 title: The Mysteries of the Holy Grail | Free Book
-date: 2024-10-23 13:44:56
-updated: 2024-10-26 10:25:37
+date: 2024-10-26T02:43:26.609Z
+updated: 2024-10-27T04:28:57.923Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd865c40ad3cfe082ff3c378c7b8be5182b29377a100199a3c1da9876d5a22c7.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd865c40ad3cfe082ff3c378c7b8be5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

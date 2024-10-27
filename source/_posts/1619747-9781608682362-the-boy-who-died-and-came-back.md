@@ -1,7 +1,7 @@
 ---
 title: The Boy Who Died and Came Back | Free Book
-date: 2024-10-24 21:13:58
-updated: 2024-10-26 11:20:47
+date: 2024-10-23T23:37:24.845Z
+updated: 2024-10-26T22:12:08.796Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e779f46c353bb0cb5c9daa9c99e132620cf3aa6a34522cb2d8f7923f29321a34.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e779f46c353bb0cb5c9daa9c99e1326
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

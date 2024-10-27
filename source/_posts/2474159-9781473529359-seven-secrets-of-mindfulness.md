@@ -1,7 +1,7 @@
 ---
 title: Seven Secrets of Mindfulness | Free Book
-date: 2024-10-24 10:53:51
-updated: 2024-10-26 10:29:47
+date: 2024-10-24T02:58:10.887Z
+updated: 2024-10-26T22:05:54.429Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d85200f2828b014a6d31a980f186c2b2b523f9d04cb919a07e96c61e7fc6f44.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d85200f2828b014a6d31a980f186c2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

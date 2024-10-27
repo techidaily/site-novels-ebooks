@@ -1,7 +1,7 @@
 ---
 title: Enciclopedia del esoterismo | Free Book
-date: 2024-10-25 15:38:13
-updated: 2024-10-26 10:57:27
+date: 2024-10-22T16:46:54.770Z
+updated: 2024-10-26T21:45:37.643Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab52850ae48ca817d5e76d907b4d239cd36662cc717224b528d6b4931dcbbdf6.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab52850ae48ca817d5e76d907b4d239
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

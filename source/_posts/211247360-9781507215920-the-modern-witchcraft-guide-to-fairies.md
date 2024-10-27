@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Guide to Fairies | Free Book
-date: 2024-10-23 10:56:37
-updated: 2024-10-26 11:28:19
+date: 2024-10-26T02:11:20.875Z
+updated: 2024-10-26T21:24:42.771Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1b4b5f57fbf612dde177a3889a2e6311cefccf386a29fec172b5c97fcba35c7.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1b4b5f57fbf612dde177a3889a2e63
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

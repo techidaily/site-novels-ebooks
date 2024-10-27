@@ -1,7 +1,7 @@
 ---
 title: The Power of Past Life Regression | Free Book
-date: 2024-10-25 14:26:34
-updated: 2024-10-26 12:46:42
+date: 2024-10-20T17:05:58.072Z
+updated: 2024-10-27T04:44:47.329Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3d4f3e924acf0b1f87c63d0363630ec00f6fa2a7488c0869e11d78b0b17e4940.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3d4f3e924acf0b1f87c63d0363630ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

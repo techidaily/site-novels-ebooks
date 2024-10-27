@@ -1,7 +1,7 @@
 ---
 title: Buddhism for Busy People (2nd ed.) | Free Book
-date: 2024-10-23 11:51:32
-updated: 2024-10-26 11:15:11
+date: 2024-10-24T00:13:25.672Z
+updated: 2024-10-26T16:00:12.889Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8069068796480622c8f359312782d2c26df66feadab7b758806c6b6e927870a6.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8069068796480622c8f359312782d2c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

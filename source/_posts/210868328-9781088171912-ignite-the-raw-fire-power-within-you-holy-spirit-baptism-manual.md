@@ -1,7 +1,7 @@
 ---
 title: Ignite the Raw Fire Power Within You - Holy Spirit Baptism Manual | Free Book
-date: 2024-10-25 16:16:33
-updated: 2024-10-26 10:25:53
+date: 2024-10-24T00:39:21.877Z
+updated: 2024-10-26T16:22:32.108Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a48ebd47c1a50949d73a01674ef5db40475933e49bbb56f19d8f7612f68f341c.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a48ebd47c1a50949d73a01674ef5db4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

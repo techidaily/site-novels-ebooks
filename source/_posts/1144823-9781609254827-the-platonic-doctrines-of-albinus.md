@@ -1,7 +1,7 @@
 ---
 title: The Platonic Doctrines of Albinus | Free Book
-date: 2024-10-23 18:58:17
-updated: 2024-10-26 11:13:23
+date: 2024-10-23T23:34:49.004Z
+updated: 2024-10-26T20:36:44.492Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f3ff026326f4824bcc66a1a864e6ec2ceaa8bbea0d9f76adae4fa5d8760af1e6.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f3ff026326f4824bcc66a1a864e6ec2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

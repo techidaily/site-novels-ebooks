@@ -1,7 +1,7 @@
 ---
 title: Emotion and Healing in the Energy Body | Free Book
-date: 2024-10-24 18:16:28
-updated: 2024-10-26 10:55:37
+date: 2024-10-24T03:25:01.698Z
+updated: 2024-10-27T05:59:58.286Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7663b2ea86a55874d2b44464331455b2e0b01fd1a051989c7de2b2c2b0b8875.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7663b2ea86a55874d2b44464331455
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

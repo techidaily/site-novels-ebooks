@@ -1,7 +1,7 @@
 ---
 title: Through the Maze of Chartres on the Path to Yourself | Free Book
-date: 2024-10-24 12:42:31
-updated: 2024-10-26 12:43:42
+date: 2024-10-21T16:15:05.413Z
+updated: 2024-10-26T18:35:43.657Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18a258b452e249eaea662bd387fc5c0d8647a5aa17c2aa618ada6ee074fd3ea9.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18a258b452e249eaea662bd387fc5c0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Surviving Life's Challenges | Free Book
-date: 2024-10-23 12:14:32
-updated: 2024-10-26 12:27:21
+date: 2024-10-22T03:41:55.786Z
+updated: 2024-10-27T00:29:56.809Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04886963af1118854c0c896afa7c5afaba825bba24c00f7da1de6e85b98f1fa3.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04886963af1118854c0c896afa7c5af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

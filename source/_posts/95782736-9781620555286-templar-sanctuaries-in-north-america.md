@@ -1,7 +1,7 @@
 ---
 title: Templar Sanctuaries in North America | Free Book
-date: 2024-10-23 17:48:38
-updated: 2024-10-26 10:38:31
+date: 2024-10-25T01:46:27.912Z
+updated: 2024-10-26T20:06:19.448Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3045e00bf2caa50b3cb7f4a925fe1f6a2290243a17172d51214e29cfa7a58315.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3045e00bf2caa50b3cb7f4a925fe1f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

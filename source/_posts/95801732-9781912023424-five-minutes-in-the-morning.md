@@ -1,7 +1,7 @@
 ---
 title: Five Minutes in the Morning | Free Book
-date: 2024-10-23 10:57:25
-updated: 2024-10-26 11:45:10
+date: 2024-10-21T01:28:45.374Z
+updated: 2024-10-26T19:45:52.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4b92712f0702c9a187f5bbd79a34896cc87031f9dab00ab3befcdb702fa1ce4.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4b92712f0702c9a187f5bbd79a3489
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

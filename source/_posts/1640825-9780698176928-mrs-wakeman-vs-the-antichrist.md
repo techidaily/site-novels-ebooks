@@ -1,7 +1,7 @@
 ---
 title: Mrs. Wakeman vs. the Antichrist | Free Book
-date: 2024-10-24 18:45:48
-updated: 2024-10-26 10:59:10
+date: 2024-10-22T03:56:18.121Z
+updated: 2024-10-26T19:24:17.973Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3b4a766b5908bb92f7bbd85bbe7afb8678d56a6dbc3c6c7091d99236f78c4ef.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3b4a766b5908bb92f7bbd85bbe7afb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

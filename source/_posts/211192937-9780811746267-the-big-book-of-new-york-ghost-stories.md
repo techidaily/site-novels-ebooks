@@ -1,7 +1,7 @@
 ---
 title: The Big Book of New York Ghost Stories | Free Book
-date: 2024-10-23 21:32:41
-updated: 2024-10-26 12:36:27
+date: 2024-10-20T02:00:42.921Z
+updated: 2024-10-26T16:01:07.768Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0d12b21aa9243ed134fe6b29add4c17075e2bef3e124c9b95e1571e80e0f022.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0d12b21aa9243ed134fe6b29add4c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

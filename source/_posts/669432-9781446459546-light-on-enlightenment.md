@@ -1,7 +1,7 @@
 ---
 title: Light On Enlightenment | Free Book
-date: 2024-10-24 19:58:30
-updated: 2024-10-26 10:18:39
+date: 2024-10-25T20:33:35.382Z
+updated: 2024-10-26T16:16:02.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fd3aead830e98a14f9d9195bb54ed4a3ae1fa2c06d07ebe1c8ba8d5c5af8b6b.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fd3aead830e98a14f9d9195bb54ed4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

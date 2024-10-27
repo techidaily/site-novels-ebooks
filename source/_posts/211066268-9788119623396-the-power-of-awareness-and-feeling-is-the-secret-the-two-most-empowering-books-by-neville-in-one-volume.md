@@ -1,7 +1,7 @@
 ---
 title: "The Power of Awareness and Feeling is the Secret: The two most empowering books by Neville in one volume! | Free Book"
-date: 2024-10-23 18:36:21
-updated: 2024-10-26 11:43:14
+date: 2024-10-24T16:54:42.514Z
+updated: 2024-10-26T16:16:41.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84c7d047054414c8a606db707af90e0457b413cfb5bf057fade90ab1ca4813e7.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84c7d047054414c8a606db707af90e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

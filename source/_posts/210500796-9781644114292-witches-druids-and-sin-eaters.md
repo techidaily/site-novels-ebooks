@@ -1,7 +1,7 @@
 ---
 title: Witches, Druids, and Sin Eaters | Free Book
-date: 2024-10-24 19:24:28
-updated: 2024-10-26 10:31:15
+date: 2024-10-24T04:10:48.385Z
+updated: 2024-10-26T20:26:13.177Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/671c900d33a09d9c28a5898df73dba3022dff8917d76153abcce19d6bf8cfebf.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/671c900d33a09d9c28a5898df73dba3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

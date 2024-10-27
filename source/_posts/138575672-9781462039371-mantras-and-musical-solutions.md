@@ -1,7 +1,7 @@
 ---
 title: Mantras and Musical Solutions | Free Book
-date: 2024-10-25 20:37:56
-updated: 2024-10-26 12:14:35
+date: 2024-10-25T06:01:43.620Z
+updated: 2024-10-26T18:36:50.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d82f7197f8ee0a3850ce22e382bcac98319efdaf74340081e06afe97341a4149.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d82f7197f8ee0a3850ce22e382bcac9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

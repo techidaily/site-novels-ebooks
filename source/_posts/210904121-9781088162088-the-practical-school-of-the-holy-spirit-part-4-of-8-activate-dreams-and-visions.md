@@ -1,7 +1,7 @@
 ---
 title: The Practical School of the Holy Spirit - Part 4 of 8 - Activate Dreams and Visions | Free Book
-date: 2024-10-23 14:59:54
-updated: 2024-10-26 10:43:22
+date: 2024-10-22T05:25:19.626Z
+updated: 2024-10-27T05:27:28.834Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d150c505090a929b1f0b619e71d75efa7bfe9ee60890dc8e371f7d8591f356f.jpg
@@ -202,3 +202,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d150c505090a929b1f0b619e71d75e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

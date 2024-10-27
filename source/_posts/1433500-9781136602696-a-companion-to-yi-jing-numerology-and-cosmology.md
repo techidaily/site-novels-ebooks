@@ -1,7 +1,7 @@
 ---
 title: A Companion to Yi jing Numerology and Cosmology | Free Book
-date: 2024-10-23 18:44:55
-updated: 2024-10-26 11:48:58
+date: 2024-10-24T03:21:06.118Z
+updated: 2024-10-26T19:00:53.146Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f6db87fac5922f3e7df2bad61847e1ab02da7fc0f93f27b24a552b5a864c179.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f6db87fac5922f3e7df2bad61847e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

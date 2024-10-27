@@ -1,7 +1,7 @@
 ---
 title: Don Juan and the Art of Sexual Energy | Free Book
-date: 2024-10-23 15:46:31
-updated: 2024-10-26 11:57:52
+date: 2024-10-23T23:02:19.586Z
+updated: 2024-10-27T05:43:10.387Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f6c36079d1bec8559c2b4a8973f36d721b5b167d1a118f37b7503d51675fbb2.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f6c36079d1bec8559c2b4a8973f36d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Criando o Tarot Visconti-Sforza | Free Book
-date: 2024-10-25 22:46:28
-updated: 2024-10-26 12:19:48
+date: 2024-10-20T21:50:32.457Z
+updated: 2024-10-27T01:05:07.672Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3568109a1f14cf78ea14cd5bd164ee1b1a473aae7a95ac972930b7946d1a0bba.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3568109a1f14cf78ea14cd5bd164ee1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

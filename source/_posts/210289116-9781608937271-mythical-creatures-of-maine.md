@@ -1,7 +1,7 @@
 ---
 title: Mythical Creatures of Maine | Free Book
-date: 2024-10-25 10:46:18
-updated: 2024-10-26 12:49:53
+date: 2024-10-24T20:46:59.470Z
+updated: 2024-10-26T19:17:37.325Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a48076736bb4aa6c5017daff7066f3e9e8e55e7de3d763ff18d29a5155a3a7fc.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a48076736bb4aa6c5017daff7066f3e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

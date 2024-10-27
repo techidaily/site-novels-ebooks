@@ -1,7 +1,7 @@
 ---
 title: The Earth Chronicles Handbook | Free Book
-date: 2024-10-23 21:20:52
-updated: 2024-10-26 10:40:18
+date: 2024-10-21T23:10:20.839Z
+updated: 2024-10-27T04:34:47.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/062cd878d248c4ce30c92b904944c4fc65c6acc7eee832c967c923a72897397e.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/062cd878d248c4ce30c92b904944c4f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

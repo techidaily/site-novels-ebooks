@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Way of the Bee (2nd ed.) | Free Book
-date: 2024-10-24 21:27:15
-updated: 2024-10-26 10:48:26
+date: 2024-10-21T00:10:29.832Z
+updated: 2024-10-26T21:08:43.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aeb55c1855791abb3001e6e01487acf10ba59e78a00f1cc33845d5ed1ab8b7a3.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aeb55c1855791abb3001e6e01487acf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

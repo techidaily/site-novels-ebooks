@@ -1,7 +1,7 @@
 ---
 title: On The Threshold of a New World of Thought - An Examination of the Phenomena of Spiritualism | Free Book
-date: 2024-10-25 15:34:37
-updated: 2024-10-26 11:31:48
+date: 2024-10-25T16:52:32.568Z
+updated: 2024-10-26T17:17:21.630Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4837f9870b2c5ace661bfc1f9b77c96bf922b81cff8184b5dbc749555e33bf9a.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4837f9870b2c5ace661bfc1f9b77c96
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

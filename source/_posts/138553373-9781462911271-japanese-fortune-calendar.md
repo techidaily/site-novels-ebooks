@@ -1,7 +1,7 @@
 ---
 title: Japanese Fortune Calendar | Free Book
-date: 2024-10-24 17:42:29
-updated: 2024-10-26 12:57:11
+date: 2024-10-21T22:58:32.749Z
+updated: 2024-10-26T21:59:15.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c71cd9d1d31f6dda8f417116903a2cbb3c1f65ede80d53031baa9f48246e8f15.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c71cd9d1d31f6dda8f417116903a2cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

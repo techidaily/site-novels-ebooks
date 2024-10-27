@@ -1,7 +1,7 @@
 ---
 title: Shamanism for the Age of Science (2nd ed.) | Free Book
-date: 2024-10-24 23:39:13
-updated: 2024-10-26 10:50:54
+date: 2024-10-20T21:22:12.175Z
+updated: 2024-10-26T23:56:26.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e138c00bb0360d691958a10bd663b5f1d21dba62e4731ad5b25a473b1926304e.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e138c00bb0360d691958a10bd663b5f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: My NOT-SO-CHRISTIAN Walk with The Holy Spirit | Free Book
-date: 2024-10-24 13:18:23
-updated: 2024-10-26 11:54:50
+date: 2024-10-21T23:32:44.593Z
+updated: 2024-10-27T01:30:06.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd1063ab37bcafd39d83d57b74ffa77ff766af60d5ed61ff1030ca1500c3858c.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd1063ab37bcafd39d83d57b74ffa77
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

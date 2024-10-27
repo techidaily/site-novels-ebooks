@@ -1,7 +1,7 @@
 ---
 title: The Power of God's Consciousness | Free Book
-date: 2024-10-24 18:55:15
-updated: 2024-10-26 11:25:46
+date: 2024-10-22T19:32:51.537Z
+updated: 2024-10-26T19:50:33.097Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/deb3da5d2cf472b7614c24baba526c8f7dde04eacf8503128d27ca8abd805a1d.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/deb3da5d2cf472b7614c24baba526c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

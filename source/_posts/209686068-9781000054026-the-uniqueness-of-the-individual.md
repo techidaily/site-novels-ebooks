@@ -1,7 +1,7 @@
 ---
 title: The Uniqueness of the Individual | Free Book
-date: 2024-10-25 21:23:55
-updated: 2024-10-26 10:42:43
+date: 2024-10-20T19:06:50.765Z
+updated: 2024-10-26T19:07:48.898Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ebfe9c15fc9715f7117604d4c62566c889b822d2620d154f2f07a554a0de1475.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ebfe9c15fc9715f7117604d4c62566c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: My Bible Says the Darndest Things | Free Book
-date: 2024-10-23 14:51:52
-updated: 2024-10-26 11:57:13
+date: 2024-10-25T20:18:55.750Z
+updated: 2024-10-27T01:52:15.700Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b1e835068084d9047da175a9a89bc789e178ee48608500ad99b2a895f8fb8f7.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b1e835068084d9047da175a9a89bc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

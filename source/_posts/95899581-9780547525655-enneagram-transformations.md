@@ -1,7 +1,7 @@
 ---
 title: Enneagram Transformations | Free Book
-date: 2024-10-25 16:39:15
-updated: 2024-10-26 10:37:36
+date: 2024-10-24T00:21:43.506Z
+updated: 2024-10-26T21:54:58.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f19d110094488bdb32d7707a6e995a4f0672c5b72579ab8a35b4a0ec4fc35786.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f19d110094488bdb32d7707a6e995a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

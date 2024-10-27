@@ -1,7 +1,7 @@
 ---
 title: Lucky Astrology - Capricorn | Free Book
-date: 2024-10-25 13:20:27
-updated: 2024-10-26 10:23:27
+date: 2024-10-26T05:25:09.973Z
+updated: 2024-10-26T18:35:21.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c549f465cecd61c577155741a691012fae2038e68b6382e68611cc6e80df8122.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c549f465cecd61c577155741a691012
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

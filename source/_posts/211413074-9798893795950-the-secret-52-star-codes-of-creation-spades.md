@@ -1,7 +1,7 @@
 ---
 title: The Secret 52 Star Codes of Creation (Spades) | Free Book
-date: 2024-10-23 11:53:29
-updated: 2024-10-26 12:17:59
+date: 2024-10-20T22:37:07.120Z
+updated: 2024-10-27T03:13:45.948Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/565aac5bd29aa9d530845f6fd4c9d174b3b62f36c12e871875c85112b3d2f858.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/565aac5bd29aa9d530845f6fd4c9d17
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Cunning Folk and Familiar Spirits | Free Book
-date: 2024-10-24 10:54:33
-updated: 2024-10-26 11:57:30
+date: 2024-10-19T18:03:23.169Z
+updated: 2024-10-26T16:27:26.241Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/247cb92c2fa49d0809a7a64a59a4f989f611791522f9c8e13b011ce084ab44f9.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/247cb92c2fa49d0809a7a64a59a4f98
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

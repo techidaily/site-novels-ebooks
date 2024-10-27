@@ -1,7 +1,7 @@
 ---
 title: What Color Is Your Personality | Free Book
-date: 2024-10-24 21:17:43
-updated: 2024-10-26 11:41:51
+date: 2024-10-22T23:50:46.964Z
+updated: 2024-10-27T04:56:01.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fdb9761effe53c910157f9173c6e3492186a781b381ec0d794b628f579fd319b.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fdb9761effe53c910157f9173c6e349
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

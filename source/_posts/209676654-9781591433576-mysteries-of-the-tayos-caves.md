@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Tayos Caves | Free Book
-date: 2024-10-23 10:40:32
-updated: 2024-10-26 12:54:39
+date: 2024-10-19T23:50:30.526Z
+updated: 2024-10-27T00:28:09.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/654db8a7adf2eda1a30326bddfc953bcec370dc38d44a9e240d2efa1fd17117b.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/654db8a7adf2eda1a30326bddfc953b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

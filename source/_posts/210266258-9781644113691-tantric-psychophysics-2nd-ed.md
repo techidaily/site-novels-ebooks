@@ -1,7 +1,7 @@
 ---
 title: Tantric Psychophysics (2nd ed.) | Free Book
-date: 2024-10-25 10:35:38
-updated: 2024-10-26 10:34:29
+date: 2024-10-24T16:22:24.352Z
+updated: 2024-10-26T16:43:12.985Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43f9c2cee97697c6e03eee34fc8c0926d9857749e802374159c586a9b4e8fe60.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43f9c2cee97697c6e03eee34fc8c092
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

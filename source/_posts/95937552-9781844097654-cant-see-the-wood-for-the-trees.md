@@ -1,7 +1,7 @@
 ---
 title: Can't See the Wood for the Trees? | Free Book
-date: 2024-10-23 14:13:34
-updated: 2024-10-26 10:22:51
+date: 2024-10-24T19:10:16.054Z
+updated: 2024-10-27T05:02:28.825Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4480b2e2891373ce624c52fbe1a84825ab6ae8660f929622b9864eaab46ed601.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4480b2e2891373ce624c52fbe1a8482
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Psychospiritual Clinician's Handbook | Free Book
-date: 2024-10-23 14:59:24
-updated: 2024-10-26 11:28:53
+date: 2024-10-19T23:15:52.545Z
+updated: 2024-10-26T16:17:25.277Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5441e8147ad40d9b0b327ab025715a913f68c6b1f3ee0101aa5df155c3b1b643.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5441e8147ad40d9b0b327ab025715a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

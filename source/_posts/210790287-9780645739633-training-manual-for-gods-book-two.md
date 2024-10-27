@@ -1,7 +1,7 @@
 ---
 title: Training Manual for Gods, Book Two | Free Book
-date: 2024-10-25 19:55:27
-updated: 2024-10-26 12:42:10
+date: 2024-10-26T01:21:04.801Z
+updated: 2024-10-26T19:49:26.597Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95ae7fdb185491149050f161ad43743c2575ce9cbd54fffab871cf206f8906cb.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95ae7fdb185491149050f161ad43743
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

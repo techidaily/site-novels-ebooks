@@ -1,7 +1,7 @@
 ---
 title: The Simplified book of Change | Free Book
-date: 2024-10-23 23:53:18
-updated: 2024-10-26 12:42:59
+date: 2024-10-25T16:29:08.940Z
+updated: 2024-10-27T02:53:42.806Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5919a83154316907ff78d5a2ebf6aeaef956bb590fdb47fb8accb6a6b5156f0.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5919a83154316907ff78d5a2ebf6ae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

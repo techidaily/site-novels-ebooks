@@ -1,7 +1,7 @@
 ---
 title: A Little Book on Big Freedom | Free Book
-date: 2024-10-24 12:52:12
-updated: 2024-10-26 12:54:23
+date: 2024-10-22T04:48:10.281Z
+updated: 2024-10-26T19:57:43.952Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fcf4f8a92ae95307e35fc4c31002bebf779c2aca6f6cfed6d5947c400f710edc.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fcf4f8a92ae95307e35fc4c31002beb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

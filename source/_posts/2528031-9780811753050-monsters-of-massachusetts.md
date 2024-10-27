@@ -1,7 +1,7 @@
 ---
 title: Monsters of Massachusetts | Free Book
-date: 2024-10-23 19:22:50
-updated: 2024-10-26 11:36:51
+date: 2024-10-24T21:39:08.460Z
+updated: 2024-10-26T21:51:50.231Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5059aec490ce07bbe604d96dc7457ef7fe17327da37c9dad2ff3f97da68f901e.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5059aec490ce07bbe604d96dc7457ef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

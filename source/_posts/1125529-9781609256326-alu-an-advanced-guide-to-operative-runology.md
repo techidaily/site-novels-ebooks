@@ -1,7 +1,7 @@
 ---
 title: ALU, An Advanced Guide to Operative Runology | Free Book
-date: 2024-10-23 15:53:29
-updated: 2024-10-26 11:43:14
+date: 2024-10-23T05:10:32.162Z
+updated: 2024-10-27T00:21:54.269Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8a65563052b041bce6e960f573a2f8330419ebd5d6cce866997f641eb459d72.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8a65563052b041bce6e960f573a2f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

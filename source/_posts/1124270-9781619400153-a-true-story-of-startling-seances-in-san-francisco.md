@@ -1,7 +1,7 @@
 ---
 title: A True Story of Startling Seances in San Francisco | Free Book
-date: 2024-10-23 13:26:15
-updated: 2024-10-26 12:50:20
+date: 2024-10-23T20:59:33.103Z
+updated: 2024-10-26T22:30:46.299Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afa7f6bef15f07434b033105408395138ba8275b577402afb348c6e4cf1b30fc.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afa7f6bef15f07434b0331054083951
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

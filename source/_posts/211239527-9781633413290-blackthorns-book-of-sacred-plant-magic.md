@@ -1,7 +1,7 @@
 ---
 title: Blackthorn's Book of Sacred Plant Magic | Free Book
-date: 2024-10-25 15:43:11
-updated: 2024-10-26 12:36:53
+date: 2024-10-22T23:42:50.973Z
+updated: 2024-10-26T16:00:12.989Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2581ba69a896fd54444cd80b78b978567c2626ab2db0cf989c4f6349cfea5436.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2581ba69a896fd54444cd80b78b9785
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

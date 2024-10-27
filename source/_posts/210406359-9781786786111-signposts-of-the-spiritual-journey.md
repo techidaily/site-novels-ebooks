@@ -1,7 +1,7 @@
 ---
 title: Signposts of the Spiritual Journey | Free Book
-date: 2024-10-25 19:57:29
-updated: 2024-10-26 11:18:35
+date: 2024-10-23T23:14:43.826Z
+updated: 2024-10-27T05:01:10.637Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b869a828547778e2bbf7962511021286458c63df203b5832102af88e8a7037f.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b869a828547778e2bbf79625110212
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

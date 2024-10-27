@@ -1,7 +1,7 @@
 ---
 title: The Family Gratitude Project | Free Book
-date: 2024-10-24 23:25:24
-updated: 2024-10-26 10:16:45
+date: 2024-10-21T04:25:16.201Z
+updated: 2024-10-26T17:58:53.976Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e0382d70938ff323dfb91f796ee37653bf133b52c97dd96c92d50c2fbda6a20.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e0382d70938ff323dfb91f796ee376
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

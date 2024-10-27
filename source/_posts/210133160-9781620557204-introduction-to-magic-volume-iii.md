@@ -1,7 +1,7 @@
 ---
 title: Introduction to Magic, Volume III | Free Book
-date: 2024-10-25 19:28:52
-updated: 2024-10-26 12:59:36
+date: 2024-10-20T21:25:00.815Z
+updated: 2024-10-27T02:35:34.510Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c28f6f71c2dfbd5e87896e14d5b1e131b5ee397cc0760c59ac354148c81df10d.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c28f6f71c2dfbd5e87896e14d5b1e13
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

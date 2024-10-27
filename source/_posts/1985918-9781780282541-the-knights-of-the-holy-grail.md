@@ -1,7 +1,7 @@
 ---
 title: The Knights of the Holy Grail | Free Book
-date: 2024-10-25 19:19:48
-updated: 2024-10-26 12:21:44
+date: 2024-10-25T20:02:23.398Z
+updated: 2024-10-26T19:26:16.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e22f71a8a2cfe3911cc5b4a05383876a5be715ef183e41786f108cab83a5780.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e22f71a8a2cfe3911cc5b4a0538387
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

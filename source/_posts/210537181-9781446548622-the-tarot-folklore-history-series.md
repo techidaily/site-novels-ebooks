@@ -1,7 +1,7 @@
 ---
 title: The Tarot (Folklore History Series) | Free Book
-date: 2024-10-24 12:23:38
-updated: 2024-10-26 12:52:38
+date: 2024-10-22T21:14:57.468Z
+updated: 2024-10-27T02:47:08.050Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9b0d9ba59992c9beb84276d352e67ba40e9cb21fc41564def8d7b27f89be582.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9b0d9ba59992c9beb84276d352e67b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

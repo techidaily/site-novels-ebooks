@@ -1,7 +1,7 @@
 ---
 title: Jaguar in the Body, Butterfly in the Heart | Free Book
-date: 2024-10-24 18:48:47
-updated: 2024-10-26 10:18:58
+date: 2024-10-21T18:00:36.834Z
+updated: 2024-10-27T04:22:53.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfbd7a93062ddbe34c80689554db31490e9e01f4385aad7ead9b39f0729cf9aa.jpg
@@ -244,3 +244,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfbd7a93062ddbe34c80689554db314
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

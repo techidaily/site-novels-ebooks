@@ -1,7 +1,7 @@
 ---
 title: Anaya's Journey to the Fifth Dimension | Free Book
-date: 2024-10-24 22:49:43
-updated: 2024-10-26 12:17:27
+date: 2024-10-21T16:08:10.429Z
+updated: 2024-10-26T17:10:43.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d7e32f748d4b709dd5daf10bc8eb7d30b80ec371b763e4f4a3a1fa313f32f1c.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d7e32f748d4b709dd5daf10bc8eb7d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

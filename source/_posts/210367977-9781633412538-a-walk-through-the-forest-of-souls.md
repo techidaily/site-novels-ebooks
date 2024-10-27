@@ -1,7 +1,7 @@
 ---
 title: A Walk through the Forest of Souls | Free Book
-date: 2024-10-25 16:26:10
-updated: 2024-10-26 11:54:50
+date: 2024-10-20T01:43:45.504Z
+updated: 2024-10-26T16:33:04.357Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4dd6e6bd92decd6cc44c435bd1b72e3f3ce6ce3777d8434b2186c12ea8009284.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4dd6e6bd92decd6cc44c435bd1b72e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

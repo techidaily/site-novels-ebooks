@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Elves And Fairies | Free Book
-date: 2024-10-25 10:18:39
-updated: 2024-10-26 10:47:44
+date: 2024-10-19T16:15:39.011Z
+updated: 2024-10-26T21:45:37.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6562ab621460b6b002af4c61dd8b6b7218f1e92c78b0dd51725eb4d3901d216.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6562ab621460b6b002af4c61dd8b6b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

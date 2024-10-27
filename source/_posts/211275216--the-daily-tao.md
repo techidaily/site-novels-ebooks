@@ -1,7 +1,7 @@
 ---
 title: The Daily Tao | Free Book
-date: 2024-10-25 20:54:57
-updated: 2024-10-26 12:12:52
+date: 2024-10-20T04:01:55.238Z
+updated: 2024-10-27T01:27:55.794Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0167f59ce3853e2b6ed6d58d37617ad55c1c504991c4f4564c65c979885628a5.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0167f59ce3853e2b6ed6d58d37617ad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

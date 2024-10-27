@@ -1,7 +1,7 @@
 ---
 title: Neville Goddard's Final Lectures | Free Book
-date: 2024-10-25 19:40:41
-updated: 2024-10-26 10:30:33
+date: 2024-10-24T20:50:00.082Z
+updated: 2024-10-26T23:54:08.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ac5db5e010cfaf008dd63f0d1ffe185171c3173f1ef20c29d6b769144406ccf.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ac5db5e010cfaf008dd63f0d1ffe18
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Guided Imagery for Self-Healing | Free Book
-date: 2024-10-24 22:19:38
-updated: 2024-10-26 12:49:12
+date: 2024-10-22T20:59:33.352Z
+updated: 2024-10-27T01:10:28.054Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b69501aa6d3d929b3bba0c11bfb450155b9c2d427269409beadfd29989eb51a.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b69501aa6d3d929b3bba0c11bfb450
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Introduction To The Occult | Free Book
-date: 2024-10-24 17:49:50
-updated: 2024-10-26 12:30:13
+date: 2024-10-19T16:31:36.435Z
+updated: 2024-10-26T16:47:58.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c1f66f766168229b7b40c6ae178f005ebbd2986ff99fc80ebc2df0e9ffc63052.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c1f66f766168229b7b40c6ae178f005
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Practical School of the Holy Spirit - Part 3 of 8 - Activate 12 Eagle Traits in You | Free Book
-date: 2024-10-24 13:48:31
-updated: 2024-10-26 12:45:52
+date: 2024-10-20T19:48:00.770Z
+updated: 2024-10-26T22:37:03.727Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4ca33899e3b0ba1b0288428f4c064f9ccc880858e0950a09bbdda17b8d7c94a2.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4ca33899e3b0ba1b0288428f4c064f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

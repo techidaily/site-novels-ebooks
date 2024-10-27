@@ -1,7 +1,7 @@
 ---
 title: Meeting the Muse After Midlife | Free Book
-date: 2024-10-23 16:45:21
-updated: 2024-10-26 12:17:53
+date: 2024-10-25T04:09:20.415Z
+updated: 2024-10-26T22:23:52.252Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e82b4e9cd5d70e0194769584cdd59bd718a6361043e207c8e9956555fcbcfd7.jpg
@@ -213,3 +213,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e82b4e9cd5d70e0194769584cdd59b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

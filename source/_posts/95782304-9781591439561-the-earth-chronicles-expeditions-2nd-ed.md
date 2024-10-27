@@ -1,7 +1,7 @@
 ---
 title: The Earth Chronicles Expeditions (2nd ed.) | Free Book
-date: 2024-10-23 18:20:53
-updated: 2024-10-26 11:20:40
+date: 2024-10-23T19:44:04.199Z
+updated: 2024-10-27T04:04:42.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d75fbdc402ae5d0ecea1a2cd51559e9a10580f648bae58bdb0564890a828580.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d75fbdc402ae5d0ecea1a2cd51559e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

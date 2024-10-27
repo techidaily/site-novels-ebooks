@@ -1,7 +1,7 @@
 ---
 title: Vivi l'attimo e vedi e riconosci te stesso | Free Book
-date: 2024-10-25 10:40:31
-updated: 2024-10-26 12:40:19
+date: 2024-10-21T05:07:23.020Z
+updated: 2024-10-26T21:03:55.503Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d2fed3b86c114480d51eb89a4b68e921cc37c8f9511cb30c207f474b9d3dee3.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d2fed3b86c114480d51eb89a4b68e9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

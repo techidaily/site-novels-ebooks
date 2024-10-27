@@ -1,7 +1,7 @@
 ---
 title: EASE Amidst Challenging Times | Free Book
-date: 2024-10-24 20:56:28
-updated: 2024-10-26 11:43:13
+date: 2024-10-20T02:22:39.640Z
+updated: 2024-10-27T06:02:28.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4df9f44deba53908e7150267c66ac7c3335f70d18a26ffcce5fe27efccca8b47.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4df9f44deba53908e7150267c66ac7c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

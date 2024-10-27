@@ -1,7 +1,7 @@
 ---
 title: Wisdom of the Silver Sisters - Guiding Grace | Free Book
-date: 2024-10-23 22:34:48
-updated: 2024-10-26 11:42:12
+date: 2024-10-24T21:12:23.336Z
+updated: 2024-10-26T20:05:50.092Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c2828a421c1626be67f511aa28d8fee586388e8a42e2e6b03d58e92cdca1a7a.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c2828a421c1626be67f511aa28d8fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Shamanism | Free Book
-date: 2024-10-25 12:17:43
-updated: 2024-10-26 10:27:57
+date: 2024-10-25T17:38:29.837Z
+updated: 2024-10-27T03:15:00.130Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5469f47df8d3f59726b5b96fabb6ad28d7aba632127d5a26249fed25f2a6bc1f.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5469f47df8d3f59726b5b96fabb6ad2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

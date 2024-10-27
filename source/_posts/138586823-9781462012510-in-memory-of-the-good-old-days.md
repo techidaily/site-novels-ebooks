@@ -1,7 +1,7 @@
 ---
 title: In Memory of the Good Old Days | Free Book
-date: 2024-10-23 19:25:55
-updated: 2024-10-26 11:50:41
+date: 2024-10-19T17:53:55.808Z
+updated: 2024-10-26T22:02:09.202Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/af9485f6bf3140fb7db203511445e619e6797c67ae9dd476504d4b1d8582174e.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/af9485f6bf3140fb7db203511445e61
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

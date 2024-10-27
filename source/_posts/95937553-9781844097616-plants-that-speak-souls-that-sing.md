@@ -1,7 +1,7 @@
 ---
 title: Plants That Speak, Souls That Sing | Free Book
-date: 2024-10-25 12:10:53
-updated: 2024-10-26 12:27:30
+date: 2024-10-19T22:01:07.853Z
+updated: 2024-10-27T03:56:14.775Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e62ae6ba3effc265471d96a57fc134541b483d64d2617ff52c80f02315a5a90b.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e62ae6ba3effc265471d96a57fc1345
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

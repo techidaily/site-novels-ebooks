@@ -1,7 +1,7 @@
 ---
 title: Traveling Between the Worlds | Free Book
-date: 2024-10-25 20:46:33
-updated: 2024-10-26 10:18:34
+date: 2024-10-20T16:31:33.561Z
+updated: 2024-10-27T05:48:31.357Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02e013c3025fef929ca2aa96159de6ddd93cd91568bc0d55146e93e80bdb4c4f.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02e013c3025fef929ca2aa96159de6d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

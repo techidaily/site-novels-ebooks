@@ -1,7 +1,7 @@
 ---
 title: Melchizedek and the Mystery of Fire | Free Book
-date: 2024-10-23 18:42:12
-updated: 2024-10-26 10:13:18
+date: 2024-10-20T01:27:00.454Z
+updated: 2024-10-27T04:50:35.652Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/600c14dd368a6dc33be38b22ba2bfa1c53e1a4220b340b8849c440d664bf66ad.jpg
@@ -202,3 +202,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/600c14dd368a6dc33be38b22ba2bfa1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Blessings for the Long Night: Poems and Meditations to Help You through Depression | Free Book"
-date: 2024-10-25 10:33:32
-updated: 2024-10-26 10:48:12
+date: 2024-10-25T17:50:23.254Z
+updated: 2024-10-27T02:58:23.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/607a9467d9a5fcf38ccdfef8c81b76ad9d6595d87635821a1ca79ca088a0ae3a.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/607a9467d9a5fcf38ccdfef8c81b76a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

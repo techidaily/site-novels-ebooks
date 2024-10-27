@@ -1,7 +1,7 @@
 ---
 title: The Lost City of the Exodus | Free Book
-date: 2024-10-24 15:30:15
-updated: 2024-10-26 11:14:49
+date: 2024-10-22T23:25:51.119Z
+updated: 2024-10-27T03:39:31.408Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b5ffce140a87776ff5dffb5f73546a87bd376d6e9513a695421c7ac79b29d1d.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b5ffce140a87776ff5dffb5f73546a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

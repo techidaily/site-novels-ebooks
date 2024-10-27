@@ -1,7 +1,7 @@
 ---
 title: Sensitelligent - a guide to Life | Free Book
-date: 2024-10-24 10:40:56
-updated: 2024-10-26 11:14:15
+date: 2024-10-24T05:23:54.655Z
+updated: 2024-10-26T18:11:47.956Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63fbae880b99fd02f700785345238d51ac844560a25e22f0eb41bb1eae08165f.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63fbae880b99fd02f700785345238d5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

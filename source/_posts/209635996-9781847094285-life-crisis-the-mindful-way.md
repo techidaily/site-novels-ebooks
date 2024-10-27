@@ -1,7 +1,7 @@
 ---
 title: "Life Crisis: The Mindful Way | Free Book"
-date: 2024-10-24 21:24:14
-updated: 2024-10-26 12:49:55
+date: 2024-10-23T01:05:03.647Z
+updated: 2024-10-26T18:23:52.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b8b4e8bfb815325c377826311e3e5815e5ee90eea8d62cd8573e61b0a9d518e.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b8b4e8bfb815325c377826311e3e58
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

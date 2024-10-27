@@ -1,7 +1,7 @@
 ---
 title: How to Cheer Up a Capricorn | Free Book
-date: 2024-10-25 12:30:29
-updated: 2024-10-26 12:54:43
+date: 2024-10-24T00:32:15.982Z
+updated: 2024-10-26T23:34:28.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1c24d76caf49d4f98e2dba47b9c59d1f2282ce1d21d6cc981474b43db1a31f0.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1c24d76caf49d4f98e2dba47b9c59d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

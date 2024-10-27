@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Big Promises | Free Book
-date: 2024-10-25 20:19:25
-updated: 2024-10-26 10:47:29
+date: 2024-10-25T05:46:54.304Z
+updated: 2024-10-26T18:07:38.994Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3e2b9db9b4c4028005eaebb4db4e3a62cbf0b5dcdbb950b9590d1c04a39658a.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3e2b9db9b4c4028005eaebb4db4e3a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

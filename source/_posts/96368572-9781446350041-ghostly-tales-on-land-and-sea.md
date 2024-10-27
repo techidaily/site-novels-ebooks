@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales on Land and Sea | Free Book
-date: 2024-10-23 13:35:51
-updated: 2024-10-26 10:11:31
+date: 2024-10-19T22:24:14.040Z
+updated: 2024-10-26T20:17:55.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84ca67bb8fdd72f5a2d46f84bb32fed98e81.jpg
@@ -123,3 +123,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

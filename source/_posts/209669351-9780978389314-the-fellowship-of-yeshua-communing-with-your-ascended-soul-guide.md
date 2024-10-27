@@ -1,7 +1,7 @@
 ---
 title: "The Fellowship of Yeshua: Communing With Your Ascended Soul Guide | Free Book"
-date: 2024-10-25 14:25:22
-updated: 2024-10-26 10:35:50
+date: 2024-10-24T16:44:51.748Z
+updated: 2024-10-26T23:56:53.157Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6dbb17108db12b7d3bac493790a4b5cb225e9f5fb592bb12528d30ce5a0e6132.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6dbb17108db12b7d3bac493790a4b5c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Mirage of Separation | Free Book
-date: 2024-10-24 16:30:52
-updated: 2024-10-26 12:18:13
+date: 2024-10-23T18:39:22.507Z
+updated: 2024-10-27T01:18:16.499Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/585945f2c4a0efaab4906bc64bdb5257e5b9aaf2331f6373da9729955be4628e.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/585945f2c4a0efaab4906bc64bdb525
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Awakening of a Warrior-Angel | Free Book
-date: 2024-10-25 15:53:23
-updated: 2024-10-26 12:39:44
+date: 2024-10-25T01:53:36.005Z
+updated: 2024-10-26T19:06:56.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b71a8d8b1a3d9c98ab901c67e7be881a44daeb4bf4e803e12c5aa24024649.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b71a8d8b1a3d9c98ab901c67e7be
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

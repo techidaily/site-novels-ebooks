@@ -1,7 +1,7 @@
 ---
 title: Imagining the World into Existence | Free Book
-date: 2024-10-23 20:31:19
-updated: 2024-10-26 11:33:53
+date: 2024-10-19T19:11:31.910Z
+updated: 2024-10-26T18:40:14.820Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9048b23590675ce269323ccd86a9df993476aaece7174f715a35a0f15c2b6c9a.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9048b23590675ce269323ccd86a9df9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

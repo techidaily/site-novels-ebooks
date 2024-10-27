@@ -1,7 +1,7 @@
 ---
 title: Seven Practices of a Mindful Leader | Free Book
-date: 2024-10-24 18:40:36
-updated: 2024-10-26 10:57:55
+date: 2024-10-22T02:38:27.223Z
+updated: 2024-10-26T23:43:04.591Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f967763572ea449e6c77f6d6066ae855b5351668adaf8e6bf4058c379d34f458.jpg
@@ -336,3 +336,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f967763572ea449e6c77f6d6066ae85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

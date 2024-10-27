@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: La atención plena se hace más presente a través de la meditación | Free Book"
-date: 2024-10-25 14:58:51
-updated: 2024-10-26 10:38:28
+date: 2024-10-24T02:32:12.171Z
+updated: 2024-10-26T20:57:55.780Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d1ef0f7056ab36fe68c47eac4624792bf285041f52b69da67c13548f00cb17a.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d1ef0f7056ab36fe68c47eac462479
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

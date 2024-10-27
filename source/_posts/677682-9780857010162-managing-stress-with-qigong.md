@@ -1,7 +1,7 @@
 ---
 title: Managing Stress with Qigong | Free Book
-date: 2024-10-25 11:35:45
-updated: 2024-10-26 11:56:49
+date: 2024-10-25T03:00:18.039Z
+updated: 2024-10-26T18:44:23.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6bbab5a6363a6b61007ead436905c6085ca79a082bb674cce62b2d50b804241.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6bbab5a6363a6b61007ead436905c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Course of Advanced Lessons in Clairvoyance and Occult Power | Free Book
-date: 2024-10-23 12:26:53
-updated: 2024-10-26 10:48:41
+date: 2024-10-25T01:49:57.552Z
+updated: 2024-10-27T05:12:35.535Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4270c0e2747582c2796759d6083cfcdf8dfbe9216c80f759efab404f00fd8549.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4270c0e2747582c2796759d6083cfcd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

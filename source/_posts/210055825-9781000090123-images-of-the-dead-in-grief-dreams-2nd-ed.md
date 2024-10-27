@@ -1,7 +1,7 @@
 ---
 title: Images of the Dead in Grief Dreams (2nd ed.) | Free Book
-date: 2024-10-25 14:49:31
-updated: 2024-10-26 10:21:18
+date: 2024-10-24T01:24:03.768Z
+updated: 2024-10-27T01:33:47.813Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e6c2f6409dd7aede8ad479b216c3e3aaf73853161ce9ceff3e253c0b08a11e13.jpg
@@ -205,3 +205,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e6c2f6409dd7aede8ad479b216c3e3a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

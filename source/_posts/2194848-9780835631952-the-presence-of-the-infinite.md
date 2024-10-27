@@ -1,7 +1,7 @@
 ---
 title: The Presence of the Infinite | Free Book
-date: 2024-10-25 12:20:11
-updated: 2024-10-26 10:23:33
+date: 2024-10-24T20:57:43.868Z
+updated: 2024-10-26T21:31:52.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cdb2791bab074138068d1005facd6a055cd4cc59714b1454272a265e87cd44a7.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cdb2791bab074138068d1005facd6a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

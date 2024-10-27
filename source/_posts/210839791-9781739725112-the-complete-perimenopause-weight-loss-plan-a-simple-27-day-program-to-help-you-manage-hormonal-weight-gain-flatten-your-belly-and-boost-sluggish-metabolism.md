@@ -1,7 +1,7 @@
 ---
 title: The Complete Perimenopause Weight Loss Plan. A Simple 27 Day Program to Help You Manage Hormonal Weight Gain, Flatten Your Belly and Boost Sluggish Metabolism | Free Book
-date: 2024-10-23 15:36:11
-updated: 2024-10-26 11:48:58
+date: 2024-10-24T18:37:29.001Z
+updated: 2024-10-26T17:18:40.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9ba47b39d15385b425ea0629ec0ac728074ead31edf25a2930e1214b2401873.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9ba47b39d15385b425ea0629ec0ac7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

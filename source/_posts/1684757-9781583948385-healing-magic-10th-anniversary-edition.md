@@ -1,7 +1,7 @@
 ---
 title: Healing Magic, 10th Anniversary Edition | Free Book
-date: 2024-10-24 21:37:29
-updated: 2024-10-26 10:26:13
+date: 2024-10-19T18:46:15.757Z
+updated: 2024-10-27T00:58:01.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5947ba053d4b2a68f17f1f55248be0af94e4b561752ef26b10aae421e3252bd6.jpg
@@ -206,3 +206,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5947ba053d4b2a68f17f1f55248be0a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

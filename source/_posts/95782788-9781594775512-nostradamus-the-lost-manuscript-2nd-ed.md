@@ -1,7 +1,7 @@
 ---
 title: "Nostradamus: The Lost Manuscript (2nd ed.) | Free Book"
-date: 2024-10-23 21:15:43
-updated: 2024-10-26 11:58:25
+date: 2024-10-20T18:38:52.112Z
+updated: 2024-10-26T22:01:31.096Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f972a4345669a138420e4ce7ae319f841a7341e151763f4dc7951ca4be619422.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f972a4345669a138420e4ce7ae319f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

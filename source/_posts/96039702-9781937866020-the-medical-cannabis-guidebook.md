@@ -1,7 +1,7 @@
 ---
 title: The Medical Cannabis Guidebook | Free Book
-date: 2024-10-25 14:19:37
-updated: 2024-10-26 11:33:59
+date: 2024-10-23T23:02:30.779Z
+updated: 2024-10-26T20:41:00.144Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/294bd2a1b76940a2cd5901ffd00a1b73aab4ce2ac99b007084671226a851979d.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/294bd2a1b76940a2cd5901ffd00a1b7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

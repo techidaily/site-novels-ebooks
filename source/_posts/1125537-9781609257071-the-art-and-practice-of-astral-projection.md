@@ -1,7 +1,7 @@
 ---
 title: The Art and Practice of Astral Projection | Free Book
-date: 2024-10-24 22:55:35
-updated: 2024-10-26 10:50:46
+date: 2024-10-19T20:23:51.231Z
+updated: 2024-10-27T04:39:16.954Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6a1b13a402da0027f05185ab334f9409327c838a32fc24e0960f6eaf37bbcd2.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6a1b13a402da0027f05185ab334f94
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

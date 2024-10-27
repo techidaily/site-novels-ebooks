@@ -1,7 +1,7 @@
 ---
 title: Music and Its Secret Influence (5th ed.) | Free Book
-date: 2024-10-24 15:51:53
-updated: 2024-10-26 12:57:39
+date: 2024-10-23T03:00:34.929Z
+updated: 2024-10-26T17:09:16.505Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/502274ffb99b83ce7b5cee44b69e12e704f44b144a9a8a8f9700da464910d75f.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/502274ffb99b83ce7b5cee44b69e12e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

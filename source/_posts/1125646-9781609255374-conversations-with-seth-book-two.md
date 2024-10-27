@@ -1,7 +1,7 @@
 ---
 title: "Conversations With Seth: Book Two | Free Book"
-date: 2024-10-24 14:10:28
-updated: 2024-10-26 10:53:52
+date: 2024-10-23T01:27:34.075Z
+updated: 2024-10-26T18:36:20.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5636562ba4a088674aa7c9b1d8a4a0a91e363bf8c44456dcfc5c4fd846d8c13c.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5636562ba4a088674aa7c9b1d8a4a0a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

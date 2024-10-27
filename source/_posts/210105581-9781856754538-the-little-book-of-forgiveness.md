@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Forgiveness | Free Book
-date: 2024-10-23 14:44:33
-updated: 2024-10-26 12:53:10
+date: 2024-10-25T01:04:13.592Z
+updated: 2024-10-26T16:35:56.351Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33bf33228c37cee7c01bd9b98c96367ae4aac3b8ccb318a470d5238bbd304596.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33bf33228c37cee7c01bd9b98c96367
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

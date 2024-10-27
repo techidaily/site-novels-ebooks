@@ -1,7 +1,7 @@
 ---
 title: Astrology and the Rising of Kundalini | Free Book
-date: 2024-10-25 10:10:47
-updated: 2024-10-26 11:22:53
+date: 2024-10-19T20:47:58.227Z
+updated: 2024-10-26T21:17:47.166Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8ce4a5f91ffe7f467c5fc6e7dc6b6b596d0b92c0520d0dd14a97bfabb3cfe1a.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8ce4a5f91ffe7f467c5fc6e7dc6b6b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

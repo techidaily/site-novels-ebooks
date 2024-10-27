@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: una nueva Forma de Atención Plena y Meditación | Free Book"
-date: 2024-10-24 19:58:36
-updated: 2024-10-26 10:51:59
+date: 2024-10-24T23:38:04.582Z
+updated: 2024-10-27T01:25:52.304Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e994b5fc5f77e9f578ac217cbb34f2b05170321e0b31f29a5ee9f5cc6d7dc042.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e994b5fc5f77e9f578ac217cbb34f2b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

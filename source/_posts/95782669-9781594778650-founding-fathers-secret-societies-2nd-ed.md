@@ -1,7 +1,7 @@
 ---
 title: Founding Fathers, Secret Societies (2nd ed.) | Free Book
-date: 2024-10-25 16:11:42
-updated: 2024-10-26 11:27:20
+date: 2024-10-24T00:13:06.169Z
+updated: 2024-10-27T00:53:13.622Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6b7438326478d5f397b6c688bc4f7f3ce486523cba57d7c4a6dc44e5ae852e3.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6b7438326478d5f397b6c688bc4f7f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

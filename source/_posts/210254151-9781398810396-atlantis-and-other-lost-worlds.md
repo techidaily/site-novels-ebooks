@@ -1,7 +1,7 @@
 ---
 title: Atlantis and Other Lost Worlds | Free Book
-date: 2024-10-24 14:53:43
-updated: 2024-10-26 12:26:53
+date: 2024-10-26T04:34:08.011Z
+updated: 2024-10-26T23:13:26.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e173ecd4e6ceccf19fd59d2691aca0fad0ebe4ea5169d96efdddc6fb75c6e68.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e173ecd4e6ceccf19fd59d2691aca0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

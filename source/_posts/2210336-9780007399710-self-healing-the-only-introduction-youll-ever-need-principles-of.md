@@ -1,7 +1,7 @@
 ---
 title: "Self-Healing: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-23 14:41:51
-updated: 2024-10-26 11:29:19
+date: 2024-10-19T21:34:05.005Z
+updated: 2024-10-26T20:42:07.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/174189fa78908e18cc2244c2352b3c93e01885e1b900c1aa6849d1264c8c92e0.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/174189fa78908e18cc2244c2352b3c9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

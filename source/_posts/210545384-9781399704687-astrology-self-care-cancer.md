@@ -1,7 +1,7 @@
 ---
 title: "Astrology Self-Care: Cancer | Free Book"
-date: 2024-10-25 23:50:30
-updated: 2024-10-26 10:15:11
+date: 2024-10-24T22:39:53.623Z
+updated: 2024-10-27T00:25:33.343Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0376cec340b6c69fa617a55ddbb06fb20b39e227472318489fc4095555ba378.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0376cec340b6c69fa617a55ddbb06f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

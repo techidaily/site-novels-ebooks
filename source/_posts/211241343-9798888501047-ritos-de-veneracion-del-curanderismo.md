@@ -1,7 +1,7 @@
 ---
 title: Ritos de veneración del curanderismo | Free Book
-date: 2024-10-23 19:40:42
-updated: 2024-10-26 12:52:10
+date: 2024-10-22T19:50:49.260Z
+updated: 2024-10-26T16:49:29.155Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92f028c224c4017cbc2a73b045a7438cc3ce1e4787996739fd17ab8f0721e009.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92f028c224c4017cbc2a73b045a7438
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

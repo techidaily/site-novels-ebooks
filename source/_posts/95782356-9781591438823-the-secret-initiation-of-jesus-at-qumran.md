@@ -1,7 +1,7 @@
 ---
 title: The Secret Initiation of Jesus at Qumran | Free Book
-date: 2024-10-25 11:39:16
-updated: 2024-10-26 10:38:18
+date: 2024-10-22T00:43:18.090Z
+updated: 2024-10-26T21:41:51.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c3ed627f3912bcf588fe29ded445f2d6105a38350c2c0adbf4fa337f8b4882c.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c3ed627f3912bcf588fe29ded445f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

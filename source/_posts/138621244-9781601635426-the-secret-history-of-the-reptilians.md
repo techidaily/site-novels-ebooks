@@ -1,7 +1,7 @@
 ---
 title: The Secret History of the Reptilians | Free Book
-date: 2024-10-24 18:30:36
-updated: 2024-10-26 10:36:50
+date: 2024-10-20T22:22:43.711Z
+updated: 2024-10-26T18:38:38.083Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12940109dd7a9a135baaf863923d05d2e39da15e69d753e4c9cf9a92cd023c66.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12940109dd7a9a135baaf863923d05d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

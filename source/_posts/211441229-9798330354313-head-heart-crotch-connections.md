@@ -1,7 +1,7 @@
 ---
 title: Head, Heart, Crotch Connections | Free Book
-date: 2024-10-25 16:55:49
-updated: 2024-10-26 12:13:24
+date: 2024-10-19T19:01:59.842Z
+updated: 2024-10-27T03:40:29.778Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a60cb24f0c70952ae1400d5fe7911df2bbb31a5e8fbde8d63379cd07490a1b4.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a60cb24f0c70952ae1400d5fe7911d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

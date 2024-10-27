@@ -1,7 +1,7 @@
 ---
 title: The Wheel Of The Wiccan Year | Free Book
-date: 2024-10-24 20:28:30
-updated: 2024-10-26 11:47:49
+date: 2024-10-20T21:33:54.484Z
+updated: 2024-10-27T01:11:27.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bd4e00d3dd3ecda68343d52dfcffa0d50311056983404433068f7530895a012.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bd4e00d3dd3ecda68343d52dfcffa0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

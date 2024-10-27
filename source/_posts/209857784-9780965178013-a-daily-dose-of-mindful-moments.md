@@ -1,7 +1,7 @@
 ---
 title: A Daily Dose of Mindful Moments | Free Book
-date: 2024-10-24 17:14:14
-updated: 2024-10-26 11:14:43
+date: 2024-10-24T17:38:36.974Z
+updated: 2024-10-26T16:23:47.137Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/809e433a85acdf188b2a35f3f74a78fc70a47b0116012144829b0770624d9910.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/809e433a85acdf188b2a35f3f74a78f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

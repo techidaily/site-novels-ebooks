@@ -1,7 +1,7 @@
 ---
 title: "The Tarot: A Collection of Secret Wisdom from Tarot's Mystical Origins | Free Book"
-date: 2024-10-24 16:34:49
-updated: 2024-10-26 11:22:51
+date: 2024-10-25T18:42:42.676Z
+updated: 2024-10-27T03:33:08.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e247e60175cbdc01f615bb11859f3a65724369e2c6bf5fdfedf365fa9e68eebc.jpg
@@ -277,3 +277,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e247e60175cbdc01f615bb11859f3a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

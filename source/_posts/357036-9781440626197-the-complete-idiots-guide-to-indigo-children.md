@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Indigo Children | Free Book
-date: 2024-10-23 11:19:53
-updated: 2024-10-26 12:53:31
+date: 2024-10-20T02:38:34.500Z
+updated: 2024-10-26T19:51:52.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/638786e638ba2d73bdde53ce9b0990faa4921f6e87c61b6370d406951238f98c.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/638786e638ba2d73bdde53ce9b0990f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

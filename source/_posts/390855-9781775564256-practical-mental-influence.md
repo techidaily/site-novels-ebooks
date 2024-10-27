@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-10-24 13:36:40
-updated: 2024-10-26 11:13:28
+date: 2024-10-26T05:27:19.686Z
+updated: 2024-10-27T00:24:27.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adbb2b346cbb317d8e70d2366f4918763b54367eaa35bcc4f4e2cfa95c65c681.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adbb2b346cbb317d8e70d2366f49187
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

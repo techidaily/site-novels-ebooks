@@ -1,7 +1,7 @@
 ---
 title: My Journey through the Spirit World | Free Book
-date: 2024-10-25 19:19:37
-updated: 2024-10-26 10:15:58
+date: 2024-10-23T03:01:17.643Z
+updated: 2024-10-27T04:27:38.231Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0bbd113e18b45688a7c738dea1d1c8321d89f8ec8a2445b9399726e626b16b38.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0bbd113e18b45688a7c738dea1d1c83
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

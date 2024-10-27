@@ -1,7 +1,7 @@
 ---
 title: Fear not the Spiritual Truth | Free Book
-date: 2024-10-24 21:23:42
-updated: 2024-10-26 10:17:22
+date: 2024-10-25T17:29:39.069Z
+updated: 2024-10-26T18:53:02.257Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4662462aa6cbaa4b6dd1f28b90b5bb152af5f6a709f1930ada68a6ee2a87f8f2.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4662462aa6cbaa4b6dd1f28b90b5bb1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

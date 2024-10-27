@@ -1,7 +1,7 @@
 ---
 title: Here For a Good Time, Not a Long Time Don't Ignore the Signs The Tucker Westfall Story | Free Book
-date: 2024-10-24 18:14:14
-updated: 2024-10-26 12:45:25
+date: 2024-10-21T22:15:43.889Z
+updated: 2024-10-26T21:15:07.687Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154d4eaa6a651aefeac8348cf060bb0672168980c54671aa0b13a7132bf0ed3f.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154d4eaa6a651aefeac8348cf060bb0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

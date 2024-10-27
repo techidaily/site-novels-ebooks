@@ -1,7 +1,7 @@
 ---
 title: Making the Afterlife Connection | Free Book
-date: 2024-10-25 11:32:44
-updated: 2024-10-26 10:46:46
+date: 2024-10-23T03:15:52.446Z
+updated: 2024-10-26T22:21:07.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abbca30fa71476f5fafa52f22ed7c3aa6678412bc9cd4d46904f1958849a5550.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abbca30fa71476f5fafa52f22ed7c3a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Psychic Phenomena: The Production of Sound | Free Book"
-date: 2024-10-23 20:58:38
-updated: 2024-10-26 10:59:30
+date: 2024-10-23T20:43:39.163Z
+updated: 2024-10-26T19:22:59.892Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/046359d6a57138f20d38ca7d0ad314bb6def6a278217399d4e8a543f6c0808d9.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/046359d6a57138f20d38ca7d0ad314b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

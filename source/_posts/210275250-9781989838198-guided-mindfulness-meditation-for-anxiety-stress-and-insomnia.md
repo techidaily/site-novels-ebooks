@@ -1,7 +1,7 @@
 ---
 title: Guided Mindfulness Meditation for Anxiety, Stress and Insomnia | Free Book
-date: 2024-10-25 21:57:25
-updated: 2024-10-26 10:27:21
+date: 2024-10-26T03:36:14.064Z
+updated: 2024-10-27T00:38:57.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/116df72561376c8f5427ab195fa76e99b4b0cd1b87865f3ce1867ec0edb11f17.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/116df72561376c8f5427ab195fa76e9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

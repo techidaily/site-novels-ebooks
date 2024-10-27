@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Guia Passo A Passo Para Iniciantes Para A Atenção Plena E Uma Conexão Mais Profunda Consigo Mesmo | Free Book"
-date: 2024-10-24 10:39:16
-updated: 2024-10-26 10:17:31
+date: 2024-10-20T05:24:10.798Z
+updated: 2024-10-27T02:23:20.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/350a5b8ea3f772954294ebf87630acad78cbd53026f161aed788c94421b09921.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/350a5b8ea3f772954294ebf87630aca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

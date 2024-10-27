@@ -1,7 +1,7 @@
 ---
 title: Paul Andrews Presents - The Book of Werewolves | Free Book
-date: 2024-10-23 17:30:19
-updated: 2024-10-26 12:29:30
+date: 2024-10-25T00:11:39.683Z
+updated: 2024-10-26T21:11:48.493Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c7f4eb0eabe80374f587e01dcdbb8fb9d434d6a40dd943374390459d99ab8fb1.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c7f4eb0eabe80374f587e01dcdbb8fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

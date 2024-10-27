@@ -1,7 +1,7 @@
 ---
 title: When Your Mind Steals Your Soul's Reward | Free Book
-date: 2024-10-23 19:18:30
-updated: 2024-10-26 12:18:50
+date: 2024-10-26T03:01:40.081Z
+updated: 2024-10-26T18:17:14.942Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fa66db123346d41afdf928ca1ffd2cef1442d0cecf4f83c7eac99b1ff5ee459.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fa66db123346d41afdf928ca1ffd2c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

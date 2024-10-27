@@ -1,7 +1,7 @@
 ---
 title: The Knights and Ladies of the Round Table | Free Book
-date: 2024-10-24 21:28:44
-updated: 2024-10-26 10:25:37
+date: 2024-10-23T20:31:01.629Z
+updated: 2024-10-27T00:35:19.453Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cf5d5f51a52664933e96b2403d17f9f52a10657eac790b844ca69eb29481d84.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cf5d5f51a52664933e96b2403d17f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

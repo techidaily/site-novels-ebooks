@@ -1,7 +1,7 @@
 ---
 title: Body Intelligence Meditation | Free Book
-date: 2024-10-25 21:39:47
-updated: 2024-10-26 10:59:52
+date: 2024-10-22T19:37:50.291Z
+updated: 2024-10-27T01:37:47.360Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c389f9b863fd4bbdfefd15bef5c0cf4cac55f6c719af84d3045e7392eab2d9ae.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c389f9b863fd4bbdfefd15bef5c0cf4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

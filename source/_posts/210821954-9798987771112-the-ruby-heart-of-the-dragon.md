@@ -1,7 +1,7 @@
 ---
 title: The Ruby Heart of the Dragon | Free Book
-date: 2024-10-24 19:26:21
-updated: 2024-10-26 11:30:38
+date: 2024-10-24T21:36:25.753Z
+updated: 2024-10-26T19:40:26.579Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/672aec4b97258ae4462ac8e42542a9cd4aceb091b0ea6369184390c8f20c40d8.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/672aec4b97258ae4462ac8e42542a9c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

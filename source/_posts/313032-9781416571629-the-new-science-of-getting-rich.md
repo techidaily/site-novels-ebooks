@@ -1,7 +1,7 @@
 ---
 title: The New Science of Getting Rich | Free Book
-date: 2024-10-24 21:40:54
-updated: 2024-10-26 11:15:46
+date: 2024-10-19T19:00:17.780Z
+updated: 2024-10-27T03:36:06.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f7d6bf465fba9afa7e5b62b67b351a086a16f16537a5e39ca3c798d44c10942b.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f7d6bf465fba9afa7e5b62b67b351a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

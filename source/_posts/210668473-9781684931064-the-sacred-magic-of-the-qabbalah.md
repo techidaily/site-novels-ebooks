@@ -1,7 +1,7 @@
 ---
 title: The Sacred Magic of the Qabbalah | Free Book
-date: 2024-10-24 10:36:22
-updated: 2024-10-26 10:21:36
+date: 2024-10-23T21:13:49.189Z
+updated: 2024-10-26T21:09:48.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d73ce0f75139e63e0ff446aadf0dc6b54092249fec4c1aea07a48229170dc3ce.jpg
@@ -215,3 +215,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d73ce0f75139e63e0ff446aadf0dc6b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

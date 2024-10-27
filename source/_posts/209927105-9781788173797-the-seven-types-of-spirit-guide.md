@@ -1,7 +1,7 @@
 ---
 title: The Seven Types of Spirit Guide | Free Book
-date: 2024-10-25 14:55:55
-updated: 2024-10-26 12:36:40
+date: 2024-10-24T04:45:47.522Z
+updated: 2024-10-26T18:39:42.566Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0878bda852027b01237af30958ecbf9b49c58ae4152f1d54b1f862e769662b4d.jpg
@@ -208,3 +208,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0878bda852027b01237af30958ecbf9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

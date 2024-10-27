@@ -1,7 +1,7 @@
 ---
 title: Spirit Speaks. Are You Listening? | Free Book
-date: 2024-10-25 12:54:22
-updated: 2024-10-26 12:33:12
+date: 2024-10-20T22:07:54.361Z
+updated: 2024-10-26T21:57:27.316Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b3c5701153570480bb64727ece05cb3fae789cf3348a2d3e2cccee372ea9f61.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b3c5701153570480bb64727ece05cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

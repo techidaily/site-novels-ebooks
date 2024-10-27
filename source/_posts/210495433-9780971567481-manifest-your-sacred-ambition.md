@@ -1,7 +1,7 @@
 ---
 title: Manifest Your Sacred Ambition | Free Book
-date: 2024-10-23 23:43:19
-updated: 2024-10-26 10:26:41
+date: 2024-10-20T23:02:53.298Z
+updated: 2024-10-26T20:46:34.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e3e331a1be48577a0d94f713d8208e7d33586af861fbe285a4c012c3df21054.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e3e331a1be48577a0d94f713d8208e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

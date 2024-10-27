@@ -1,7 +1,7 @@
 ---
 title: The Art and Practice of Geomancy | Free Book
-date: 2024-10-23 11:14:18
-updated: 2024-10-26 10:55:27
+date: 2024-10-22T22:44:04.834Z
+updated: 2024-10-27T04:23:34.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a65dd377575ef634817f7f5ba5fff85021b0ab5b926ef0881524ae607c04e376.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a65dd377575ef634817f7f5ba5fff85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

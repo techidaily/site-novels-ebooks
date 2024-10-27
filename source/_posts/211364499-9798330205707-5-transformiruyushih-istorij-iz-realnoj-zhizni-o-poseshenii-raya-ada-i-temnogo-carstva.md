@@ -1,7 +1,7 @@
 ---
 title: 5 трансформирующих историй из реальной жизни о посещении рая , ада и темного царства | Free Book
-date: 2024-10-25 22:43:13
-updated: 2024-10-26 11:29:48
+date: 2024-10-24T17:32:28.935Z
+updated: 2024-10-26T20:58:56.813Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f97df108d3139850d0ccda42a2d1e62d77270e8953954dbb979a9da275c167b5.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f97df108d3139850d0ccda42a2d1e62
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

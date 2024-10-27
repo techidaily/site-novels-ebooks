@@ -1,7 +1,7 @@
 ---
 title: The Imperial Guide to Feng-Shui & Chinese Astrology | Free Book
-date: 2024-10-25 19:30:49
-updated: 2024-10-26 10:16:35
+date: 2024-10-19T16:47:03.830Z
+updated: 2024-10-26T20:04:21.680Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3cd4ee45c4cde0e4f8ecd16a1147541abacd01bd5996b02f1cbc1adb725be898.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3cd4ee45c4cde0e4f8ecd16a1147541
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

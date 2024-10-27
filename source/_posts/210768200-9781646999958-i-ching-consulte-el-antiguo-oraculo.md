@@ -1,7 +1,7 @@
 ---
 title: I Ching. Consulte el antiguo oráculo | Free Book
-date: 2024-10-24 10:58:55
-updated: 2024-10-26 11:21:48
+date: 2024-10-23T02:32:32.339Z
+updated: 2024-10-26T22:41:52.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2201edc5cc1004fb60a46a94504008bf5e9c19108a1cf285048f9e884e441aa.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2201edc5cc1004fb60a46a94504008
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

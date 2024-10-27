@@ -1,7 +1,7 @@
 ---
 title: "Seventy Thousand Veils: The Miracle Of | Free Book"
-date: 2024-10-25 22:16:42
-updated: 2024-10-26 11:38:50
+date: 2024-10-21T16:32:12.900Z
+updated: 2024-10-26T20:07:38.419Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20b3685f43d82db09b2d6ee3f24c1227c95ec6f9c63e7f4f88da1be2986a16bb.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20b3685f43d82db09b2d6ee3f24c122
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

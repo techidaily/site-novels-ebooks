@@ -1,7 +1,7 @@
 ---
 title: The Return of Collective Intelligence | Free Book
-date: 2024-10-23 20:54:42
-updated: 2024-10-26 12:41:50
+date: 2024-10-22T04:15:15.689Z
+updated: 2024-10-27T01:55:06.015Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f1a4beabbc0750685ea7e785ca4a7a85ee6ad8013cf0cbf39cfcca08c3b997a1.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f1a4beabbc0750685ea7e785ca4a7a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

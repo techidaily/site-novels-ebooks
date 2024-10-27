@@ -1,7 +1,7 @@
 ---
 title: It Will Be All Right in the Morning | Free Book
-date: 2024-10-25 11:44:20
-updated: 2024-10-26 11:21:21
+date: 2024-10-21T20:14:44.021Z
+updated: 2024-10-26T16:03:47.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44a189dfa846eb3002c3ca892029e390750e396a642edade2a013636eab086eb.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44a189dfa846eb3002c3ca892029e39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

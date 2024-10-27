@@ -1,7 +1,7 @@
 ---
 title: How to Spot a Bastard by His Star Sign | Free Book
-date: 2024-10-23 23:40:39
-updated: 2024-10-26 12:41:42
+date: 2024-10-23T22:13:29.047Z
+updated: 2024-10-26T16:25:35.018Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb10722503dfd404441afd1a216ed0c722c606f69bae53082ae5f88b9d125952.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb10722503dfd404441afd1a216ed0c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

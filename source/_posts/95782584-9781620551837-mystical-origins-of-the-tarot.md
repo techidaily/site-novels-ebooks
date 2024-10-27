@@ -1,7 +1,7 @@
 ---
 title: Mystical Origins of the Tarot | Free Book
-date: 2024-10-24 18:28:58
-updated: 2024-10-26 10:27:56
+date: 2024-10-19T17:25:16.347Z
+updated: 2024-10-26T18:09:17.476Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f26c2835dad6196baeaec82c32905daa0d33c74801975ce251a75cd2ba6ccc3.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f26c2835dad6196baeaec82c32905d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

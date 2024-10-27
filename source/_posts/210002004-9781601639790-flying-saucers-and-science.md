@@ -1,7 +1,7 @@
 ---
 title: Flying Saucers and Science | Free Book
-date: 2024-10-23 21:42:53
-updated: 2024-10-26 10:34:22
+date: 2024-10-23T18:36:35.598Z
+updated: 2024-10-27T00:48:09.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d350838647f0f65a5941cc7505954b3c19f172bd3bbaa3a52571f650049401b.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d350838647f0f65a5941cc7505954b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

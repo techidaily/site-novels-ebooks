@@ -1,7 +1,7 @@
 ---
 title: The Logic of Enlightenment | Free Book
-date: 2024-10-23 12:10:34
-updated: 2024-10-26 11:32:36
+date: 2024-10-22T00:39:04.623Z
+updated: 2024-10-26T19:59:55.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/044a7caf0aa427682ebb963cb5a58ac1d12d795226628c6fa9720f14957ccaec.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/044a7caf0aa427682ebb963cb5a58ac
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

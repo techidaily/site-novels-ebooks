@@ -1,7 +1,7 @@
 ---
 title: Returning Home to Our Bodies | Free Book
-date: 2024-10-23 23:17:23
-updated: 2024-10-26 11:14:48
+date: 2024-10-20T17:41:27.471Z
+updated: 2024-10-26T20:52:41.426Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/560fd237ab5cfef9d4528914c667b9e3c9ff464af181fce57e1c81b077755c46.jpg
@@ -276,3 +276,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/560fd237ab5cfef9d4528914c667b9e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

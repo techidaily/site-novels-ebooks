@@ -1,7 +1,7 @@
 ---
 title: Spell Jars for the Modern Witch | Free Book
-date: 2024-10-23 18:12:55
-updated: 2024-10-26 12:34:41
+date: 2024-10-24T19:26:10.937Z
+updated: 2024-10-26T19:28:37.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e9041fe92ced6ae73ef913489cc2f861fb5b2c1531316a20802ed7ba5a2bb4b7.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e9041fe92ced6ae73ef913489cc2f86
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

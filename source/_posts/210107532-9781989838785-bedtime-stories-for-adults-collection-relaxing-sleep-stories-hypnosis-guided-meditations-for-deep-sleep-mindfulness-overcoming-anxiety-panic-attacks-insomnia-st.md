@@ -1,7 +1,7 @@
 ---
 title: Bedtime Stories for Adults Collection Relaxing Sleep Stories, Hypnosis & Guided Meditations for Deep Sleep, Mindfulness, Overcoming Anxiety, Panic Attacks, Insomnia & Stress Relief | Free Book
-date: 2024-10-25 16:59:40
-updated: 2024-10-26 11:17:27
+date: 2024-10-20T17:37:36.411Z
+updated: 2024-10-27T00:53:34.015Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b703bf9bb734946f78f5df3dce253a65893832889e2f86dd8c26fa8234bd0d94.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b703bf9bb734946f78f5df3dce253a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

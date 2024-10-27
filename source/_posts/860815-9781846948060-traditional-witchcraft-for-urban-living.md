@@ -1,7 +1,7 @@
 ---
 title: Traditional Witchcraft for Urban Living | Free Book
-date: 2024-10-25 14:50:32
-updated: 2024-10-26 10:14:57
+date: 2024-10-26T03:12:16.794Z
+updated: 2024-10-26T16:33:43.667Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17016b9cc326e10daffcc5f1d141e917467c362bff128775aac704f51b79e0a9.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17016b9cc326e10daffcc5f1d141e91
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

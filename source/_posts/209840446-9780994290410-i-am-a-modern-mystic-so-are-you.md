@@ -1,7 +1,7 @@
 ---
 title: I AM A MODERN MYSTIC - SO ARE YOU | Free Book
-date: 2024-10-24 18:46:11
-updated: 2024-10-26 10:10:13
+date: 2024-10-21T04:44:13.222Z
+updated: 2024-10-27T01:17:05.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ecb2f1ed934a5223a888c910f1a49d26ad33b1b869e76223c0e02405ce585e7c.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ecb2f1ed934a5223a888c910f1a49d2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

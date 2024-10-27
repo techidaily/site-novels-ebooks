@@ -1,7 +1,7 @@
 ---
 title: Shamanic Plant Medicine - Salvia Divinorum | Free Book
-date: 2024-10-25 19:17:58
-updated: 2024-10-26 10:26:24
+date: 2024-10-19T22:53:15.684Z
+updated: 2024-10-27T00:09:04.465Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/b695c7fb0fee78edc7478b688764e7a1ea5e7ed50957ce272b291bee5e1e3bcd.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b695c7fb0fee78edc7478b688764e7a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

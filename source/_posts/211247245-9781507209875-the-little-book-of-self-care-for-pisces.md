@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Pisces | Free Book
-date: 2024-10-25 14:21:17
-updated: 2024-10-26 10:46:45
+date: 2024-10-19T16:46:13.973Z
+updated: 2024-10-27T04:22:24.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/491945f9f79cbee3f01c30e0ef6b9135fbbb29a758be90963ce5524338a237d7.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/491945f9f79cbee3f01c30e0ef6b913
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

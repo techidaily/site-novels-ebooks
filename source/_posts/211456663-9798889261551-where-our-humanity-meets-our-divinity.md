@@ -1,7 +1,7 @@
 ---
 title: Where Our Humanity Meets Our Divinity | Free Book
-date: 2024-10-24 21:54:51
-updated: 2024-10-26 10:35:38
+date: 2024-10-20T23:53:08.325Z
+updated: 2024-10-26T23:49:10.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b982e264bf797fd19eccec87cd9e2e4a51501df4d6e7fd1c6f5e80914457ca4.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b982e264bf797fd19eccec87cd9e2e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

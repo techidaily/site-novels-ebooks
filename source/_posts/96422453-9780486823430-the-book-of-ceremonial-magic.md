@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2024-10-23 18:22:13
-updated: 2024-10-26 12:14:49
+date: 2024-10-24T03:40:46.107Z
+updated: 2024-10-26T16:53:14.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

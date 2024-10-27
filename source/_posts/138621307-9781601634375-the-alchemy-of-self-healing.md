@@ -1,7 +1,7 @@
 ---
 title: The Alchemy of Self Healing | Free Book
-date: 2024-10-24 23:51:10
-updated: 2024-10-26 10:50:13
+date: 2024-10-20T17:29:04.176Z
+updated: 2024-10-27T03:29:50.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e51ecef54d19303671587bf6e1fcdb1ba46ec15dff31c68fcff29ca7aea12df8.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e51ecef54d19303671587bf6e1fcdb1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

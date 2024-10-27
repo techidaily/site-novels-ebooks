@@ -1,7 +1,7 @@
 ---
 title: A Heart as Wide as the World | Free Book
-date: 2024-10-24 18:30:23
-updated: 2024-10-26 10:15:58
+date: 2024-10-20T19:58:45.813Z
+updated: 2024-10-27T00:32:07.351Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e94e61b89949b6248c4e3a42bae17b9808f1fdb588b70f8efe60a2c1b5d8049d.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e94e61b89949b6248c4e3a42bae17b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

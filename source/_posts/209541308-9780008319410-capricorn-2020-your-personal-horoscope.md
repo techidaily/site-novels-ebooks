@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2020: Your Personal Horoscope | Free Book"
-date: 2024-10-24 19:59:11
-updated: 2024-10-26 12:25:20
+date: 2024-10-20T01:30:52.378Z
+updated: 2024-10-26T17:31:08.903Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ce6146db7ca92ee76038fb77a8fef7c0273da87f80410c1dbe4fce8d38e6528.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ce6146db7ca92ee76038fb77a8fef7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

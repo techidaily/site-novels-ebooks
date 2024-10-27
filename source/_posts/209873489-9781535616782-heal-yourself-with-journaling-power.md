@@ -1,7 +1,7 @@
 ---
 title: Heal Yourself with Journaling Power | Free Book
-date: 2024-10-24 20:28:41
-updated: 2024-10-26 12:12:46
+date: 2024-10-23T04:21:44.663Z
+updated: 2024-10-26T20:18:28.960Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/370e8b232872eb664a1d54345c6fcefe02397e6383c088f6580d2677072dfc92.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/370e8b232872eb664a1d54345c6fcef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

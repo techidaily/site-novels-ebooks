@@ -1,7 +1,7 @@
 ---
 title: Myth, Consciousness, and Psychic Research | Free Book
-date: 2024-10-23 14:37:18
-updated: 2024-10-26 12:20:26
+date: 2024-10-26T02:31:04.565Z
+updated: 2024-10-26T18:31:02.643Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4952c914f4f7734988f74a75701b8ec4886d4601a25ba737c1b09dab12da53f5.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4952c914f4f7734988f74a75701b8ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

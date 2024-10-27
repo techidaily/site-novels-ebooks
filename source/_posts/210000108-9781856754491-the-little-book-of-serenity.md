@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Serenity | Free Book
-date: 2024-10-25 14:26:54
-updated: 2024-10-26 10:39:40
+date: 2024-10-22T02:15:28.793Z
+updated: 2024-10-27T03:55:20.825Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02d83d78fced8a70441815af328b8fc0ed3fd919cb19f384c8865fd77499598c.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02d83d78fced8a70441815af328b8fc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

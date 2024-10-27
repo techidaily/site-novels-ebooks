@@ -1,7 +1,7 @@
 ---
 title: Lessons from the Monk I Married | Free Book
-date: 2024-10-24 12:55:44
-updated: 2024-10-26 12:37:20
+date: 2024-10-22T04:09:55.696Z
+updated: 2024-10-27T05:45:29.039Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/81915125b67404e83eaa24ac716805bed816576de91a61b96c71c36272d28abc.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/81915125b67404e83eaa24ac716805b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

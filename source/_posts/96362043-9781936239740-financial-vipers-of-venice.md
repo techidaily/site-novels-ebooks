@@ -1,7 +1,7 @@
 ---
 title: Financial Vipers of Venice | Free Book
-date: 2024-10-25 17:17:36
-updated: 2024-10-26 11:53:30
+date: 2024-10-22T22:53:21.204Z
+updated: 2024-10-27T06:01:24.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf70277606d3f7799e20c490b0b531163059.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

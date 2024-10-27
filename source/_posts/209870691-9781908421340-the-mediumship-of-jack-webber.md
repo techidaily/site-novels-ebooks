@@ -1,7 +1,7 @@
 ---
 title: The Mediumship of Jack Webber | Free Book
-date: 2024-10-24 23:45:54
-updated: 2024-10-26 10:36:23
+date: 2024-10-21T00:04:12.657Z
+updated: 2024-10-26T17:45:28.152Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c3562245ebd14b0d1d9668ac7c5e14dcb9d2782c29e6fe6b21a9e9b82763a5c.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c3562245ebd14b0d1d9668ac7c5e14
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

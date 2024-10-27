@@ -1,7 +1,7 @@
 ---
 title: Wake Up! Awakening Through Reflection | Free Book
-date: 2024-10-24 23:20:26
-updated: 2024-10-26 12:40:14
+date: 2024-10-22T16:56:04.466Z
+updated: 2024-10-26T23:24:52.181Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a59235d7aeaee05cbc83adc67193cb120950a98a317c4b56009b3aa3ded0273.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a59235d7aeaee05cbc83adc67193cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

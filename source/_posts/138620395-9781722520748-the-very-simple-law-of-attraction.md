@@ -1,7 +1,7 @@
 ---
 title: The Very Simple Law of Attraction | Free Book
-date: 2024-10-25 14:25:21
-updated: 2024-10-26 10:43:44
+date: 2024-10-23T05:12:25.645Z
+updated: 2024-10-26T16:21:01.308Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/037b54624b5d1dec9dc399db9a64a2071ae0b7d4876975b1b06c342ca2ac5481.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/037b54624b5d1dec9dc399db9a64a20
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

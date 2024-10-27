@@ -1,7 +1,7 @@
 ---
 title: Handbook of Religion and Health (2nd ed.) | Free Book
-date: 2024-10-25 14:36:20
-updated: 2024-10-26 10:15:45
+date: 2024-10-20T21:02:02.318Z
+updated: 2024-10-27T02:40:28.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc57a954d19b54e7011aa8bd5cacb0702d26be25ed3ebf5d0a0e1d765f2b89a2.jpg
@@ -223,3 +223,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc57a954d19b54e7011aa8bd5cacb07
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

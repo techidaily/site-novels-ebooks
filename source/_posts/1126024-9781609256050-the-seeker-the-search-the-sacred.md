@@ -1,7 +1,7 @@
 ---
 title: The Seeker, the Search, the Sacred | Free Book
-date: 2024-10-23 21:36:38
-updated: 2024-10-26 11:37:29
+date: 2024-10-19T22:04:52.828Z
+updated: 2024-10-26T20:29:56.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b9018e5f70ed4201623a8d76bd3a8b0d8b1eb91e39626c450892c3c9f8a0947.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b9018e5f70ed4201623a8d76bd3a8b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

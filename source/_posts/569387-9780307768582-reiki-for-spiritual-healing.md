@@ -1,7 +1,7 @@
 ---
 title: Reiki for Spiritual Healing | Free Book
-date: 2024-10-25 11:56:40
-updated: 2024-10-26 11:58:43
+date: 2024-10-25T21:02:54.583Z
+updated: 2024-10-26T16:14:42.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f386db58756f58842ecb5f9ffee66713707120bd97bee6b3f21e861f3a71075.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f386db58756f58842ecb5f9ffee667
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

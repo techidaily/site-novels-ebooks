@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Path to Quantum Consciousness | Free Book
-date: 2024-10-25 11:49:12
-updated: 2024-10-26 10:24:42
+date: 2024-10-22T05:56:38.132Z
+updated: 2024-10-27T04:41:55.579Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38787f7dec01d9c2cdbefec00b3701eaf9f91e50d283bf38205ddc23413780ba.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38787f7dec01d9c2cdbefec00b3701e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

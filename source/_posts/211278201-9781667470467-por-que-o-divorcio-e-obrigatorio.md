@@ -1,7 +1,7 @@
 ---
 title: Por que o divórcio é obrigatório | Free Book
-date: 2024-10-24 15:51:41
-updated: 2024-10-26 10:19:58
+date: 2024-10-23T05:25:17.634Z
+updated: 2024-10-26T22:12:15.804Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3f07d53c93de7371b769ad5991bc875d89889f1bb843036c88c4e1cddebbc44.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3f07d53c93de7371b769ad5991bc87
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

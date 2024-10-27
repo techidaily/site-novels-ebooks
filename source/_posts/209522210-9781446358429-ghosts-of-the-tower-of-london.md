@@ -1,7 +1,7 @@
 ---
 title: Ghosts of the Tower of London | Free Book
-date: 2024-10-23 23:23:38
-updated: 2024-10-26 12:25:12
+date: 2024-10-24T03:58:49.647Z
+updated: 2024-10-26T19:25:53.261Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/325abc24dd6a83cd5276caa9a7292728065d97bbe4e53eaa3cfb0b415733276e.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/325abc24dd6a83cd5276caa9a729272
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

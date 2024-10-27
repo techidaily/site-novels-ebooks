@@ -1,7 +1,7 @@
 ---
 title: Born Again to Serve with Love | Free Book
-date: 2024-10-25 22:33:35
-updated: 2024-10-26 11:33:56
+date: 2024-10-23T03:06:08.135Z
+updated: 2024-10-26T17:08:52.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b97c751e7e6fe95e05651b2ce89345b5c1e381f5bcf7690b0f1adaea6d8ebcb.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b97c751e7e6fe95e05651b2ce89345
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

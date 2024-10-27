@@ -1,7 +1,7 @@
 ---
 title: The Three Stages of Initiatic Spirituality | Free Book
-date: 2024-10-24 22:30:32
-updated: 2024-10-26 10:52:25
+date: 2024-10-26T04:29:26.181Z
+updated: 2024-10-26T23:36:02.067Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db765d515e59dae88885fcc2eec069c5265c185060e4fd61b29aa689ecc7df7b.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db765d515e59dae88885fcc2eec069c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

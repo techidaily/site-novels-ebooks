@@ -1,7 +1,7 @@
 ---
 title: 5 transformierende wahre Geschichten über Besuche im Himmel, in der Hölle und im dunklen | Free Book
-date: 2024-10-25 15:33:14
-updated: 2024-10-26 11:22:57
+date: 2024-10-23T18:12:39.727Z
+updated: 2024-10-26T18:34:00.830Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2105bf2ec1bd7263dc37afe00f3e68760204af12391c5471885a0952312b721.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2105bf2ec1bd7263dc37afe00f3e68
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

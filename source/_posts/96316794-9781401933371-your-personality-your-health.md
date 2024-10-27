@@ -1,7 +1,7 @@
 ---
 title: Your Personality, Your Health | Free Book
-date: 2024-10-23 19:21:55
-updated: 2024-10-26 12:55:31
+date: 2024-10-25T20:36:34.837Z
+updated: 2024-10-26T21:35:08.983Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1bb894530d6de8256e3699e18e62985878b948c58b33c4bd3f2920907ef4323b.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1bb894530d6de8256e3699e18e62985
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

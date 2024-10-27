@@ -1,7 +1,7 @@
 ---
 title: After the Martian Apocalypse | Free Book
-date: 2024-10-25 17:54:42
-updated: 2024-10-26 11:35:55
+date: 2024-10-22T18:23:42.237Z
+updated: 2024-10-27T01:07:46.249Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8561859ae6601b6cdf8468e9958cce50435eaf4819ec7b6697cc3a6e7bea73fb.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8561859ae6601b6cdf8468e9958cce5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

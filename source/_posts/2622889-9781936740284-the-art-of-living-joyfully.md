@@ -1,7 +1,7 @@
 ---
 title: The Art of Living Joyfully | Free Book
-date: 2024-10-23 14:25:56
-updated: 2024-10-26 11:22:57
+date: 2024-10-22T20:27:33.841Z
+updated: 2024-10-26T19:52:58.980Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a5caffe038bf02a09e8dfaead8df0795ac1f1befc2f69c070b091b6f4b51ba9f.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a5caffe038bf02a09e8dfaead8df079
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

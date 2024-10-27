@@ -1,7 +1,7 @@
 ---
 title: A Little Light on the Spiritual Laws | Free Book
-date: 2024-10-25 13:57:53
-updated: 2024-10-26 11:46:32
+date: 2024-10-25T18:14:18.594Z
+updated: 2024-10-27T00:55:23.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/29185fcafb26e9a76a262a2cded12bfc83207ca2245334543c747a42642d0718.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/29185fcafb26e9a76a262a2cded12bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

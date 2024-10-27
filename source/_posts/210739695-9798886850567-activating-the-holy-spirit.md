@@ -1,7 +1,7 @@
 ---
 title: Activating the Holy Spirit | Free Book
-date: 2024-10-25 15:33:50
-updated: 2024-10-26 10:23:31
+date: 2024-10-20T20:43:15.605Z
+updated: 2024-10-27T00:27:54.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/548825196449d7dc0441ee7e27687e89456835f60946e25e41443e5f684aedcc.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/548825196449d7dc0441ee7e27687e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

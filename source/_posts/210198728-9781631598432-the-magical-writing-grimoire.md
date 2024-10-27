@@ -1,7 +1,7 @@
 ---
 title: The Magical Writing Grimoire | Free Book
-date: 2024-10-25 23:50:37
-updated: 2024-10-26 10:34:50
+date: 2024-10-23T23:23:40.969Z
+updated: 2024-10-26T17:35:23.587Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38c3e86f54d26aa8749ea04be8fac5591a4fec440bfae68a2b31efb721e988ed.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38c3e86f54d26aa8749ea04be8fac55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

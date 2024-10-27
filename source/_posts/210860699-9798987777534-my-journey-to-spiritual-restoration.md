@@ -1,7 +1,7 @@
 ---
 title: My Journey to Spiritual Restoration | Free Book
-date: 2024-10-23 12:23:20
-updated: 2024-10-26 12:13:34
+date: 2024-10-25T21:55:32.618Z
+updated: 2024-10-27T04:06:26.303Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ce46557c9a1f272bcc7e575f15286bc4799ead9512d64c86b83df3203ca90cb.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ce46557c9a1f272bcc7e575f15286b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

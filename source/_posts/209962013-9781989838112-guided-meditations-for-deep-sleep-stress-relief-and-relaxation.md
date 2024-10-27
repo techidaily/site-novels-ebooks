@@ -1,7 +1,7 @@
 ---
 title: Guided Meditations for Deep Sleep, Stress Relief and Relaxation | Free Book
-date: 2024-10-23 20:40:26
-updated: 2024-10-26 12:22:47
+date: 2024-10-21T19:03:15.555Z
+updated: 2024-10-26T17:29:55.976Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eee066433da0babd0ba49e888ff955a89300a877131e794360a5ba4c9bfe2b2.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eee066433da0babd0ba49e888ff955
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

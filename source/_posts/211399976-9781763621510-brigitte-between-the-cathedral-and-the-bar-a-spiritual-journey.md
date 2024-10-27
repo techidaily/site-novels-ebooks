@@ -1,7 +1,7 @@
 ---
 title: "Brigitte: Between the Cathedral and the Bar (A Spiritual Journey) | Free Book"
-date: 2024-10-23 12:46:16
-updated: 2024-10-26 10:21:35
+date: 2024-10-24T04:40:19.627Z
+updated: 2024-10-26T20:45:46.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc389f8927ed28ada3fb17d3f9b559a854b378d4a7f3b57a389a751bad3912a1.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc389f8927ed28ada3fb17d3f9b559a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

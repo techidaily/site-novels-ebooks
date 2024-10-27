@@ -1,7 +1,7 @@
 ---
 title: How to Find Calm in Five Minutes a Day | Free Book
-date: 2024-10-25 18:45:24
-updated: 2024-10-26 12:41:27
+date: 2024-10-20T03:34:52.404Z
+updated: 2024-10-26T23:41:23.007Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e6814687bba276e08c5028ca435d0329229b2821e65d8516e483c1c89f02c7be.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e6814687bba276e08c5028ca435d032
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

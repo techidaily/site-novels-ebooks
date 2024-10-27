@@ -1,7 +1,7 @@
 ---
 title: Communicating with Plants | Free Book
-date: 2024-10-25 18:15:42
-updated: 2024-10-26 11:34:56
+date: 2024-10-19T19:07:31.643Z
+updated: 2024-10-26T17:12:45.798Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8d8698ec8a81f7b7766222bededdae4127ebb79e6ebda80f3207ce356c04d0d.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8d8698ec8a81f7b7766222bededdae
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

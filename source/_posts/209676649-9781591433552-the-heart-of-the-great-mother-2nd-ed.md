@@ -1,7 +1,7 @@
 ---
 title: The Heart of the Great Mother (2nd ed.) | Free Book
-date: 2024-10-23 10:13:51
-updated: 2024-10-26 10:32:38
+date: 2024-10-23T02:57:50.603Z
+updated: 2024-10-26T22:18:41.486Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a3f60040b8dbe7e9695c92c123f259a019503041915eb01652a002dbbfd60d7.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a3f60040b8dbe7e9695c92c123f259
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Karmic Relationships: Volume 5 | Free Book"
-date: 2024-10-25 15:56:14
-updated: 2024-10-26 10:29:20
+date: 2024-10-25T03:59:04.852Z
+updated: 2024-10-26T22:27:59.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f539f5aa9a406001e53fef039f0e81febb7e29004f99c1ae0ba10a61e2fa645b.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f539f5aa9a406001e53fef039f0e81f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

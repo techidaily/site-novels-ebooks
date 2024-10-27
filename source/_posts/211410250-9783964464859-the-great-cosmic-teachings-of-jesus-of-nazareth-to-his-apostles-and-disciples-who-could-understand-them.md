@@ -1,7 +1,7 @@
 ---
 title: The Great Cosmic Teachings of Jesus of Nazareth to His Apostles and Disciples Who Could Understand Them | Free Book
-date: 2024-10-24 13:48:53
-updated: 2024-10-26 11:15:42
+date: 2024-10-20T05:20:34.743Z
+updated: 2024-10-26T18:44:44.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f5c9be9261fe8183b1cab55f4370f2617e4c8e44007fa84f98cd46f40cb7563.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f5c9be9261fe8183b1cab55f4370f2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

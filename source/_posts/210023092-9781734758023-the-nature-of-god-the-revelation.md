@@ -1,7 +1,7 @@
 ---
 title: "The Nature of God: The Revelation | Free Book"
-date: 2024-10-25 16:34:16
-updated: 2024-10-26 12:22:30
+date: 2024-10-23T02:48:38.176Z
+updated: 2024-10-26T20:37:51.192Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c87471c59809f7a8ed3c89dbde262ab66c22961bed52dace40c313f6864adc5e.jpg
@@ -207,3 +207,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c87471c59809f7a8ed3c89dbde262ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

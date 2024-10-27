@@ -1,7 +1,7 @@
 ---
 title: Isabel's Starry Night, The Magical Quest for Alchemy | Free Book
-date: 2024-10-23 15:53:42
-updated: 2024-10-26 12:21:35
+date: 2024-10-23T22:24:08.834Z
+updated: 2024-10-26T19:17:39.750Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/529d3180cf34b02c0e47e288b71bd8a07aa6a18e4f5a584ce406006f85cafc04.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/529d3180cf34b02c0e47e288b71bd8a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

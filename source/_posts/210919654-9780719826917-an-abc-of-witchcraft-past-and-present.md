@@ -1,7 +1,7 @@
 ---
 title: An ABC of Witchcraft Past and Present | Free Book
-date: 2024-10-25 20:40:13
-updated: 2024-10-26 12:43:53
+date: 2024-10-21T20:35:51.872Z
+updated: 2024-10-26T18:38:15.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44c87bfcedaf9f4d5f8ce3cf95a52102104ba29ae64f33248ca8cbb84d3832cc.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44c87bfcedaf9f4d5f8ce3cf95a5210
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

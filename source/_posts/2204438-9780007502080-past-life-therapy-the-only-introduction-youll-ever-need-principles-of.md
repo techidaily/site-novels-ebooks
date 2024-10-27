@@ -1,7 +1,7 @@
 ---
 title: "Past Life Therapy: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-25 12:11:15
-updated: 2024-10-26 12:26:26
+date: 2024-10-23T01:13:29.166Z
+updated: 2024-10-27T05:03:20.142Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91a0bd02e05b5ede4019ad455f43034dc43345ddd4246326202731810b55deaf.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91a0bd02e05b5ede4019ad455f43034
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

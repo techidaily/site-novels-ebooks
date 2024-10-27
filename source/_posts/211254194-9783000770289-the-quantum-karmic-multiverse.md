@@ -1,7 +1,7 @@
 ---
 title: The Quantum-Karmic Multiverse | Free Book
-date: 2024-10-24 13:25:55
-updated: 2024-10-26 12:53:26
+date: 2024-10-19T17:18:28.186Z
+updated: 2024-10-27T01:50:07.985Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76b7f982eee5328652a7aef31274290d76afa5f8d4e5df6cb00f105e0d489112.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76b7f982eee5328652a7aef31274290
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

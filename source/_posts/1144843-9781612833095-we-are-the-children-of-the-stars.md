@@ -1,7 +1,7 @@
 ---
 title: We Are the Children of the Stars | Free Book
-date: 2024-10-24 22:22:39
-updated: 2024-10-26 12:15:29
+date: 2024-10-22T02:27:55.775Z
+updated: 2024-10-27T01:52:56.504Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/565cde430076912cf5f3c11b3dd27ac057afddd5e1dab8b784c4cba5afb6b4d4.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/565cde430076912cf5f3c11b3dd27ac
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Life's Torn Fragments Becomes a Robe of Many Colors | Free Book
-date: 2024-10-25 20:34:40
-updated: 2024-10-26 11:25:52
+date: 2024-10-22T19:56:46.712Z
+updated: 2024-10-27T02:45:09.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4524a70ece55f3f79c04752a2f506c4ba3634af5d02efb095b6079eb952d35ab.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4524a70ece55f3f79c04752a2f506c4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

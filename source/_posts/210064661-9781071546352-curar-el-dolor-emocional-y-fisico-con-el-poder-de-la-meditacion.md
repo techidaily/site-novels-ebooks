@@ -1,7 +1,7 @@
 ---
 title: Curar el Dolor Emocional y Físico con el Poder de la Meditación | Free Book
-date: 2024-10-24 14:16:13
-updated: 2024-10-26 12:59:26
+date: 2024-10-25T04:01:49.511Z
+updated: 2024-10-27T04:53:12.893Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5df4c519c30857bb6130dc87aeecefea241710c7cf3193f449d49650119c241.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5df4c519c30857bb6130dc87aeecef
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

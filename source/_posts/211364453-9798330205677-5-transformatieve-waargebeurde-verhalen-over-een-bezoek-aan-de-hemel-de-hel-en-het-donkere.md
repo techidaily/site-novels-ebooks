@@ -1,7 +1,7 @@
 ---
 title: 5 transformatieve waargebeurde verhalen over een bezoek aan de hemel, de hel en het donkere.. | Free Book
-date: 2024-10-25 18:51:13
-updated: 2024-10-26 11:24:15
+date: 2024-10-26T05:48:22.491Z
+updated: 2024-10-26T21:07:00.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1fe09a0fde2075f525351b4678df6b63d94e65f0d1ae850bfaca0712e933a00d.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1fe09a0fde2075f525351b4678df6b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Meditação : Técnicas De Meditação Para Melhor Sono (Técnicas De Mindfulness Para Iniciantes) | Free Book"
-date: 2024-10-23 15:32:52
-updated: 2024-10-26 11:35:39
+date: 2024-10-22T01:55:32.713Z
+updated: 2024-10-27T04:13:28.886Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7f2b71b79a4ad650d5a352053decc7b0a23efaebad1e05c7e2e455833da84d62.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7f2b71b79a4ad650d5a352053decc7b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

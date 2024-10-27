@@ -1,7 +1,7 @@
 ---
 title: Like The Days of the Heavens above the Earth | Free Book
-date: 2024-10-24 12:46:11
-updated: 2024-10-26 12:38:12
+date: 2024-10-24T18:41:19.717Z
+updated: 2024-10-26T18:43:55.769Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/876dca029beb049c71608fed87e40b4829ef1ad99d12afb53695a58c4a7fc31a.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/876dca029beb049c71608fed87e40b4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

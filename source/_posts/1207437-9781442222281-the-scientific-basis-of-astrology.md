@@ -1,7 +1,7 @@
 ---
 title: The Scientific Basis of Astrology | Free Book
-date: 2024-10-23 11:13:36
-updated: 2024-10-26 11:43:42
+date: 2024-10-25T22:27:19.792Z
+updated: 2024-10-27T05:59:50.567Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0253a681320419b76bbedc9ac966d616fb3518010b28b94cf22ef3ee9759282.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0253a681320419b76bbedc9ac966d6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

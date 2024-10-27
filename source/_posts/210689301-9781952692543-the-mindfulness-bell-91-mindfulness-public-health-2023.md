@@ -1,7 +1,7 @@
 ---
 title: "The Mindfulness Bell 91: Mindfulness & Public Health, 2023 | Free Book"
-date: 2024-10-25 12:39:28
-updated: 2024-10-26 10:17:19
+date: 2024-10-23T04:42:18.689Z
+updated: 2024-10-26T22:57:03.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc101a4d072724ec302145ec73446ca5db83cbdeca0bf3aaf596cb76cf58913b.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc101a4d072724ec302145ec73446ca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

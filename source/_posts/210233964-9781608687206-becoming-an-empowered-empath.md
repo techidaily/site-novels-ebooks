@@ -1,7 +1,7 @@
 ---
 title: Becoming an Empowered Empath | Free Book
-date: 2024-10-24 12:15:52
-updated: 2024-10-26 12:43:58
+date: 2024-10-25T22:35:05.723Z
+updated: 2024-10-26T18:35:43.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/129976826e19488337426728010f7190cc9bb068f65fd8405b1fb51ce7a626ff.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/129976826e19488337426728010f719
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

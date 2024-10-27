@@ -1,7 +1,7 @@
 ---
 title: "Godsfield Companion: Chakras | Free Book"
-date: 2024-10-23 13:24:10
-updated: 2024-10-26 10:40:46
+date: 2024-10-20T19:18:53.080Z
+updated: 2024-10-26T21:08:15.453Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3499c6dfc9b4cce8c5ee5591120660fa1826a063f523939e15d93f37d9f2efc3.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3499c6dfc9b4cce8c5ee5591120660f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

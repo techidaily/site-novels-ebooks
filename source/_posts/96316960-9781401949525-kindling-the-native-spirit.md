@@ -1,7 +1,7 @@
 ---
 title: Kindling the Native Spirit | Free Book
-date: 2024-10-24 10:46:49
-updated: 2024-10-26 11:33:42
+date: 2024-10-22T03:28:10.653Z
+updated: 2024-10-26T17:08:16.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c189013c69dab8eafba6270530739cc1dfb6eaab4d55da501ddac5ad9c55875.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c189013c69dab8eafba6270530739c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

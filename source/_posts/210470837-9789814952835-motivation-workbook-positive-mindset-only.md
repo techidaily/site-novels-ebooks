@@ -1,7 +1,7 @@
 ---
 title: "Motivation Workbook: Positive Mindset Only | Free Book"
-date: 2024-10-23 13:15:17
-updated: 2024-10-26 11:59:51
+date: 2024-10-21T17:03:20.581Z
+updated: 2024-10-26T19:07:18.418Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/68aa5cc3001b67aa82ec5db08cc1a63a8cc94a5c8f7e0181b6068c5ccdffa17a.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/68aa5cc3001b67aa82ec5db08cc1a63
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

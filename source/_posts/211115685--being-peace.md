@@ -1,7 +1,7 @@
 ---
 title: Being Peace | Free Book
-date: 2024-10-23 12:53:12
-updated: 2024-10-26 12:56:38
+date: 2024-10-20T19:15:16.470Z
+updated: 2024-10-26T18:52:59.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d555961ed3aae462af293634bf3df44812652b923e3a2ae15efd16f626d53762.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d555961ed3aae462af293634bf3df44
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

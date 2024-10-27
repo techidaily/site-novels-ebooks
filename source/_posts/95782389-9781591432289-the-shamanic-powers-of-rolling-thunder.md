@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Powers of Rolling Thunder | Free Book
-date: 2024-10-25 19:37:37
-updated: 2024-10-26 11:30:22
+date: 2024-10-21T22:20:20.915Z
+updated: 2024-10-26T21:31:12.110Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4caeb7e4d282f1fd77dd1e20bc6392599d21f68f2e1848e06f5a0569f20f9f8.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4caeb7e4d282f1fd77dd1e20bc6392
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

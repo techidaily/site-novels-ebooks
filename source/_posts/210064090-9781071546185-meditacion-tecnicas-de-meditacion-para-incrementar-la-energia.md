@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Técnicas de meditación para incrementar la energía | Free Book"
-date: 2024-10-24 15:44:30
-updated: 2024-10-26 12:52:20
+date: 2024-10-25T20:04:48.885Z
+updated: 2024-10-27T04:17:45.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78550f1f3f14b7662a0ee93d98a156b660298826ba55ac44548e5e3da1d6ff3e.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78550f1f3f14b7662a0ee93d98a156b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: 77 Ways to Improve Your Wellbeing | Free Book
-date: 2024-10-24 12:44:12
-updated: 2024-10-26 11:58:20
+date: 2024-10-24T23:32:14.484Z
+updated: 2024-10-26T22:41:50.892Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/005c85c69ff55dec31be0b17c1f19c80edd05a3af1998b074d6d5e61bc638970.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/005c85c69ff55dec31be0b17c1f19c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

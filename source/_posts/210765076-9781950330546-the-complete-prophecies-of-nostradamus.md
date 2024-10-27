@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2024-10-23 17:19:14
-updated: 2024-10-26 10:49:32
+date: 2024-10-19T16:36:40.125Z
+updated: 2024-10-26T19:19:51.963Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6c54cfc93b28347d63a844bd4c0697b48e2bef797530e0f489c8b4b40cd0cbfa.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6c54cfc93b28347d63a844bd4c0697b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

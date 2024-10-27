@@ -1,7 +1,7 @@
 ---
 title: The Light of Egypt; Or, the Science of the Soul and the Stars [Two Volumes in One] | Free Book
-date: 2024-10-25 15:56:22
-updated: 2024-10-26 11:17:20
+date: 2024-10-22T20:08:52.165Z
+updated: 2024-10-27T04:10:26.154Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08831c7649766982d0ebb82de4070445fc4d4af962f7680e327260281128ce15.jpg
@@ -211,3 +211,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08831c7649766982d0ebb82de407044
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

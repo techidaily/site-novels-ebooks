@@ -1,7 +1,7 @@
 ---
 title: Psychic Children Speak to the World | Free Book
-date: 2024-10-24 22:50:14
-updated: 2024-10-26 10:35:43
+date: 2024-10-21T01:45:09.533Z
+updated: 2024-10-26T17:00:15.673Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e37c97c09ae4a8112199b79c424a9daa6c9d3b2bc29e7474fed2966c91627fe6.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e37c97c09ae4a8112199b79c424a9da
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

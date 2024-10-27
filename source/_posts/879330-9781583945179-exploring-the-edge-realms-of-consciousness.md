@@ -1,7 +1,7 @@
 ---
 title: Exploring the Edge Realms of Consciousness | Free Book
-date: 2024-10-23 16:10:13
-updated: 2024-10-26 10:43:54
+date: 2024-10-26T05:34:49.874Z
+updated: 2024-10-26T21:34:07.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b80accf7e4bf7bf1002f8ae06ebcb57f18963bd60318289764031785d2b528c.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b80accf7e4bf7bf1002f8ae06ebcb5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

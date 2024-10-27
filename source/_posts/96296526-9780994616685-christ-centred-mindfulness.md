@@ -1,7 +1,7 @@
 ---
 title: Christ-Centred Mindfulness | Free Book
-date: 2024-10-23 10:42:56
-updated: 2024-10-26 11:57:51
+date: 2024-10-23T19:30:04.267Z
+updated: 2024-10-26T20:56:15.160Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c21f9efcd26a7db733dc69ec1c1c2d21ab3f6504325e3feea27fa70d45f4bd2.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c21f9efcd26a7db733dc69ec1c1c2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

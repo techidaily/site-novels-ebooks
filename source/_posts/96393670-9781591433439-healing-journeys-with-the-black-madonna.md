@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2024-10-25 11:21:23
-updated: 2024-10-26 12:15:49
+date: 2024-10-22T16:36:02.176Z
+updated: 2024-10-27T03:17:53.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

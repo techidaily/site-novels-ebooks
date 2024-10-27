@@ -1,7 +1,7 @@
 ---
 title: Haunted Hartlepool and East Durham | Free Book
-date: 2024-10-24 15:46:15
-updated: 2024-10-26 10:58:34
+date: 2024-10-26T01:28:24.246Z
+updated: 2024-10-27T01:29:46.568Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f88fb858550e93ea5d717e58749e55b90e3d4ca689bcf9d935bd47ccfe86d237.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f88fb858550e93ea5d717e58749e55b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

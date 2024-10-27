@@ -1,7 +1,7 @@
 ---
 title: Return of the Revolutionaries | Free Book
-date: 2024-10-24 16:13:30
-updated: 2024-10-26 11:23:45
+date: 2024-10-25T23:16:09.701Z
+updated: 2024-10-27T00:32:07.063Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7f86756c0d4db7a59edba8229bcfb97a5a8950bc53f20c68b1d4763142fcaf5b.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7f86756c0d4db7a59edba8229bcfb97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

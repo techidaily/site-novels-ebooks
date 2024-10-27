@@ -1,7 +1,7 @@
 ---
 title: Understanding Relations--The Vedic Astrology Way | Free Book
-date: 2024-10-23 16:46:25
-updated: 2024-10-26 11:55:56
+date: 2024-10-25T04:19:15.569Z
+updated: 2024-10-27T01:21:36.069Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8eeaa150647f2f25f5c7e4b18c1833b7b770324aef4f86ec210dd228f09376c2.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8eeaa150647f2f25f5c7e4b18c1833b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

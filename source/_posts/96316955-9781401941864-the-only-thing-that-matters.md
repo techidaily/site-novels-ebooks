@@ -1,7 +1,7 @@
 ---
 title: The Only Thing That Matters | Free Book
-date: 2024-10-23 15:38:37
-updated: 2024-10-26 11:59:52
+date: 2024-10-21T23:05:40.815Z
+updated: 2024-10-26T17:34:38.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/781abda5c9919370394a9208cade7ff0e3f8c7bbe29a6c5ca45fc026e6fac4cb.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/781abda5c9919370394a9208cade7ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Conversaciones con María (Conversations with Mary Spanish edition) | Free Book
-date: 2024-10-23 23:38:20
-updated: 2024-10-26 11:27:27
+date: 2024-10-20T05:51:51.265Z
+updated: 2024-10-26T18:45:21.726Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ddab745f6ae3b9857ce1e49f1a5a96759f00b9eb988d08a09bfe6b274c0c4c5.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ddab745f6ae3b9857ce1e49f1a5a96
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

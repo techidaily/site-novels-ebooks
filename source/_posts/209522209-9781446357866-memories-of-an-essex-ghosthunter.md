@@ -1,7 +1,7 @@
 ---
 title: Memories of an Essex Ghosthunter | Free Book
-date: 2024-10-23 21:30:14
-updated: 2024-10-26 10:15:10
+date: 2024-10-25T00:07:09.740Z
+updated: 2024-10-27T01:42:29.740Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02e0f33f65d1d8f809e1dae4c0f2c6787db64fcfe4de89fe6ba5fda9797ba807.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02e0f33f65d1d8f809e1dae4c0f2c67
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

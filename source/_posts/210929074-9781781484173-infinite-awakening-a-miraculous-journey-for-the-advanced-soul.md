@@ -1,7 +1,7 @@
 ---
 title: Infinite Awakening - A Miraculous Journey for the Advanced Soul | Free Book
-date: 2024-10-24 11:28:54
-updated: 2024-10-26 12:55:26
+date: 2024-10-24T19:56:35.878Z
+updated: 2024-10-26T17:29:44.383Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e2b3f59a9484b9c5309e2bd7b3d45914514af8c0e87cb9503aed3259a51f650.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e2b3f59a9484b9c5309e2bd7b3d459
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

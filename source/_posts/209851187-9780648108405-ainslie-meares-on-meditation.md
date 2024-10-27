@@ -1,7 +1,7 @@
 ---
 title: Ainslie Meares on Meditation | Free Book
-date: 2024-10-23 14:24:53
-updated: 2024-10-26 10:10:48
+date: 2024-10-19T18:32:25.885Z
+updated: 2024-10-26T19:03:31.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9616dbe924786101b35be2df55b30c194289d9f908c7783f4d59271a17f3178a.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9616dbe924786101b35be2df55b30c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

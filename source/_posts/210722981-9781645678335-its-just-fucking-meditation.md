@@ -1,7 +1,7 @@
 ---
 title: It’s Just Fucking Meditation | Free Book
-date: 2024-10-24 10:27:46
-updated: 2024-10-26 10:15:35
+date: 2024-10-19T23:20:51.760Z
+updated: 2024-10-27T03:43:57.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c56d26fb755a70c706743c4eeb1a83062e51cf6d7c06ebb89515e994734bc1b9.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c56d26fb755a70c706743c4eeb1a830
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

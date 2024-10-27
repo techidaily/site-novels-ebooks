@@ -1,7 +1,7 @@
 ---
 title: The Essential Manifesting Guidebook | Free Book
-date: 2024-10-25 20:33:56
-updated: 2024-10-26 12:16:52
+date: 2024-10-19T17:35:32.904Z
+updated: 2024-10-26T20:57:07.467Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a2017719a538807aba7b43ee38b584f2a17950865d83171d75822bd18146116b.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a2017719a538807aba7b43ee38b584f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

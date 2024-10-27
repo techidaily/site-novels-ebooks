@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Canticle of the Soul and the Bridegroom Christ | Free Book
-date: 2024-10-25 20:27:34
-updated: 2024-10-26 11:23:27
+date: 2024-10-22T18:02:25.830Z
+updated: 2024-10-26T18:04:24.265Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/594cb5c2531d2cf2e8cdcd43a5200ad1f9eba4dad75e3c5e7284963e8581dab6.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/594cb5c2531d2cf2e8cdcd43a5200ad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

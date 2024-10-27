@@ -1,7 +1,7 @@
 ---
 title: The primal horoscope of the modern stock exchange. | Free Book
-date: 2024-10-23 17:58:29
-updated: 2024-10-26 11:36:11
+date: 2024-10-23T23:59:14.536Z
+updated: 2024-10-26T16:57:44.661Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/726f8eef309ee23e26be5ccf72f2b8a95fe612cb499194ca2610255dad56bc2a.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/726f8eef309ee23e26be5ccf72f2b8a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

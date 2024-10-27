@@ -1,7 +1,7 @@
 ---
 title: Yoga Sutras of Patanjali Part One, Pada One Sutras 1.1 - 1.29 | Free Book
-date: 2024-10-23 10:55:33
-updated: 2024-10-26 11:18:50
+date: 2024-10-20T03:05:28.616Z
+updated: 2024-10-27T00:11:15.586Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1cf2e2ff9e6bbb0e71f285ad33ae18436ca9bf0ff1f7543c7b534acde2986e31.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1cf2e2ff9e6bbb0e71f285ad33ae184
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

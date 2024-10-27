@@ -1,7 +1,7 @@
 ---
 title: The Haunting of Willington Mill | Free Book
-date: 2024-10-24 11:47:52
-updated: 2024-10-26 10:15:56
+date: 2024-10-20T03:54:34.447Z
+updated: 2024-10-27T02:44:14.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/816bb4d525c583707b6edd57c68f5e4c9a7ae26b7753cc326b92869c5d869aca.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/816bb4d525c583707b6edd57c68f5e4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

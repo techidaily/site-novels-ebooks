@@ -1,7 +1,7 @@
 ---
 title: A Year of Loving Kindness to Myself | Free Book
-date: 2024-10-24 20:19:13
-updated: 2024-10-26 11:18:39
+date: 2024-10-21T02:52:11.436Z
+updated: 2024-10-26T21:26:11.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/474973f23340d6e916a0b921a95d6134b030a828b0bdfc14f83a8bd30a9687c4.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/474973f23340d6e916a0b921a95d613
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

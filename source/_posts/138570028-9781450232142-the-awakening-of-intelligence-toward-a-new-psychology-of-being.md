@@ -1,7 +1,7 @@
 ---
 title: "The Awakening of Intelligence: Toward a New Psychology of Being | Free Book"
-date: 2024-10-24 14:15:42
-updated: 2024-10-26 12:29:17
+date: 2024-10-21T22:22:04.824Z
+updated: 2024-10-26T21:50:06.752Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8bd24427a935687a12f644e60e9ab175efc196f0c77b2fe7e0233f70ea7f032d.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8bd24427a935687a12f644e60e9ab17
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Three Ages of Atlantis | Free Book
-date: 2024-10-24 16:36:12
-updated: 2024-10-26 10:10:45
+date: 2024-10-20T21:16:37.944Z
+updated: 2024-10-26T21:44:43.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1205f74db1a650c65d9f6c4232d7f694495e8982c465604509dba21290d5a117.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1205f74db1a650c65d9f6c4232d7f69
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

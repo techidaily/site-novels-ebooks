@@ -1,7 +1,7 @@
 ---
 title: Elucidation of Necromancy Lucidarium Artis Nigromantice attributed to Peter of Abano | Free Book
-date: 2024-10-24 23:57:26
-updated: 2024-10-26 10:23:48
+date: 2024-10-20T21:11:15.960Z
+updated: 2024-10-26T16:01:18.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c76a6cef442e558d2330f17dc53eb76b94b21e9b747ce2a4729f5bc9239c52d.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c76a6cef442e558d2330f17dc53eb7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

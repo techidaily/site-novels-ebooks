@@ -1,7 +1,7 @@
 ---
 title: Yoga For Weight Loss For Beginners - Peace & Bliss | Free Book
-date: 2024-10-23 23:43:47
-updated: 2024-10-26 12:39:10
+date: 2024-10-24T19:32:49.716Z
+updated: 2024-10-27T05:58:44.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acb7368c886beed9266b75c6054c6eecdb3a665afb458ecc1ddf814c4fecc8cc.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acb7368c886beed9266b75c6054c6ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

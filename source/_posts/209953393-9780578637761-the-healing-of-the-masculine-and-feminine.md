@@ -1,7 +1,7 @@
 ---
 title: The Healing of the Masculine and Feminine | Free Book
-date: 2024-10-25 22:35:27
-updated: 2024-10-26 12:26:14
+date: 2024-10-21T18:16:36.572Z
+updated: 2024-10-26T23:09:34.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63fd6348924751c15e29f405e329909268e75f3d10e1cd1ac657932848beee57.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63fd6348924751c15e29f405e329909
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

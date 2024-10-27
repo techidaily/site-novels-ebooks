@@ -1,7 +1,7 @@
 ---
 title: A Brief History of a Physicist's Soul | Free Book
-date: 2024-10-25 15:57:16
-updated: 2024-10-26 12:22:16
+date: 2024-10-22T22:04:24.192Z
+updated: 2024-10-27T05:24:44.525Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90344b8800c566d19bc74f3aa0a47a8cb8fb131496c3db8aa183178cba1ae114.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90344b8800c566d19bc74f3aa0a47a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

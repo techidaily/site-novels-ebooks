@@ -1,7 +1,7 @@
 ---
 title: A Mindfulness-Based Stress Reduction Workbook for Anxiety | Free Book
-date: 2024-10-24 18:26:31
-updated: 2024-10-26 11:27:59
+date: 2024-10-21T00:36:01.997Z
+updated: 2024-10-26T19:53:22.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/11c4f159690ff3727b412537de5edfcac1ba6b31156e9768252d02df1e2bd0aa.jpg
@@ -213,3 +213,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/11c4f159690ff3727b412537de5edfc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

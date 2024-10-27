@@ -1,7 +1,7 @@
 ---
 title: "Pagan Portals: Planetary Magic | Free Book"
-date: 2024-10-25 13:23:13
-updated: 2024-10-26 11:41:36
+date: 2024-10-20T23:45:05.742Z
+updated: 2024-10-26T17:44:27.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10e55c9eaa9bbdc8b592a8df73492a9d357807e9baf63b034a34cc7ba7ad44a9.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10e55c9eaa9bbdc8b592a8df73492a9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Karmic Relationships: Volume 7 | Free Book"
-date: 2024-10-25 12:49:11
-updated: 2024-10-26 11:48:46
+date: 2024-10-21T16:55:39.344Z
+updated: 2024-10-27T04:30:34.658Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e21acbecd2f834f82fcfacbe6709cbaf464329098b38b860f17f0ee8c66556f3.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e21acbecd2f834f82fcfacbe6709cba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

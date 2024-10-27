@@ -1,7 +1,7 @@
 ---
 title: كلمات خاصة جداً - Very Special Words | Free Book
-date: 2024-10-25 22:30:35
-updated: 2024-10-26 12:21:13
+date: 2024-10-19T19:12:17.934Z
+updated: 2024-10-26T21:52:24.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a98adee58f191ae0eb11828aa2862074e6bb66bfb233570da9de80b49a37849.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a98adee58f191ae0eb11828aa28620
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Summary of Diane Ahlquist's Moon Magic | Free Book
-date: 2024-10-23 13:33:15
-updated: 2024-10-26 11:12:51
+date: 2024-10-21T03:08:09.311Z
+updated: 2024-10-27T00:55:55.447Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ac45ce3fdc38c1e1fe1e735548616097b8d2689bd97795074264adc68ca17cd.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ac45ce3fdc38c1e1fe1e7355486160
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

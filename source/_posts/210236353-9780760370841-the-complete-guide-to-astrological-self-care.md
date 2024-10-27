@@ -1,7 +1,7 @@
 ---
 title: The Complete Guide to Astrological Self-Care | Free Book
-date: 2024-10-23 19:39:25
-updated: 2024-10-26 12:29:15
+date: 2024-10-20T03:10:13.576Z
+updated: 2024-10-27T00:00:48.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2615db3dd2030920615947f7b0f09490449a1504fb092be2d73eb26030abdcb8.jpg
@@ -223,3 +223,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2615db3dd2030920615947f7b0f0949
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

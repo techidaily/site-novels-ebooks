@@ -1,7 +1,7 @@
 ---
 title: Apparitions, Hauntings, and Poltergeists | Free Book
-date: 2024-10-25 12:28:10
-updated: 2024-10-26 10:55:33
+date: 2024-10-22T03:09:21.702Z
+updated: 2024-10-27T04:41:49.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd4399a16f9a9a6f30e2b91a78c3b4abc54b41c43961c9667e13e3783a8f427e.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd4399a16f9a9a6f30e2b91a78c3b4a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

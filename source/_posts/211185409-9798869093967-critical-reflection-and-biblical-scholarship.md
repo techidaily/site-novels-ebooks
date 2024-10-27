@@ -1,7 +1,7 @@
 ---
 title: Critical Reflection and Biblical Scholarship | Free Book
-date: 2024-10-24 21:43:47
-updated: 2024-10-26 12:42:29
+date: 2024-10-25T20:29:04.889Z
+updated: 2024-10-26T17:38:33.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f39d442b9128ddbcfcc4374a272316a85838965c3db249018827849470bf687c.jpg
@@ -227,3 +227,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f39d442b9128ddbcfcc4374a272316a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

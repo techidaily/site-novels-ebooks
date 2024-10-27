@@ -1,7 +1,7 @@
 ---
 title: A Modern Approach to Think and Grow Rich | Free Book
-date: 2024-10-24 17:10:49
-updated: 2024-10-26 12:23:33
+date: 2024-10-22T16:40:10.167Z
+updated: 2024-10-27T01:24:13.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0dd1ef1a7c8ac4c533de172756bc92eedc36afdc889022bc0adbc13d779ef873.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0dd1ef1a7c8ac4c533de172756bc92e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

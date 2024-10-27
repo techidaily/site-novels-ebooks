@@ -1,7 +1,7 @@
 ---
 title: Navigating the Financial Universe | Free Book
-date: 2024-10-25 15:57:46
-updated: 2024-10-26 11:12:42
+date: 2024-10-24T23:30:12.026Z
+updated: 2024-10-27T00:45:36.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b3bc0b6ad5345837fba57f56ec1f890c506a403a528bddbda08aa4b2fde9cb1.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b3bc0b6ad5345837fba57f56ec1f89
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

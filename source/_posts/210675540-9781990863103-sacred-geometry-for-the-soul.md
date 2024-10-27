@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry For The Soul | Free Book
-date: 2024-10-25 12:33:34
-updated: 2024-10-26 10:40:15
+date: 2024-10-25T00:24:47.453Z
+updated: 2024-10-26T19:55:47.385Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/668d596449bea1d13f467543efb13df17ec0d0be188ffd3d83813ff0d5e7a579.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/668d596449bea1d13f467543efb13df
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

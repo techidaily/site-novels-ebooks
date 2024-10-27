@@ -1,7 +1,7 @@
 ---
 title: Mindful Crafting | Free Book
-date: 2024-10-25 12:57:24
-updated: 2024-10-26 10:48:20
+date: 2024-10-25T18:45:21.602Z
+updated: 2024-10-26T16:00:59.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b01408353710370fb4010e36dbf93ceb7d9715dea0a7e710d4cacec8caa2c8d3.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b01408353710370fb4010e36dbf93ce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

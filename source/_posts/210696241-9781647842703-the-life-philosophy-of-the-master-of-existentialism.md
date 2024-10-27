@@ -1,7 +1,7 @@
 ---
 title: The Life Philosophy of the Master of Existentialism | Free Book
-date: 2024-10-24 11:27:54
-updated: 2024-10-26 10:15:32
+date: 2024-10-24T20:55:56.755Z
+updated: 2024-10-26T22:51:47.628Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8bd2ec616a8357bf736b2d71f26e7df39c16813061695c1098ad77d686c9167.jpg
@@ -316,3 +316,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8bd2ec616a8357bf736b2d71f26e7d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

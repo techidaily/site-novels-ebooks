@@ -1,7 +1,7 @@
 ---
 title: Energy Balance through the Tao | Free Book
-date: 2024-10-24 16:15:45
-updated: 2024-10-26 11:54:23
+date: 2024-10-23T21:46:56.532Z
+updated: 2024-10-27T02:23:38.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85c6e453685454d0049492346f79e4cd96006e449c4664a49fa028b1bb660c19.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85c6e453685454d0049492346f79e4c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

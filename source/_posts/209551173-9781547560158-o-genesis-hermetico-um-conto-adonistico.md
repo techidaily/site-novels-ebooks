@@ -1,7 +1,7 @@
 ---
 title: O Génesis Hermético - Um conto Adonístico | Free Book
-date: 2024-10-23 17:51:47
-updated: 2024-10-26 10:10:14
+date: 2024-10-25T00:10:01.875Z
+updated: 2024-10-27T03:53:36.796Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f3ade3a1d75ac6bf5b9ae132d4afbdb73aefff3cbffac0da25d244daf93e835.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f3ade3a1d75ac6bf5b9ae132d4afbd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

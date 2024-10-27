@@ -1,7 +1,7 @@
 ---
 title: The Feminine Face of God | Free Book
-date: 2024-10-24 15:11:54
-updated: 2024-10-26 12:19:18
+date: 2024-10-25T00:27:34.053Z
+updated: 2024-10-26T16:08:58.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3825729a64723d6d46ac0abb33a40b889b8a5afe67b712d471e5c18e9cedfc84.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3825729a64723d6d46ac0abb33a40b8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

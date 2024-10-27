@@ -1,7 +1,7 @@
 ---
 title: Роковые пророчества и знаки судьбы (Rokovye prorochestva i znaki sud'by) | Free Book
-date: 2024-10-23 13:30:23
-updated: 2024-10-26 10:29:47
+date: 2024-10-26T00:13:13.827Z
+updated: 2024-10-27T00:06:27.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d86a76337a3dbaa78c88f13ecbad567ce2f87d5d80c66ef0fec4008584bdeb8.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d86a76337a3dbaa78c88f13ecbad56
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

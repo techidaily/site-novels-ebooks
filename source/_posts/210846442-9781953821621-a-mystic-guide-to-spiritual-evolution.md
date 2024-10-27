@@ -1,7 +1,7 @@
 ---
 title: A Mystic Guide to Spiritual Evolution | Free Book
-date: 2024-10-24 15:56:53
-updated: 2024-10-26 10:49:54
+date: 2024-10-22T00:47:43.330Z
+updated: 2024-10-26T21:33:48.022Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6aa2cc61ba3e818ea36112fc117fe4c6245f9d30a87b2e79d66330367b3381d8.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6aa2cc61ba3e818ea36112fc117fe4c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

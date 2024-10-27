@@ -1,7 +1,7 @@
 ---
 title: Healing with Past Life Therapy | Free Book
-date: 2024-10-24 21:17:47
-updated: 2024-10-26 12:34:19
+date: 2024-10-23T19:09:08.234Z
+updated: 2024-10-27T01:54:58.583Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/29fa011370e29a60581ac6ab46f6a7bdb018da3050b06b56f41981dbedc8eea2.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/29fa011370e29a60581ac6ab46f6a7b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

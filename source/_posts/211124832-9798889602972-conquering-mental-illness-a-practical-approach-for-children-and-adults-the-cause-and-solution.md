@@ -1,7 +1,7 @@
 ---
 title: "Conquering Mental Illness: A Practical Approach for Children and Adults: The Cause and Solution | Free Book"
-date: 2024-10-25 20:41:53
-updated: 2024-10-26 11:57:42
+date: 2024-10-24T19:04:21.552Z
+updated: 2024-10-26T23:39:27.038Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4b9ae3f167cc30f8525642072ed38846068ef299992f25c4f384c26c05e5296.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4b9ae3f167cc30f8525642072ed388
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

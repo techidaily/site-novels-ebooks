@@ -1,7 +1,7 @@
 ---
 title: The Evolution of Consciousness | Free Book
-date: 2024-10-25 21:41:43
-updated: 2024-10-26 10:24:22
+date: 2024-10-26T01:07:51.679Z
+updated: 2024-10-27T02:12:34.782Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1282c9f44c45a5da318e65e230e292f8f8a90e07983f4178aea773f8221db1d.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1282c9f44c45a5da318e65e230e292
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

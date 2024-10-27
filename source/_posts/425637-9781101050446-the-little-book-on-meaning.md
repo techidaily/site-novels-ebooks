@@ -1,7 +1,7 @@
 ---
 title: The Little Book on Meaning | Free Book
-date: 2024-10-25 10:48:27
-updated: 2024-10-26 10:34:41
+date: 2024-10-20T16:09:30.500Z
+updated: 2024-10-27T02:03:32.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e211c5612e7f116a5650c10ce799794dce066e362aab2b6082bb168153c5dea.jpg
@@ -210,3 +210,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e211c5612e7f116a5650c10ce79979
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Other Side Of Me - A Psychic's Journey of Empowerment and Healing | Free Book
-date: 2024-10-23 15:24:16
-updated: 2024-10-26 11:52:20
+date: 2024-10-24T00:26:08.213Z
+updated: 2024-10-26T17:04:41.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cd5ffe6b92c1dac445c44d9986c733a2b656327aa592c859010758bacaaac01.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cd5ffe6b92c1dac445c44d9986c733
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

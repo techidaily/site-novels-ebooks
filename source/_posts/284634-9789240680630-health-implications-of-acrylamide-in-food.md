@@ -1,7 +1,7 @@
 ---
 title: Health Implications of Acrylamide in Food | Free Book
-date: 2024-10-23 10:32:11
-updated: 2024-10-26 11:46:34
+date: 2024-10-23T18:05:42.863Z
+updated: 2024-10-26T17:46:14.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad14c632f34dcb71aa23394afc5ad53193e9df514db51fcde99a85723c5e0576.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad14c632f34dcb71aa23394afc5ad53
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

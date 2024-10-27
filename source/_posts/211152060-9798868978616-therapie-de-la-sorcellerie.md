@@ -1,7 +1,7 @@
 ---
 title: Thérapie  de la  Sorcellerie | Free Book
-date: 2024-10-23 13:46:45
-updated: 2024-10-26 10:58:38
+date: 2024-10-24T05:42:51.609Z
+updated: 2024-10-26T20:32:20.229Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6980ef1445faa4bb40f59c2ee132a090bd84f02d22531e8b60bb0f872f9ad51e.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6980ef1445faa4bb40f59c2ee132a09
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

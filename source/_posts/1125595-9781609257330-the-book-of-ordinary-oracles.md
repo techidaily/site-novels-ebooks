@@ -1,7 +1,7 @@
 ---
 title: The Book Of Ordinary Oracles | Free Book
-date: 2024-10-25 22:28:36
-updated: 2024-10-26 10:48:48
+date: 2024-10-24T16:14:48.647Z
+updated: 2024-10-26T17:50:31.022Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f7bf98302b009156ee3393af7a2e2f11d992d908f1830c3b6a1165f54300be0.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f7bf98302b009156ee3393af7a2e2f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

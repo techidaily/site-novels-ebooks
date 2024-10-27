@@ -1,7 +1,7 @@
 ---
 title: Ghosts of the Canadian National Exhibition | Free Book
-date: 2024-10-23 18:21:41
-updated: 2024-10-26 11:23:56
+date: 2024-10-22T05:07:12.356Z
+updated: 2024-10-26T17:05:58.894Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acfe2c172385deb6fa0350f8e4f9d32d894965af70ce2e6409cfd59812cfbb28.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acfe2c172385deb6fa0350f8e4f9d32
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Transforming the Legacy | Free Book
-date: 2024-10-24 13:22:31
-updated: 2024-10-26 12:38:14
+date: 2024-10-25T00:19:10.601Z
+updated: 2024-10-26T23:51:11.292Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3bc27c8328f2aa64b22fd20b2ba6d015b8041d549d4619f6f99ae165bc33fde.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3bc27c8328f2aa64b22fd20b2ba6d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

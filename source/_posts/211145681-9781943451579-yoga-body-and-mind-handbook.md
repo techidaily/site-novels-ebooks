@@ -1,7 +1,7 @@
 ---
 title: Yoga Body and Mind Handbook | Free Book
-date: 2024-10-25 21:25:31
-updated: 2024-10-26 10:40:18
+date: 2024-10-23T21:48:22.693Z
+updated: 2024-10-27T05:20:29.629Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f1a14cd177939bf660caa9f701eb50c1ee3690c99f0c1c9d66c0e74ac8dc0e1c.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f1a14cd177939bf660caa9f701eb50c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

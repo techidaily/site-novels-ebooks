@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Mudras | Free Book
-date: 2024-10-24 23:12:46
-updated: 2024-10-26 11:20:16
+date: 2024-10-25T05:20:51.456Z
+updated: 2024-10-27T03:29:55.921Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32f06ccf6b5d1d4812cb62420c0edc23458dc0f7682546854f68cd66d31b70b8.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32f06ccf6b5d1d4812cb62420c0edc2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

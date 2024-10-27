@@ -1,7 +1,7 @@
 ---
 title: The Wiccan Guide to Self-care | Free Book
-date: 2024-10-25 23:21:15
-updated: 2024-10-26 12:37:57
+date: 2024-10-23T01:29:21.204Z
+updated: 2024-10-26T17:44:01.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a984d53d632d40a5c0d312ebe0cc653126c2033049ba6cba90527ed6019b74ac.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a984d53d632d40a5c0d312ebe0cc653
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

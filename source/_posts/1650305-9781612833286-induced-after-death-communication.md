@@ -1,7 +1,7 @@
 ---
 title: Induced After Death Communication | Free Book
-date: 2024-10-25 19:54:12
-updated: 2024-10-26 10:43:28
+date: 2024-10-25T22:56:00.754Z
+updated: 2024-10-26T19:01:23.163Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d28f5b03f56a4a422c253dea1120f6b09e60ebf882db8167f1e502b4a17807b1.jpg
@@ -213,3 +213,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d28f5b03f56a4a422c253dea1120f6b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

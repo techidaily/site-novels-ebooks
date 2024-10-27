@@ -1,7 +1,7 @@
 ---
 title: CORES ESPIRITUAIS e seus significados - Na ESCOLA DO ESPÍRITO SANTO - Nova Edição Portuguesa | Free Book
-date: 2024-10-25 14:39:59
-updated: 2024-10-26 10:28:25
+date: 2024-10-25T16:03:33.419Z
+updated: 2024-10-27T02:19:09.340Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/554081dff13e8a528cba9b3710c0b61fab037effe5cd329c0c104e8d05c5f018.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/554081dff13e8a528cba9b3710c0b61
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

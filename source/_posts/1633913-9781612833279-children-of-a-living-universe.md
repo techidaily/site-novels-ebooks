@@ -1,7 +1,7 @@
 ---
 title: Children of a Living Universe | Free Book
-date: 2024-10-25 11:33:44
-updated: 2024-10-26 10:27:43
+date: 2024-10-19T17:06:25.766Z
+updated: 2024-10-26T23:00:23.671Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd082a45854a119fdbdefa5fb546153918a2e3904e55ab67cd29773bd734f127.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd082a45854a119fdbdefa5fb546153
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

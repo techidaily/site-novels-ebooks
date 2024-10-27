@@ -1,7 +1,7 @@
 ---
 title: LSD and the Divine Scientist | Free Book
-date: 2024-10-25 16:39:30
-updated: 2024-10-26 11:18:47
+date: 2024-10-21T17:14:17.865Z
+updated: 2024-10-27T03:28:42.479Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1990131060efae65bac6343795e33be0b31cfa9670bc18f9b7cc16c8ef7b60a.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1990131060efae65bac6343795e33b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

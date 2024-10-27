@@ -1,7 +1,7 @@
 ---
 title: Shamanism and Spirituality in Therapeutic Practice | Free Book
-date: 2024-10-24 16:22:41
-updated: 2024-10-26 11:44:35
+date: 2024-10-24T04:00:15.587Z
+updated: 2024-10-26T20:24:35.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18d18d564269e03a4d626c568214852c0a1edc0bb79a25cd0dfad31b002e5b97.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18d18d564269e03a4d626c568214852
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

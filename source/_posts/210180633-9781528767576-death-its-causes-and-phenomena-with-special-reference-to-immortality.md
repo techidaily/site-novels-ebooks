@@ -1,7 +1,7 @@
 ---
 title: "Death: Its Causes and Phenomena with Special Reference to Immortality | Free Book"
-date: 2024-10-25 10:54:26
-updated: 2024-10-26 12:54:35
+date: 2024-10-21T19:29:34.863Z
+updated: 2024-10-26T21:31:59.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0616102934fd16eef6798b1276486098b48c131109937992c0229de9a8b1cc21.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0616102934fd16eef6798b127648609
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Karmic Relationships: Volume 4 | Free Book"
-date: 2024-10-25 12:19:47
-updated: 2024-10-26 10:41:59
+date: 2024-10-25T04:57:55.023Z
+updated: 2024-10-27T03:19:50.467Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ce07d1020b657fb9f56e2ef6233b1ce2f4dc3d781d5e6e69cffb2ab3d41cf1c.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ce07d1020b657fb9f56e2ef6233b1c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

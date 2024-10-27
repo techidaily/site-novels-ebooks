@@ -1,7 +1,7 @@
 ---
 title: The Borley Rectory Companion | Free Book
-date: 2024-10-23 13:21:47
-updated: 2024-10-26 11:25:16
+date: 2024-10-20T22:37:57.768Z
+updated: 2024-10-26T19:58:07.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1a6109b4bb1fdb3fb0b55cab2b801f25d18cd5646a9c37f925aea817f311e2a.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1a6109b4bb1fdb3fb0b55cab2b801f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Science and the Reenchantment of the Cosmos | Free Book
-date: 2024-10-23 20:47:27
-updated: 2024-10-26 11:17:19
+date: 2024-10-22T05:23:13.391Z
+updated: 2024-10-27T05:34:06.218Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9dc7993b294900aa329c344b396fd77af66fece0980a8b652e9234c975779a1a.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9dc7993b294900aa329c344b396fd77
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

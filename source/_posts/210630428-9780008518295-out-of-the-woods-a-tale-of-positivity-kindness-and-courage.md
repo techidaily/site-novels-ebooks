@@ -1,7 +1,7 @@
 ---
 title: "Out of the Woods: A tale of positivity, kindness and courage | Free Book"
-date: 2024-10-23 16:57:20
-updated: 2024-10-26 11:26:13
+date: 2024-10-23T23:13:44.900Z
+updated: 2024-10-27T02:15:37.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14955d7dddc103307e23310b4690b2f46d00387bde3d2828cad770fccf93308a.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14955d7dddc103307e23310b4690b2f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

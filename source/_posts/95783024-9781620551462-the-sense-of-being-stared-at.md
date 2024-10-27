@@ -1,7 +1,7 @@
 ---
 title: The Sense of Being Stared At | Free Book
-date: 2024-10-23 21:28:14
-updated: 2024-10-26 10:11:59
+date: 2024-10-21T20:31:51.882Z
+updated: 2024-10-27T02:36:34.478Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1854af98798fa4444047d3617a4089a72cc1ad02c4316f0544d41e4ea3cff5e.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1854af98798fa4444047d3617a4089
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Riconosci e guarisci te stesso tramite la forza dello Spirito | Free Book
-date: 2024-10-24 20:30:11
-updated: 2024-10-26 10:53:43
+date: 2024-10-24T04:50:04.287Z
+updated: 2024-10-26T19:18:59.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4db33975302f0d33c92ba0062da65b9948a1c9f645e0f3436e54696452d89380.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4db33975302f0d33c92ba0062da65b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

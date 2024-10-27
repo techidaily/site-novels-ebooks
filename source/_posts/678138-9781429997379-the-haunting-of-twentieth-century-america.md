@@ -1,7 +1,7 @@
 ---
 title: The Haunting of Twentieth-Century America | Free Book
-date: 2024-10-24 10:32:41
-updated: 2024-10-26 10:29:55
+date: 2024-10-24T00:26:11.553Z
+updated: 2024-10-27T03:33:57.736Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73e24102a678b6c9e009f6b57f065645b7800528c325568ccc71aaa0e5e2624a.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73e24102a678b6c9e009f6b57f06564
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

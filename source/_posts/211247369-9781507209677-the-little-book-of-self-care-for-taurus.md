@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Taurus | Free Book
-date: 2024-10-25 21:24:17
-updated: 2024-10-26 12:36:46
+date: 2024-10-21T23:13:57.338Z
+updated: 2024-10-26T17:25:58.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7df7dd48b56530e39a5de0428602ae02770825f73c91134dfdb0a2cc23711db7.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7df7dd48b56530e39a5de0428602ae0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

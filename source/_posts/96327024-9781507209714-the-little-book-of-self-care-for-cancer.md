@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Cancer | Free Book
-date: 2024-10-24 14:59:59
-updated: 2024-10-26 10:25:57
+date: 2024-10-22T20:59:41.209Z
+updated: 2024-10-26T16:08:32.307Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc77010266581c0d7b9341443fd3de9c5ed.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: From India to the Planet Mars | Free Book
-date: 2024-10-23 19:44:58
-updated: 2024-10-26 10:11:54
+date: 2024-10-23T01:03:16.651Z
+updated: 2024-10-27T05:04:17.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d00056b27920377b47f29f58f27f7673f6f41cef4d0efb5bbdb85290610f5a5.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d00056b27920377b47f29f58f27f76
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

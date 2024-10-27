@@ -1,7 +1,7 @@
 ---
 title: The Tiny Book of Big Manifesting | Free Book
-date: 2024-10-23 19:37:39
-updated: 2024-10-26 10:23:40
+date: 2024-10-25T01:22:15.043Z
+updated: 2024-10-27T00:42:45.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/54a720d53407fe360516d4d3fc0c4a7137837de3f4b444089826950076af6ca3.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/54a720d53407fe360516d4d3fc0c4a7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

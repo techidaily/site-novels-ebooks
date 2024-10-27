@@ -1,7 +1,7 @@
 ---
 title: Summary of Lisa Chamberlain's Tarot for Beginners | Free Book
-date: 2024-10-23 14:28:17
-updated: 2024-10-26 11:47:26
+date: 2024-10-22T17:10:38.606Z
+updated: 2024-10-27T04:47:10.631Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/705bc7214efbdaf31be6c7edd4e385b8b73c8125f7ca32293cf927fba5fd48f0.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/705bc7214efbdaf31be6c7edd4e385b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

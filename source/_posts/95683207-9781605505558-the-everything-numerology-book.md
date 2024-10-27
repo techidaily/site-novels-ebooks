@@ -1,7 +1,7 @@
 ---
 title: The Everything Numerology Book | Free Book
-date: 2024-10-24 23:11:11
-updated: 2024-10-26 12:32:45
+date: 2024-10-22T03:34:58.330Z
+updated: 2024-10-26T19:14:06.010Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c455507a41780b03183024cc944ef391073c07231c95a3ae1fc57f226a3e120d.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c455507a41780b03183024cc944ef39
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Enneagram for Beginners | Free Book
-date: 2024-10-23 23:27:56
-updated: 2024-10-26 12:24:52
+date: 2024-10-25T04:43:52.619Z
+updated: 2024-10-26T21:28:02.329Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3de0d5d9c52f2cbcba25170daaaf11fc19ea6e134016dea57414c7f510b90db4.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3de0d5d9c52f2cbcba25170daaaf11f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

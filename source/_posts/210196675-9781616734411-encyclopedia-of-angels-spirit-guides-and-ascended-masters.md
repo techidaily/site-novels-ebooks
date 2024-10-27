@@ -1,7 +1,7 @@
 ---
 title: Encyclopedia of Angels, Spirit Guides and Ascended Masters | Free Book
-date: 2024-10-25 17:42:55
-updated: 2024-10-26 11:33:57
+date: 2024-10-20T17:22:55.863Z
+updated: 2024-10-27T02:36:26.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b6fea151d2bbcdd97f14d020f16ab439302647c04ca82395189b4a8fe14483d.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b6fea151d2bbcdd97f14d020f16ab4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

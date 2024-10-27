@@ -1,7 +1,7 @@
 ---
 title: The Acupuncture Handbook | Free Book
-date: 2024-10-24 18:16:19
-updated: 2024-10-26 11:39:26
+date: 2024-10-22T19:05:11.641Z
+updated: 2024-10-27T00:20:46.948Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ca827a8634d8488259d78acfc6dfafc14c92a87a98a0a2ab6f9fdc567093f08.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ca827a8634d8488259d78acfc6dfaf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

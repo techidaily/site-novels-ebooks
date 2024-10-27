@@ -1,7 +1,7 @@
 ---
 title: The Ancient Bones of Ceremony | Free Book
-date: 2024-10-24 16:11:37
-updated: 2024-10-26 12:51:46
+date: 2024-10-25T05:41:11.168Z
+updated: 2024-10-26T17:36:22.419Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/460e304ee3b963e91e5905f8ae17bf0fded78fb8fdde63b34ef3e7d6471dfb68.jpg
@@ -245,3 +245,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/460e304ee3b963e91e5905f8ae17bf0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

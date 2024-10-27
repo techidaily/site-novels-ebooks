@@ -1,7 +1,7 @@
 ---
 title: The Syzygy Oracle - Transformational Tarot and The Tree of Life | Free Book
-date: 2024-10-24 23:41:19
-updated: 2024-10-26 12:10:29
+date: 2024-10-23T01:16:17.356Z
+updated: 2024-10-27T02:39:17.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78edec1658eb47b6c5c3132d8149218a157634a05f9ae1a9a59661248e995e2f.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78edec1658eb47b6c5c3132d8149218
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

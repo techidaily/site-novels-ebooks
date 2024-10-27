@@ -1,7 +1,7 @@
 ---
 title: Spiritual Life, a Journey to Freedom | Free Book
-date: 2024-10-23 21:47:30
-updated: 2024-10-26 10:57:53
+date: 2024-10-22T23:58:55.839Z
+updated: 2024-10-26T22:49:42.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8515996761474452e8a817545a09d5a50537134c6dd4a09cf54c3ed68c1a68b7.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8515996761474452e8a817545a09d5a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

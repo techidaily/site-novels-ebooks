@@ -1,7 +1,7 @@
 ---
 title: "Declarado muerto durante 45 minutos: lo que vio y cómo cambió su vida para siempre | Free Book"
-date: 2024-10-23 10:34:37
-updated: 2024-10-26 10:48:15
+date: 2024-10-24T23:51:34.414Z
+updated: 2024-10-27T05:22:34.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d3b5d4dfbad2891681fd95e5a0d549f573585dc2da85cd88478eac35bc06ba9.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d3b5d4dfbad2891681fd95e5a0d549
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

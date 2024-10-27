@@ -1,7 +1,7 @@
 ---
 title: Harney & Sons How to Read Tea Leaves | Free Book
-date: 2024-10-25 12:44:33
-updated: 2024-10-26 11:26:53
+date: 2024-10-22T01:55:50.221Z
+updated: 2024-10-27T04:29:13.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ed4947cdf867837834494c596f8a7699ad52f368f806c7e5a6ef79c5067e0d2e.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ed4947cdf867837834494c596f8a769
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

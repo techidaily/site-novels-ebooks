@@ -1,7 +1,7 @@
 ---
 title: The Hindu Yogi Science of Breath | Free Book
-date: 2024-10-24 17:35:23
-updated: 2024-10-26 11:41:40
+date: 2024-10-19T17:15:50.840Z
+updated: 2024-10-26T23:53:25.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b32da5733e9e4064ba61ba80767ca1837f1dbbe16ff345feb10fd4d579a0ba9f.jpg
@@ -184,3 +184,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b32da5733e9e4064ba61ba80767ca18
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

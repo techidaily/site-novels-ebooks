@@ -1,7 +1,7 @@
 ---
 title: The Way - Spirit from the Well | Free Book
-date: 2024-10-25 14:46:24
-updated: 2024-10-26 11:13:47
+date: 2024-10-21T00:31:50.837Z
+updated: 2024-10-26T16:06:12.499Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/130f1a82ee2ee31e3b9113e0c1422985681936d829c04e3936b4f136c6342b1f.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/130f1a82ee2ee31e3b9113e0c142298
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Witch, Please: Empowerment and Enlightenment for the Modern Mystic | Free Book"
-date: 2024-10-25 20:27:46
-updated: 2024-10-26 11:39:28
+date: 2024-10-19T20:47:34.416Z
+updated: 2024-10-27T02:35:23.945Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2120903b84d6e849f2f00d214a28c1c66c32c6203f09f615a1463da24e7dd8fe.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2120903b84d6e849f2f00d214a28c1c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Science of Vampires | Free Book
-date: 2024-10-23 18:27:28
-updated: 2024-10-26 12:33:30
+date: 2024-10-24T21:32:15.082Z
+updated: 2024-10-26T20:04:36.272Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfd29a9a831833690b30dc9a5f05a8a27e13622d96cca0e3c969aba147b2964e.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfd29a9a831833690b30dc9a5f05a8a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

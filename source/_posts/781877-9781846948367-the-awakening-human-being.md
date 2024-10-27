@@ -1,7 +1,7 @@
 ---
 title: The Awakening Human Being | Free Book
-date: 2024-10-24 21:40:25
-updated: 2024-10-26 10:17:53
+date: 2024-10-25T01:37:49.431Z
+updated: 2024-10-26T21:11:33.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9226e30794044a92de44b4c634b9add0b6346bae8a8cc8eaf6335648573cfa55.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9226e30794044a92de44b4c634b9add
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

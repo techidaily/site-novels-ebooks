@@ -1,7 +1,7 @@
 ---
 title: El libro de los sueños. Conózcase a través de sus sueños | Free Book
-date: 2024-10-25 18:31:31
-updated: 2024-10-26 10:11:10
+date: 2024-10-19T23:50:35.945Z
+updated: 2024-10-26T23:02:08.742Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a29c076279ce84d42aa7afaee051645695ed12106f4846f4382e62668fae5e6f.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a29c076279ce84d42aa7afaee051645
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

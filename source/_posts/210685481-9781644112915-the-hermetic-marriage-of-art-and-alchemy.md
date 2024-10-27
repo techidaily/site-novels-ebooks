@@ -1,7 +1,7 @@
 ---
 title: The Hermetic Marriage of Art and Alchemy | Free Book
-date: 2024-10-24 16:11:44
-updated: 2024-10-26 12:42:18
+date: 2024-10-20T18:09:34.043Z
+updated: 2024-10-27T01:42:55.764Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4b2f82d6b5c8a275a4330b7491250076bbd6fe0b29a58477e2ae1aedf17c285d.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4b2f82d6b5c8a275a4330b749125007
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

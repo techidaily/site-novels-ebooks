@@ -1,7 +1,7 @@
 ---
 title: The Astrological Dynamics of the Universe | Free Book
-date: 2024-10-24 12:59:19
-updated: 2024-10-26 10:22:19
+date: 2024-10-21T00:40:08.152Z
+updated: 2024-10-27T04:04:49.666Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72b03e9789ca84650c1ef75daf152bdcc9680ebe003cfcc2f22911c5cd0b429f.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72b03e9789ca84650c1ef75daf152bd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

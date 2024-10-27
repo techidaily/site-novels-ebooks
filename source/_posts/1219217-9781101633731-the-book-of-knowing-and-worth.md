@@ -1,7 +1,7 @@
 ---
 title: The Book of Knowing and Worth | Free Book
-date: 2024-10-25 13:22:21
-updated: 2024-10-26 11:52:12
+date: 2024-10-25T20:12:23.557Z
+updated: 2024-10-26T17:10:53.745Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/36a1ac6a13c5a8d80c199c970fb5cd134511cdc9386b46a5bb2c9270909dd101.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/36a1ac6a13c5a8d80c199c970fb5cd1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

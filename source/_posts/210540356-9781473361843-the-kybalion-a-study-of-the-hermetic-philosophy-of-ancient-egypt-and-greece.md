@@ -1,7 +1,7 @@
 ---
 title: The Kybalion - A Study of the Hermetic Philosophy of Ancient Egypt and Greece | Free Book
-date: 2024-10-23 22:15:46
-updated: 2024-10-26 12:48:42
+date: 2024-10-22T18:33:36.246Z
+updated: 2024-10-26T17:24:26.691Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a2a1178676c4538a80b0ca8c72387d83750d6cf3b2374b5df1df2d800c4120e4.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a2a1178676c4538a80b0ca8c72387d8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

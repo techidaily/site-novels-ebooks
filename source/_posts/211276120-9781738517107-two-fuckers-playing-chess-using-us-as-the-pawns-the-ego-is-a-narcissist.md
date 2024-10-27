@@ -1,7 +1,7 @@
 ---
 title: Two Fuckers Playing Chess Using Us As The Pawns, THE EGO IS A NARCISSIST | Free Book
-date: 2024-10-25 20:23:41
-updated: 2024-10-26 10:17:16
+date: 2024-10-19T21:05:27.559Z
+updated: 2024-10-27T01:34:47.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b36640203952b03ef7353119f3f718870520a4638583c11ff1aacd64fbbba5c5.jpg
@@ -211,3 +211,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b36640203952b03ef7353119f3f7188
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

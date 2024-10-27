@@ -1,7 +1,7 @@
 ---
 title: Precognitive Dreamwork and the Long Self | Free Book
-date: 2024-10-25 16:26:56
-updated: 2024-10-26 10:51:33
+date: 2024-10-20T05:32:49.556Z
+updated: 2024-10-26T21:18:26.450Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72312990de09a8c84dcfd72c3ca4760c5f28cb0834f934225c3272ad8c7ec6ed.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72312990de09a8c84dcfd72c3ca4760
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

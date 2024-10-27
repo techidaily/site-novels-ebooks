@@ -1,7 +1,7 @@
 ---
 title: "Mindset: Transform Your Thoughts, Transform Your Life | Free Book"
-date: 2024-10-25 21:46:19
-updated: 2024-10-26 12:51:29
+date: 2024-10-23T21:41:15.228Z
+updated: 2024-10-26T20:28:55.089Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e81ebcd4cc786cf8552a8aed46740f09c5206078fd0932e0990a2683534e8485.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e81ebcd4cc786cf8552a8aed46740f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

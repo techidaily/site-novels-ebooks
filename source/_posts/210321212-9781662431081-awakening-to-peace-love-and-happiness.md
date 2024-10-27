@@ -1,7 +1,7 @@
 ---
 title: Awakening to Peace, Love and Happiness | Free Book
-date: 2024-10-24 22:44:56
-updated: 2024-10-26 11:56:49
+date: 2024-10-24T23:24:21.535Z
+updated: 2024-10-26T20:36:41.871Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7fa36c423308b3e382ffef6c3bac0b476034dfd6cdac7881b4c57ba45ab78ed.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7fa36c423308b3e382ffef6c3bac0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Whispers from the Hollow Bone | Free Book
-date: 2024-10-23 18:33:24
-updated: 2024-10-26 11:44:25
+date: 2024-10-23T21:32:12.766Z
+updated: 2024-10-26T19:25:54.751Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a2d970b3166c38fe73f9699fad0598dfc8e221ce12b0c48cbbaf1fa35fab579.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a2d970b3166c38fe73f9699fad0598
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

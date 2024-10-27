@@ -1,7 +1,7 @@
 ---
 title: Voodoo Hoodoo Spellbook | Free Book
-date: 2024-10-23 10:47:54
-updated: 2024-10-26 12:38:53
+date: 2024-10-21T19:30:15.679Z
+updated: 2024-10-27T05:39:10.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa6a27396aaf9c6aa8f50d95046c2f8c1382035eb9cc27847dfc94831739de2d.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa6a27396aaf9c6aa8f50d95046c2f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

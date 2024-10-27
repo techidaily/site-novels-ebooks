@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Mysteries | Free Book
-date: 2024-10-25 21:14:22
-updated: 2024-10-26 10:55:17
+date: 2024-10-19T18:35:10.510Z
+updated: 2024-10-27T05:32:36.335Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0f70a1a675353bfb101ab7d9205e03272e0a4beee4133ab4a01ac4eed5017c5.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0f70a1a675353bfb101ab7d9205e03
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

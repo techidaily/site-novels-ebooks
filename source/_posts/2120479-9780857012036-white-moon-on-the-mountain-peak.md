@@ -1,7 +1,7 @@
 ---
 title: White Moon on the Mountain Peak | Free Book
-date: 2024-10-25 13:17:27
-updated: 2024-10-26 11:20:28
+date: 2024-10-24T20:12:22.214Z
+updated: 2024-10-26T22:53:46.446Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30fee760fa43af4fb2903eba6e8ce1d2a4e588332f3931d0ec98631b47d32475.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30fee760fa43af4fb2903eba6e8ce1d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

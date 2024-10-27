@@ -1,7 +1,7 @@
 ---
 title: "Self Empower: Using Self Coaching, Neuroadaptability, and Ayurveda | Free Book"
-date: 2024-10-23 14:49:18
-updated: 2024-10-26 10:39:13
+date: 2024-10-25T05:05:27.469Z
+updated: 2024-10-26T22:04:19.852Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02d9ecb13716343103f5a2094dc578f803cab1ab82a9b09474aab1ccaeeb038d.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02d9ecb13716343103f5a2094dc578f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

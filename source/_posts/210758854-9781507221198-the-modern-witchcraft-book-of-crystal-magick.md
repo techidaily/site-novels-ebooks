@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Book of Crystal Magick | Free Book
-date: 2024-10-23 20:26:22
-updated: 2024-10-26 12:33:19
+date: 2024-10-21T03:14:17.707Z
+updated: 2024-10-26T23:51:01.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce0d4fb7759fccae1c90a6009de8f9f743c0579e60e2131fcdc2e37a0fabbb4e.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce0d4fb7759fccae1c90a6009de8f9f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

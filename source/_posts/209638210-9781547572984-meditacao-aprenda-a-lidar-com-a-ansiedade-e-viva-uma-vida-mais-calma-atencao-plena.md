@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Aprenda A Lidar Com A Ansiedade E Viva Uma Vida Mais Calma (Atenção Plena) | Free Book"
-date: 2024-10-24 17:35:28
-updated: 2024-10-26 10:12:31
+date: 2024-10-23T05:52:21.871Z
+updated: 2024-10-27T01:38:17.096Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c30f425c275b2bf77c1d0129d7b73ed5568399e93385ed57ab4ae28fab1da8a.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c30f425c275b2bf77c1d0129d7b73e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

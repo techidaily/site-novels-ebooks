@@ -1,7 +1,7 @@
 ---
 title: "La tua buona stella: 15 strumenti per lavorare con la Legge dell'Attrazione | Free Book"
-date: 2024-10-25 18:50:23
-updated: 2024-10-26 10:46:23
+date: 2024-10-26T04:09:38.010Z
+updated: 2024-10-27T04:56:02.171Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b85ab83c6b7c997e3739aa3adf32443f6087a48de6cd6cd0cffa30d629c9cd33.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b85ab83c6b7c997e3739aa3adf32443
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

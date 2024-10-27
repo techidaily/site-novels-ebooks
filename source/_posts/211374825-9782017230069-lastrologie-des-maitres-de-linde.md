@@ -1,7 +1,7 @@
 ---
 title: L'astrologie des maîtres de l'Inde | Free Book
-date: 2024-10-23 16:37:40
-updated: 2024-10-26 12:26:16
+date: 2024-10-19T20:04:54.932Z
+updated: 2024-10-26T17:15:14.424Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e8ba755286f8c4b8e9860674db1b97b060b2a17cb713671e338daaf3c16cb7f.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e8ba755286f8c4b8e9860674db1b97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

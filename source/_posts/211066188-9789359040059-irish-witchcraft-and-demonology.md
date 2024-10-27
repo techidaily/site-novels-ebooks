@@ -1,7 +1,7 @@
 ---
 title: Irish Witchcraft and Demonology | Free Book
-date: 2024-10-23 15:10:15
-updated: 2024-10-26 10:26:18
+date: 2024-10-20T21:44:04.569Z
+updated: 2024-10-27T00:24:03.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ddeaab6435af9564ab05eaba0c1922ddc19d834db533c3d3e9a3f43058a22a35.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ddeaab6435af9564ab05eaba0c1922d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

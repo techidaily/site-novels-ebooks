@@ -1,7 +1,7 @@
 ---
 title: Witches, Werewolves, and Fairies | Free Book
-date: 2024-10-25 20:10:36
-updated: 2024-10-26 10:12:17
+date: 2024-10-19T23:14:54.222Z
+updated: 2024-10-27T03:49:58.131Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e184789729483e343ed81ebeb873fee6c43603b0921f96d8b0713f845d8f0a39.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e184789729483e343ed81ebeb873fee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

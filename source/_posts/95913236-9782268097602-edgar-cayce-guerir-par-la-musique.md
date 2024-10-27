@@ -1,7 +1,7 @@
 ---
 title: "Edgar Cayce : guérir par la musique | Free Book"
-date: 2024-10-24 10:16:25
-updated: 2024-10-26 11:14:41
+date: 2024-10-24T21:02:50.361Z
+updated: 2024-10-26T19:25:05.187Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d973c0703fe64536592cf19dd5adb377b552ba73d238e975b7fde15166cf2da0.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d973c0703fe64536592cf19dd5adb37
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

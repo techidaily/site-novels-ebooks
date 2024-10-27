@@ -1,7 +1,7 @@
 ---
 title: John the Baptist and the Last Gnostics | Free Book
-date: 2024-10-25 18:33:59
-updated: 2024-10-26 12:43:49
+date: 2024-10-24T04:12:32.590Z
+updated: 2024-10-27T00:30:11.584Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/781bce34c72f040eab5ab396fe1fad6b7c0571613f039939d3cb19f587e6b5e6.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/781bce34c72f040eab5ab396fe1fad6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

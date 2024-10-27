@@ -1,7 +1,7 @@
 ---
 title: Microdosing with Amanita Muscaria | Free Book
-date: 2024-10-23 21:13:15
-updated: 2024-10-26 10:10:58
+date: 2024-10-21T05:01:40.636Z
+updated: 2024-10-27T01:21:00.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cdb845fd2e5eb242f46e397a62b9add81dc6f7c85ebfb815c3252b1b7efbcd8a.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cdb845fd2e5eb242f46e397a62b9add
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

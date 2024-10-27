@@ -1,7 +1,7 @@
 ---
 title: Symboles de guérison des anciens Slaves. Glagolitique. Art-thérapie | Free Book
-date: 2024-10-25 12:34:55
-updated: 2024-10-26 10:30:25
+date: 2024-10-20T21:13:37.478Z
+updated: 2024-10-26T18:12:53.898Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eeab50770d8df914ec33dbad1446688c646b430b93bc88c0d710690ed532bb25.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eeab50770d8df914ec33dbad1446688
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

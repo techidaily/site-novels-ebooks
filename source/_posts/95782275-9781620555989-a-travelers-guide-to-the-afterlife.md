@@ -1,7 +1,7 @@
 ---
 title: A Traveler's Guide to the Afterlife | Free Book
-date: 2024-10-23 12:36:12
-updated: 2024-10-26 10:48:52
+date: 2024-10-20T22:34:22.963Z
+updated: 2024-10-27T04:38:38.847Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2997f5cb977545c3acdc242cbe0e9df82214ba5188dbb3c83f18c42b2aa46267.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2997f5cb977545c3acdc242cbe0e9df
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Spellcraft and Spellwork | Free Book
-date: 2024-10-25 15:16:57
-updated: 2024-10-26 12:43:58
+date: 2024-10-21T02:33:27.729Z
+updated: 2024-10-27T03:01:40.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22d8e5b81d9aa89652ea211c8e9a38a98133c78b60ce882a34c49a22c263cf89.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22d8e5b81d9aa89652ea211c8e9a38a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

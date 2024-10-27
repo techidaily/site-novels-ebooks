@@ -1,7 +1,7 @@
 ---
 title: El poder de tu cumpleaños (The Power of Your Birthday) | Free Book
-date: 2024-10-24 21:39:18
-updated: 2024-10-26 10:31:56
+date: 2024-10-21T03:42:47.780Z
+updated: 2024-10-27T03:40:26.631Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/293689d337272aa893566a39ebdc5f65fd4310dbb597e8108afef8f9ea2a37ee.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/293689d337272aa893566a39ebdc5f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

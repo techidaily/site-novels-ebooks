@@ -1,7 +1,7 @@
 ---
 title: Malay Spiritualism - With Some Other Notes on the Folklore of the Malaysian Peninsula (Folklore History Series) | Free Book
-date: 2024-10-25 19:38:12
-updated: 2024-10-26 12:53:18
+date: 2024-10-24T05:38:08.385Z
+updated: 2024-10-26T18:35:29.006Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aae6f3a8403f647ae750c6eb2bf0b33814eec137dae37ef9eb124d372d86e283.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aae6f3a8403f647ae750c6eb2bf0b33
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Dile adiós a tus temores (How to Overcome Fear) | Free Book
-date: 2024-10-24 17:16:51
-updated: 2024-10-26 11:33:17
+date: 2024-10-19T17:47:55.505Z
+updated: 2024-10-26T20:26:09.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f78ed7747609dfef0b4d9437b1297fe17968f8ebc423181c9354445d0823c51e.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f78ed7747609dfef0b4d9437b1297fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

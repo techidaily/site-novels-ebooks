@@ -1,7 +1,7 @@
 ---
 title: Turning Black and White into Gray | Free Book
-date: 2024-10-23 22:33:10
-updated: 2024-10-26 11:32:14
+date: 2024-10-26T00:18:11.631Z
+updated: 2024-10-26T19:46:19.802Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d94c8baa4a2f4e0bc3590cc2b5164149b0e642be79b4cc14e3eeb8963b2f88e6.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d94c8baa4a2f4e0bc3590cc2b516414
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

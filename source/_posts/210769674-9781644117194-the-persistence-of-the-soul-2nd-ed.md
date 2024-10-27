@@ -1,7 +1,7 @@
 ---
 title: The Persistence of the Soul (2nd ed.) | Free Book
-date: 2024-10-23 17:19:49
-updated: 2024-10-26 11:52:49
+date: 2024-10-20T01:37:52.613Z
+updated: 2024-10-27T01:18:16.150Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945f2d63a2ae9f6479213e0c1d9aac9278bfaacd6340ea4261a2708eb6c125df.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945f2d63a2ae9f6479213e0c1d9aac9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Zenned Out Guide to Understanding  the Wheel of the Year | Free Book
-date: 2024-10-25 21:53:13
-updated: 2024-10-26 11:10:44
+date: 2024-10-25T20:01:40.736Z
+updated: 2024-10-27T05:58:49.454Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb427a0f63d8b7a2bdd57c9e9e2628117579f977656c6f4f3958c03d69a280d3.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb427a0f63d8b7a2bdd57c9e9e26281
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

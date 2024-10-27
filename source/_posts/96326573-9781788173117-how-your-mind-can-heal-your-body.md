@@ -1,7 +1,7 @@
 ---
 title: How Your Mind Can Heal Your Body | Free Book
-date: 2024-10-25 20:57:59
-updated: 2024-10-26 11:53:47
+date: 2024-10-23T04:36:48.152Z
+updated: 2024-10-26T16:14:05.514Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae21f464db4b729cc585ccad327ca47566d7.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

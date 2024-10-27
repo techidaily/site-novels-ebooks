@@ -1,7 +1,7 @@
 ---
 title: Messages éclairés de Jane Austen | Free Book
-date: 2024-10-24 16:32:56
-updated: 2024-10-26 10:19:15
+date: 2024-10-20T17:48:22.421Z
+updated: 2024-10-27T05:56:11.765Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1707405044fbcda080609ed14db24c43d85b4efb9cfbf7ede2c336ba783ce227.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1707405044fbcda080609ed14db24c4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

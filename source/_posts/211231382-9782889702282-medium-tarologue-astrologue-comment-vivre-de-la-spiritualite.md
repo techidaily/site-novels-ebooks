@@ -1,7 +1,7 @@
 ---
 title: Médium, tarologue, astrologue... comment vivre de la spiritualité | Free Book
-date: 2024-10-23 11:38:17
-updated: 2024-10-26 11:30:47
+date: 2024-10-25T02:44:54.373Z
+updated: 2024-10-26T22:22:24.141Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5825d59461ab7cdfc8445c55b660d1e9a7ffb2026822e82efc15892efe57f9ff.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5825d59461ab7cdfc8445c55b660d1e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Psychedelic Renaissance | Free Book
-date: 2024-10-25 22:50:26
-updated: 2024-10-26 12:52:46
+date: 2024-10-20T21:19:04.784Z
+updated: 2024-10-26T23:25:32.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a2b1032d91e1f9cfaba0a7edf31491e3fe756290ac770c9fd439f1f8951e22b.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a2b1032d91e1f9cfaba0a7edf31491
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

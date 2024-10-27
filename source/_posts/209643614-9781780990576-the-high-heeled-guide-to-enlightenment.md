@@ -1,7 +1,7 @@
 ---
 title: The High Heeled Guide to Enlightenment | Free Book
-date: 2024-10-24 14:55:41
-updated: 2024-10-26 11:48:52
+date: 2024-10-20T02:53:21.648Z
+updated: 2024-10-26T19:01:30.867Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/645d0887ab21c1f2cbe83334eeec6a8e67ca890121e65ca95013bc1f9f0ab5a4.jpg
@@ -121,3 +121,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/645d0887ab21c1f2cbe83334eeec6a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Seven Secrets of Time Travel | Free Book
-date: 2024-10-25 14:12:48
-updated: 2024-10-26 10:55:25
+date: 2024-10-20T02:51:03.242Z
+updated: 2024-10-26T23:52:04.275Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/938aa3f8345dcd692d34abe496d78cd8b65b0b58558f0d21a2c9a1c1ad29df01.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/938aa3f8345dcd692d34abe496d78cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

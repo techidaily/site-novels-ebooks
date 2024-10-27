@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2024-10-24 23:32:12
-updated: 2024-10-26 11:41:21
+date: 2024-10-24T00:59:46.534Z
+updated: 2024-10-26T21:48:45.061Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

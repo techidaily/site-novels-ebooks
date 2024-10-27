@@ -1,7 +1,7 @@
 ---
 title: Forty Things I Wish I'd Told My Kids | Free Book
-date: 2024-10-24 16:35:28
-updated: 2024-10-26 10:33:13
+date: 2024-10-20T20:27:03.314Z
+updated: 2024-10-26T16:36:27.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/678d7438684a6756d0403b726bfb2e3613af2ef977cab640ef2eefcfa2159e97.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/678d7438684a6756d0403b726bfb2e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Who Do You Think You Are? 365 Meditations and the Books They Came From | Free Book
-date: 2024-10-24 18:13:49
-updated: 2024-10-26 11:19:29
+date: 2024-10-21T01:08:19.818Z
+updated: 2024-10-27T00:45:07.591Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/853bb62a9aaefb74a5638869331529cd76dd3be80db2cb8120ac93a02fbcd273.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/853bb62a9aaefb74a5638869331529c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

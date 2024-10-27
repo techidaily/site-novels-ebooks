@@ -1,7 +1,7 @@
 ---
 title: La Sabiduria del Alma (Soul Wisdom; Spanish edition) | Free Book
-date: 2024-10-24 19:50:33
-updated: 2024-10-26 12:42:26
+date: 2024-10-21T18:08:09.365Z
+updated: 2024-10-27T02:01:21.087Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/580f51a3d04d21addc0cb5fc39c9cf9d7498e5c19ae4db15ce2760c6621a608d.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/580f51a3d04d21addc0cb5fc39c9cf9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

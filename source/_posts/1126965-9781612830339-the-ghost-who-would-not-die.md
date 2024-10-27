@@ -1,7 +1,7 @@
 ---
 title: The Ghost Who Would Not Die | Free Book
-date: 2024-10-23 14:55:51
-updated: 2024-10-26 10:22:42
+date: 2024-10-21T21:48:56.623Z
+updated: 2024-10-26T22:12:50.448Z
 categories:
   - Biography & Autobiography
 thumbnail: https://thmb-001-ebook.techidaily.com/a0c7f9d1c4944a8575164dbecd0733f1dbbc8e4f55f72235bf6c8c71de46a728.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0c7f9d1c4944a8575164dbecd0733f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

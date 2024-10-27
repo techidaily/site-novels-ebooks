@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Book of Love Spells | Free Book
-date: 2024-10-25 11:16:31
-updated: 2024-10-26 10:32:51
+date: 2024-10-19T21:33:51.100Z
+updated: 2024-10-26T21:21:43.684Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/524f6d7c131b6667348237341a4caf32353d571f43b46d2f9e42f2978bf6312b.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/524f6d7c131b6667348237341a4caf3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Your Heart Knows How to Heal You | Free Book
-date: 2024-10-25 17:41:36
-updated: 2024-10-26 12:56:21
+date: 2024-10-21T16:31:53.765Z
+updated: 2024-10-26T16:45:11.632Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f99aff28e8343185b5650dcfde3fcacafa56ccbcd1e6ae8b6f144aca973288d.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f99aff28e8343185b5650dcfde3fca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

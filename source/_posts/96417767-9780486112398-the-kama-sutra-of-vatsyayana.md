@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2024-10-24 14:23:57
-updated: 2024-10-26 10:38:49
+date: 2024-10-26T02:26:25.825Z
+updated: 2024-10-26T22:37:16.883Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

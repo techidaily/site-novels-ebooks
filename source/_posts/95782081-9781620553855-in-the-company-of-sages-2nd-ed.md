@@ -1,7 +1,7 @@
 ---
 title: In the Company of Sages (2nd ed.) | Free Book
-date: 2024-10-23 11:49:34
-updated: 2024-10-26 12:49:14
+date: 2024-10-22T20:16:39.154Z
+updated: 2024-10-27T02:52:02.180Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38412d7841c101b541b7279a28ad027e8ed606d3602979afec2198fa1b3dabda.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38412d7841c101b541b7279a28ad027
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

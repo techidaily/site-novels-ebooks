@@ -1,7 +1,7 @@
 ---
 title: The Universe Speaks a Heavenly Dialogue, Book Two | Free Book
-date: 2024-10-23 11:12:31
-updated: 2024-10-26 10:10:43
+date: 2024-10-22T02:31:01.337Z
+updated: 2024-10-26T16:45:38.054Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ebdc238b013a86a8dec6f926b2e14e281c08b842e807cbff3ad8de1b66872c3.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ebdc238b013a86a8dec6f926b2e14e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

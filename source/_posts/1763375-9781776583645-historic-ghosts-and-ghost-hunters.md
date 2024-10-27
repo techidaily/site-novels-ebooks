@@ -1,7 +1,7 @@
 ---
 title: Historic Ghosts and Ghost Hunters | Free Book
-date: 2024-10-23 18:12:35
-updated: 2024-10-26 12:34:27
+date: 2024-10-20T22:51:40.536Z
+updated: 2024-10-27T00:01:01.099Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c46a153036f98e3e698b02dbf94d9784e0a50d766456b4b456c3c77e7b46d1a1.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c46a153036f98e3e698b02dbf94d978
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

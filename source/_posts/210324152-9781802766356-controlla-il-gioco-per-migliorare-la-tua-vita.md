@@ -1,7 +1,7 @@
 ---
 title: CONTROLLA IL GIOCO - Per migliorare la tua vita | Free Book
-date: 2024-10-23 20:34:16
-updated: 2024-10-26 10:36:49
+date: 2024-10-25T22:52:54.150Z
+updated: 2024-10-26T20:32:05.771Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07f2b1c49847045262347dce26ebf4ddab0535628044b38f06b4cddaebb41bb3.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07f2b1c49847045262347dce26ebf4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

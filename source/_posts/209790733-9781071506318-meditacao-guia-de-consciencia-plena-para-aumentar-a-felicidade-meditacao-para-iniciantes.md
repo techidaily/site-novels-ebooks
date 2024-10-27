@@ -1,7 +1,7 @@
 ---
 title: "Meditação: Guia De Consciência Plena Para Aumentar A Felicidade (Meditação Para Iniciantes) | Free Book"
-date: 2024-10-23 14:20:30
-updated: 2024-10-26 12:11:30
+date: 2024-10-26T03:51:24.389Z
+updated: 2024-10-26T23:32:45.168Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08c5d0b0c3d07443fb06c179f25a7573e84a500efd26ad160d2028ec83b75e0a.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08c5d0b0c3d07443fb06c179f25a757
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

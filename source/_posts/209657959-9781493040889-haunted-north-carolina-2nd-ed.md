@@ -1,7 +1,7 @@
 ---
 title: Haunted North Carolina (2nd ed.) | Free Book
-date: 2024-10-25 12:30:22
-updated: 2024-10-26 10:16:19
+date: 2024-10-26T04:46:47.985Z
+updated: 2024-10-27T04:57:37.349Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a71ecfd09865c4f21dcfbe011a4e136b5db827ec1c3239e507044ac0befda4e.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a71ecfd09865c4f21dcfbe011a4e13
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Way of Abundance and Joy | Free Book
-date: 2024-10-23 17:31:58
-updated: 2024-10-26 12:38:49
+date: 2024-10-21T17:35:59.802Z
+updated: 2024-10-26T18:52:41.057Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e68c6b3ac7e74e80c5fc48d58bc4fe76f78aa02aef3de6e283c35365990e61e.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e68c6b3ac7e74e80c5fc48d58bc4fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

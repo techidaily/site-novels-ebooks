@@ -1,7 +1,7 @@
 ---
 title: Does Prayer Matter? A Discussion On Prayer | Free Book
-date: 2024-10-25 13:51:31
-updated: 2024-10-26 10:42:58
+date: 2024-10-24T20:21:09.503Z
+updated: 2024-10-27T01:08:38.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c71d9b1929fd44d1b8ebed08a21e84245bfe3b45de35b670440b3e817e5bb0b.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c71d9b1929fd44d1b8ebed08a21e84
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

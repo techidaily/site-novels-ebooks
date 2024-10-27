@@ -1,7 +1,7 @@
 ---
 title: A Mindfulness Guide for Survival | Free Book
-date: 2024-10-25 10:23:26
-updated: 2024-10-26 11:50:41
+date: 2024-10-21T01:57:27.262Z
+updated: 2024-10-26T16:40:45.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd2143950c4739192e10cd6203de332699db2ab57aeaf368412ae6915761a2da.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd2143950c4739192e10cd6203de332
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

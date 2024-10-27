@@ -1,7 +1,7 @@
 ---
 title: Pranayama the Breath of Yoga | Free Book
-date: 2024-10-25 16:25:21
-updated: 2024-10-26 10:39:46
+date: 2024-10-25T19:17:10.577Z
+updated: 2024-10-26T17:30:58.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba32acd1a85b13b601b0c63b92de84f1f52fcb4ba8214314d3c365fc69fa3ce9.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba32acd1a85b13b601b0c63b92de84f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

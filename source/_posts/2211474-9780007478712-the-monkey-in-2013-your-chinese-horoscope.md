@@ -1,7 +1,7 @@
 ---
 title: "The Monkey in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-25 15:10:36
-updated: 2024-10-26 10:32:43
+date: 2024-10-20T01:58:31.581Z
+updated: 2024-10-27T00:07:34.061Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a988622b0850768cc762e3bad97afdc6b4753866dc08c7c9fa94270b8ddaba1b.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a988622b0850768cc762e3bad97afdc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Great Pyramid Void Enigma | Free Book
-date: 2024-10-23 16:32:42
-updated: 2024-10-26 12:27:51
+date: 2024-10-20T02:25:34.994Z
+updated: 2024-10-27T03:54:34.230Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e79feb881c55024e8ff84535e0f8970fe8c99b30cdf60ea051830ee2c1a3879d.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e79feb881c55024e8ff84535e0f8970
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

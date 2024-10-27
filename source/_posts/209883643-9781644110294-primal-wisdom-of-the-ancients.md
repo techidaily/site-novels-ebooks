@@ -1,7 +1,7 @@
 ---
 title: Primal Wisdom of the Ancients | Free Book
-date: 2024-10-25 13:38:48
-updated: 2024-10-26 11:27:19
+date: 2024-10-24T03:21:22.576Z
+updated: 2024-10-26T19:10:39.464Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c863f88b4eba0137294602587de96eeb04c3e058f4d57b07f4631e6bbcf48bd7.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c863f88b4eba0137294602587de96ee
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

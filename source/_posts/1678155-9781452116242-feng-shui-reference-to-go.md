@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: Reference to Go | Free Book"
-date: 2024-10-23 20:49:14
-updated: 2024-10-26 10:51:47
+date: 2024-10-21T18:29:51.512Z
+updated: 2024-10-26T17:03:13.479Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/133870b67f39e7739d54b3c495152a47ef395fec63932c77701429280cce1b4c.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/133870b67f39e7739d54b3c495152a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

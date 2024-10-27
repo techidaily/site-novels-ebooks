@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Hedge Riding | Free Book
-date: 2024-10-24 23:27:46
-updated: 2024-10-26 11:57:17
+date: 2024-10-21T17:33:20.266Z
+updated: 2024-10-26T22:14:54.837Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6cf003aa954a173c515d6d6da40e6d08714912df7fc9f84159cf072a1d653e6.jpg
@@ -118,3 +118,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6cf003aa954a173c515d6d6da40e6d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

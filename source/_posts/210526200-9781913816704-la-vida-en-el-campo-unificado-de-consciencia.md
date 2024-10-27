@@ -1,7 +1,7 @@
 ---
 title: LA VIDA EN EL CAMPO UNIFICADO DE CONSCIENCIA | Free Book
-date: 2024-10-23 10:55:27
-updated: 2024-10-26 11:39:58
+date: 2024-10-20T18:42:13.166Z
+updated: 2024-10-26T20:02:30.910Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cd5eab95732c0ae7757520b3c9775a42cd04a182dc376492b18482399d11d8b.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cd5eab95732c0ae7757520b3c9775a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

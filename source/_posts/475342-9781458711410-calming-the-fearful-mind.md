@@ -1,7 +1,7 @@
 ---
 title: Calming the Fearful Mind | Free Book
-date: 2024-10-24 19:16:59
-updated: 2024-10-26 11:24:56
+date: 2024-10-23T23:20:49.126Z
+updated: 2024-10-27T02:29:59.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f84cef00bde67df3a794002d307db349f9bfc8836b932aeeea754542133b253.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f84cef00bde67df3a794002d307db3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

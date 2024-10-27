@@ -1,7 +1,7 @@
 ---
 title: In a Nutshell  Faith, Hope, Love | Free Book
-date: 2024-10-24 21:34:39
-updated: 2024-10-26 11:10:53
+date: 2024-10-23T16:34:54.650Z
+updated: 2024-10-27T01:56:37.895Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d94512f2b428ff0fc87e401dc997a157af7cb28e35bbb284b3bcb8248e85aff.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d94512f2b428ff0fc87e401dc997a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

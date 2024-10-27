@@ -1,7 +1,7 @@
 ---
 title: Sun Signs | Free Book
-date: 2024-10-23 18:40:30
-updated: 2024-10-26 12:46:28
+date: 2024-10-19T23:17:30.875Z
+updated: 2024-10-26T16:03:23.591Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/dcb9876ea3722eac3346d44fbd246b8bcc848063427396e0320cd94263d03dbb.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dcb9876ea3722eac3346d44fbd246b8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

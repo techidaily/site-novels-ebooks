@@ -1,7 +1,7 @@
 ---
 title: Die wahre Schule ist das Leben - Band 1 | Free Book
-date: 2024-10-23 20:50:28
-updated: 2024-10-26 10:14:25
+date: 2024-10-23T01:54:16.637Z
+updated: 2024-10-26T17:37:38.050Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95c74838ffe5370e9bbcbe585ce67706c287d9cfee9974c3438b2db6d6ba8422.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95c74838ffe5370e9bbcbe585ce6770
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

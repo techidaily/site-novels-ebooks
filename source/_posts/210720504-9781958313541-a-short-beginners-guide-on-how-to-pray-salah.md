@@ -1,7 +1,7 @@
 ---
 title: A Short Beginners Guide on How to Pray Salah | Free Book
-date: 2024-10-23 10:34:52
-updated: 2024-10-26 10:17:46
+date: 2024-10-25T04:11:58.410Z
+updated: 2024-10-26T19:23:25.998Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb0fbb42056c488659b1bf45a5163befb450ddb9042cd09b1165e026b6d5037e.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb0fbb42056c488659b1bf45a5163be
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

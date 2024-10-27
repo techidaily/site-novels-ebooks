@@ -1,7 +1,7 @@
 ---
 title: Shamanic Mysteries of Peru | Free Book
-date: 2024-10-23 13:40:19
-updated: 2024-10-26 12:10:55
+date: 2024-10-21T03:19:37.983Z
+updated: 2024-10-26T22:13:15.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2ac7c1d7188468ddedc4a6337e614ed10e1d0a3bfff767784eae4fa1a9f5277.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2ac7c1d7188468ddedc4a6337e614e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

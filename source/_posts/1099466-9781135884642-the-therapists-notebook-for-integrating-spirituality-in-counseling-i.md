@@ -1,7 +1,7 @@
 ---
 title: The Therapist's Notebook for Integrating Spirituality in Counseling I | Free Book
-date: 2024-10-25 15:44:12
-updated: 2024-10-26 12:45:11
+date: 2024-10-20T21:21:10.633Z
+updated: 2024-10-26T16:40:50.010Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/102b6ed3cd1b0b21a694bf0803b5eb0cfbba6624d521654c156bd4fc36022414.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/102b6ed3cd1b0b21a694bf0803b5eb0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

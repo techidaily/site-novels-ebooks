@@ -1,7 +1,7 @@
 ---
 title: The Ancient Tradition of Angels | Free Book
-date: 2024-10-23 18:59:55
-updated: 2024-10-26 12:33:36
+date: 2024-10-20T22:56:16.215Z
+updated: 2024-10-26T17:57:32.164Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc913bb0e51d83fca3163a8ed94076b80c556dcd07ae07232dc526828c386b66.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc913bb0e51d83fca3163a8ed94076b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

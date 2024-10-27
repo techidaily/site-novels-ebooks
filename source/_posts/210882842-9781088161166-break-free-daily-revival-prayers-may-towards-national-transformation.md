@@ -1,7 +1,7 @@
 ---
 title: Break-free - Daily Revival Prayers - MAY - Towards NATIONAL TRANSFORMATION | Free Book
-date: 2024-10-24 13:50:57
-updated: 2024-10-26 11:29:22
+date: 2024-10-21T22:58:51.616Z
+updated: 2024-10-26T23:42:35.781Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d8bffaaaa7fd887b6f29ff4803edccac67c58f97797892497dda03552e23306.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d8bffaaaa7fd887b6f29ff4803edcc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

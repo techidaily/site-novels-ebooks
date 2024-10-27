@@ -1,7 +1,7 @@
 ---
 title: Así en la Tierra como en el Cielo | Free Book
-date: 2024-10-23 23:32:10
-updated: 2024-10-26 12:11:29
+date: 2024-10-20T16:18:14.986Z
+updated: 2024-10-27T02:03:48.420Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2999f6a663c6b716ae4e6d49fde8c710a96823271ac14c950e8816e4aec315f8.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2999f6a663c6b716ae4e6d49fde8c71
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

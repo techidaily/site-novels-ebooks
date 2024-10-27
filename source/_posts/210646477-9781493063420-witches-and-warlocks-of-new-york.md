@@ -1,7 +1,7 @@
 ---
 title: Witches and Warlocks of New York | Free Book
-date: 2024-10-23 10:53:56
-updated: 2024-10-26 10:20:22
+date: 2024-10-22T16:58:14.942Z
+updated: 2024-10-27T02:15:01.474Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/954c612d64a4717f07365eb9182c16ef4444443fc5f37b92e72d47dee3f924db.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/954c612d64a4717f07365eb9182c16e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

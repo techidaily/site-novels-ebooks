@@ -1,7 +1,7 @@
 ---
 title: Journey to the Dark Goddess | Free Book
-date: 2024-10-23 22:49:13
-updated: 2024-10-26 10:34:44
+date: 2024-10-25T03:37:45.470Z
+updated: 2024-10-26T18:55:04.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6701ed71fa9cbc1b1490fcb650ca1a43e3d231cbf2097f7f4f75d3461ff96365.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6701ed71fa9cbc1b1490fcb650ca1a4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: There's No Better Friend ...Jesus! | Free Book
-date: 2024-10-24 12:49:49
-updated: 2024-10-26 11:40:13
+date: 2024-10-20T03:35:22.330Z
+updated: 2024-10-26T18:14:50.102Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/132e10bd6669b5978c6288c8ba53812e4f4bdf459ba7e55f076ebef5b7be5ceb.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/132e10bd6669b5978c6288c8ba53812
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

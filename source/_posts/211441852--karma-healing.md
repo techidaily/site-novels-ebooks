@@ -1,7 +1,7 @@
 ---
 title: Karma Healing | Free Book
-date: 2024-10-24 19:45:21
-updated: 2024-10-26 10:28:26
+date: 2024-10-24T04:19:26.820Z
+updated: 2024-10-26T17:03:00.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac3abdbdb3a01a7fa627b7ec9900a3f89f3e5b08d05779ca2c639948e6600039.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac3abdbdb3a01a7fa627b7ec9900a3f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

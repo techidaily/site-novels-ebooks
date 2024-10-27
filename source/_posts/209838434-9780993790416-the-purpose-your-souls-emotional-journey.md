@@ -1,7 +1,7 @@
 ---
 title: "The Purpose: Your Soul's Emotional Journey | Free Book"
-date: 2024-10-23 12:53:28
-updated: 2024-10-26 12:11:13
+date: 2024-10-20T19:59:14.542Z
+updated: 2024-10-27T00:42:25.736Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccb802de537e1264755a6d91497b27b81849413aa23f684d35b8faa082b6d5c4.jpg
@@ -215,3 +215,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccb802de537e1264755a6d91497b27b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

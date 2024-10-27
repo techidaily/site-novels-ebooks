@@ -1,7 +1,7 @@
 ---
 title: The Bardic Book of Becoming | Free Book
-date: 2024-10-25 14:50:47
-updated: 2024-10-26 12:39:27
+date: 2024-10-26T04:48:19.303Z
+updated: 2024-10-27T04:24:22.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20dbdc3dc98b8b6d8959015eacddac84fc871486025d0e27db6c77cfdaa11e7b.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20dbdc3dc98b8b6d8959015eacddac8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

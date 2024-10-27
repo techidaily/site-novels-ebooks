@@ -1,7 +1,7 @@
 ---
 title: "The Monkey in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-23 21:52:32
-updated: 2024-10-26 12:35:42
+date: 2024-10-21T21:43:44.593Z
+updated: 2024-10-27T03:27:44.304Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08740c2479ed81c2910f15686272f26179a79c1745b015dc4e69e2b60e4b271b.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08740c2479ed81c2910f15686272f26
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

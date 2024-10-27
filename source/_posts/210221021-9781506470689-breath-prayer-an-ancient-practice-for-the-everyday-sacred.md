@@ -1,7 +1,7 @@
 ---
 title: "Breath Prayer: An Ancient Practice for the Everyday Sacred | Free Book"
-date: 2024-10-23 21:17:31
-updated: 2024-10-26 10:44:28
+date: 2024-10-23T05:54:37.165Z
+updated: 2024-10-27T03:44:41.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84757f969d9c72bf070647e81dc925166e56a1b1bb917d42bb05ade2d7952969.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84757f969d9c72bf070647e81dc9251
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret of the Ages (Original Classic Edition) | Free Book
-date: 2024-10-24 21:47:26
-updated: 2024-10-26 11:52:38
+date: 2024-10-24T19:15:51.394Z
+updated: 2024-10-26T22:29:32.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/777a7c32910f3be6531a6f6df4e536d2a8235208a073f491202e3dfd81567d4d.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/777a7c32910f3be6531a6f6df4e536d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

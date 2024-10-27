@@ -1,7 +1,7 @@
 ---
 title: Life and Death - Making Sense of It | Free Book
-date: 2024-10-23 20:59:15
-updated: 2024-10-26 10:17:53
+date: 2024-10-22T18:46:45.598Z
+updated: 2024-10-26T21:03:17.543Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b7f2b334fd9690a1915db5e3acb4399ebbdbc4da113bf45e43f2733eb917a99d.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b7f2b334fd9690a1915db5e3acb4399
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

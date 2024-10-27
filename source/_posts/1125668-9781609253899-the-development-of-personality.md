@@ -1,7 +1,7 @@
 ---
 title: The Development of Personality | Free Book
-date: 2024-10-24 13:13:49
-updated: 2024-10-26 10:55:29
+date: 2024-10-22T18:32:40.580Z
+updated: 2024-10-26T21:55:48.847Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fee76558c1f50f5194805adc160df7a1f5debecb369e4e081f1449aa92c3ffb.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fee76558c1f50f5194805adc160df7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

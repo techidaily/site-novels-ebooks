@@ -1,7 +1,7 @@
 ---
 title: "Summary: Quiet: The Power of Introverts in a World That Can't Stop Talking: Quiet | Free Book"
-date: 2024-10-23 18:51:23
-updated: 2024-10-26 11:43:24
+date: 2024-10-21T19:30:24.876Z
+updated: 2024-10-27T04:59:26.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5fcdc1b3daab9f8ba95aba982dbabe84543a6a57c3fb47ad45c808f67aa4893b.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5fcdc1b3daab9f8ba95aba982dbabe8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

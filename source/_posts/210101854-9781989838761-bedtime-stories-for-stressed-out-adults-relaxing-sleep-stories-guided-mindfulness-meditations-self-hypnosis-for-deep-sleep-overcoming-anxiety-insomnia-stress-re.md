@@ -1,7 +1,7 @@
 ---
 title: Bedtime Stories for Stressed Out Adults Relaxing Sleep Stories, Guided Mindfulness Meditations & Self-Hypnosis For Deep Sleep, Overcoming Anxiety, Insomnia & Stress Relief | Free Book
-date: 2024-10-23 16:41:52
-updated: 2024-10-26 10:36:50
+date: 2024-10-23T16:27:23.905Z
+updated: 2024-10-27T00:31:19.023Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/318b68e67b479fc43e4e77cbe14c9cb0c2cf98a4a8a88835550e57f925c46bce.jpg
@@ -196,3 +196,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/318b68e67b479fc43e4e77cbe14c9cb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

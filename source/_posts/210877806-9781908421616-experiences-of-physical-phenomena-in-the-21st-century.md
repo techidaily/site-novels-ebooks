@@ -1,7 +1,7 @@
 ---
 title: Experiences of Physical Phenomena in the 21st Century | Free Book
-date: 2024-10-25 11:46:11
-updated: 2024-10-26 12:41:11
+date: 2024-10-24T19:41:21.660Z
+updated: 2024-10-26T17:05:52.766Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9135d6f6be19c636ce50659502cf457cc489a51aaaeb064f7ca8222cdec2975.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9135d6f6be19c636ce50659502cf45
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

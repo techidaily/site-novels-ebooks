@@ -1,7 +1,7 @@
 ---
 title: Essential Energy Balancing II | Free Book
-date: 2024-10-23 21:54:13
-updated: 2024-10-26 10:40:51
+date: 2024-10-24T01:31:33.766Z
+updated: 2024-10-27T03:26:42.782Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/157c890a70295fff98336670bc53b8e1f63365711041e063389e1e6538728f3d.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/157c890a70295fff98336670bc53b8e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: El Aura. Energía vital luminosa | Free Book
-date: 2024-10-25 20:57:33
-updated: 2024-10-26 12:24:20
+date: 2024-10-22T05:22:54.050Z
+updated: 2024-10-27T01:44:41.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1838a752e65a858e5d7d05cedad505f8cf295baf70a6a3515da9bf9e6f75815b.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1838a752e65a858e5d7d05cedad505f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

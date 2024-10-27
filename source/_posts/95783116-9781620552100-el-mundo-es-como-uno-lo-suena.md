@@ -1,7 +1,7 @@
 ---
 title: El mundo es como uno lo sueña | Free Book
-date: 2024-10-23 15:10:17
-updated: 2024-10-26 10:13:55
+date: 2024-10-23T00:16:50.098Z
+updated: 2024-10-26T17:18:47.186Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7218c10b5f65076a07ef65ad816e7e7f933df1f4dc34ac84ae3c16f0671a123f.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7218c10b5f65076a07ef65ad816e7e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

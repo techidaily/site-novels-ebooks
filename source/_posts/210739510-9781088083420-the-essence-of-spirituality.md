@@ -1,7 +1,7 @@
 ---
 title: The Essence of Spirituality | Free Book
-date: 2024-10-24 11:19:29
-updated: 2024-10-26 10:33:56
+date: 2024-10-21T03:43:20.871Z
+updated: 2024-10-27T05:31:08.743Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2a42b1950b1d1df1919d538fa6a81df87a069482864aad35f821fcbd6373db6.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2a42b1950b1d1df1919d538fa6a81d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

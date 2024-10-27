@@ -1,7 +1,7 @@
 ---
 title: The Pill | Free Book
-date: 2024-10-25 11:53:12
-updated: 2024-10-26 12:55:49
+date: 2024-10-22T16:17:32.093Z
+updated: 2024-10-27T02:12:26.993Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1b04b02e5c327b4d00fb390d656540d1aafb5854dd4bfdce8f29820d9f2c809.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1b04b02e5c327b4d00fb390d656540
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

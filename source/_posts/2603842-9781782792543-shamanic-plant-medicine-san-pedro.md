@@ -1,7 +1,7 @@
 ---
 title: Shamanic Plant Medicine - San Pedro | Free Book
-date: 2024-10-24 19:45:56
-updated: 2024-10-26 11:35:52
+date: 2024-10-22T19:53:12.322Z
+updated: 2024-10-26T18:20:07.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74e970a795584c2550d2d060beb6f08a28986b71e6d9551de9f65fb16da0e727.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74e970a795584c2550d2d060beb6f08
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

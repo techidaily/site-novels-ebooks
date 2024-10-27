@@ -1,7 +1,7 @@
 ---
 title: The Psychedelic Explorer's Guide | Free Book
-date: 2024-10-23 10:23:30
-updated: 2024-10-26 10:26:48
+date: 2024-10-25T01:38:56.750Z
+updated: 2024-10-27T02:05:51.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e85e6cccfd9799fb43448f503489f025feae61c87125be21c4270e0335ce1171.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e85e6cccfd9799fb43448f503489f02
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

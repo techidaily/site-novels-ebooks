@@ -1,7 +1,7 @@
 ---
 title: Celtic Hedge Witchery—A Modern Approach | Free Book
-date: 2024-10-25 23:34:37
-updated: 2024-10-26 11:42:37
+date: 2024-10-20T01:31:06.389Z
+updated: 2024-10-26T23:20:20.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc084a993fed27cb30861e510c50962418ffb7716a963759185addb5cd2effe8.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc084a993fed27cb30861e510c50962
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

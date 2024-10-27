@@ -1,7 +1,7 @@
 ---
 title: "Astral Projection and Lucid Dreaming: Unlocking the Secrets of the Subconscious Mind | Free Book"
-date: 2024-10-23 16:45:35
-updated: 2024-10-26 10:15:53
+date: 2024-10-22T04:06:00.850Z
+updated: 2024-10-26T19:30:37.664Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/256847c711a0ef6d4424cc4c245167fb57fcbddce7b0507c076722b908df5f3c.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/256847c711a0ef6d4424cc4c245167f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

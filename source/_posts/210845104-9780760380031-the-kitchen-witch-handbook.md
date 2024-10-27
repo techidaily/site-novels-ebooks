@@ -1,7 +1,7 @@
 ---
 title: The Kitchen Witch Handbook | Free Book
-date: 2024-10-25 23:36:12
-updated: 2024-10-26 11:45:32
+date: 2024-10-24T04:46:07.094Z
+updated: 2024-10-27T01:08:08.258Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03a0e0ff7794ea9a85f830caa7d60c5f3d8cd01447cc6e4c17823b362ea0e73b.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03a0e0ff7794ea9a85f830caa7d60c5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

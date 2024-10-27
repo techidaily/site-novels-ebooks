@@ -1,7 +1,7 @@
 ---
 title: Motivation Journal For Women | Free Book
-date: 2024-10-24 17:15:15
-updated: 2024-10-26 10:43:15
+date: 2024-10-19T23:16:06.311Z
+updated: 2024-10-26T22:41:12.238Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f00cd7294e04c9866c0ef163a206b4c323925ef2717846aedd95e83d9f194ab8.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f00cd7294e04c9866c0ef163a206b4c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Watkins Dictionary of Magic | Free Book
-date: 2024-10-23 15:44:43
-updated: 2024-10-26 11:24:50
+date: 2024-10-23T19:34:47.888Z
+updated: 2024-10-27T02:07:44.654Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/f611ed832f6543593101425ff4efcad953eea2fc6dde342c4f14fdea2e3fee0a.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f611ed832f6543593101425ff4efcad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

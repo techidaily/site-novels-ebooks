@@ -1,7 +1,7 @@
 ---
 title: The Poltergeist Phenomenon | Free Book
-date: 2024-10-23 13:32:32
-updated: 2024-10-26 10:44:57
+date: 2024-10-22T01:04:31.706Z
+updated: 2024-10-26T20:12:39.931Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ebe650de333d48d04c73fd4dd0e49b12dd57a0a22b15c1c4a3349068d7f6eee.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ebe650de333d48d04c73fd4dd0e49b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

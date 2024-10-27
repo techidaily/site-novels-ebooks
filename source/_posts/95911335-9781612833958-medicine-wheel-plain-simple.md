@@ -1,7 +1,7 @@
 ---
 title: Medicine Wheel Plain & Simple | Free Book
-date: 2024-10-23 15:52:56
-updated: 2024-10-26 11:50:57
+date: 2024-10-22T04:30:26.440Z
+updated: 2024-10-26T19:49:05.407Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dfa2430fcf786dd267d5e50c3bf3a2fe88a95c37eb778a1766d38b5896754ed.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dfa2430fcf786dd267d5e50c3bf3a2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

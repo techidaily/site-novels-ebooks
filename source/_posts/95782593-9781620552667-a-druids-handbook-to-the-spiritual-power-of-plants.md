@@ -1,7 +1,7 @@
 ---
 title: A Druid's Handbook to the Spiritual Power of Plants | Free Book
-date: 2024-10-24 13:35:30
-updated: 2024-10-26 11:52:58
+date: 2024-10-25T05:40:55.392Z
+updated: 2024-10-26T21:54:39.303Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e925d0c70d44ed62d1b25a1b34ace850e963d311d67746800ee7e8d06b7910f7.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e925d0c70d44ed62d1b25a1b34ace85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

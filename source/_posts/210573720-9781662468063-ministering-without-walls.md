@@ -1,7 +1,7 @@
 ---
 title: Ministering Without Walls | Free Book
-date: 2024-10-24 15:14:27
-updated: 2024-10-26 11:14:28
+date: 2024-10-24T01:26:04.632Z
+updated: 2024-10-27T03:13:06.272Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/27f84a721ca80fc5d4ce792fb34d3576d44af2d3670d6a856ef26842ad9bca41.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/27f84a721ca80fc5d4ce792fb34d357
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

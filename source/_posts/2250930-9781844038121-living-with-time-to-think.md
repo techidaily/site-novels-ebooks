@@ -1,7 +1,7 @@
 ---
 title: Living with Time to Think | Free Book
-date: 2024-10-23 20:19:14
-updated: 2024-10-26 11:42:17
+date: 2024-10-22T17:07:32.189Z
+updated: 2024-10-26T21:56:48.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e34017d930c4440153589dc81ba5f6c57a19f484ed58686c4bc514aea6e24cef.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e34017d930c4440153589dc81ba5f6c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

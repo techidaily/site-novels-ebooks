@@ -1,7 +1,7 @@
 ---
 title: Hold Fast the Mountain Pass | Free Book
-date: 2024-10-24 14:20:19
-updated: 2024-10-26 12:58:36
+date: 2024-10-23T18:43:23.704Z
+updated: 2024-10-27T01:26:44.500Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ad238e46ce350ba9e2add321f16815d958748aa38b989fe14e4a8d69b4884cd.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ad238e46ce350ba9e2add321f16815
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Healing Plants of Greek Myth | Free Book
-date: 2024-10-25 23:16:13
-updated: 2024-10-26 10:43:56
+date: 2024-10-26T01:29:07.292Z
+updated: 2024-10-27T02:42:38.209Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5cd0203b34cce3f86b6acd83c9933d1ad2a9e44798683f2b1496c72605342b77.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5cd0203b34cce3f86b6acd83c9933d1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

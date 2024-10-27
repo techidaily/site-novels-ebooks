@@ -1,7 +1,7 @@
 ---
 title: "Pagan Portals: The Crane Bag | Free Book"
-date: 2024-10-25 23:44:56
-updated: 2024-10-26 10:53:12
+date: 2024-10-20T02:13:11.659Z
+updated: 2024-10-26T20:51:38.854Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee0f593592db91ed3ecb0793789233316aa78b3149674138c38d027c8c987208.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee0f593592db91ed3ecb07937892333
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

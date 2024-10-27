@@ -1,7 +1,7 @@
 ---
 title: Traditional Witchcraft for the Seashore | Free Book
-date: 2024-10-23 17:16:40
-updated: 2024-10-26 11:37:36
+date: 2024-10-25T01:28:42.712Z
+updated: 2024-10-26T21:35:35.916Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ec23e5251ec44e7860e0185a15bb3dee18613548c70ab4d669eeb8405feebdf.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ec23e5251ec44e7860e0185a15bb3d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

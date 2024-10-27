@@ -1,7 +1,7 @@
 ---
 title: The Patient Is Wearing Lipstick | Free Book
-date: 2024-10-23 14:58:56
-updated: 2024-10-26 12:16:29
+date: 2024-10-22T20:32:24.158Z
+updated: 2024-10-26T22:31:31.509Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cbbdc97d1ab94b4c2ad5232f47b089a1f973e7cc3c0d025d191892acd442f4d.jpg
@@ -233,3 +233,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cbbdc97d1ab94b4c2ad5232f47b089
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

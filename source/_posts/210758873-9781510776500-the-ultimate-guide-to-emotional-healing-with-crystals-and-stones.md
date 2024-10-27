@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Emotional Healing with Crystals and Stones | Free Book
-date: 2024-10-24 13:59:54
-updated: 2024-10-26 12:58:54
+date: 2024-10-24T16:34:02.362Z
+updated: 2024-10-26T23:44:52.553Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/36765c8ab1e1215ad2c00a138e491b3aec3400028d227338a6619250b18d95f6.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/36765c8ab1e1215ad2c00a138e491b3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

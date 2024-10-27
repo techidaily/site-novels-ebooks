@@ -1,7 +1,7 @@
 ---
 title: Chinese Shamanic Tiger Qigong | Free Book
-date: 2024-10-23 15:12:46
-updated: 2024-10-26 11:51:11
+date: 2024-10-19T22:30:46.037Z
+updated: 2024-10-27T00:51:35.837Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1f1d3b8725b4117336414874abe6d0a362fafa764cd6782bf9bcfc39b2f1c33.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1f1d3b8725b4117336414874abe6d0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

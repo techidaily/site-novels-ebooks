@@ -1,7 +1,7 @@
 ---
 title: La vie que j'ai moi-même choisie | Free Book
-date: 2024-10-24 15:49:46
-updated: 2024-10-26 10:43:27
+date: 2024-10-20T02:28:19.243Z
+updated: 2024-10-26T19:28:38.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7f7d9a1f6f20c4352d94df785a81314fce2bea5887ca13a50cae74261347a3a4.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7f7d9a1f6f20c4352d94df785a81314
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

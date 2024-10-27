@@ -1,7 +1,7 @@
 ---
 title: "PATHWAY TO TRAUMA RECOVERY: TRANSFORM PAIN INTO POWER | Free Book"
-date: 2024-10-25 17:26:44
-updated: 2024-10-26 11:22:34
+date: 2024-10-22T21:52:41.361Z
+updated: 2024-10-26T16:48:30.163Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/836dbe6c79987202ab59e3375b04ff6f21407aa503d40abffbd3c5fbe3c8ccf5.jpg
@@ -181,3 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/836dbe6c79987202ab59e3375b04ff6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

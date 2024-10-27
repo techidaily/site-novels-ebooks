@@ -1,7 +1,7 @@
 ---
 title: The Lightworkers Healing Method | Free Book
-date: 2024-10-25 20:55:25
-updated: 2024-10-26 11:41:16
+date: 2024-10-22T04:25:57.296Z
+updated: 2024-10-26T18:23:20.261Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/820207240e5f135f4e6a79a57a4790ec89a8a5334e3a6c1ae11af0418782dfdd.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/820207240e5f135f4e6a79a57a4790e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

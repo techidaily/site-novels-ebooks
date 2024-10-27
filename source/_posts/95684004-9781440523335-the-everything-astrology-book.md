@@ -1,7 +1,7 @@
 ---
 title: The Everything Astrology Book | Free Book
-date: 2024-10-23 21:35:53
-updated: 2024-10-26 12:22:17
+date: 2024-10-23T00:55:26.144Z
+updated: 2024-10-26T16:19:42.107Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f669de8690265f349fb8227250019c8171e5c0da611f6c7295dc5b585483302e.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f669de8690265f349fb8227250019c8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

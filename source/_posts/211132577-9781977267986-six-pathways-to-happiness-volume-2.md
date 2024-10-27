@@ -1,7 +1,7 @@
 ---
 title: Six Pathways to Happiness Volume 2 | Free Book
-date: 2024-10-24 16:37:58
-updated: 2024-10-26 10:46:52
+date: 2024-10-19T20:02:18.986Z
+updated: 2024-10-26T17:41:55.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0bdb7f2395c9c8e3100884bc97b6689afde295572604003d495dadbe2be4a9d.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0bdb7f2395c9c8e3100884bc97b668
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

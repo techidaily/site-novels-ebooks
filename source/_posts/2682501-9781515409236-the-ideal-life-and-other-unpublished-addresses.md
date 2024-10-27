@@ -1,7 +1,7 @@
 ---
 title: The Ideal Life and Other Unpublished Addresses | Free Book
-date: 2024-10-23 14:41:40
-updated: 2024-10-26 10:10:39
+date: 2024-10-24T06:02:00.469Z
+updated: 2024-10-27T02:15:44.845Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c8708517247106c19042d0e2a28f7cdd8965c92ffacd83b8ccea8e7c20b0884.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c8708517247106c19042d0e2a28f7c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

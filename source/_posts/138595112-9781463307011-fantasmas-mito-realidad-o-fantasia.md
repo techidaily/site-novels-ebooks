@@ -1,7 +1,7 @@
 ---
 title: "Fantasmas: Mito, Realidad O Fantasía | Free Book"
-date: 2024-10-23 13:13:58
-updated: 2024-10-26 10:50:34
+date: 2024-10-26T02:53:01.519Z
+updated: 2024-10-26T21:53:27.882Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6da32b7c79dd317350ddc1cf6de151f5c4e84df9b332d11e129fd426d21a4084.jpg
@@ -137,3 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6da32b7c79dd317350ddc1cf6de151f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

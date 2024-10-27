@@ -1,7 +1,7 @@
 ---
 title: Arquitectura Del Mas Alla Vida | Free Book
-date: 2024-10-24 20:29:44
-updated: 2024-10-26 10:43:46
+date: 2024-10-25T20:59:59.275Z
+updated: 2024-10-26T20:03:29.730Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f9344b382b40ecf137617fca09fa1819f872f35726a3585dcac5c5cb815e59e.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f9344b382b40ecf137617fca09fa18
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

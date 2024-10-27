@@ -1,7 +1,7 @@
 ---
 title: Finding Freedom in Illness | Free Book
-date: 2024-10-24 18:47:12
-updated: 2024-10-26 12:16:23
+date: 2024-10-21T16:06:55.142Z
+updated: 2024-10-26T19:44:12.155Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/b3552dc78ac415ffaf737014f315578924eb89cb6689b20453a788868bb9e905.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3552dc78ac415ffaf737014f315578
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Βίβλος για καθημερινό διαλογισμό | Free Book
-date: 2024-10-25 20:35:56
-updated: 2024-10-26 10:12:26
+date: 2024-10-19T21:13:41.639Z
+updated: 2024-10-26T22:20:45.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51994c03a9a2056f46b832023d98cfa498dacc9755f15d762307f98db2ea8b3d.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51994c03a9a2056f46b832023d98cfa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

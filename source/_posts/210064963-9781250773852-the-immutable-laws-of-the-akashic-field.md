@@ -1,7 +1,7 @@
 ---
 title: The Immutable Laws of the Akashic Field | Free Book
-date: 2024-10-23 19:28:13
-updated: 2024-10-26 12:10:52
+date: 2024-10-23T22:36:50.203Z
+updated: 2024-10-26T20:58:30.630Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e63584e8944b6e0da59958b758093a2db46f8d1ab3fa62f6356438deb904f5b0.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e63584e8944b6e0da59958b758093a2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

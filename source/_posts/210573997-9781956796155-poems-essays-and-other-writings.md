@@ -1,7 +1,7 @@
 ---
 title: Poems, Essays, and Other Writings | Free Book
-date: 2024-10-25 15:24:22
-updated: 2024-10-26 11:52:47
+date: 2024-10-24T19:21:39.217Z
+updated: 2024-10-26T22:13:53.633Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8975b2bf6e6199cec2e416457e66fe42715aec34317744fd29a3ac910cf2bf66.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8975b2bf6e6199cec2e416457e66fe4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

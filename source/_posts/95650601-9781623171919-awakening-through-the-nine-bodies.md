@@ -1,7 +1,7 @@
 ---
 title: Awakening through the Nine Bodies | Free Book
-date: 2024-10-25 19:49:27
-updated: 2024-10-26 10:28:25
+date: 2024-10-21T04:42:18.422Z
+updated: 2024-10-26T23:41:40.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fffb54a48a66179a9da7bf3bf96840484781e3afa5a4ab420635415a1761a8db.jpg
@@ -221,3 +221,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fffb54a48a66179a9da7bf3bf968404
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

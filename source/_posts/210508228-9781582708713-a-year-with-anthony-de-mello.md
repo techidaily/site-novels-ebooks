@@ -1,7 +1,7 @@
 ---
 title: A Year with Anthony De Mello | Free Book
-date: 2024-10-24 21:26:48
-updated: 2024-10-26 12:19:41
+date: 2024-10-21T19:11:15.640Z
+updated: 2024-10-27T02:18:55.847Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a5e38197954c99490ea9ef243fe62cf1597e0dd0946781419664da09c78e3ec.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a5e38197954c99490ea9ef243fe62c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A JOURNEY OF SELF DISCOVERY | Free Book
-date: 2024-10-24 22:38:22
-updated: 2024-10-26 11:55:51
+date: 2024-10-21T00:28:49.064Z
+updated: 2024-10-26T23:08:16.693Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6250d68491e431fe60d50b09c2dbe681f333ea650f8a86276be246fb7dae925.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6250d68491e431fe60d50b09c2dbe6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Desarrollo de las Habilidades Psíquicas | Free Book
-date: 2024-10-25 14:46:26
-updated: 2024-10-26 11:50:56
+date: 2024-10-24T20:24:55.989Z
+updated: 2024-10-26T17:18:43.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8ebad9505bd3d70da35f5d5427977f42082b66f67c0adac5f5d86d011ed0244.jpg
@@ -200,3 +200,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8ebad9505bd3d70da35f5d5427977f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

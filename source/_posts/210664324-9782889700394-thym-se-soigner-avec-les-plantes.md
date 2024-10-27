@@ -1,7 +1,7 @@
 ---
 title: "Thym : se soigner avec les plantes | Free Book"
-date: 2024-10-24 13:56:49
-updated: 2024-10-26 12:15:14
+date: 2024-10-22T19:22:10.457Z
+updated: 2024-10-26T17:36:13.302Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ed9d002f83782a82fa24f98334d7bdad90cfd24c2f8552e578decc00f9d5b8d8.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ed9d002f83782a82fa24f98334d7bda
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

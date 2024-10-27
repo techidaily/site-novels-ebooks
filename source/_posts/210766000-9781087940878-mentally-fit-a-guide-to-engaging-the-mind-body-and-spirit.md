@@ -1,7 +1,7 @@
 ---
 title: "Mentally Fit: A Guide to Engaging the Mind, Body and Spirit | Free Book"
-date: 2024-10-23 15:30:39
-updated: 2024-10-26 10:22:20
+date: 2024-10-22T22:07:44.576Z
+updated: 2024-10-27T00:19:05.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4617aeb2ca2d70ef407e3b3db24ea6e873e2aa0c4b83e83ce4817ed9bd2b74cf.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4617aeb2ca2d70ef407e3b3db24ea6e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

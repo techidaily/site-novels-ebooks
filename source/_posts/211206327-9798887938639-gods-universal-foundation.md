@@ -1,7 +1,7 @@
 ---
 title: God's Universal Foundation | Free Book
-date: 2024-10-25 17:35:56
-updated: 2024-10-26 12:57:30
+date: 2024-10-21T23:45:30.235Z
+updated: 2024-10-26T22:16:24.826Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e86d8a9e35af90554d670d086d4f3c39edea0fed075287aa2b54dc3791c8cedc.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e86d8a9e35af90554d670d086d4f3c3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

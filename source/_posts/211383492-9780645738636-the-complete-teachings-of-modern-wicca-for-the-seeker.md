@@ -1,7 +1,7 @@
 ---
 title: The Complete Teachings of Modern Wicca For the Seeker | Free Book
-date: 2024-10-23 19:53:58
-updated: 2024-10-26 10:40:38
+date: 2024-10-24T01:16:07.772Z
+updated: 2024-10-26T20:28:14.734Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02624218acefc0088f0f913544e34b24ea2ce3a0efa238763feceb11f6579702.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02624218acefc0088f0f913544e34b2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

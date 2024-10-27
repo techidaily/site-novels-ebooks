@@ -1,7 +1,7 @@
 ---
 title: "I: Reality and Subjectivity | Free Book"
-date: 2024-10-24 18:28:34
-updated: 2024-10-26 10:29:35
+date: 2024-10-19T17:13:45.884Z
+updated: 2024-10-26T17:08:13.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/923753a34cc720b7eefb73ccf0a8df361ac301208d3091bfc4c8df29a6d9a5b3.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/923753a34cc720b7eefb73ccf0a8df3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

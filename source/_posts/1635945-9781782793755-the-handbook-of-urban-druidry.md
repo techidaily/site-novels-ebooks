@@ -1,7 +1,7 @@
 ---
 title: The Handbook of Urban Druidry | Free Book
-date: 2024-10-23 14:25:18
-updated: 2024-10-26 11:33:46
+date: 2024-10-19T20:18:10.525Z
+updated: 2024-10-27T02:43:33.077Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3aa2b6fdecc9b127dcbe337f9eda4b7d24cb6bdea9a65fb37aac0076966fbc2.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3aa2b6fdecc9b127dcbe337f9eda4b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

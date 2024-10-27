@@ -1,7 +1,7 @@
 ---
 title: The Knight-Waite Tarot Guidebook | Free Book
-date: 2024-10-25 12:26:22
-updated: 2024-10-26 10:21:17
+date: 2024-10-20T23:21:57.889Z
+updated: 2024-10-26T20:21:02.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5d31662ee2ad7d0e901bf52fe38c0b60ee60a0622f3a91277696e9aeb458255.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5d31662ee2ad7d0e901bf52fe38c0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

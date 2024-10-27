@@ -1,7 +1,7 @@
 ---
 title: Colour, Healing and the Human Soul | Free Book
-date: 2024-10-23 15:38:24
-updated: 2024-10-26 10:44:37
+date: 2024-10-24T16:00:56.714Z
+updated: 2024-10-26T20:51:24.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1d5ec8e226724ae22420b6ccd154140412b2fb9fe74603ea33d8772bbd53e052.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1d5ec8e226724ae22420b6ccd154140
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

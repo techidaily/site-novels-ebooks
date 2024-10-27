@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Pennsylvania Ghost Stories | Free Book
-date: 2024-10-23 13:26:59
-updated: 2024-10-26 10:50:19
+date: 2024-10-20T21:04:59.826Z
+updated: 2024-10-26T22:16:47.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bac99a534715a54e25e7a04d54446df68be6c8fec14e0e25d421c41bf97fb47.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bac99a534715a54e25e7a04d54446d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

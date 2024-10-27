@@ -1,7 +1,7 @@
 ---
 title: Things I Wish I Knew Before My Mom Died | Free Book
-date: 2024-10-24 12:48:30
-updated: 2024-10-26 12:58:53
+date: 2024-10-21T05:37:27.014Z
+updated: 2024-10-26T16:26:33.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ffb873dd0fee34ececf1e7aca63c5588ccb01e9937c59da314a2bb0085610fc5.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ffb873dd0fee34ececf1e7aca63c558
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

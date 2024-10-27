@@ -1,7 +1,7 @@
 ---
 title: "Medicine of the Imagination: Dwelling in Possibility | Free Book"
-date: 2024-10-25 17:40:28
-updated: 2024-10-26 10:18:58
+date: 2024-10-21T22:13:12.974Z
+updated: 2024-10-27T04:23:52.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cfa1e9792b73626186081bc4b7f82492bbe757b3207cd8a22f72c819d1605b0.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cfa1e9792b73626186081bc4b7f824
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

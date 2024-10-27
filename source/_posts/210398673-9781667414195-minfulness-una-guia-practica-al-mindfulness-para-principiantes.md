@@ -1,7 +1,7 @@
 ---
 title: "Minfulness: Una Guía Práctica al Mindfulness para Principiantes | Free Book"
-date: 2024-10-23 20:44:34
-updated: 2024-10-26 10:45:40
+date: 2024-10-24T00:21:05.159Z
+updated: 2024-10-26T22:15:53.379Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cdd059a1ad99a2a4310928d842835cfec731a30fac105902e7ee938bad72227d.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cdd059a1ad99a2a4310928d842835cf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

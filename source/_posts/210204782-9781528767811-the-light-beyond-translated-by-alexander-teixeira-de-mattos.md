@@ -1,7 +1,7 @@
 ---
 title: The Light Beyond - Translated by Alexander Teixeira de Mattos | Free Book
-date: 2024-10-25 19:49:37
-updated: 2024-10-26 12:44:34
+date: 2024-10-25T00:22:23.091Z
+updated: 2024-10-26T17:05:18.458Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b0abd752859f69246bbfa23214a888ff1a8304ad65ebd6464cd827a2f7b79d7.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b0abd752859f69246bbfa23214a888
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

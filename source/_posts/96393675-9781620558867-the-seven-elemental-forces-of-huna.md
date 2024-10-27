@@ -1,7 +1,7 @@
 ---
 title: The Seven Elemental Forces of Huna | Free Book
-date: 2024-10-25 20:55:13
-updated: 2024-10-26 11:37:19
+date: 2024-10-19T21:46:23.266Z
+updated: 2024-10-27T02:40:55.226Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1cf2774f26d28a10672b591c6afd98d9f6.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

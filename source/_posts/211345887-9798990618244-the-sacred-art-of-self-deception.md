@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of SELF-Deception | Free Book
-date: 2024-10-24 19:26:33
-updated: 2024-10-26 12:59:34
+date: 2024-10-20T21:05:27.453Z
+updated: 2024-10-26T17:28:25.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe2da5512d077454be3211eda68e6738dcd7b86b5a516155e541dfc8c9a1d02e.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe2da5512d077454be3211eda68e673
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

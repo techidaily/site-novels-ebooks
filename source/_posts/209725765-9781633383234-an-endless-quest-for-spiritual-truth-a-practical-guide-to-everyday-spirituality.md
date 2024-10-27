@@ -1,7 +1,7 @@
 ---
 title: "An Endless Quest for Spiritual Truth: A Practical Guide to Everyday Spirituality | Free Book"
-date: 2024-10-23 16:56:15
-updated: 2024-10-26 12:24:36
+date: 2024-10-24T20:45:57.979Z
+updated: 2024-10-26T18:21:20.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/203d87419ca19cfaf007415f2b907c7c7fb0ebbd168f8bdd397283c5c295bb30.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/203d87419ca19cfaf007415f2b907c7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

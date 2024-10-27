@@ -1,7 +1,7 @@
 ---
 title: Lifting the Veils of Illusion | Free Book
-date: 2024-10-23 21:22:47
-updated: 2024-10-26 10:34:27
+date: 2024-10-19T16:28:28.209Z
+updated: 2024-10-26T17:33:00.590Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/701df1e595f1468f92fde6ba3c33b43709b9002c0cd2328ed345dba4a2cef123.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/701df1e595f1468f92fde6ba3c33b43
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

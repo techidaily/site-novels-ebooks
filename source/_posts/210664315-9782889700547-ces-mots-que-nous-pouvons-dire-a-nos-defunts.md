@@ -1,7 +1,7 @@
 ---
 title: Ces mots que nous pouvons dire à nos défunts | Free Book
-date: 2024-10-23 11:13:27
-updated: 2024-10-26 10:18:41
+date: 2024-10-21T03:47:43.988Z
+updated: 2024-10-27T00:19:13.238Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/808dddb9108ab7f7c6296f61c75752bf54e007f17653c8120a92cccf1a413ffa.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/808dddb9108ab7f7c6296f61c75752b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Art and Practice of Caballa Magic | Free Book
-date: 2024-10-25 19:23:51
-updated: 2024-10-26 10:32:32
+date: 2024-10-21T04:28:59.717Z
+updated: 2024-10-27T05:18:31.644Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/177a560f6a4a3b54e17c4740352a8a1512f64c73eb640c5b2c6a230805a329f1.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/177a560f6a4a3b54e17c4740352a8a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

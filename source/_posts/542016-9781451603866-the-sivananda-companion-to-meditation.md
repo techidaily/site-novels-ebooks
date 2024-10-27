@@ -1,7 +1,7 @@
 ---
 title: The Sivananda Companion to Meditation | Free Book
-date: 2024-10-24 22:59:17
-updated: 2024-10-26 11:30:33
+date: 2024-10-21T03:05:30.558Z
+updated: 2024-10-27T01:19:19.877Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fbc35a4282d1899c9c2c20762ee41f3be6bde0803282a32cbc25a4ca5e75802d.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fbc35a4282d1899c9c2c20762ee41f3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

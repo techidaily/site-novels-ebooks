@@ -1,7 +1,7 @@
 ---
 title: S'initier à l'art des runes divinatoires | Free Book
-date: 2024-10-23 18:46:24
-updated: 2024-10-26 12:23:20
+date: 2024-10-23T02:06:56.068Z
+updated: 2024-10-27T01:32:58.659Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e5def932dad510b46687ce981396a055a09bb3ea1bb20968064c2b2d626f3ee.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e5def932dad510b46687ce981396a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

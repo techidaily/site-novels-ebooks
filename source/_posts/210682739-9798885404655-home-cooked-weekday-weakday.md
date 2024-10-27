@@ -1,7 +1,7 @@
 ---
 title: Home-cooked “Weekday-Weakday” | Free Book
-date: 2024-10-23 12:34:46
-updated: 2024-10-26 11:21:50
+date: 2024-10-20T17:08:40.254Z
+updated: 2024-10-26T20:33:26.679Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e35fa8c9606effc2305d168a250e5bbaa8b8d4c6491f57eec3b922d29a1add67.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e35fa8c9606effc2305d168a250e5bb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

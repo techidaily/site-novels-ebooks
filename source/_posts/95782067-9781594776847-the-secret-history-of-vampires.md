@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Vampires | Free Book
-date: 2024-10-25 10:23:14
-updated: 2024-10-26 12:24:45
+date: 2024-10-26T02:47:18.112Z
+updated: 2024-10-27T04:46:41.212Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/024723ffe16ea9fd6074668a3f476160b76a3d93ee95968569de6d2c4730f62c.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/024723ffe16ea9fd6074668a3f47616
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

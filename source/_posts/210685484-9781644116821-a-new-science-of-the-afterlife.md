@@ -1,7 +1,7 @@
 ---
 title: A New Science of the Afterlife | Free Book
-date: 2024-10-24 16:57:54
-updated: 2024-10-26 10:39:11
+date: 2024-10-26T01:43:23.001Z
+updated: 2024-10-27T04:39:44.108Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a87e6a362341aba5bc9ffa2e2d3f536f60114db569c0931bd1176084962bee23.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a87e6a362341aba5bc9ffa2e2d3f536
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

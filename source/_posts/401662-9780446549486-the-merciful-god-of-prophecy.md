@@ -1,7 +1,7 @@
 ---
 title: The Merciful God of Prophecy | Free Book
-date: 2024-10-23 22:44:13
-updated: 2024-10-26 10:26:51
+date: 2024-10-22T05:47:46.060Z
+updated: 2024-10-27T03:07:38.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0448496632b892404283ce2c4ef8aa85461871c5734151539de097103e428e9.jpg
@@ -122,3 +122,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0448496632b892404283ce2c4ef8aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Healing through Indigenous Wisdom | Free Book
-date: 2024-10-25 14:33:12
-updated: 2024-10-26 11:45:45
+date: 2024-10-22T20:02:49.001Z
+updated: 2024-10-26T18:00:27.463Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad92a3c6fde3317506f0d64cd3081d32ffff393a92a888d65f6cc2662c702851.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad92a3c6fde3317506f0d64cd3081d3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

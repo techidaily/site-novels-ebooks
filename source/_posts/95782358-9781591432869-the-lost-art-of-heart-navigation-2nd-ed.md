@@ -1,7 +1,7 @@
 ---
 title: The Lost Art of Heart Navigation (2nd ed.) | Free Book
-date: 2024-10-23 16:58:40
-updated: 2024-10-26 12:18:11
+date: 2024-10-23T02:52:18.346Z
+updated: 2024-10-27T04:08:57.943Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ad11c5b38230496cf5e5d8b4de94cc9d9b5c7af4a72397c25d55ea8b6d6d839.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ad11c5b38230496cf5e5d8b4de94cc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: El Esclavo De África a la Senzala | Free Book
-date: 2024-10-24 11:52:51
-updated: 2024-10-26 11:19:22
+date: 2024-10-22T17:29:52.434Z
+updated: 2024-10-27T00:19:30.180Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56a65c5c99c631bbcbf12cd104b182acdd40df078d170fa0ea7efdf6ac70e570.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56a65c5c99c631bbcbf12cd104b182a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

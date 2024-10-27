@@ -1,7 +1,7 @@
 ---
 title: Everyday Qigong Practice | Free Book
-date: 2024-10-24 13:14:24
-updated: 2024-10-26 11:21:32
+date: 2024-10-21T23:08:00.847Z
+updated: 2024-10-27T00:35:35.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c89c9e029cd8e53cd52c95d23da4838e2b863e9011756fc16311749c70dacdde.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c89c9e029cd8e53cd52c95d23da4838
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

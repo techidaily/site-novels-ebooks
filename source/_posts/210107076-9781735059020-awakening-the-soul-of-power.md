@@ -1,7 +1,7 @@
 ---
 title: Awakening the Soul of Power | Free Book
-date: 2024-10-23 15:11:20
-updated: 2024-10-26 11:19:35
+date: 2024-10-24T16:17:43.021Z
+updated: 2024-10-27T00:36:24.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/54baa3269ba8b4fbb3651fba2f313b9fad873bc1db8b240d7538b8661f35e43a.jpg
@@ -251,3 +251,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/54baa3269ba8b4fbb3651fba2f313b9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

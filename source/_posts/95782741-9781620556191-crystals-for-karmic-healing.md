@@ -1,7 +1,7 @@
 ---
 title: Crystals for Karmic Healing | Free Book
-date: 2024-10-24 12:31:32
-updated: 2024-10-26 10:10:54
+date: 2024-10-25T04:30:00.016Z
+updated: 2024-10-26T19:13:30.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d113d8c69484555e7753071c1248f4463f93027a153a2a4085e0f4845a3cd973.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d113d8c69484555e7753071c1248f44
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

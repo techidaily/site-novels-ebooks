@@ -1,7 +1,7 @@
 ---
 title: The Akashic Records Made Easy | Free Book
-date: 2024-10-25 13:52:53
-updated: 2024-10-26 12:27:44
+date: 2024-10-23T18:20:28.394Z
+updated: 2024-10-27T00:13:53.433Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db27cf1a389b9cd65074871bf181b46475f3ff69028c9afc94e1a293a6822fcc.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db27cf1a389b9cd65074871bf181b46
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

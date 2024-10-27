@@ -1,7 +1,7 @@
 ---
 title: A Short History of (Nearly) Everything Paranormal | Free Book
-date: 2024-10-25 20:32:39
-updated: 2024-10-26 12:30:13
+date: 2024-10-21T16:58:00.587Z
+updated: 2024-10-27T01:31:50.551Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95ef6241c73b37f77ca58063d6abdb934d1a76188ce557ae909afacb06852a68.jpg
@@ -245,3 +245,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95ef6241c73b37f77ca58063d6abdb9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

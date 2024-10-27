@@ -1,7 +1,7 @@
 ---
 title: Awakening Your Psychic Powers | Free Book
-date: 2024-10-24 15:58:10
-updated: 2024-10-26 10:24:53
+date: 2024-10-22T02:23:56.916Z
+updated: 2024-10-26T17:35:13.131Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ff30a9130feeea1d6d6f08cfef2bdc5ec3c37c91b58cea3b259cc853d9fa4ea.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ff30a9130feeea1d6d6f08cfef2bdc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

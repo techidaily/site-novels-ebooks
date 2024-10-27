@@ -1,7 +1,7 @@
 ---
 title: Perdurabo, Revised and Expanded Edition | Free Book
-date: 2024-10-24 21:16:30
-updated: 2024-10-26 10:45:24
+date: 2024-10-21T17:59:28.623Z
+updated: 2024-10-26T18:20:39.436Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c6b88276a7b6f13deab5794d18fadc0bb2fd65360e7bf2dbe62b4a5a48eb180.jpg
@@ -237,3 +237,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c6b88276a7b6f13deab5794d18fadc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

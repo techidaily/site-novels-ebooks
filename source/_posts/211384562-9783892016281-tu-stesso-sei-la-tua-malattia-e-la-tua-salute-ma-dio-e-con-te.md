@@ -1,7 +1,7 @@
 ---
 title: Tu stesso sei la tua malattia e la tua salute. Ma Dio è con te | Free Book
-date: 2024-10-25 15:10:19
-updated: 2024-10-26 11:28:42
+date: 2024-10-24T16:56:49.998Z
+updated: 2024-10-26T22:15:16.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20bec513f01f585101f9799ef187f2dfe6329ff6040bca8a97d2f5358f7686ad.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20bec513f01f585101f9799ef187f2d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

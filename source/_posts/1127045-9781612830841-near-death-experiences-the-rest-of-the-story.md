@@ -1,7 +1,7 @@
 ---
 title: Near-Death Experiences, The Rest of the Story | Free Book
-date: 2024-10-23 21:29:33
-updated: 2024-10-26 12:19:24
+date: 2024-10-24T04:02:13.462Z
+updated: 2024-10-26T23:41:08.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3654027b3d1a7e6cd17a6a1f0c1902ea6cc4c1db5423ec42c20e5fbb4d0501ee.jpg
@@ -176,3 +176,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3654027b3d1a7e6cd17a6a1f0c1902e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

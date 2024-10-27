@@ -1,7 +1,7 @@
 ---
 title: Pilgrimage on the Path of Love | Free Book
-date: 2024-10-24 16:43:27
-updated: 2024-10-26 12:25:22
+date: 2024-10-24T02:28:49.240Z
+updated: 2024-10-26T16:50:08.218Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3609fc6b06c876644f4cc537b54558dced2aa662a0bb2eca2103b91511af9f6f.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3609fc6b06c876644f4cc537b54558d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

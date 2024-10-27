@@ -1,7 +1,7 @@
 ---
 title: The Psychic Immune System | Free Book
-date: 2024-10-25 23:58:20
-updated: 2024-10-26 11:59:39
+date: 2024-10-23T23:55:59.755Z
+updated: 2024-10-26T18:09:31.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3f3d402f1f50268393074c91e3a88f25c075aa06518c8e313393d078331f974.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3f3d402f1f50268393074c91e3a88f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

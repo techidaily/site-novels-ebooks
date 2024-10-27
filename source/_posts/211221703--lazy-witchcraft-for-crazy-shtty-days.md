@@ -1,7 +1,7 @@
 ---
 title: Lazy Witchcraft for Crazy, Sh*tty Days | Free Book
-date: 2024-10-25 18:43:31
-updated: 2024-10-26 12:27:10
+date: 2024-10-19T22:13:21.269Z
+updated: 2024-10-26T23:06:41.964Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7909dc786d47e78f5ce822a29c34984141f274bdc423f10cacc3a4b7f316be3b.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7909dc786d47e78f5ce822a29c34984
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

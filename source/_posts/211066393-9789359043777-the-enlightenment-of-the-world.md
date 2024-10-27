@@ -1,7 +1,7 @@
 ---
 title: The Enlightenment of the World | Free Book
-date: 2024-10-25 15:32:36
-updated: 2024-10-26 10:23:59
+date: 2024-10-19T22:32:13.816Z
+updated: 2024-10-27T02:53:54.197Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1bf5d1c3c234ea35bd2b3f3e72b2e38efc284a01d22ab69c68e65ce9736f3f1.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1bf5d1c3c234ea35bd2b3f3e72b2e3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

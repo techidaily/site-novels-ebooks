@@ -1,7 +1,7 @@
 ---
 title: How to Photograph the Paranormal | Free Book
-date: 2024-10-24 14:22:16
-updated: 2024-10-26 12:19:19
+date: 2024-10-23T19:46:56.837Z
+updated: 2024-10-27T00:35:22.359Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab8e5b7259a2f3c208d44df1aea6a99eeee3f9b975e8db6ab982ac8bad9be0ae.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab8e5b7259a2f3c208d44df1aea6a99
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

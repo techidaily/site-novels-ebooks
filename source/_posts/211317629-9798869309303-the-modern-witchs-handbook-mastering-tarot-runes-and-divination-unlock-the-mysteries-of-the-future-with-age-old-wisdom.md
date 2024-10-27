@@ -1,7 +1,7 @@
 ---
 title: "The Modern Witch's Handbook: Mastering Tarot, Runes, and Divination - Unlock the Mysteries of the Future with Age-Old Wisdom | Free Book"
-date: 2024-10-23 12:25:58
-updated: 2024-10-26 11:23:14
+date: 2024-10-20T19:30:16.822Z
+updated: 2024-10-26T23:13:30.838Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98c11c78e8f5cac9536bcc0b60f5384129623def9bf2ffc256a61361def6aa42.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98c11c78e8f5cac9536bcc0b60f5384
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

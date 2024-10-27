@@ -1,7 +1,7 @@
 ---
 title: Seven Experiments That Could Change the World (2nd ed.) | Free Book
-date: 2024-10-23 11:38:53
-updated: 2024-10-26 12:46:50
+date: 2024-10-19T23:35:30.343Z
+updated: 2024-10-26T16:50:26.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ed5bf8bef773c97b810ec7c85a10e189d4a5c5bbee66531a76f983176145db4.jpg
@@ -180,3 +180,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ed5bf8bef773c97b810ec7c85a10e1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

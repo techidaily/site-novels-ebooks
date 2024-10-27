@@ -1,7 +1,7 @@
 ---
 title: Reality, Spirituality and Modern Man | Free Book
-date: 2024-10-23 22:36:42
-updated: 2024-10-26 12:29:39
+date: 2024-10-25T02:48:56.337Z
+updated: 2024-10-26T17:45:02.976Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c29326fcdaa989600a03f6d8338ae30261e9e6eaa46aab0c6ac6fee2cbd8aea.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c29326fcdaa989600a03f6d8338ae3
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

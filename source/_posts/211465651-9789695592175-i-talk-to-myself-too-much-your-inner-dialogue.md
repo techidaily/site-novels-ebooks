@@ -1,7 +1,7 @@
 ---
 title: "I Talk to Myself Too Much: \"Your Inner Dialogue | Free Book"
-date: 2024-10-25 23:37:25
-updated: 2024-10-26 10:25:40
+date: 2024-10-21T22:47:05.931Z
+updated: 2024-10-26T16:09:30.195Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37e8f5fd2fc17aa3db13af08ac2805a9c9347c2c4c69397ea76b7fdd48cec769.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37e8f5fd2fc17aa3db13af08ac2805a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

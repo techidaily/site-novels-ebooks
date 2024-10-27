@@ -1,7 +1,7 @@
 ---
 title: Ascending with Both Feet On the Ground | Free Book
-date: 2024-10-23 11:19:40
-updated: 2024-10-26 10:32:10
+date: 2024-10-23T03:33:49.036Z
+updated: 2024-10-26T22:06:05.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70bec05e3116c745423c4d7ad7cf678f8f6d992998eb2514e853d24c6e59d5f0.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70bec05e3116c745423c4d7ad7cf678
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

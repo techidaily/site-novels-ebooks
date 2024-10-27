@@ -1,7 +1,7 @@
 ---
 title: Views From Shenir (Mount of Light) | Free Book
-date: 2024-10-24 11:22:54
-updated: 2024-10-26 10:27:49
+date: 2024-10-20T22:02:45.463Z
+updated: 2024-10-26T19:26:29.524Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/46f52465df62885de766d64cc8303ca68025ca4076abb217fc0d64a4cdae61ec.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/46f52465df62885de766d64cc8303ca
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

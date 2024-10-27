@@ -1,7 +1,7 @@
 ---
 title: Ruysbroeck and the Mystics | Free Book
-date: 2024-10-25 16:22:43
-updated: 2024-10-26 12:29:36
+date: 2024-10-22T05:49:35.578Z
+updated: 2024-10-27T04:36:01.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f04d2eccee1bdfe725770b092cfbef1612cfe775a62cbcacf1eed3fa0ae04688.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f04d2eccee1bdfe725770b092cfbef1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

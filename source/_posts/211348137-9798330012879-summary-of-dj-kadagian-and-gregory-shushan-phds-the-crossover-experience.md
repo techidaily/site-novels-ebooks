@@ -1,7 +1,7 @@
 ---
 title: Summary of DJ Kadagian and Gregory Shushan PhD's The Crossover Experience | Free Book
-date: 2024-10-23 15:19:57
-updated: 2024-10-26 12:41:36
+date: 2024-10-20T22:05:30.731Z
+updated: 2024-10-27T01:12:36.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbc4c28fb59093df798afdc052c2acc85c3a26739a4666c1dd89d08cf5a771e0.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbc4c28fb59093df798afdc052c2acc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

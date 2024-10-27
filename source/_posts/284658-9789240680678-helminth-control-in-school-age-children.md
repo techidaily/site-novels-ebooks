@@ -1,7 +1,7 @@
 ---
 title: Helminth Control in School-Age Children | Free Book
-date: 2024-10-25 16:10:35
-updated: 2024-10-26 12:11:36
+date: 2024-10-25T17:32:30.541Z
+updated: 2024-10-26T19:03:38.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac4b45fb354c429d00172964623974d70a5eadb3f125482c3ae3c66840e7888d.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac4b45fb354c429d00172964623974d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

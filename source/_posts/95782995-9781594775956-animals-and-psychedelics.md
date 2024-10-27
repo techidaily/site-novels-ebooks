@@ -1,7 +1,7 @@
 ---
 title: Animals and Psychedelics | Free Book
-date: 2024-10-23 13:31:14
-updated: 2024-10-26 11:50:59
+date: 2024-10-20T03:02:33.875Z
+updated: 2024-10-27T05:36:27.803Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f6e10b50d30cf2e7df0dfec9bfc03d88a7090a4fa1ecde2a3821b8f7a85d8e7.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f6e10b50d30cf2e7df0dfec9bfc03d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Numerology | Free Book
-date: 2024-10-23 21:28:53
-updated: 2024-10-26 10:33:16
+date: 2024-10-21T17:41:56.182Z
+updated: 2024-10-26T18:43:33.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9fde459118742df00dd76d2fa6146b22f719d710b400dac95311d076651c2c0.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9fde459118742df00dd76d2fa6146b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Your Soul Awakens the Sunset | Free Book
-date: 2024-10-24 14:23:54
-updated: 2024-10-26 11:38:20
+date: 2024-10-26T02:30:53.725Z
+updated: 2024-10-27T04:39:15.627Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1846defe98f6acb01f2d774b22ab2a1bacd25a099496c8f1c0942a07287bdf4a.jpg
@@ -187,3 +187,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1846defe98f6acb01f2d774b22ab2a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

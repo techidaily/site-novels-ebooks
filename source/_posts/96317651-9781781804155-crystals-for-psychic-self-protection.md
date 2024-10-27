@@ -1,7 +1,7 @@
 ---
 title: Crystals for Psychic Self-Protection | Free Book
-date: 2024-10-24 11:15:36
-updated: 2024-10-26 10:46:41
+date: 2024-10-26T03:42:57.370Z
+updated: 2024-10-27T05:18:06.563Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd4d2cf43506ef3696f2952746eda869ba256e48a038c2b4c716563b2b5b3918.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd4d2cf43506ef3696f2952746eda86
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

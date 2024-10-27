@@ -1,7 +1,7 @@
 ---
 title: Man Rejected Me but God Chose Me | Free Book
-date: 2024-10-23 23:45:59
-updated: 2024-10-26 10:47:29
+date: 2024-10-25T16:57:51.215Z
+updated: 2024-10-27T00:34:39.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85093e0c71710c8efba00c7fd47a19a55bf2a350a1ed85eb33d026e6755d3712.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85093e0c71710c8efba00c7fd47a19a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Gorgon's Guide to Magical Resistance | Free Book
-date: 2024-10-23 13:57:25
-updated: 2024-10-26 11:17:36
+date: 2024-10-24T21:43:06.694Z
+updated: 2024-10-26T16:33:00.732Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cabcb97b19d40d3b37f88f5a97526dd81c826fbec3f07d92287640d54101fb9.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cabcb97b19d40d3b37f88f5a97526d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

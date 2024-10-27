@@ -1,7 +1,7 @@
 ---
 title: The World's Greatest Unsolved Mysteries | Free Book
-date: 2024-10-25 19:54:29
-updated: 2024-10-26 10:44:21
+date: 2024-10-25T16:04:02.601Z
+updated: 2024-10-26T18:04:40.366Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0afc7c0ced60560bc2065b7d1fc9fec8c5f46ee9dd293178ef10b24ee21ecde.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0afc7c0ced60560bc2065b7d1fc9fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

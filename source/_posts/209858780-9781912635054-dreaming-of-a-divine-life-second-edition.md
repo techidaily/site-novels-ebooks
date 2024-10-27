@@ -1,7 +1,7 @@
 ---
 title: Dreaming of a Divine Life (Second Edition) | Free Book
-date: 2024-10-24 16:39:25
-updated: 2024-10-26 11:59:33
+date: 2024-10-25T02:29:21.966Z
+updated: 2024-10-27T05:00:30.610Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/48a0ccb72a20c960b746e01409e86ade4e969730dc21e222d6780df2b3547034.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/48a0ccb72a20c960b746e01409e86ad
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

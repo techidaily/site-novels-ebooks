@@ -1,7 +1,7 @@
 ---
 title: Jiangan - The Chinese Health Wand | Free Book
-date: 2024-10-24 16:27:52
-updated: 2024-10-26 10:59:38
+date: 2024-10-22T19:53:16.226Z
+updated: 2024-10-26T20:43:44.635Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93a4ba254af3f6654d3a2a82d4f21de130ac29b27c4e98073ef4b0cad470f408.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93a4ba254af3f6654d3a2a82d4f21de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

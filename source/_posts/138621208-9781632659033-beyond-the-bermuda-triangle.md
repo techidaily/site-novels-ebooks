@@ -1,7 +1,7 @@
 ---
 title: Beyond the Bermuda Triangle | Free Book
-date: 2024-10-25 22:14:59
-updated: 2024-10-26 11:58:10
+date: 2024-10-20T19:41:53.135Z
+updated: 2024-10-26T18:34:42.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b1d8c8a78560c9976266294ff5a352e8efcd73db573e67f798dfd63d63b2132.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b1d8c8a78560c9976266294ff5a352
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

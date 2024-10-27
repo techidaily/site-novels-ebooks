@@ -1,7 +1,7 @@
 ---
 title: Divine Mother, Divine Father | Free Book
-date: 2024-10-24 15:15:11
-updated: 2024-10-26 11:49:13
+date: 2024-10-22T00:03:37.773Z
+updated: 2024-10-27T01:07:07.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df7d43c9d06ff0a7c73f270831a7b1f68d50aa8fbc06b276e8f44aba36ec81f2.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df7d43c9d06ff0a7c73f270831a7b1f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

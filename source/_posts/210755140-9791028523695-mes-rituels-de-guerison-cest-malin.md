@@ -1,7 +1,7 @@
 ---
 title: Mes rituels de guérison, c'est malin | Free Book
-date: 2024-10-23 10:11:25
-updated: 2024-10-26 11:39:49
+date: 2024-10-23T03:34:15.394Z
+updated: 2024-10-27T04:24:37.898Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38c0c1a060aafbb3a508e8dca3d89b8f437481d73d4a9afc3db521efbffa4e30.jpg
@@ -153,3 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38c0c1a060aafbb3a508e8dca3d89b8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

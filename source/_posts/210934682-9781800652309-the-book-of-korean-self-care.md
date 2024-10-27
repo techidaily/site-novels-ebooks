@@ -1,7 +1,7 @@
 ---
 title: The Book of Korean Self-Care | Free Book
-date: 2024-10-24 14:44:51
-updated: 2024-10-26 12:53:27
+date: 2024-10-22T20:57:46.722Z
+updated: 2024-10-26T17:02:26.510Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4411914870056ed2fe2aaaa15e08b0a19df34a0b428cd3fed46e961a12c4de3b.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4411914870056ed2fe2aaaa15e08b0a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

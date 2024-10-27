@@ -1,7 +1,7 @@
 ---
 title: Emergence of the Omniverse | Free Book
-date: 2024-10-23 20:52:55
-updated: 2024-10-26 12:38:43
+date: 2024-10-22T22:46:47.174Z
+updated: 2024-10-26T21:31:00.124Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f7c63bc47efb16be127bc43452429e1658c4bef1fa5a43e1364a52fecfda67f.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f7c63bc47efb16be127bc43452429e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

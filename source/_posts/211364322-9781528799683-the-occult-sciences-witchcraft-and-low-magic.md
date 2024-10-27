@@ -1,7 +1,7 @@
 ---
 title: The Occult Sciences - Witchcraft and Low Magic | Free Book
-date: 2024-10-23 20:39:32
-updated: 2024-10-26 12:42:11
+date: 2024-10-23T20:28:25.506Z
+updated: 2024-10-26T22:45:44.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/55586b3eb141c6fdc215a56e31f47965f3ace705a4278c01b66a8306e8a0f090.jpg
@@ -120,3 +120,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/55586b3eb141c6fdc215a56e31f4796
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

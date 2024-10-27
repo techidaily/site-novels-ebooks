@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Rounding the Wheel of the Year | Free Book
-date: 2024-10-25 14:13:31
-updated: 2024-10-26 12:35:25
+date: 2024-10-25T19:33:14.445Z
+updated: 2024-10-26T21:56:01.418Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f2dcb83d8ce93e5517a3c70ba5a3b7f9f31456dd64ad9959cac824c819d50dfe.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f2dcb83d8ce93e5517a3c70ba5a3b7f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

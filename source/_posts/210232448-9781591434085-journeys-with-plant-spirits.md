@@ -1,7 +1,7 @@
 ---
 title: Journeys with Plant Spirits | Free Book
-date: 2024-10-24 17:25:20
-updated: 2024-10-26 12:18:16
+date: 2024-10-24T16:26:44.614Z
+updated: 2024-10-26T18:29:04.152Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/69d366cef538f9a58e5bf6c9eca6c505a30c1b980bbd5351703c491ec4bc6c41.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/69d366cef538f9a58e5bf6c9eca6c50
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

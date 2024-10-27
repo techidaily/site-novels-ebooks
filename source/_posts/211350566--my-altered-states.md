@@ -1,7 +1,7 @@
 ---
 title: My Altered States | Free Book
-date: 2024-10-24 23:43:35
-updated: 2024-10-26 11:39:22
+date: 2024-10-26T05:06:50.293Z
+updated: 2024-10-26T18:57:08.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b5ffb988603a71898a88a287b101c98997964a0ccbb10b8fcae974ac52fb1ea3.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b5ffb988603a71898a88a287b101c98
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

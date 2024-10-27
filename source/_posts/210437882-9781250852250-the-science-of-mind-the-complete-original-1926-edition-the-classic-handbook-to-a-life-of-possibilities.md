@@ -1,7 +1,7 @@
 ---
 title: "The Science of Mind: The Complete Original 1926 Edition -- The Classic Handbook to a Life of Possibilities | Free Book"
-date: 2024-10-25 17:33:42
-updated: 2024-10-26 11:18:40
+date: 2024-10-22T18:47:21.818Z
+updated: 2024-10-26T16:18:23.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa9ec6dd2fbd876010dd21c1e2550a0ea7800cb15b902781d5c370feb9aeec49.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa9ec6dd2fbd876010dd21c1e2550a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

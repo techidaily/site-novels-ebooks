@@ -1,7 +1,7 @@
 ---
 title: Revolutionary Witchcraft | Free Book
-date: 2024-10-24 11:28:31
-updated: 2024-10-26 11:45:38
+date: 2024-10-24T00:03:04.232Z
+updated: 2024-10-26T17:21:18.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ed6e4d75099df24de2a4d15a380813679aeb77714de2075a8cf8fbbc91f0579.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ed6e4d75099df24de2a4d15a380813
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

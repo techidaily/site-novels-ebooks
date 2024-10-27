@@ -1,7 +1,7 @@
 ---
 title: The Rise and Fall of the Nephilim | Free Book
-date: 2024-10-23 23:54:50
-updated: 2024-10-26 10:48:16
+date: 2024-10-24T16:05:36.254Z
+updated: 2024-10-27T00:05:23.434Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/68986134cdcdc194d9ffc90235dfdc7d68f4f8f0a7a694d785b1212911a93652.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/68986134cdcdc194d9ffc90235dfdc7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

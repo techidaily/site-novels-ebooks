@@ -1,7 +1,7 @@
 ---
 title: A Brief Tour of Higher Consciousness (2nd ed.) | Free Book
-date: 2024-10-23 12:41:55
-updated: 2024-10-26 12:36:22
+date: 2024-10-25T17:54:44.156Z
+updated: 2024-10-26T20:56:53.357Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b490b7b801e671ae32ea98b9ec7bade72ca2cc7c2f698b36256a4dc0f88c86eb.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b490b7b801e671ae32ea98b9ec7bade
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

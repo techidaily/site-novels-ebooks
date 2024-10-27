@@ -1,7 +1,7 @@
 ---
 title: Medicine Buddha/Medicine Mind | Free Book
-date: 2024-10-24 16:44:26
-updated: 2024-10-26 12:57:28
+date: 2024-10-20T03:47:29.776Z
+updated: 2024-10-26T20:48:42.997Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5e7f61062c349294798b92a606f33767191104d88266af6c7b48c3815a3e63fe.jpg
@@ -232,3 +232,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5e7f61062c349294798b92a606f3376
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

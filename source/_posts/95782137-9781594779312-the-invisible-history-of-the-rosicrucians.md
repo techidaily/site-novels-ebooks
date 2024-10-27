@@ -1,7 +1,7 @@
 ---
 title: The Invisible History of the Rosicrucians | Free Book
-date: 2024-10-23 18:41:41
-updated: 2024-10-26 10:31:57
+date: 2024-10-22T16:25:58.269Z
+updated: 2024-10-26T21:28:47.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4938ab57aaacf613f17e23e625248d7b6f0ac9a49be37cacbe733f85e54eddd8.jpg
@@ -177,3 +177,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4938ab57aaacf613f17e23e625248d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - The Art of Lithomancy | Free Book
-date: 2024-10-23 14:48:49
-updated: 2024-10-26 12:26:56
+date: 2024-10-23T03:00:55.292Z
+updated: 2024-10-27T00:17:46.024Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd73059175365b5a6c475d46e60bd7d76cc5e6f3e00d1c6b546852db8be365c4.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd73059175365b5a6c475d46e60bd7d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

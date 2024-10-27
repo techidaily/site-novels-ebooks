@@ -1,7 +1,7 @@
 ---
 title: Warrior Goddess Training | Free Book
-date: 2024-10-23 19:57:23
-updated: 2024-10-26 12:49:21
+date: 2024-10-22T22:31:21.450Z
+updated: 2024-10-27T03:33:56.217Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5668f91c0998686cba689a4f675d00b2b8164ce5b1fc44646dce0c89166209d.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5668f91c0998686cba689a4f675d00
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

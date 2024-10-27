@@ -1,7 +1,7 @@
 ---
 title: The Werewolf - Lycanthropy (Fantasy and Horror Classics) | Free Book
-date: 2024-10-23 13:58:23
-updated: 2024-10-26 10:41:55
+date: 2024-10-24T03:00:13.633Z
+updated: 2024-10-27T05:11:10.502Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/05d00377560123f75a467844a08e89df5a1ce70fa14983682d85c43c5500eebf.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/05d00377560123f75a467844a08e89d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

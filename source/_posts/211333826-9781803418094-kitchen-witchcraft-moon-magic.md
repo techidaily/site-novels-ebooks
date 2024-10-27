@@ -1,7 +1,7 @@
 ---
 title: Kitchen Witchcraft & Moon Magic | Free Book
-date: 2024-10-23 17:24:31
-updated: 2024-10-26 11:18:41
+date: 2024-10-20T20:24:28.365Z
+updated: 2024-10-27T00:48:18.269Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adc9d471be0ce376abfbd17f9e73d653eccef4c7133ea2b27daa64c413837c1c.jpg
@@ -144,3 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adc9d471be0ce376abfbd17f9e73d65
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

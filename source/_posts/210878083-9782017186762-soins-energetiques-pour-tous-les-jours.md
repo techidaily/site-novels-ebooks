@@ -1,7 +1,7 @@
 ---
 title: Soins énergétiques pour tous les jours | Free Book
-date: 2024-10-23 23:46:30
-updated: 2024-10-26 11:22:52
+date: 2024-10-23T02:48:49.857Z
+updated: 2024-10-27T03:40:55.616Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66584a9f5609613a9b4db49254e19002190e9ef99f30bf8c65a49f25b6950d37.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66584a9f5609613a9b4db49254e1900
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

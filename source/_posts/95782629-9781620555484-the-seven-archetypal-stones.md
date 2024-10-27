@@ -1,7 +1,7 @@
 ---
 title: The Seven Archetypal Stones | Free Book
-date: 2024-10-24 11:18:22
-updated: 2024-10-26 10:12:59
+date: 2024-10-25T01:42:54.959Z
+updated: 2024-10-26T16:42:31.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a4680dfb9c2bc4b434aa65851f8c3a475d80413eeed50480ac6e9d77cd2121e.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a4680dfb9c2bc4b434aa65851f8c3a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

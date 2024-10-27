@@ -1,7 +1,7 @@
 ---
 title: Liberándote de... libro de ejercicio | Free Book
-date: 2024-10-24 14:59:18
-updated: 2024-10-26 11:47:19
+date: 2024-10-25T21:16:42.958Z
+updated: 2024-10-26T20:55:02.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f222cca95a326daedea762b70b4d56c83e2eec6a81895d89a5f5f738c6b7e8a5.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f222cca95a326daedea762b70b4d56c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

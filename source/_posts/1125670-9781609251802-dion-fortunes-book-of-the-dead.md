@@ -1,7 +1,7 @@
 ---
 title: Dion Fortune's Book of the Dead | Free Book
-date: 2024-10-23 14:54:21
-updated: 2024-10-26 12:45:11
+date: 2024-10-24T05:50:35.267Z
+updated: 2024-10-27T02:16:07.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a33a85dac7659206c26d9236d6b3f707db5bada6993f0cd745e7353d0534f018.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a33a85dac7659206c26d9236d6b3f70
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

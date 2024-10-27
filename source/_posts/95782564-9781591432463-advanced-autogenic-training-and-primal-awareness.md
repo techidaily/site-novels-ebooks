@@ -1,7 +1,7 @@
 ---
 title: Advanced Autogenic Training and Primal Awareness | Free Book
-date: 2024-10-25 15:25:47
-updated: 2024-10-26 12:54:16
+date: 2024-10-19T21:41:36.627Z
+updated: 2024-10-26T18:10:24.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90f080d30064727b2e9e8eb28ab98508c17cc0d663b84b370cc398e07e03bdfb.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90f080d30064727b2e9e8eb28ab9850
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

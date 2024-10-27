@@ -1,7 +1,7 @@
 ---
 title: A Child in Search of God & Truth | Free Book
-date: 2024-10-25 13:39:31
-updated: 2024-10-26 10:13:57
+date: 2024-10-23T00:15:41.397Z
+updated: 2024-10-26T17:33:17.487Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ccde6a68dbfd87bd446f0be7ae3e201add1d4f7007014bf1fb176d255c8ec66.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ccde6a68dbfd87bd446f0be7ae3e20
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Personal Quotes on My Bipolar Life | Free Book
-date: 2024-10-23 13:10:45
-updated: 2024-10-26 11:58:47
+date: 2024-10-22T04:10:14.376Z
+updated: 2024-10-26T18:34:34.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d01b2439801a8863e83a1fab7c6bba91908f9537edff13a0d04ecdc25f0acde.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d01b2439801a8863e83a1fab7c6bba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

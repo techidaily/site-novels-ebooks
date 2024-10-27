@@ -1,7 +1,7 @@
 ---
 title: "Gemini 2023: Your Personal Horoscope | Free Book"
-date: 2024-10-25 19:56:34
-updated: 2024-10-26 10:18:57
+date: 2024-10-24T04:03:22.474Z
+updated: 2024-10-26T20:21:02.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d26640a08248a4b161f0df0322858d06a9bec8ac99200373db812d019b96926.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d26640a08248a4b161f0df0322858d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

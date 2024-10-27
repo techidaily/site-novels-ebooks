@@ -1,7 +1,7 @@
 ---
 title: The Struggle - This is Where Bad Times Begin | Free Book
-date: 2024-10-23 22:28:19
-updated: 2024-10-26 10:55:16
+date: 2024-10-24T03:51:11.630Z
+updated: 2024-10-27T03:13:28.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/680c18a79e78e3ea5dc5f8fd33a69bf8aea1a69eda7b50e1dbff61fed60b7094.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/680c18a79e78e3ea5dc5f8fd33a69bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Imagining Who's Telling Who | Free Book
-date: 2024-10-25 15:12:37
-updated: 2024-10-26 11:52:51
+date: 2024-10-23T03:14:33.028Z
+updated: 2024-10-27T02:11:37.941Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f6a73978d1662a22c63dce5ed6955c0557a0e0690801c7b86c06ea96fae4a32.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f6a73978d1662a22c63dce5ed6955c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

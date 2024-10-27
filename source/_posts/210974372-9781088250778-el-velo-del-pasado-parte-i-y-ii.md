@@ -1,7 +1,7 @@
 ---
 title: El Velo del Pasado. Parte I y II | Free Book
-date: 2024-10-23 11:58:49
-updated: 2024-10-26 11:18:59
+date: 2024-10-20T02:17:06.978Z
+updated: 2024-10-26T17:57:47.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/286891fa06bb0cdf3f6284b568c01946ca09f722d7e1189af2ee25438b100d36.jpg
@@ -148,3 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/286891fa06bb0cdf3f6284b568c0194
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

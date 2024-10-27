@@ -1,7 +1,7 @@
 ---
 title: The Angels Carried Me Between Life and Death for Sixteen Minutes | Free Book
-date: 2024-10-24 15:45:18
-updated: 2024-10-26 12:29:24
+date: 2024-10-20T16:02:34.119Z
+updated: 2024-10-26T17:21:14.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/46a55aa65ef0bb6648aab4d4b8c21973b73d154426ca6c16910e4e49005acdfd.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/46a55aa65ef0bb6648aab4d4b8c2197
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

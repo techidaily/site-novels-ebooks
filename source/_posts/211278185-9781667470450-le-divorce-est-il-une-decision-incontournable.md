@@ -1,7 +1,7 @@
 ---
 title: "Le divorce : est-il une décision incontournable ? | Free Book"
-date: 2024-10-24 21:34:16
-updated: 2024-10-26 10:21:25
+date: 2024-10-24T19:19:48.826Z
+updated: 2024-10-27T01:32:23.142Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d98d7b792dfd8e687338f0b728d651e19989a308362e5c403538b2352e25d676.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d98d7b792dfd8e687338f0b728d651e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

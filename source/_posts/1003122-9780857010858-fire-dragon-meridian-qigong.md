@@ -1,7 +1,7 @@
 ---
 title: Fire Dragon Meridian Qigong | Free Book
-date: 2024-10-23 12:25:11
-updated: 2024-10-26 11:44:43
+date: 2024-10-23T17:06:12.253Z
+updated: 2024-10-27T02:26:25.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a10248f1fa043dce2bff2aabfe17f0d4a1f1a83f1b98d0ff7c8749789eff6da.jpg
@@ -199,3 +199,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a10248f1fa043dce2bff2aabfe17f0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

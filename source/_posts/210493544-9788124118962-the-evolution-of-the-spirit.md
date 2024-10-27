@@ -1,7 +1,7 @@
 ---
 title: The Evolution of the Spirit | Free Book
-date: 2024-10-25 14:50:10
-updated: 2024-10-26 10:56:20
+date: 2024-10-19T20:11:32.972Z
+updated: 2024-10-27T04:46:01.420Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ca9590ce3896e2afaf5e26621e877af985fe8427e3bc409877bcc244d27463f.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ca9590ce3896e2afaf5e26621e877a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: A Field Guide to Demons, Vampires, Fallen Angels and Other Subversive Spirits | Free Book
-date: 2024-10-25 17:26:48
-updated: 2024-10-26 10:25:55
+date: 2024-10-19T20:05:09.825Z
+updated: 2024-10-26T19:58:41.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd60976a6225e9a2e93e8d3c52ca414f69adc7671881d640dba485ab37a3330e.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd60976a6225e9a2e93e8d3c52ca414
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

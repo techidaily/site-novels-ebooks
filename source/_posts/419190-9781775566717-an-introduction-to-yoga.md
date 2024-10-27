@@ -1,7 +1,7 @@
 ---
 title: An Introduction to Yoga | Free Book
-date: 2024-10-24 15:10:14
-updated: 2024-10-26 11:23:38
+date: 2024-10-20T00:34:01.466Z
+updated: 2024-10-26T17:00:24.386Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9a6617d08d4f8d7baee9e33398d5cdf2ac39e9c9978bb1db116a8100ed49f95.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9a6617d08d4f8d7baee9e33398d5cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

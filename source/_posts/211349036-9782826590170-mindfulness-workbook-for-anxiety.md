@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Workbook For Anxiety | Free Book
-date: 2024-10-24 18:40:51
-updated: 2024-10-26 10:36:14
+date: 2024-10-24T21:46:30.585Z
+updated: 2024-10-27T00:20:52.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72e47aeec6bbc0d40184e937f21aa787e4ef31afa2fe5364f2f02a4d5ebffcb4.jpg
@@ -217,3 +217,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72e47aeec6bbc0d40184e937f21aa78
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Mystery Chronicles | Free Book
-date: 2024-10-24 21:35:41
-updated: 2024-10-26 12:51:44
+date: 2024-10-24T20:37:10.522Z
+updated: 2024-10-26T16:11:34.865Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15f66190f8b7e496a5e6267cd4053fe2ca635e39dc5824597fa9fe4ffaa69aeb.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15f66190f8b7e496a5e6267cd4053fe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

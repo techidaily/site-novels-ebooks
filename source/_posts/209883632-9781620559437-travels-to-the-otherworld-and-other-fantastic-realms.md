@@ -1,7 +1,7 @@
 ---
 title: Travels to the Otherworld and Other Fantastic Realms | Free Book
-date: 2024-10-24 16:18:23
-updated: 2024-10-26 11:39:57
+date: 2024-10-26T03:18:29.324Z
+updated: 2024-10-26T20:06:51.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bae1c4dfaf45cf6a88839ab8b92bcb4256c0a99d8dde829ba30e1af052cea52c.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bae1c4dfaf45cf6a88839ab8b92bcb4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

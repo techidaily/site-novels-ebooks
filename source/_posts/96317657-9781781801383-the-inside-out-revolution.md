@@ -1,7 +1,7 @@
 ---
 title: The Inside-Out Revolution | Free Book
-date: 2024-10-23 13:18:34
-updated: 2024-10-26 11:33:58
+date: 2024-10-20T22:27:37.702Z
+updated: 2024-10-27T02:37:56.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ace6f206f62eeb8d8e07b8b935c5d24f2201394fdf76579a285b92d9f6edef62.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ace6f206f62eeb8d8e07b8b935c5d24
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

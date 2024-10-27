@@ -1,7 +1,7 @@
 ---
 title: The sound of the stone being rolled away | Free Book
-date: 2024-10-24 10:42:32
-updated: 2024-10-26 10:10:49
+date: 2024-10-20T17:28:51.434Z
+updated: 2024-10-26T16:37:07.572Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8582bdc981269a9cf849a43ad925fa645ecc3afe733e03d07ef9e280402a29b7.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8582bdc981269a9cf849a43ad925fa6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

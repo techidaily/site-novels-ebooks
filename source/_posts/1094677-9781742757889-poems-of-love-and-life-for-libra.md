@@ -1,7 +1,7 @@
 ---
 title: Poems of Love and Life for Libra | Free Book
-date: 2024-10-25 19:25:18
-updated: 2024-10-26 10:59:41
+date: 2024-10-25T18:23:48.023Z
+updated: 2024-10-26T23:25:49.636Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/571c0ca35c8e6bf44472f8d4e4abb978f8e28e343a21d9ca3437ba685acfa09a.jpg
@@ -169,3 +169,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/571c0ca35c8e6bf44472f8d4e4abb97
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

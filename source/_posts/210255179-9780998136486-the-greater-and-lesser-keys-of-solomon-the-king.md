@@ -1,7 +1,7 @@
 ---
 title: The Greater and Lesser Keys of Solomon the King | Free Book
-date: 2024-10-25 19:45:39
-updated: 2024-10-26 11:48:11
+date: 2024-10-21T00:36:31.489Z
+updated: 2024-10-26T20:27:18.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d763a678b8729011cb385f1ce1b4dabe13812609136419b341db99f4545cfeaf.jpg
@@ -198,3 +198,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d763a678b8729011cb385f1ce1b4dab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

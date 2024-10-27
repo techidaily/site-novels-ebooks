@@ -1,7 +1,7 @@
 ---
 title: CAMPO DE ENTRENAMIENTO BUDISTA | Free Book
-date: 2024-10-25 13:48:54
-updated: 2024-10-26 12:26:12
+date: 2024-10-20T02:16:33.118Z
+updated: 2024-10-27T01:58:53.249Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/948ae6c6dc19cad1a41aee5823081ff5bb9add02f4ba5ae7bf152fa180cdb8ab.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/948ae6c6dc19cad1a41aee5823081ff
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

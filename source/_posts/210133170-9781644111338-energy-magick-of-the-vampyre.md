@@ -1,7 +1,7 @@
 ---
 title: Energy Magick of the Vampyre | Free Book
-date: 2024-10-23 18:37:51
-updated: 2024-10-26 11:43:31
+date: 2024-10-26T04:41:09.974Z
+updated: 2024-10-26T20:43:15.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d7d961867014e7b1f87d9d3d924483a7796c5056f7611ce048eac3155ee8eb3.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d7d961867014e7b1f87d9d3d924483
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

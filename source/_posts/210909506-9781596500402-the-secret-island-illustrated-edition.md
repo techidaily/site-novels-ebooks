@@ -1,7 +1,7 @@
 ---
 title: The Secret Island (Illustrated edition) | Free Book
-date: 2024-10-24 10:14:53
-updated: 2024-10-26 10:57:58
+date: 2024-10-24T04:32:58.118Z
+updated: 2024-10-27T02:11:41.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0966e05ca3628701df55a4e3b69e6011eb1aa4f3cca29716a3602116a10d337.jpg
@@ -166,3 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0966e05ca3628701df55a4e3b69e60
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

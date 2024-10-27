@@ -1,7 +1,7 @@
 ---
 title: Overwhelming Methodology of Deception | Free Book
-date: 2024-10-23 19:51:24
-updated: 2024-10-26 12:57:28
+date: 2024-10-22T19:25:24.938Z
+updated: 2024-10-27T01:40:00.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/332a0e3d61ba44b79aec580630d3c73fc33dd458335e03f02a09ccdec64a0f32.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/332a0e3d61ba44b79aec580630d3c73
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

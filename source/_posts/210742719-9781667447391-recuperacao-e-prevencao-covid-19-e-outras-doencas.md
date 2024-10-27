@@ -1,7 +1,7 @@
 ---
 title: "Recuperação e Prevenção: Covid-19 e outras Doenças | Free Book"
-date: 2024-10-24 18:53:34
-updated: 2024-10-26 11:33:33
+date: 2024-10-24T20:35:16.917Z
+updated: 2024-10-26T16:52:34.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6fbefcd0e708172de56b539d5d74caa4c70bcae784f63af8bccd33d437b1d51d.jpg
@@ -131,3 +131,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6fbefcd0e708172de56b539d5d74caa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Mindfulness at Work For Dummies | Free Book
-date: 2024-10-23 23:16:37
-updated: 2024-10-26 12:25:19
+date: 2024-10-25T05:10:39.762Z
+updated: 2024-10-26T18:10:51.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a81adf617e98ee2112f70694a12f5aac5f40bfefb883793fd2a9b35f48db6e9c.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a81adf617e98ee2112f70694a12f5aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

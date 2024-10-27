@@ -1,7 +1,7 @@
 ---
 title: The Sacred Herbs of Samhain | Free Book
-date: 2024-10-23 21:21:15
-updated: 2024-10-26 11:11:40
+date: 2024-10-26T01:52:40.926Z
+updated: 2024-10-27T01:26:06.393Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/770901d58c5e28fd9e6290e04f6f02b9e3f07400250d5c7e9fef724fa7108c2a.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/770901d58c5e28fd9e6290e04f6f02b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

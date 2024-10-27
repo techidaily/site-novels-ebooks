@@ -1,7 +1,7 @@
 ---
 title: The Mindful Body | Free Book
-date: 2024-10-25 10:23:43
-updated: 2024-10-26 10:42:14
+date: 2024-10-25T18:48:50.174Z
+updated: 2024-10-27T02:49:41.209Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4137f416d29445f23b0453dbb655fd450c257132d236d49ec308013c521d2fc.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4137f416d29445f23b0453dbb655fd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

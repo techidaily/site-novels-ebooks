@@ -1,7 +1,7 @@
 ---
 title: The Foundations of Mindfulness | Free Book
-date: 2024-10-23 21:23:48
-updated: 2024-10-26 11:50:59
+date: 2024-10-22T20:17:45.916Z
+updated: 2024-10-27T02:19:21.969Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e65a1c9ad175682048d05016854487840795d90d7fa0318180695f065ccb80be.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e65a1c9ad175682048d050168544878
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

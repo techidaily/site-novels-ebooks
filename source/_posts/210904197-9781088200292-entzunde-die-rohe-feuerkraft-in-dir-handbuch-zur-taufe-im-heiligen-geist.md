@@ -1,7 +1,7 @@
 ---
 title: Entzünde die rohe Feuerkraft in dir - Handbuch zur Taufe im Heiligen Geist | Free Book
-date: 2024-10-23 17:23:23
-updated: 2024-10-26 11:38:52
+date: 2024-10-21T00:10:55.030Z
+updated: 2024-10-26T20:37:45.490Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca04840c04c33823fa391069d0b3960a59c83d9eac77f1303519ce05a79117c4.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca04840c04c33823fa391069d0b3960
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

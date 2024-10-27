@@ -1,7 +1,7 @@
 ---
 title: "Derek Acorah: Extreme Psychic | Free Book"
-date: 2024-10-25 12:19:13
-updated: 2024-10-26 11:17:26
+date: 2024-10-22T17:37:02.136Z
+updated: 2024-10-26T17:48:10.871Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/319cbb32d1d1ee6a6dd989bb3ad42508a13899782911618f91b5c18a43a76fdb.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/319cbb32d1d1ee6a6dd989bb3ad4250
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

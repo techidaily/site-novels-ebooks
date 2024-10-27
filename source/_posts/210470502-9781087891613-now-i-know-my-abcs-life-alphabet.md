@@ -1,7 +1,7 @@
 ---
 title: Now I know my ABC's Life Alphabet | Free Book
-date: 2024-10-23 10:11:15
-updated: 2024-10-26 11:15:58
+date: 2024-10-24T00:12:59.060Z
+updated: 2024-10-27T04:06:02.159Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/683e26620235d315b4f1d6c30b4147d36cfcf80ece6b992c1d521e794a7b6caf.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/683e26620235d315b4f1d6c30b4147d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

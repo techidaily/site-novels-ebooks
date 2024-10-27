@@ -1,7 +1,7 @@
 ---
 title: The Numerology Guidebook | Free Book
-date: 2024-10-25 10:13:53
-updated: 2024-10-26 12:28:21
+date: 2024-10-25T22:39:25.575Z
+updated: 2024-10-27T00:20:23.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f8c4b082b3774775beb14a99fde6c6443f884c09542c38ebf492f84d4a2cf45.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f8c4b082b3774775beb14a99fde6c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

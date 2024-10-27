@@ -1,7 +1,7 @@
 ---
 title: Awakened Mind (Master Class Series) | Free Book
-date: 2024-10-25 11:47:26
-updated: 2024-10-26 11:50:48
+date: 2024-10-23T21:12:25.754Z
+updated: 2024-10-27T05:41:44.552Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98b050ca3ec0d7313245d4b3d721f249704ec98090e014b87aeb07af6e4cf804.jpg
@@ -127,3 +127,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98b050ca3ec0d7313245d4b3d721f24
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

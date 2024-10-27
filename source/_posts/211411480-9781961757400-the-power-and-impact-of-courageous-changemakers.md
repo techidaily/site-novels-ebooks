@@ -1,7 +1,7 @@
 ---
 title: The Power and Impact of Courageous Changemakers | Free Book
-date: 2024-10-23 15:48:52
-updated: 2024-10-26 12:24:32
+date: 2024-10-25T04:28:42.718Z
+updated: 2024-10-26T20:05:32.006Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/decc94950cb0e127130b4bb2c3f5d0a24c0c3a532763980397ea49035bba95cd.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/decc94950cb0e127130b4bb2c3f5d0a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

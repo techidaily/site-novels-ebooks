@@ -1,7 +1,7 @@
 ---
 title: Empowered by Consciousness | Free Book
-date: 2024-10-24 21:14:42
-updated: 2024-10-26 11:53:54
+date: 2024-10-25T21:22:12.709Z
+updated: 2024-10-26T17:42:55.422Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42135563eafd5347da38f607974357b42aa7cac488afde4e513296e60bb46003.jpg
@@ -178,3 +178,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42135563eafd5347da38f607974357b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

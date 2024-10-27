@@ -1,7 +1,7 @@
 ---
 title: Ce que les défunts me disent | Free Book
-date: 2024-10-25 16:28:31
-updated: 2024-10-26 11:50:41
+date: 2024-10-25T16:48:09.275Z
+updated: 2024-10-26T20:08:54.525Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43574e66d5fa2d172e2f38ef941099f137d293fe60bc1ab2161ff222fa13289c.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43574e66d5fa2d172e2f38ef941099f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

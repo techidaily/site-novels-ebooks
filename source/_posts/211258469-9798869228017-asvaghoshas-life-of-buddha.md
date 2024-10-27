@@ -1,7 +1,7 @@
 ---
 title: Asvaghosha's Life of Buddha | Free Book
-date: 2024-10-23 16:42:50
-updated: 2024-10-26 12:20:52
+date: 2024-10-23T22:50:34.183Z
+updated: 2024-10-26T23:07:32.614Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b277cc4c9fd1a187cb8411e928af062a1652d9f122baaca957137aefa1404e91.jpg
@@ -125,3 +125,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b277cc4c9fd1a187cb8411e928af062
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

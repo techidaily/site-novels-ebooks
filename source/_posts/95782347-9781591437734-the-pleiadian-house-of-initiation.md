@@ -1,7 +1,7 @@
 ---
 title: The Pleiadian House of Initiation | Free Book
-date: 2024-10-24 17:50:25
-updated: 2024-10-26 11:56:48
+date: 2024-10-21T02:32:17.044Z
+updated: 2024-10-26T20:49:47.400Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e83501d5f7c6c5c12d46b0ace1e50fb950c0d92b788483da104fa6225cabdf67.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e83501d5f7c6c5c12d46b0ace1e50fb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

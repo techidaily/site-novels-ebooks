@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2024-10-23 14:49:51
-updated: 2024-10-26 12:17:52
+date: 2024-10-22T00:00:56.738Z
+updated: 2024-10-26T20:37:36.788Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

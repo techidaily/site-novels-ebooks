@@ -1,7 +1,7 @@
 ---
 title: From the Soul of my Rubber Boots | Free Book
-date: 2024-10-24 19:27:10
-updated: 2024-10-26 12:14:21
+date: 2024-10-19T18:05:04.770Z
+updated: 2024-10-26T17:09:23.702Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47634cad33e461a533c868cd366a33d907005f52e2997bc5ed2acd28166e8f00.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47634cad33e461a533c868cd366a33d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

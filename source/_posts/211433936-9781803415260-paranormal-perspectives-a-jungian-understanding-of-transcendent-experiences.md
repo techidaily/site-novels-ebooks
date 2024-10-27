@@ -1,7 +1,7 @@
 ---
 title: "Paranormal Perspectives: A Jungian Understanding of Transcendent Experiences | Free Book"
-date: 2024-10-24 22:26:19
-updated: 2024-10-26 11:49:29
+date: 2024-10-20T04:35:31.175Z
+updated: 2024-10-27T05:02:29.361Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08c275f03f5912b851bd8c47ab1a66f68f6416b4b4d75a5ad997e07fbeccbe7d.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08c275f03f5912b851bd8c47ab1a66f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The World Is Great, and I Am Small | Free Book
-date: 2024-10-25 17:53:55
-updated: 2024-10-26 12:53:41
+date: 2024-10-24T02:47:34.841Z
+updated: 2024-10-27T01:15:16.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/670a18cdf1959bd9bdbb75f6ee4bad8074b55211fafb6d371fa3f95f615642d8.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/670a18cdf1959bd9bdbb75f6ee4bad8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

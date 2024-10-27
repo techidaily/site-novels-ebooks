@@ -1,7 +1,7 @@
 ---
 title: The Roswell Dig Diaries | Free Book
-date: 2024-10-24 10:44:28
-updated: 2024-10-26 12:57:45
+date: 2024-10-19T17:15:25.229Z
+updated: 2024-10-26T22:35:47.174Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/64b8a6e7734f5f5e090a0980c36f4e7b88e8acea57d0a1e3308cfee88e26297b.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/64b8a6e7734f5f5e090a0980c36f4e7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "La energía sanadora del Reiki: Un libro para principiantes para una mejor comprensión | Free Book"
-date: 2024-10-23 20:12:58
-updated: 2024-10-26 12:22:19
+date: 2024-10-23T20:28:18.595Z
+updated: 2024-10-26T19:27:23.378Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/41f440d06b4468ef342e316e863179a8abda781887e6957e74a29bbe018d8737.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/41f440d06b4468ef342e316e863179a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

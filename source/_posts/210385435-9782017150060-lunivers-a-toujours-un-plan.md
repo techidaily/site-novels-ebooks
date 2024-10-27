@@ -1,7 +1,7 @@
 ---
 title: L'univers a toujours un plan | Free Book
-date: 2024-10-24 10:14:54
-updated: 2024-10-26 10:10:21
+date: 2024-10-22T02:20:47.452Z
+updated: 2024-10-27T00:59:05.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cfc76045f72aae783faaf2da9ee1d0d0d16cc4c51743e59e396a540717ca5f77.jpg
@@ -143,3 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cfc76045f72aae783faaf2da9ee1d0d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

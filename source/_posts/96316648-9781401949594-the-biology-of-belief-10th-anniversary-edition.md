@@ -1,7 +1,7 @@
 ---
 title: The Biology of Belief 10th Anniversary Edition | Free Book
-date: 2024-10-25 17:12:24
-updated: 2024-10-26 12:25:22
+date: 2024-10-21T02:29:58.046Z
+updated: 2024-10-26T19:09:45.659Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee8ea185ce23b85c6b8be2e6f94a2542f60a4e8a6bd85336debe303d5465febc.jpg
@@ -285,3 +285,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee8ea185ce23b85c6b8be2e6f94a254
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

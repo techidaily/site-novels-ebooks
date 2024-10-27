@@ -1,7 +1,7 @@
 ---
 title: My Year of Living Spiritually | Free Book
-date: 2024-10-23 21:53:17
-updated: 2024-10-26 10:17:47
+date: 2024-10-23T20:29:06.675Z
+updated: 2024-10-26T17:35:05.579Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76aada9bcf34ce8769b3d6d2cdb002c38cf470b6c94f4466f1bebadaaabaaf6c.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76aada9bcf34ce8769b3d6d2cdb002c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

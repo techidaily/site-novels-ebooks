@@ -1,7 +1,7 @@
 ---
 title: "Meditación: Cómo Meditar Para Eliminar La Ansiedad Y La Depresión (Técnicas De Atención Plena Para Las Personas) | Free Book"
-date: 2024-10-24 12:31:22
-updated: 2024-10-26 12:31:37
+date: 2024-10-20T00:44:29.882Z
+updated: 2024-10-26T16:32:41.826Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc6ebcecc0f83c807e6cdbce6abc1666f20c2bc53dbe7a03541f0e82c2edc2cd.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc6ebcecc0f83c807e6cdbce6abc166
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Extraterrestrials | Free Book
-date: 2024-10-23 18:55:43
-updated: 2024-10-26 12:21:31
+date: 2024-10-23T19:41:30.223Z
+updated: 2024-10-26T22:00:03.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2cdbd46e837b4d15bdaa8b182cd444c89387cbf2b38dda78f4b5f30a33e462b0.jpg
@@ -183,3 +183,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2cdbd46e837b4d15bdaa8b182cd444c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

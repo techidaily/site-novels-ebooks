@@ -1,7 +1,7 @@
 ---
 title: Enslaved By Dimensions Of Time | Free Book
-date: 2024-10-24 18:12:10
-updated: 2024-10-26 10:56:43
+date: 2024-10-25T22:34:07.980Z
+updated: 2024-10-26T20:28:00.382Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1dd0d92ac0af0d336bcf39d2a599dfc407f7c47d9a41217cff016fe2e48cb50a.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1dd0d92ac0af0d336bcf39d2a599dfc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

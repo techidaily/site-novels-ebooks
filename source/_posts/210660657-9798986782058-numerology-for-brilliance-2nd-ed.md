@@ -1,7 +1,7 @@
 ---
 title: Numerology for Brilliance (2nd ed.) | Free Book
-date: 2024-10-25 15:50:52
-updated: 2024-10-26 12:36:52
+date: 2024-10-22T21:19:45.436Z
+updated: 2024-10-27T03:14:36.186Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74ea192a0271fd26ce663af99c28e68e6d7b3f0624c30406cf5aac4ecea9826d.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74ea192a0271fd26ce663af99c28e68
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

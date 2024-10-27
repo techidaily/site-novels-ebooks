@@ -1,7 +1,7 @@
 ---
 title: "Gobekli Tepe: Genesis of the Gods | Free Book"
-date: 2024-10-25 10:43:24
-updated: 2024-10-26 11:12:54
+date: 2024-10-24T17:20:53.666Z
+updated: 2024-10-27T05:26:00.972Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3ea8e996096502a98c8c88dd20a1e0d3ef6a2bb299d09db0a2250b174a47c6e.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3ea8e996096502a98c8c88dd20a1e0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

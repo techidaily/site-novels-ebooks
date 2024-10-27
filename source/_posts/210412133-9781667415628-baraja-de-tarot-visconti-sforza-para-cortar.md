@@ -1,7 +1,7 @@
 ---
 title: Baraja de Tarot Visconti-Sforza para Cortar | Free Book
-date: 2024-10-25 23:52:11
-updated: 2024-10-26 10:16:57
+date: 2024-10-20T00:31:02.210Z
+updated: 2024-10-27T03:04:44.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d3a0d1c0e9382c5474497114c037dfdca419359c76e77a61c936f2e13437248.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d3a0d1c0e9382c5474497114c037df
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

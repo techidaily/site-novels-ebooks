@@ -1,7 +1,7 @@
 ---
 title: Is Stress A Mindset, Or Triggered? | Free Book
-date: 2024-10-25 13:32:11
-updated: 2024-10-26 11:52:31
+date: 2024-10-21T18:10:47.645Z
+updated: 2024-10-26T21:46:06.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f39ed546c61b699ab9f2b6f6859082e2a001a7ef0eb53d2d1b26959838586bf.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f39ed546c61b699ab9f2b6f6859082
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

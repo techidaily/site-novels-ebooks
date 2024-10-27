@@ -1,7 +1,7 @@
 ---
 title: Initiation into Dream Mysteries | Free Book
-date: 2024-10-25 10:18:47
-updated: 2024-10-26 12:45:30
+date: 2024-10-21T17:12:11.592Z
+updated: 2024-10-27T02:12:12.802Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9011326c7a3599d5f04ea73f307ab85fb000c0017af0bc1d7707da5208530fe.jpg
@@ -192,3 +192,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9011326c7a3599d5f04ea73f307ab8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

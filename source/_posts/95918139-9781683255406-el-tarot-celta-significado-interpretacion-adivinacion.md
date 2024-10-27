@@ -1,7 +1,7 @@
 ---
 title: El tarot celta. Significado - interpretación - adivinación | Free Book
-date: 2024-10-24 18:19:29
-updated: 2024-10-26 10:48:28
+date: 2024-10-21T18:18:34.282Z
+updated: 2024-10-26T23:15:27.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6ee42017dbf149eda7efb236702aab34ce001c5159b41601263871f16bc194f.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6ee42017dbf149eda7efb236702aab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

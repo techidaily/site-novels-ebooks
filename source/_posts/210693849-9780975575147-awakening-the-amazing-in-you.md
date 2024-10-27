@@ -1,7 +1,7 @@
 ---
 title: Awakening the Amazing in You | Free Book
-date: 2024-10-25 18:28:59
-updated: 2024-10-26 12:26:22
+date: 2024-10-25T21:22:24.869Z
+updated: 2024-10-27T01:15:42.021Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/725771f51dc1e0bc61d60b4fef2f913339b1384f169707ad8ccda11b2a29799f.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/725771f51dc1e0bc61d60b4fef2f913
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

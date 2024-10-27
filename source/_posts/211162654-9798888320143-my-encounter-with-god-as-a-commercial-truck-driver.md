@@ -1,7 +1,7 @@
 ---
 title: My Encounter With God As A Commercial Truck Driver | Free Book
-date: 2024-10-23 13:38:16
-updated: 2024-10-26 10:27:12
+date: 2024-10-20T20:55:43.225Z
+updated: 2024-10-27T01:31:47.057Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be42563d3d17315993e0c4afc7e3344ae33e592d6077214605cda2e083d20f09.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be42563d3d17315993e0c4afc7e3344
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

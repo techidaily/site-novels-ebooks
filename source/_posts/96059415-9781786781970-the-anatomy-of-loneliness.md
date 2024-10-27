@@ -1,7 +1,7 @@
 ---
 title: The Anatomy of Loneliness | Free Book
-date: 2024-10-23 11:43:45
-updated: 2024-10-26 10:22:12
+date: 2024-10-24T19:22:11.136Z
+updated: 2024-10-26T23:56:42.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44d980686768832e3b0e81491e2b10af7f1405423cea335c18348cfe758a7f02.jpg
@@ -191,3 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44d980686768832e3b0e81491e2b10a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

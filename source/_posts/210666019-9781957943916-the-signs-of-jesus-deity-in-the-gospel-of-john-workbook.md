@@ -1,7 +1,7 @@
 ---
 title: The Signs of Jesus' Deity in the Gospel of John - Workbook | Free Book
-date: 2024-10-25 17:46:57
-updated: 2024-10-26 12:57:54
+date: 2024-10-20T05:20:01.873Z
+updated: 2024-10-26T16:57:42.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c2f05232eaed88ca4a998169a4bd624e3cbde5ab2510c9f62b3defa4c6e3d7d8.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c2f05232eaed88ca4a998169a4bd624
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

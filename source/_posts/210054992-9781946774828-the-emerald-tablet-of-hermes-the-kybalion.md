@@ -1,7 +1,7 @@
 ---
 title: The Emerald Tablet of Hermes & The Kybalion | Free Book
-date: 2024-10-25 21:17:37
-updated: 2024-10-26 10:44:29
+date: 2024-10-23T22:03:19.054Z
+updated: 2024-10-26T21:49:51.642Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9520c8b14747b50c97af1f50f89e29c8c0f23f3182f9c5af2296d8a8303bbda.jpg
@@ -203,3 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9520c8b14747b50c97af1f50f89e29
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

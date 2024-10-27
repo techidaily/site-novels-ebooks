@@ -1,7 +1,7 @@
 ---
 title: Transformative Declarations | Free Book
-date: 2024-10-23 23:14:25
-updated: 2024-10-26 11:57:30
+date: 2024-10-20T18:31:00.098Z
+updated: 2024-10-26T23:20:50.536Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5db3d706363683be286e5e5fc0a0f858ea71cc92c2af42df393157807fb89ea1.jpg
@@ -179,3 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5db3d706363683be286e5e5fc0a0f85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

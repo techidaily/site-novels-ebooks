@@ -1,7 +1,7 @@
 ---
 title: Sanación por Empatía y Guía para la Supervivencia Emocional, Espiritual y Psicológica | Free Book
-date: 2024-10-25 11:42:34
-updated: 2024-10-26 10:18:19
+date: 2024-10-19T21:34:06.187Z
+updated: 2024-10-26T18:37:55.394Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a5dce71859286f60c0d09293fc2d48141dc36fd155dedc73539f93e08f1b790.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a5dce71859286f60c0d09293fc2d48
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

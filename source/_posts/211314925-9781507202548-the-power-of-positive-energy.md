@@ -1,7 +1,7 @@
 ---
 title: The Power of Positive Energy | Free Book
-date: 2024-10-24 17:15:39
-updated: 2024-10-26 12:18:17
+date: 2024-10-19T18:10:17.013Z
+updated: 2024-10-27T00:00:10.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea7c0cec6713221925329c922e2cc4d2c5b8ad85b9b489a1d0e827b46471b4dc.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea7c0cec6713221925329c922e2cc4d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

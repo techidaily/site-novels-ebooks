@@ -1,7 +1,7 @@
 ---
 title: Living the Deepest Truth You Know | Free Book
-date: 2024-10-23 15:47:19
-updated: 2024-10-26 12:32:20
+date: 2024-10-19T18:33:24.207Z
+updated: 2024-10-27T04:13:54.277Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fe269d162802fe1c6157da5a70f1afa5447a1e4229738497b74d6620c517d90.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fe269d162802fe1c6157da5a70f1af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

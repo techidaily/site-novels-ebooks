@@ -1,7 +1,7 @@
 ---
 title: The Constituents of Medicinal Plants (2nd ed.) | Free Book
-date: 2024-10-25 19:53:31
-updated: 2024-10-26 10:19:32
+date: 2024-10-22T16:02:25.937Z
+updated: 2024-10-27T02:00:54.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/690475fa2c12cbb0f782cbc9587d7bfe1682db80b4190e100bc5937dbee574fd.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/690475fa2c12cbb0f782cbc9587d7bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Beyond the Known: Realization | Free Book"
-date: 2024-10-23 12:38:14
-updated: 2024-10-26 12:31:59
+date: 2024-10-21T21:57:39.294Z
+updated: 2024-10-26T16:43:47.565Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3eb07543adf4beb532819feaca236ceb125abe3e2c5d5ad4b06011675a871b7.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3eb07543adf4beb532819feaca236c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

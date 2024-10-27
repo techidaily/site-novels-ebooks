@@ -1,7 +1,7 @@
 ---
 title: The Book of Pendulum Healing | Free Book
-date: 2024-10-24 15:43:30
-updated: 2024-10-26 11:24:37
+date: 2024-10-19T17:26:02.123Z
+updated: 2024-10-26T19:18:33.142Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5382fdfd3a7f4373c13ee9bf4f5caa90413e1fd724b2c02dfd67ebca9de9e4ab.jpg
@@ -193,3 +193,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5382fdfd3a7f4373c13ee9bf4f5caa9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

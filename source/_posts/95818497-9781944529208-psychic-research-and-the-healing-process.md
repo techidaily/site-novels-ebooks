@@ -1,7 +1,7 @@
 ---
 title: Psychic Research and the Healing Process | Free Book
-date: 2024-10-24 10:10:58
-updated: 2024-10-26 10:37:29
+date: 2024-10-23T21:04:53.830Z
+updated: 2024-10-27T04:24:34.595Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db965d4ffd8d319d1099524e6bc8510065ac7c3e20f54c5bae2045ab791429f2.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db965d4ffd8d319d1099524e6bc8510
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

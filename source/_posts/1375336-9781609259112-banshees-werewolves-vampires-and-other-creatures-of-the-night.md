@@ -1,7 +1,7 @@
 ---
 title: Banshees, Werewolves, Vampires, and Other Creatures of the Night | Free Book
-date: 2024-10-23 11:13:23
-updated: 2024-10-26 10:41:57
+date: 2024-10-24T03:43:12.318Z
+updated: 2024-10-27T01:30:32.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ccc09b7c962f3b17195bd12e5de3793b1dcdc2044cad7f51f98ed93354a7409.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ccc09b7c962f3b17195bd12e5de379
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

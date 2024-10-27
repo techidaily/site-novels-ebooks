@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2021: Your Personal Horoscope | Free Book"
-date: 2024-10-24 22:30:42
-updated: 2024-10-26 10:44:27
+date: 2024-10-25T21:58:20.259Z
+updated: 2024-10-27T05:07:59.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/378cead5c7bbedac2ec7184a0c3fc55b09aefc7e8d0d4d90b1eed2d305158d88.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/378cead5c7bbedac2ec7184a0c3fc55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

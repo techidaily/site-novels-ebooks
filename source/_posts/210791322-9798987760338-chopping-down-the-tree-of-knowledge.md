@@ -1,7 +1,7 @@
 ---
 title: Chopping Down the Tree of Knowledge | Free Book
-date: 2024-10-23 23:20:23
-updated: 2024-10-26 11:40:18
+date: 2024-10-21T23:45:30.152Z
+updated: 2024-10-26T17:36:12.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b5a6966aa25c2295ea7ce14e256589c08dcc3ebb97156f25bfb256633c8cf059.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b5a6966aa25c2295ea7ce14e256589c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

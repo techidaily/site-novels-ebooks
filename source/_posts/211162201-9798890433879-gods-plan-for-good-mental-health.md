@@ -1,7 +1,7 @@
 ---
 title: God's Plan for Good Mental Health | Free Book
-date: 2024-10-25 15:30:19
-updated: 2024-10-26 10:20:34
+date: 2024-10-24T21:10:48.835Z
+updated: 2024-10-26T19:37:41.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f502b8be58e46b2e945f0862ea151425ecfe86d40d4312939181810eb98998a2.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f502b8be58e46b2e945f0862ea15142
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

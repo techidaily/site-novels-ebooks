@@ -1,7 +1,7 @@
 ---
 title: Mike Covell Investiga Los Archivos Paranormales | Free Book
-date: 2024-10-25 18:13:29
-updated: 2024-10-26 11:51:15
+date: 2024-10-20T22:42:17.430Z
+updated: 2024-10-26T16:38:15.836Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ca59793a9882e3c48a299d84bbd767338969922f6a1f1891919f043d19893c8.jpg
@@ -129,3 +129,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ca59793a9882e3c48a299d84bbd767
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

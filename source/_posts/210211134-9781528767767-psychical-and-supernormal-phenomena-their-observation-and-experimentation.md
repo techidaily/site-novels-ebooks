@@ -1,7 +1,7 @@
 ---
 title: Psychical and Supernormal Phenomena - Their Observation and Experimentation | Free Book
-date: 2024-10-25 16:43:28
-updated: 2024-10-26 10:19:30
+date: 2024-10-25T00:00:35.345Z
+updated: 2024-10-26T20:08:15.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98e501b80facf41c6113bbb89b558c1bae22ac60f48751b0bd64c988a6d240fe.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98e501b80facf41c6113bbb89b558c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

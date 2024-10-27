@@ -1,7 +1,7 @@
 ---
 title: "The Golden Key: The Complete Original Edition | Free Book"
-date: 2024-10-23 20:20:11
-updated: 2024-10-26 12:23:20
+date: 2024-10-23T18:44:22.893Z
+updated: 2024-10-26T19:02:11.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/39cc0ba9b816d2c552d9b0396942907b915ce9f4942251c80ad611b7be53e112.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/39cc0ba9b816d2c552d9b0396942907
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Secret Society of Moses | Free Book
-date: 2024-10-23 12:38:21
-updated: 2024-10-26 12:54:43
+date: 2024-10-26T04:15:21.937Z
+updated: 2024-10-26T21:09:11.726Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/958ed5adea449e9153a4795fe4f9900e2d823233ac5bef78e8e3f74a64b1a221.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/958ed5adea449e9153a4795fe4f9900
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

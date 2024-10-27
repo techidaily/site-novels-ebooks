@@ -1,7 +1,7 @@
 ---
 title: Something in This Book Is True, Second Edition | Free Book
-date: 2024-10-23 22:27:59
-updated: 2024-10-26 11:21:15
+date: 2024-10-24T04:01:46.851Z
+updated: 2024-10-27T03:24:48.389Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd6588709cd27385a4315aca3e343a0c340f0993a8d4fca94ab47bc9c7c421c6.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd6588709cd27385a4315aca3e343a0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

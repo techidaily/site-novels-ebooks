@@ -1,7 +1,7 @@
 ---
 title: The Mysterious North Shore of Lake Superior (2nd ed.) | Free Book
-date: 2024-10-23 14:39:10
-updated: 2024-10-26 11:31:19
+date: 2024-10-24T00:43:28.718Z
+updated: 2024-10-27T05:40:46.948Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec38824aad71acbb3f6cd03b3bb8d76f6abc44969b253e5a9cc12bf4a1409c93.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec38824aad71acbb3f6cd03b3bb8d76
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

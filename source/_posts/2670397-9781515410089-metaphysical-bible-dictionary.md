@@ -1,7 +1,7 @@
 ---
 title: Metaphysical Bible Dictionary | Free Book
-date: 2024-10-23 10:20:30
-updated: 2024-10-26 12:26:51
+date: 2024-10-19T21:51:40.021Z
+updated: 2024-10-26T16:27:35.063Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/77b719288b68331ed980c4a73f77966a529cf5f6d48013e21d7f80d22ccdb473.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/77b719288b68331ed980c4a73f77966
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

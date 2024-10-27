@@ -1,7 +1,7 @@
 ---
 title: The Hidden Power of the Bible | Free Book
-date: 2024-10-23 23:45:44
-updated: 2024-10-26 10:23:16
+date: 2024-10-23T01:31:52.288Z
+updated: 2024-10-26T17:41:54.393Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/96cf758f3fea4f80963624e365ad69c99fb499876cb1e5d7f52c94281a7bbddd.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/96cf758f3fea4f80963624e365ad69c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "Becoming Lucid: Self-Awareness in Sleeping & Waking Life | Free Book"
-date: 2024-10-24 22:21:25
-updated: 2024-10-26 12:52:51
+date: 2024-10-23T03:26:01.435Z
+updated: 2024-10-26T18:29:49.189Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/68f4664aef0d9c1db9cbfba38b6dd11911cf8fc7329a5507231fbe0fccc3e13c.jpg
@@ -236,3 +236,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/68f4664aef0d9c1db9cbfba38b6dd11
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

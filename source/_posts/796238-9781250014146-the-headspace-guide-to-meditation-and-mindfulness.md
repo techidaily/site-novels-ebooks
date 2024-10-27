@@ -1,7 +1,7 @@
 ---
 title: The Headspace Guide to Meditation and Mindfulness | Free Book
-date: 2024-10-25 20:38:29
-updated: 2024-10-26 10:43:32
+date: 2024-10-24T17:24:16.384Z
+updated: 2024-10-26T21:03:14.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfd844c44bc37d0d242c071d4d9d6d8f791f77492e1ada30efae7240c72084d3.jpg
@@ -194,3 +194,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfd844c44bc37d0d242c071d4d9d6d8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

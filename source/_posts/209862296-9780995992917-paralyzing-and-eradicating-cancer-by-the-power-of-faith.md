@@ -1,7 +1,7 @@
 ---
 title: Paralyzing And Eradicating Cancer By The Power Of Faith. | Free Book
-date: 2024-10-25 20:44:38
-updated: 2024-10-26 10:42:13
+date: 2024-10-22T21:06:09.714Z
+updated: 2024-10-26T23:43:38.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72a0e7ad11d28909771dbca05b2174d92af76e22599841e607ab2037b4637d8b.jpg
@@ -182,3 +182,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72a0e7ad11d28909771dbca05b2174d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

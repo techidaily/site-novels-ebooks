@@ -1,7 +1,7 @@
 ---
 title: I've Never Met A Dead Person I Didn't Like | Free Book
-date: 2024-10-24 15:44:28
-updated: 2024-10-26 11:58:45
+date: 2024-10-20T05:29:44.304Z
+updated: 2024-10-26T19:39:47.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f00dac1a04e630d69863c8765051cfa42db3cee7cb0632c3c8d9c861eb5157cd.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f00dac1a04e630d69863c8765051cfa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

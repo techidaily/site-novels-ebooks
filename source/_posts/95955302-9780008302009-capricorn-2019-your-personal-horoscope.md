@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2019: Your Personal Horoscope | Free Book"
-date: 2024-10-23 23:17:24
-updated: 2024-10-26 11:57:30
+date: 2024-10-24T18:05:33.708Z
+updated: 2024-10-26T17:32:09.926Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ad6c730e143a84dc8ef2696e1beca4e155f75234a5bdbedebdf3a2213e6cf13.jpg
@@ -154,3 +154,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ad6c730e143a84dc8ef2696e1beca4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

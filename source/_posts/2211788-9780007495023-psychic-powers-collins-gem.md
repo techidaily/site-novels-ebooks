@@ -1,7 +1,7 @@
 ---
 title: Psychic Powers (Collins Gem) | Free Book
-date: 2024-10-25 11:41:21
-updated: 2024-10-26 11:52:41
+date: 2024-10-19T20:36:05.632Z
+updated: 2024-10-27T01:21:31.845Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9125a77bd5cd2507be5a1192d49bf7ff83123b24105346ef35826e7b3a95b5f6.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9125a77bd5cd2507be5a1192d49bf7f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

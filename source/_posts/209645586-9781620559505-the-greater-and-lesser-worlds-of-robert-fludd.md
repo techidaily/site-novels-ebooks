@@ -1,7 +1,7 @@
 ---
 title: The Greater and Lesser Worlds of Robert Fludd | Free Book
-date: 2024-10-25 11:47:35
-updated: 2024-10-26 11:30:37
+date: 2024-10-24T03:50:51.203Z
+updated: 2024-10-27T03:17:17.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f60dbbfde957a29acf06249dcf90d6425682048fd9a2c444692c13c5b5d78d25.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f60dbbfde957a29acf06249dcf90d64
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

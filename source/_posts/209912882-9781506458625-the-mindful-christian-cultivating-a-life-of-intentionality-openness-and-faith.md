@@ -1,7 +1,7 @@
 ---
 title: "The Mindful Christian: Cultivating a Life of Intentionality, Openness, and Faith | Free Book"
-date: 2024-10-23 17:43:26
-updated: 2024-10-26 11:17:26
+date: 2024-10-20T21:53:27.415Z
+updated: 2024-10-27T01:04:05.977Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab1537d3bc0b0daa6092495952cdfeb5b1e8366dfc2ded1d51192f6841c3c7b0.jpg
@@ -151,3 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab1537d3bc0b0daa6092495952cdfeb
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

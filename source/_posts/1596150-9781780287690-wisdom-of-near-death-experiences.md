@@ -1,7 +1,7 @@
 ---
 title: Wisdom of Near-Death Experiences | Free Book
-date: 2024-10-25 15:34:47
-updated: 2024-10-26 10:14:53
+date: 2024-10-25T17:38:53.128Z
+updated: 2024-10-27T01:19:36.135Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ba29802d4974e30c6e14280f6add9e8dd760b814e61de60754054361c53a3a9.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ba29802d4974e30c6e14280f6add9e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: O Protesto Revolucionário dos sutiãs | Free Book
-date: 2024-10-23 10:23:51
-updated: 2024-10-26 12:55:41
+date: 2024-10-21T00:31:47.921Z
+updated: 2024-10-26T21:43:54.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9cdb2b3bdf961ca90142c605b1d8ed0ed82d718248a2b074059f15268e4a7916.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9cdb2b3bdf961ca90142c605b1d8ed0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

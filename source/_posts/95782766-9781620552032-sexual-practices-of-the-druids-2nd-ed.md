@@ -1,7 +1,7 @@
 ---
 title: Sexual Practices of the Druids (2nd ed.) | Free Book
-date: 2024-10-23 12:15:41
-updated: 2024-10-26 10:55:13
+date: 2024-10-20T23:44:10.264Z
+updated: 2024-10-26T18:37:07.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0145b710d8b7c1923cc6d30798bd81ad59b7ee1a1e05e8a2484498bc61474bdf.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0145b710d8b7c1923cc6d30798bd81a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

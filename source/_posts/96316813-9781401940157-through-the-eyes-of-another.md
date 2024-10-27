@@ -1,7 +1,7 @@
 ---
 title: Through the Eyes of Another | Free Book
-date: 2024-10-23 14:14:32
-updated: 2024-10-26 10:39:44
+date: 2024-10-22T19:59:06.161Z
+updated: 2024-10-27T01:19:07.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca7a8489d6af8d88b665b427f6cc9cee70e2a194138fef6db587374cc6c0f9e8.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca7a8489d6af8d88b665b427f6cc9ce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

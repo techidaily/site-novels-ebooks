@@ -1,7 +1,7 @@
 ---
 title: What the Dead are Dying to Teach Us | Free Book
-date: 2024-10-23 17:57:58
-updated: 2024-10-26 10:29:10
+date: 2024-10-22T04:54:00.043Z
+updated: 2024-10-27T01:15:41.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30ae746aaec0e59360ec398e297c0b714e167018f801bc81da068c7d17b0ce71.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30ae746aaec0e59360ec398e297c0b7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

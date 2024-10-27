@@ -1,7 +1,7 @@
 ---
 title: Quien más sabe puede mucho. Quien puede ama más. | Free Book
-date: 2024-10-25 17:59:32
-updated: 2024-10-26 10:16:41
+date: 2024-10-19T20:03:07.011Z
+updated: 2024-10-27T04:59:33.878Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ffe09416b467572f82881a5014fbb15fc3a3c9a109a4a48bf723b21180b13a2.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ffe09416b467572f82881a5014fbb1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

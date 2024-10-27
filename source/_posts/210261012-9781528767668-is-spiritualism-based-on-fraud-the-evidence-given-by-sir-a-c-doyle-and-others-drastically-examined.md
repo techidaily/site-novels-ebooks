@@ -1,7 +1,7 @@
 ---
 title: Is Spiritualism Based on Fraud? - The Evidence Given by Sir A. C. Doyle and Others Drastically Examined | Free Book
-date: 2024-10-24 14:17:20
-updated: 2024-10-26 12:41:22
+date: 2024-10-22T18:29:10.556Z
+updated: 2024-10-26T23:21:04.853Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a45809475f3afba6cdad50773b106d7c8f06e1716b662293b7f2e22ae316b3b7.jpg
@@ -135,3 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a45809475f3afba6cdad50773b106d7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Cuando es necesario regresar | Free Book
-date: 2024-10-24 11:53:48
-updated: 2024-10-26 12:28:42
+date: 2024-10-19T19:00:32.338Z
+updated: 2024-10-26T23:00:44.289Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e4fe68f3a2356e34a102fdd33bfb0a1f5a6a3cbecffce951067fce07dc45295d.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e4fe68f3a2356e34a102fdd33bfb0a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

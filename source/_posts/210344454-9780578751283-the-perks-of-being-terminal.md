@@ -1,7 +1,7 @@
 ---
 title: The Perks of Being Terminal | Free Book
-date: 2024-10-23 21:37:34
-updated: 2024-10-26 12:52:43
+date: 2024-10-21T17:39:49.065Z
+updated: 2024-10-27T01:27:51.724Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fbc09205e9a3a754911ea324f829917e639d46cc2c758bf892fb42e4575b83bd.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fbc09205e9a3a754911ea324f829917
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

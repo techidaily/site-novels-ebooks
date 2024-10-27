@@ -1,7 +1,7 @@
 ---
 title: Soul Healing with Our Animal Companions (2nd ed.) | Free Book
-date: 2024-10-24 12:11:28
-updated: 2024-10-26 11:26:59
+date: 2024-10-26T02:27:47.788Z
+updated: 2024-10-26T21:30:31.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff4bfdfa854a251b3c2139fbad740a6277f4c54d857f533cd5eddf0a03ae1e10.jpg
@@ -197,3 +197,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff4bfdfa854a251b3c2139fbad740a6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

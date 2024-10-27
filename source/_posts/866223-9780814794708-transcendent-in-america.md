@@ -1,7 +1,7 @@
 ---
 title: Transcendent in America | Free Book
-date: 2024-10-25 23:40:36
-updated: 2024-10-26 11:53:26
+date: 2024-10-23T05:12:58.759Z
+updated: 2024-10-26T19:33:16.182Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c47e3e56231b221b6d49752ab39abaaa8bb5f0916e7738b518a1a4ad2ff87b0d.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c47e3e56231b221b6d49752ab39abaa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

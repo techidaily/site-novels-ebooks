@@ -1,7 +1,7 @@
 ---
 title: The Life of Buddha and Its Lessons | Free Book
-date: 2024-10-25 22:43:17
-updated: 2024-10-26 12:36:12
+date: 2024-10-23T03:07:36.040Z
+updated: 2024-10-27T00:30:02.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e3772088743327981be1cc96a9c83db709b039f696efde5172cd2545aba9e32.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e3772088743327981be1cc96a9c83d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Betrayal in Psychotherapy and Its Antidotes | Free Book
-date: 2024-10-24 23:29:14
-updated: 2024-10-26 12:31:38
+date: 2024-10-19T21:17:06.718Z
+updated: 2024-10-27T04:24:41.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ab59116f2e7af8c1509936ea1810abb9b4504f05102897f59e73025b0db9f67.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ab59116f2e7af8c1509936ea1810ab
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

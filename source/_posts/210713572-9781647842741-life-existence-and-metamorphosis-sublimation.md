@@ -1,7 +1,7 @@
 ---
 title: Life Existence and Metamorphosis Sublimation | Free Book
-date: 2024-10-25 19:26:20
-updated: 2024-10-26 11:32:13
+date: 2024-10-26T05:14:45.746Z
+updated: 2024-10-26T19:30:08.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cf6b4f9abb84d5d99ce64a5306a48c5e626979c935dec222e853a9aa7bbfc08.jpg
@@ -316,3 +316,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cf6b4f9abb84d5d99ce64a5306a48c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

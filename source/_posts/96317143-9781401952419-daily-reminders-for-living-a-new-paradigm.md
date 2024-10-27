@@ -1,7 +1,7 @@
 ---
 title: Daily Reminders for Living a New Paradigm | Free Book
-date: 2024-10-23 16:53:17
-updated: 2024-10-26 10:44:26
+date: 2024-10-21T02:36:27.016Z
+updated: 2024-10-26T16:15:53.823Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d613bcb4bd0ece0f46aafe58a03b83d8fc55fd4e552888c8eca1ea426b92d34.jpg
@@ -164,3 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d613bcb4bd0ece0f46aafe58a03b83
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

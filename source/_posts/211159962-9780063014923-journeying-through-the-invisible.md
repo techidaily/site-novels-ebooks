@@ -1,7 +1,7 @@
 ---
 title: Journeying Through the Invisible | Free Book
-date: 2024-10-23 13:47:30
-updated: 2024-10-26 11:38:37
+date: 2024-10-21T19:10:32.619Z
+updated: 2024-10-26T16:03:01.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4074b942135c5d82e51d7d0e780c14df0c7b392c2008238041a422207c2fa9ab.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4074b942135c5d82e51d7d0e780c14d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

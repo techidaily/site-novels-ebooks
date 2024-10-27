@@ -1,7 +1,7 @@
 ---
 title: "Los sueños: interpretarlos y dirigirlos | Free Book"
-date: 2024-10-24 18:21:44
-updated: 2024-10-26 12:18:50
+date: 2024-10-23T04:42:13.010Z
+updated: 2024-10-26T16:38:01.624Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1156159535e6f69b1b5d61af90dc8d14bc3ac9892222f65a13921a5331330b1c.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1156159535e6f69b1b5d61af90dc8d1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

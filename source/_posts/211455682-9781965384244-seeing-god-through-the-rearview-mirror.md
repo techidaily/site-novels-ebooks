@@ -1,7 +1,7 @@
 ---
 title: Seeing God through the Rearview Mirror | Free Book
-date: 2024-10-23 13:51:42
-updated: 2024-10-26 11:23:39
+date: 2024-10-19T21:56:41.086Z
+updated: 2024-10-26T17:53:14.770Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e55f57250dbd3c9f3477750e1b8e00e2279e47e24602f1206a9a429c896f0a86.jpg
@@ -124,3 +124,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e55f57250dbd3c9f3477750e1b8e00e
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

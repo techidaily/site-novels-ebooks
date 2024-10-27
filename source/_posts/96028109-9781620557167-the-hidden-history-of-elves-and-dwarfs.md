@@ -1,7 +1,7 @@
 ---
 title: The Hidden History of Elves and Dwarfs | Free Book
-date: 2024-10-23 17:15:34
-updated: 2024-10-26 12:37:31
+date: 2024-10-24T02:06:19.740Z
+updated: 2024-10-26T18:40:10.248Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce71ab17c2320b194bca4a94dc1fab0f50d06952cd1b6f4ead408bca925b23e0.jpg
@@ -212,3 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce71ab17c2320b194bca4a94dc1fab0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: "The Power of ABCs: A Guide to Unlock Your Inner Ceiba | Free Book"
-date: 2024-10-23 23:24:40
-updated: 2024-10-26 12:36:10
+date: 2024-10-19T19:07:32.308Z
+updated: 2024-10-27T01:58:05.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b989a757af5afb4fb9e35bb19da6bf4ffa0ec9d570a038bb060d425f7c70935.jpg
@@ -202,3 +202,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b989a757af5afb4fb9e35bb19da6bf
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

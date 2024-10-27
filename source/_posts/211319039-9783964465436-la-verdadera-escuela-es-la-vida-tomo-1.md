@@ -1,7 +1,7 @@
 ---
 title: La verdadera escuela es la vida. Tomo 1 | Free Book
-date: 2024-10-24 17:19:17
-updated: 2024-10-26 11:35:10
+date: 2024-10-21T17:16:51.974Z
+updated: 2024-10-26T16:46:22.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aed8b703327663f731e0da446e2d14c42bdad85febd49f658a5f2f68a3bc4b0f.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aed8b703327663f731e0da446e2d14c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

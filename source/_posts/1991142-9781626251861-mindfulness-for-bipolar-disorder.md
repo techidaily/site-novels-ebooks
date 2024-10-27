@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Bipolar Disorder | Free Book
-date: 2024-10-23 10:58:27
-updated: 2024-10-26 10:52:42
+date: 2024-10-24T00:32:40.442Z
+updated: 2024-10-26T22:29:36.979Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21bdee717bae478382039e6d5dc73ce1a688694fd2a58a63a8d5fe4ce5c40a49.jpg
@@ -201,3 +201,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21bdee717bae478382039e6d5dc73ce
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

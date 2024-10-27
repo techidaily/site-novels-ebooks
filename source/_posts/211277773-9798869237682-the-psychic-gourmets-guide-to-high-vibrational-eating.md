@@ -1,7 +1,7 @@
 ---
 title: The Psychic Gourmet's Guide to High Vibrational Eating | Free Book
-date: 2024-10-25 12:50:33
-updated: 2024-10-26 11:31:44
+date: 2024-10-24T02:47:56.660Z
+updated: 2024-10-27T02:49:02.906Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bde570a4da7487aca39c015e4d7edc2564bc04ce4ba9808ace83ef4730d077b.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bde570a4da7487aca39c015e4d7edc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2024-10-23 23:10:17
-updated: 2024-10-26 10:40:38
+date: 2024-10-21T05:31:42.279Z
+updated: 2024-10-26T17:56:21.715Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38fe8556417684cae5502d5d79384049e021009b2c6232c108a796d7190e5eaf.jpg
@@ -139,3 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38fe8556417684cae5502d5d7938404
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

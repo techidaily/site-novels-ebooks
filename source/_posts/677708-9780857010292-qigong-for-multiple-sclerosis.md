@@ -1,7 +1,7 @@
 ---
 title: Qigong for Multiple Sclerosis | Free Book
-date: 2024-10-25 18:24:59
-updated: 2024-10-26 11:39:28
+date: 2024-10-20T22:39:42.204Z
+updated: 2024-10-26T18:29:39.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c760dbebd6d6a1bf6ba8bf6a77b6f8d461ce72b582f13413d44ca183d22748f.jpg
@@ -161,3 +161,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c760dbebd6d6a1bf6ba8bf6a77b6f8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

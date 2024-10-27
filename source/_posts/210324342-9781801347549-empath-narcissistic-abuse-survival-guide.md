@@ -1,7 +1,7 @@
 ---
 title: Empath & Narcissistic Abuse Survival Guide | Free Book
-date: 2024-10-23 16:26:51
-updated: 2024-10-26 10:28:27
+date: 2024-10-23T02:26:14.301Z
+updated: 2024-10-27T00:02:11.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d01e92f57e1beef753fcc09b6850a7d9c1e81ad5e7de61425c0d91e97028d3d.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d01e92f57e1beef753fcc09b6850a7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

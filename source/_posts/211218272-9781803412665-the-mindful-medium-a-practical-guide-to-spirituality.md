@@ -1,7 +1,7 @@
 ---
 title: "The Mindful Medium: A Practical Guide to Spirituality | Free Book"
-date: 2024-10-23 10:14:52
-updated: 2024-10-26 11:55:51
+date: 2024-10-21T21:11:37.643Z
+updated: 2024-10-26T19:05:21.746Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c64307accbd1ad9b345df777e4ef4a06d70ed24b28ecceaf42736e24276ffd3.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c64307accbd1ad9b345df777e4ef4a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

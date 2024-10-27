@@ -1,7 +1,7 @@
 ---
 title: The Case of the Disappearing Cancer | Free Book
-date: 2024-10-25 15:29:41
-updated: 2024-10-26 12:10:28
+date: 2024-10-21T01:17:59.352Z
+updated: 2024-10-26T23:46:27.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc414c9365993759e751f7dd83b05b6030d21275d00abca969c56abc8e93d2a6.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc414c9365993759e751f7dd83b05b6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

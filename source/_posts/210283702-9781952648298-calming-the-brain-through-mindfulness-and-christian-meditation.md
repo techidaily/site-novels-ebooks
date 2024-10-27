@@ -1,7 +1,7 @@
 ---
 title: Calming the Brain Through Mindfulness and Christian Meditation | Free Book
-date: 2024-10-25 13:39:53
-updated: 2024-10-26 10:23:54
+date: 2024-10-26T03:34:13.542Z
+updated: 2024-10-27T05:01:07.012Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c00fd1f800972ce815d9a0ead56cfebc6b2d90584bc507d89b64e1dc1072783.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c00fd1f800972ce815d9a0ead56cfe
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

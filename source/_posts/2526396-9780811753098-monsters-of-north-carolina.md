@@ -1,7 +1,7 @@
 ---
 title: Monsters of North Carolina | Free Book
-date: 2024-10-25 17:24:13
-updated: 2024-10-26 12:11:32
+date: 2024-10-25T16:32:15.528Z
+updated: 2024-10-26T16:33:41.876Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be2b1f26dc2751e9043d0dba64e5c8527a7c4b7dd29eb355b9761bb1e794e8c8.jpg
@@ -134,3 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be2b1f26dc2751e9043d0dba64e5c85
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

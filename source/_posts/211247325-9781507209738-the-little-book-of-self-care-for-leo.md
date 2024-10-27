@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Leo | Free Book
-date: 2024-10-24 22:41:39
-updated: 2024-10-26 10:59:12
+date: 2024-10-26T01:42:41.867Z
+updated: 2024-10-27T04:58:17.364Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a5e59ca79a96021c8e4b4e49c50411dc60eef995caaae432c2d35b8944c7728.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a5e59ca79a96021c8e4b4e49c50411
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

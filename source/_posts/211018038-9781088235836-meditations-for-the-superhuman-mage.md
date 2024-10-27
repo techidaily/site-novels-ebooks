@@ -1,7 +1,7 @@
 ---
 title: Meditations for the Superhuman Mage | Free Book
-date: 2024-10-25 15:28:26
-updated: 2024-10-26 10:48:36
+date: 2024-10-25T03:38:49.013Z
+updated: 2024-10-26T23:18:03.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a4547b1150e5cba7eafdb2b01eec6171b49c4097b1384c9f6142f6f557fe9f6.jpg
@@ -189,3 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a4547b1150e5cba7eafdb2b01eec61
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

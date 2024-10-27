@@ -1,7 +1,7 @@
 ---
 title: "Indian Head Massage: Discover the power of touch | Free Book"
-date: 2024-10-23 17:24:56
-updated: 2024-10-26 12:32:21
+date: 2024-10-24T22:06:34.625Z
+updated: 2024-10-26T18:26:54.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ca4fce940f3a1b48a32ab39664ace7a2ca1cc9d5253089d2eed37b4bebedc3e.jpg
@@ -171,3 +171,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ca4fce940f3a1b48a32ab39664ace7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

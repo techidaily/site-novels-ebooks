@@ -1,7 +1,7 @@
 ---
 title: The Shaman's Book of Extraordinary Practices | Free Book
-date: 2024-10-23 15:22:25
-updated: 2024-10-26 12:40:27
+date: 2024-10-20T22:48:46.453Z
+updated: 2024-10-27T03:39:41.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/979902570827227bfaa825741ae2bd832ce4a590c842db24e2e94658b360e9c6.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/979902570827227bfaa825741ae2bd8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

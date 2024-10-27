@@ -1,7 +1,7 @@
 ---
 title: Co-Creating with Nature | Free Book
-date: 2024-10-25 12:52:50
-updated: 2024-10-26 11:36:17
+date: 2024-10-25T02:14:26.992Z
+updated: 2024-10-26T23:46:41.720Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/418ef8ca6bb1e3134fe21291085494d07cee24848fc6d8b7d3b12bf2f4eed5f6.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/418ef8ca6bb1e3134fe21291085494d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

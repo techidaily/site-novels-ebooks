@@ -1,7 +1,7 @@
 ---
 title: Animal Totems and the Gemstone Kingdom | Free Book
-date: 2024-10-25 20:39:15
-updated: 2024-10-26 10:40:32
+date: 2024-10-24T03:28:43.765Z
+updated: 2024-10-26T23:11:53.074Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0421521aafe3e77ffbb27532ce149c12644c0eb20b1768dcc7627a352b7eb7fb.jpg
@@ -190,3 +190,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0421521aafe3e77ffbb27532ce149c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

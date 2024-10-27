@@ -1,7 +1,7 @@
 ---
 title: This Book Will Make You Mindful | Free Book
-date: 2024-10-25 14:10:32
-updated: 2024-10-26 12:14:56
+date: 2024-10-21T00:41:09.225Z
+updated: 2024-10-26T16:02:30.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eff22aba8595874d94647e472a6b8ec97a3bfd21a56365a61f1ef120e6fd5764.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eff22aba8595874d94647e472a6b8ec
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

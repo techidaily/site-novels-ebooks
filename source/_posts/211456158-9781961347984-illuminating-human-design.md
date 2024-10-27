@@ -1,7 +1,7 @@
 ---
 title: Illuminating Human Design | Free Book
-date: 2024-10-24 21:48:54
-updated: 2024-10-26 10:59:30
+date: 2024-10-20T23:18:23.945Z
+updated: 2024-10-26T20:20:57.807Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2a8bd287787085edbdfd446f45b7b109e8750b203c9fea9d4b8e857bc69b14d.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2a8bd287787085edbdfd446f45b7b1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

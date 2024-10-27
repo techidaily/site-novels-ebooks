@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Spiritual Forces Within You | Free Book
-date: 2024-10-23 21:51:43
-updated: 2024-10-26 12:48:56
+date: 2024-10-21T17:30:35.421Z
+updated: 2024-10-26T19:49:01.820Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470b857f14ac64c99772e37190174dfb5c38.jpg
@@ -133,3 +133,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

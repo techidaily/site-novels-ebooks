@@ -1,7 +1,7 @@
 ---
 title: "The Whole Man:A Holistic Guide to Overcoming Impotence | Free Book"
-date: 2024-10-24 18:55:41
-updated: 2024-10-26 11:32:57
+date: 2024-10-24T23:03:10.065Z
+updated: 2024-10-27T01:27:18.281Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45445f9599bf56f7d97eb9f77765f9bdd53cff8c96becde453ae178ec95c8e1e.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45445f9599bf56f7d97eb9f77765f9b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

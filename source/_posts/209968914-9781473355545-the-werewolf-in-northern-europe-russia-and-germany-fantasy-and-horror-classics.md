@@ -1,7 +1,7 @@
 ---
 title: The Werewolf In Northern Europe, Russia, and Germany (Fantasy and Horror Classics) | Free Book
-date: 2024-10-24 22:16:56
-updated: 2024-10-26 11:57:12
+date: 2024-10-20T18:23:37.933Z
+updated: 2024-10-26T23:10:23.811Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e0db3a2201fe9a61f8a0505e37bc55d079bd3a8dd446cbaff7408f28b8508a8.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e0db3a2201fe9a61f8a0505e37bc55
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

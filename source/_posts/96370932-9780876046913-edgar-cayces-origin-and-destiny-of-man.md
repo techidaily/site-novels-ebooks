@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Origin and Destiny of Man | Free Book
-date: 2024-10-24 14:49:26
-updated: 2024-10-26 10:12:28
+date: 2024-10-24T17:19:14.797Z
+updated: 2024-10-27T05:12:49.416Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa2c793124908b958b4a5f62931aa531578.jpg
@@ -130,3 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

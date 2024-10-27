@@ -1,7 +1,7 @@
 ---
 title: You Don't Have to Die to Go to Heaven | Free Book
-date: 2024-10-24 12:18:12
-updated: 2024-10-26 12:51:27
+date: 2024-10-25T20:47:37.628Z
+updated: 2024-10-27T04:02:08.524Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/099b35bb2aa8f9135a4cd0e331fa7cd8d30d03aaf98f2c2236ef95c89edd52b3.jpg
@@ -140,3 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/099b35bb2aa8f9135a4cd0e331fa7cd
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

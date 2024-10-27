@@ -1,7 +1,7 @@
 ---
 title: Ossman & Steel's Classic Household Guide to Appalachian Folk Healing | Free Book
-date: 2024-10-25 18:36:22
-updated: 2024-10-26 12:21:55
+date: 2024-10-24T01:02:23.732Z
+updated: 2024-10-27T01:40:14.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63749d6ef3c146b7b4aa265daba956f079b1a715546e3ed33b7d5a69996dbd47.jpg
@@ -195,3 +195,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63749d6ef3c146b7b4aa265daba956f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

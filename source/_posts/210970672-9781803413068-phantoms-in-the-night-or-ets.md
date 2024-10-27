@@ -1,7 +1,7 @@
 ---
 title: Phantoms in the Night or ETs? | Free Book
-date: 2024-10-24 10:35:48
-updated: 2024-10-26 11:48:39
+date: 2024-10-25T22:49:39.341Z
+updated: 2024-10-27T01:15:46.027Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0fcbb2b81911766695f92bebac266442ef0b9ee014744df9e945220d7a58771.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0fcbb2b81911766695f92bebac2664
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

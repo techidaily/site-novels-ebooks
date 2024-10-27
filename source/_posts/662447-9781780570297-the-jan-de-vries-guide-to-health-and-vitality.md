@@ -1,7 +1,7 @@
 ---
 title: The Jan de Vries Guide to Health and Vitality | Free Book
-date: 2024-10-23 13:53:23
-updated: 2024-10-26 12:47:58
+date: 2024-10-22T21:31:18.805Z
+updated: 2024-10-27T00:04:32.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f854b195fe3a6d435d23416b629dba0c4f0f012c44e13bdc80e5641fc30e4efe.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f854b195fe3a6d435d23416b629dba0
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

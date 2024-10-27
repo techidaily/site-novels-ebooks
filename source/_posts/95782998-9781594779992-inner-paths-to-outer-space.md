@@ -1,7 +1,7 @@
 ---
 title: Inner Paths to Outer Space | Free Book
-date: 2024-10-25 12:15:16
-updated: 2024-10-26 12:39:49
+date: 2024-10-21T20:55:02.795Z
+updated: 2024-10-27T04:00:12.269Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ef4859d3b9b9ba61b16a3aab3814b1ba27a7b209b00a6285e1672239ec7b80db.jpg
@@ -185,3 +185,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ef4859d3b9b9ba61b16a3aab3814b1b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

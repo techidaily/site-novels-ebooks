@@ -1,7 +1,7 @@
 ---
 title: Leitfaden Achtsamkeit Durch Tägliche Meditation | Free Book
-date: 2024-10-23 14:33:58
-updated: 2024-10-26 11:48:42
+date: 2024-10-25T17:06:56.716Z
+updated: 2024-10-27T05:14:56.923Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/caeefebabca34b0978faad2636d55dc76a7bb5f32a1909410fc8f30afdee6b18.jpg
@@ -156,3 +156,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/caeefebabca34b0978faad2636d55dc
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

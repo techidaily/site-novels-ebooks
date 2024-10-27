@@ -1,7 +1,7 @@
 ---
 title: The Everything Birthday Personology Book | Free Book
-date: 2024-10-23 18:33:56
-updated: 2024-10-26 11:28:56
+date: 2024-10-24T21:03:23.330Z
+updated: 2024-10-26T16:07:23.637Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/edd1dd3dd652c1dd1df2831ba82d8b891e29e92b8f75a85a05fdaff5f11c5000.jpg
@@ -132,3 +132,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/edd1dd3dd652c1dd1df2831ba82d8b8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

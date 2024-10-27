@@ -1,7 +1,7 @@
 ---
 title: El poder curativo de la mente | Free Book
-date: 2024-10-24 19:33:39
-updated: 2024-10-26 11:54:13
+date: 2024-10-25T02:43:15.438Z
+updated: 2024-10-27T04:41:01.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adc4f452188aa640768795fc8dbc3f663fed63a08f680670ca5c1015577e276f.jpg
@@ -158,3 +158,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adc4f452188aa640768795fc8dbc3f6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

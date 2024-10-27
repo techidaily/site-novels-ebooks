@@ -1,7 +1,7 @@
 ---
 title: Bajo las manos de la Misericordia | Free Book
-date: 2024-10-25 21:25:26
-updated: 2024-10-26 11:18:13
+date: 2024-10-20T22:15:28.319Z
+updated: 2024-10-26T23:21:26.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8af6028fbe8eab190c6511ceef150014b7193707947ea75c057d207b445429ca.jpg
@@ -172,3 +172,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8af6028fbe8eab190c6511ceef15001
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Blackthorn's Botanical Brews | Free Book
-date: 2024-10-24 23:44:34
-updated: 2024-10-26 10:38:14
+date: 2024-10-22T20:55:20.785Z
+updated: 2024-10-26T16:07:49.529Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b01fb364479b33aad6c7da17371212a486a84ed46f9254c3379e8decd1faa55.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b01fb364479b33aad6c7da17371212
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

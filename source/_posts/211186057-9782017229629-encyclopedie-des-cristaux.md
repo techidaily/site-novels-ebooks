@@ -1,7 +1,7 @@
 ---
 title: Encyclopédie des cristaux | Free Book
-date: 2024-10-24 16:39:24
-updated: 2024-10-26 10:43:28
+date: 2024-10-26T02:06:02.181Z
+updated: 2024-10-26T20:22:09.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6a8f1bb7579df8e50a7b76f55525f74b6699472fa044d681b0b80d793933cc3.jpg
@@ -138,3 +138,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6a8f1bb7579df8e50a7b76f55525f7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

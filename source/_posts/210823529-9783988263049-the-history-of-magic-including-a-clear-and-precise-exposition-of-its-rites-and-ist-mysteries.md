@@ -1,7 +1,7 @@
 ---
 title: The History of Magic Including a Clear and Precise Exposition of its Rites and ist Mysteries | Free Book
-date: 2024-10-23 11:59:13
-updated: 2024-10-26 10:34:43
+date: 2024-10-24T04:50:33.186Z
+updated: 2024-10-27T05:15:25.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbec583d28adcc2fbd54c506c8053af1d49feeb0a9c401b3d5e9b6e82948e73e.jpg
@@ -147,3 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbec583d28adcc2fbd54c506c8053af
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

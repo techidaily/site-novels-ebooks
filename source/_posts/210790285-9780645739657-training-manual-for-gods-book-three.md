@@ -1,7 +1,7 @@
 ---
 title: Training Manual for Gods, Book Three | Free Book
-date: 2024-10-24 11:57:10
-updated: 2024-10-26 11:15:59
+date: 2024-10-23T03:51:17.647Z
+updated: 2024-10-27T05:49:32.293Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90aed23547fae0c2580ea6c0b117952b8e62162d33b83e6c82e45e6611077e12.jpg
@@ -175,3 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90aed23547fae0c2580ea6c0b117952
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Further Journeys with a Shaman Warrior | Free Book
-date: 2024-10-24 13:46:28
-updated: 2024-10-26 11:37:36
+date: 2024-10-25T20:24:10.210Z
+updated: 2024-10-26T16:51:41.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/decfa6b68243a74d62a09447181349707ae1a0a4a61f99be6f4ce34911dc63b8.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/decfa6b68243a74d62a094471813497
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

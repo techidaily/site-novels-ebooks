@@ -1,7 +1,7 @@
 ---
 title: Mind-Body Health and Healing | Free Book
-date: 2024-10-25 13:31:26
-updated: 2024-10-26 11:58:38
+date: 2024-10-22T22:31:41.391Z
+updated: 2024-10-27T04:12:20.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8db117bf091c80d351409c4e99f8d0b8f0.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

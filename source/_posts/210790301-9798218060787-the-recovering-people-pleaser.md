@@ -1,7 +1,7 @@
 ---
 title: The Recovering People Pleaser | Free Book
-date: 2024-10-23 10:38:55
-updated: 2024-10-26 10:15:31
+date: 2024-10-23T03:05:38.716Z
+updated: 2024-10-26T20:09:02.629Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2044018fde4bc969959cf1646c20048faf9084bba1f1288739540dd6680a60c2.jpg
@@ -273,3 +273,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2044018fde4bc969959cf1646c20048
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

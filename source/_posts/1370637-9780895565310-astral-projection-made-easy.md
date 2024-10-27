@@ -1,7 +1,7 @@
 ---
 title: Astral Projection Made Easy | Free Book
-date: 2024-10-24 14:22:31
-updated: 2024-10-26 12:43:47
+date: 2024-10-23T02:21:51.885Z
+updated: 2024-10-26T22:33:40.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c57ed0faf60b82dc7da418043c6051cacabdd2515b2451a4cd700d9b89c5d20e.jpg
@@ -145,3 +145,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c57ed0faf60b82dc7da418043c6051c
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

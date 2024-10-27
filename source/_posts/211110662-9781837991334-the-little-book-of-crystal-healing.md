@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Crystal Healing | Free Book
-date: 2024-10-24 23:59:18
-updated: 2024-10-26 12:23:40
+date: 2024-10-21T16:55:41.092Z
+updated: 2024-10-26T21:36:27.185Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8322bce308c2106fdf802ead2cbdc7af6c921459380a55eb43ac3afe3ef0d1ea.jpg
@@ -155,3 +155,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8322bce308c2106fdf802ead2cbdc7a
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

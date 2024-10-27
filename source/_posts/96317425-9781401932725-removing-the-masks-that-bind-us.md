@@ -1,7 +1,7 @@
 ---
 title: Removing the Masks That Bind Us | Free Book
-date: 2024-10-23 14:43:26
-updated: 2024-10-26 11:37:56
+date: 2024-10-25T16:59:22.693Z
+updated: 2024-10-26T17:58:04.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/937bb63ee94b9452ed5cc3e6421bfd1e0b34951f32cd8240a80cacfa98046a4b.jpg
@@ -146,3 +146,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/937bb63ee94b9452ed5cc3e6421bfd1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

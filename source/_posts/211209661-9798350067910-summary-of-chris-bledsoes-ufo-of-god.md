@@ -1,7 +1,7 @@
 ---
 title: Summary of Chris Bledsoe's UFO of GOD | Free Book
-date: 2024-10-25 16:39:18
-updated: 2024-10-26 11:54:10
+date: 2024-10-21T17:51:42.026Z
+updated: 2024-10-27T00:15:37.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d8f6db7597c676b81bade83ed135c1e5257dac64def7708d3f67abc5bcb27ad.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d8f6db7597c676b81bade83ed135c1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

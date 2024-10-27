@@ -1,7 +1,7 @@
 ---
 title: The New Orleans Voodoo Handbook | Free Book
-date: 2024-10-24 22:48:58
-updated: 2024-10-26 10:34:59
+date: 2024-10-21T03:20:48.773Z
+updated: 2024-10-27T04:34:25.386Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b68a8afabd2b1c02deaa0847a8d77f120cf0a6a080f8fe2d2746f8f456f85255.jpg
@@ -186,3 +186,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b68a8afabd2b1c02deaa0847a8d77f1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

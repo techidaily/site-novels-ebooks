@@ -1,7 +1,7 @@
 ---
 title: "Meditação : Ative Seus Chakras E Reduza A Ansiedade E A Depressão | Free Book"
-date: 2024-10-24 19:17:29
-updated: 2024-10-26 10:25:47
+date: 2024-10-19T16:48:02.045Z
+updated: 2024-10-26T20:38:27.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3741ee590decf0e8d6d802113c25e80d3541af8af03877cfd9e0d08878da5461.jpg
@@ -141,3 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3741ee590decf0e8d6d802113c25e80
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

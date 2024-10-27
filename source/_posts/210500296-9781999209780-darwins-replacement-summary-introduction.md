@@ -1,7 +1,7 @@
 ---
 title: DARWIN'S REPLACEMENT - SUMMARY INTRODUCTION | Free Book
-date: 2024-10-25 13:38:18
-updated: 2024-10-26 10:42:46
+date: 2024-10-22T05:51:17.531Z
+updated: 2024-10-26T20:57:47.463Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/266f4e553fcb7633d0804716c0c3d973eb7b37f7df1a2aa40cf59c890911e847.jpg
@@ -92,3 +92,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/266f4e553fcb7633d0804716c0c3d97
     
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

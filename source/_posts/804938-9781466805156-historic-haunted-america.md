@@ -1,7 +1,7 @@
 ---
 title: Historic Haunted America | Free Book
-date: 2024-10-24 23:50:32
-updated: 2024-10-26 11:12:15
+date: 2024-10-20T18:23:03.105Z
+updated: 2024-10-26T23:09:24.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92e70431e7a9532c5c23114a970c451b40786bdf7a108e8ff7ece7a38159c1e.jpg
@@ -159,3 +159,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92e70431e7a9532c5c23114a970c45
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: Orishas, Goddesses, and Voodoo Queens | Free Book
-date: 2024-10-24 14:47:37
-updated: 2024-10-26 12:14:40
+date: 2024-10-21T01:44:27.218Z
+updated: 2024-10-26T19:14:27.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0bad00424bcaa8c1217e06872106f47e4858804d123cf85667c2fbf9536f342.jpg
@@ -168,3 +168,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0bad00424bcaa8c1217e06872106f4
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

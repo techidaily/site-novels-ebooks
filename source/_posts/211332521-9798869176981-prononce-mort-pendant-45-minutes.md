@@ -1,7 +1,7 @@
 ---
 title: Prononcé mort pendant 45 minutes | Free Book
-date: 2024-10-25 17:25:20
-updated: 2024-10-26 10:27:57
+date: 2024-10-21T19:18:00.363Z
+updated: 2024-10-27T01:18:49.250Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e98951345a3b0d515bcd796fb1acab2c03e9620d45adfad142a42e8f6a4074af.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e98951345a3b0d515bcd796fb1acab2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

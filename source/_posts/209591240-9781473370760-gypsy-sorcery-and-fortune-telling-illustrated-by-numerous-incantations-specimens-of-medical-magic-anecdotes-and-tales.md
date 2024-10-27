@@ -1,7 +1,7 @@
 ---
 title: Gypsy Sorcery and Fortune Telling - Illustrated by Numerous Incantations, Specimens of Medical Magic, Anecdotes and Tales | Free Book
-date: 2024-10-24 20:36:14
-updated: 2024-10-26 10:40:31
+date: 2024-10-21T00:16:41.701Z
+updated: 2024-10-26T22:26:48.194Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/056a536966da11a2e735ac4a51b018fbf502f7e0d059a4f41c3d999592f0f8c0.jpg
@@ -142,3 +142,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/056a536966da11a2e735ac4a51b018f
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

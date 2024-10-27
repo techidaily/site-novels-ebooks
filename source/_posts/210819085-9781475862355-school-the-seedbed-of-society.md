@@ -1,7 +1,7 @@
 ---
 title: School, The Seedbed of Society | Free Book
-date: 2024-10-24 17:30:53
-updated: 2024-10-26 12:35:40
+date: 2024-10-24T20:05:04.792Z
+updated: 2024-10-27T02:44:07.895Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8749761fd91452f3d3f243db9ab6f50af5972a82f64df6d8a49cb13aa9b33e6c.jpg
@@ -173,3 +173,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8749761fd91452f3d3f243db9ab6f50
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

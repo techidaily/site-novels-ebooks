@@ -1,7 +1,7 @@
 ---
 title: Camino Divina—Walking the Divine Way | Free Book
-date: 2024-10-24 22:20:15
-updated: 2024-10-26 12:29:46
+date: 2024-10-25T01:32:34.603Z
+updated: 2024-10-26T16:20:24.933Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71c04a16164549d13f634357b99c0191c170a082ca2f8893e3a0e9e0f4945431.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71c04a16164549d13f634357b99c019
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

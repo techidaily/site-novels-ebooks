@@ -1,7 +1,7 @@
 ---
 title: The Green Witch Illustrated | Free Book
-date: 2024-10-25 12:15:47
-updated: 2024-10-26 10:26:36
+date: 2024-10-19T18:26:21.630Z
+updated: 2024-10-26T22:50:24.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f66225e53efd817ed36be113d06f5c7a9d133045e62e45d33505177a2bf2dea1.jpg
@@ -136,3 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f66225e53efd817ed36be113d06f5c7
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

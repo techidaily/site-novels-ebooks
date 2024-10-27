@@ -1,7 +1,7 @@
 ---
 title: Need of the Hour/Spiritual Resource Development | Free Book
-date: 2024-10-25 17:51:38
-updated: 2024-10-26 11:31:49
+date: 2024-10-23T18:55:10.488Z
+updated: 2024-10-26T17:26:58.326Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0633bfb9173267f383cdf173c198d0b9b154846d743da19755d8badb1caeff8a.jpg
@@ -150,3 +150,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0633bfb9173267f383cdf173c198d0b
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

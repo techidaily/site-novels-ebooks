@@ -1,7 +1,7 @@
 ---
 title: Psychiatry and the Spirit World | Free Book
-date: 2024-10-24 17:39:54
-updated: 2024-10-26 11:51:16
+date: 2024-10-25T18:31:34.570Z
+updated: 2024-10-26T23:20:47.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ffc76016bdf23c2c57cbb66f34507ddf9cefed58762ed7a1f164cab13f5457a.jpg
@@ -188,3 +188,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ffc76016bdf23c2c57cbb66f34507d
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

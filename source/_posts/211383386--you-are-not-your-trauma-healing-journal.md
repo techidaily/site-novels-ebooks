@@ -1,7 +1,7 @@
 ---
 title: You Are Not Your Trauma Healing Journal | Free Book
-date: 2024-10-23 14:52:55
-updated: 2024-10-26 12:28:41
+date: 2024-10-20T20:08:05.514Z
+updated: 2024-10-26T20:18:42.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8936d605592e88028e6d23dfc4d379891489e2cb314bb91e32fb197700392c7a.jpg
@@ -167,3 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8936d605592e88028e6d23dfc4d3798
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Betrayal & HOW I CONTINUE TO OVERCOME IT'S NOT PERSONAL - IT'S FACTS (REVISED) | Free Book
-date: 2024-10-24 17:30:42
-updated: 2024-10-26 12:32:56
+date: 2024-10-23T00:29:16.476Z
+updated: 2024-10-26T23:34:02.032Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cb02023ba473ba3cd426dbcc3dd92f9cac24a993e0504d6406f68836952a358f.jpg
@@ -165,3 +165,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cb02023ba473ba3cd426dbcc3dd92f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

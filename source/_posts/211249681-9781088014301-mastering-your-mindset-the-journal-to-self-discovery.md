@@ -1,7 +1,7 @@
 ---
 title: Mastering Your Mindset, The Journal to Self-Discovery | Free Book
-date: 2024-10-25 14:17:24
-updated: 2024-10-26 12:11:15
+date: 2024-10-24T00:55:16.253Z
+updated: 2024-10-26T22:20:00.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19690095a4ad784e8a3af89fafd49a1683d78dd1e4fff0956ed088d1adb67f8b.jpg
@@ -128,3 +128,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19690095a4ad784e8a3af89fafd49a1
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

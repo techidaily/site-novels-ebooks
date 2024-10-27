@@ -1,7 +1,7 @@
 ---
 title: Why Is Communication So Difficult, Particularly Between Lovers? | Free Book
-date: 2024-10-23 11:40:38
-updated: 2024-10-26 11:13:23
+date: 2024-10-21T18:33:24.356Z
+updated: 2024-10-26T20:46:07.748Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba02d0595eef03cefab50e725b75bcb8401.jpg
@@ -162,3 +162,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

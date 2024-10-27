@@ -1,7 +1,7 @@
 ---
 title: A Pagan Ritual Prayer Book | Free Book
-date: 2024-10-23 20:41:35
-updated: 2024-10-26 10:30:50
+date: 2024-10-22T20:31:48.075Z
+updated: 2024-10-27T04:27:37.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bddd468e5ec99cc41a519ce98857f658d98b8746f42cd09b0ce3a3610cd4b8af.jpg
@@ -163,3 +163,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bddd468e5ec99cc41a519ce98857f65
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

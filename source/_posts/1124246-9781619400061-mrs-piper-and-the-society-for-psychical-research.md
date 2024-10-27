@@ -1,7 +1,7 @@
 ---
 title: Mrs. Piper and the Society for Psychical Research | Free Book
-date: 2024-10-24 22:46:31
-updated: 2024-10-26 12:18:59
+date: 2024-10-25T19:33:19.871Z
+updated: 2024-10-27T02:48:13.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd6633d01beed7c6433309bdf2545e8b90d3be2bdebba47e3fca9d51bf77b65c.jpg
@@ -170,3 +170,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd6633d01beed7c6433309bdf2545e8
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

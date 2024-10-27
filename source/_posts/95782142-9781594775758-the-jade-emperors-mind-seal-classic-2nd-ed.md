@@ -1,7 +1,7 @@
 ---
 title: The Jade Emperor's Mind Seal Classic (2nd ed.) | Free Book
-date: 2024-10-24 20:37:28
-updated: 2024-10-26 12:49:22
+date: 2024-10-23T02:49:59.008Z
+updated: 2024-10-27T00:44:06.345Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/568f090958b68f9f0d8ce9f501b703676e198da1eca24993d649c7671a0e3ab8.jpg
@@ -174,3 +174,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/568f090958b68f9f0d8ce9f501b7036
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

@@ -1,7 +1,7 @@
 ---
 title: The Transformative Power of Near-Death Experiences | Free Book
-date: 2024-10-25 10:18:52
-updated: 2024-10-26 11:16:31
+date: 2024-10-19T17:30:52.436Z
+updated: 2024-10-27T00:01:20.170Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02574efffbb31c731db97fca56560e6ad4915185e466ebcb5c81c909fccd89d1.jpg
@@ -204,3 +204,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02574efffbb31c731db97fca56560e6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

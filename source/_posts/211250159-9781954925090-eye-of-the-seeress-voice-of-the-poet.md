@@ -1,7 +1,7 @@
 ---
 title: Eye of the Seeress / Voice of the Poet | Free Book
-date: 2024-10-23 13:44:15
-updated: 2024-10-26 10:11:23
+date: 2024-10-25T19:40:43.265Z
+updated: 2024-10-27T01:09:35.415Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/212ec7c4027dd167c146e256c6988f9abc524d4341f190d3677858d85b366e9d.jpg
@@ -126,3 +126,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/212ec7c4027dd167c146e256c6988f9
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

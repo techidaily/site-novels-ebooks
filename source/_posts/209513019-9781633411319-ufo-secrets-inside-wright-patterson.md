@@ -1,7 +1,7 @@
 ---
 title: UFO Secrets Inside Wright-Patterson | Free Book
-date: 2024-10-24 15:43:49
-updated: 2024-10-26 12:18:41
+date: 2024-10-20T18:00:13.702Z
+updated: 2024-10-26T16:00:11.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95b934b21e477a231f055a92a2e91c6f930f56f76c8bf5626e10d8059feaded7.jpg
@@ -216,3 +216,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95b934b21e477a231f055a92a2e91c6
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

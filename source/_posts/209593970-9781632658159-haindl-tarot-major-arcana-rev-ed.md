@@ -1,7 +1,7 @@
 ---
 title: Haindl Tarot, Major Arcana, Rev Ed. | Free Book
-date: 2024-10-24 10:32:28
-updated: 2024-10-26 12:31:37
+date: 2024-10-24T19:07:03.061Z
+updated: 2024-10-27T04:52:37.872Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a7451f5891257bf2f79a8975f6a9582fd3653af2a6aa546c73650abeeb717ff.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a7451f5891257bf2f79a8975f6a958
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

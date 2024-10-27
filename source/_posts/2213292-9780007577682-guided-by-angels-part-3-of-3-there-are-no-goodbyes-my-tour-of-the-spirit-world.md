@@ -1,7 +1,7 @@
 ---
 title: "Guided By Angels: Part 3 of 3: There Are No Goodbyes, My Tour of the Spirit World | Free Book"
-date: 2024-10-23 20:51:59
-updated: 2024-10-26 10:35:11
+date: 2024-10-20T03:53:22.614Z
+updated: 2024-10-27T05:51:47.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f982581733a30655912b64949a87def5f9489c54b01393453671f2d9fa0afb0.jpg
@@ -152,3 +152,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f982581733a30655912b64949a87de
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

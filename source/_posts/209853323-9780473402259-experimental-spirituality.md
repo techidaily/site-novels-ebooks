@@ -1,7 +1,7 @@
 ---
 title: Experimental Spirituality | Free Book
-date: 2024-10-24 14:24:48
-updated: 2024-10-26 11:33:15
+date: 2024-10-23T03:51:23.430Z
+updated: 2024-10-26T19:01:12.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a41f0db1e619c9c03a415410c1faa574771027ee70ff85048344d2a0e38ec6a.jpg
@@ -149,3 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a41f0db1e619c9c03a415410c1faa5
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

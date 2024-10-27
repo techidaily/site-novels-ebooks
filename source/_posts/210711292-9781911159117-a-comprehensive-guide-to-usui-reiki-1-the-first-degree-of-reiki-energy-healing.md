@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide To Usui Reiki 1. The First Degree Of Reiki Energy Healing | Free Book
-date: 2024-10-24 18:54:20
-updated: 2024-10-26 11:27:18
+date: 2024-10-22T16:57:45.231Z
+updated: 2024-10-26T21:57:25.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a9dd7930da53d76b96fd16c3e510372834d4b355b92a19782222f3950fe4b32d.jpg
@@ -160,3 +160,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a9dd7930da53d76b96fd16c3e510372
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    

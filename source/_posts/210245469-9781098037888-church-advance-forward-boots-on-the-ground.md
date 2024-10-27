@@ -1,7 +1,7 @@
 ---
 title: Church Advance Forward, Boots on the Ground | Free Book
-date: 2024-10-23 21:33:57
-updated: 2024-10-26 12:21:53
+date: 2024-10-21T22:09:19.736Z
+updated: 2024-10-26T22:26:10.621Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a03840f68e2d127dd60dd3da0c84c291d20fa06ac26f3fa4f35c83d719e23ab.jpg
@@ -157,3 +157,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a03840f68e2d127dd60dd3da0c84c2
     </script>
   </div>
 </main>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+    
