@@ -1,0 +1,157 @@
+---
+title: "La energía sanadora del Reiki: Un libro para principiantes para una mejor comprensión | Free Book"
+date: 2024-10-23 20:12:58
+updated: 2024-10-26 12:22:19
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/41f440d06b4468ef342e316e863179a8abda781887e6957e74a29bbe018d8737.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        Lewis Haas, Melany Farías Márquez (trans.)
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/02957b15db5c433b813ab545ccc2e98a5c6070da76ccc267e1ca8930543a9c7c.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >One Jacked Monkey, LLC</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2"
+              >May 2018; Copyright</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781507161692</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >La energía sanadora del Reiki</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2"
+              >Lewis Haas; Melany Farías Márquez (trans.)</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2"
+              >One Jacked Monkey, LLC</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">Spanish</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">74</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          Aprenda a cómo cambiar profundamente su&nbsp;vida&nbsp;con el poder
+          sanador del arte del Reiki<br />¿Le gustaría sentirse&nbsp;energizado
+          física y emocionalmente? ¿Necesita deshacerse de la ansiedad o
+          depresión? ¿Se imagina sentiéndose más fuerte mental y emocionalmente?
+          ¿Y si pudiese aliviar el dolor físico y emocional? ¿Quiere liberar
+          traumas del pasado y finalmente sanarse? ¿Qué pensaría si pudiera
+          mejorar su autoestima, encontrar su camino en la vida, estar libre de
+          enojo, preocupación y dudas? ¿Le gustaría crear&nbsp;salud vibrante
+          para usted y otros?<br />La solución es simple y natural, el Reiki.
+          Luego de leer "La energía sanadora del Reiki: Un libro para
+          principiantes para una mejor comprensión" sabrá lo que es el Reiki y
+          cómo desbloquear su poder. El arte de sanación del Reiki es una forma
+          increíble de crear una vida llena de salud, felicidad y abundancia."La
+          energía sanadora del Reiki" incluye:<br />•Las numerosas ventajas y
+          las ilimitadas posibilidades&nbsp;de la transferencia de energía<br />•Cómo
+          el Reiki afecta positivamente a quien lo da y a quien lo recibe<br />•Cómo
+          lo ayuda a convertirse en su mejor versión<br />•Descubrir cómo
+          funciona el Reiki para usted y sus seres queridos<br />•Darse cuenta
+          de sus puntos débiles y equilibrarse.<br />•Mejorar su salud<br />•Los
+          símbolos y técnicas del Reiki para liberar situaciones pasadas, sanar
+          traumas, perdonar a otros, eliminar bloqueos emocionales, crear nuevos
+          hábitos inspiradores y atraer abundancia<br />•Los pasos que tiene que
+          seguir para convertirse en un practicante de Reiki<br />•Convertirse
+          en un profesional del Reiki exitoso<br />•Respuestas a preguntas
+          comunes y conceptos erróneos del Reiki<br />•La historia y datos
+          interesantes sobre el Reiki<br />•Entender técnicas un poco más
+          avanzadas<br />•¡Y mucho más!<br />¡Con el Reiki, la calidad de su
+          vida está
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"></div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/96201136/la-energ-a-sanadora-del-reiki-un-libro-para-principiantes-para-una-mejor-comprensi-n/lewis-haas/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

@@ -1,0 +1,161 @@
+---
+title: Touching the Light, Day by Day | Free Book
+date: 2024-10-25 10:44:27
+updated: 2024-10-26 10:30:22
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/9cfbe1e6fe5d1d922f14c66eb418ed7c9b94a37e246e516aca1258b88c1e29b2.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">365 Illuminations to Live By</div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/d6d013d0e32f313bc430ff95aa8a845e931bb6654d40395a95e691794344f966.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >Red Wheel/Weiser</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2">December 2012</span>
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781609256401</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >Touching the Light, Day by Day</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2"
+              >Meg Blackburn Losey</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Weiser Books</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">178</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <b
+            >Embark on a year-long journey of spiritual and personal growth with
+            daily affirmations to guide you every step of the way.</b
+          ><br />
+          &nbsp;<br />
+          Meg Losey is a spiritual teacher with her feet planted firmly on the
+          ground. Her teachings help readers “get real,” claim their own power,
+          and use it for the good of their mind, body, and spirit of others.<br />
+          &nbsp;<br /><i>Touching the Light Day by Day</i> offers 365 quotes and
+          brief healing and inspiring meditations. It’s a great book for either
+          beginning or deepening a practice. It’s invaluable for both the novice
+          and the expert to get in touch with their own inner voices and spirit
+          guides. Losey invites us to open our hearts and merge with God
+          Consciousness, something, as she teaches, anyone can do.<br />
+          &nbsp;<br />
+          This little gem of a book is Meg Losey’s gift to her readers. These
+          illuminations come to her each morning. She invites readers to use
+          them as they will—for daily meditation. Or open at random to find a
+          helpful thought. Or use them to invite your own spirit guides into
+          your lives.
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- excerpts-->
+      <div class="book-excerpts-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>About the Author</span>
+        </h4>
+        <p>
+          Meg Blackburn Losey, PhD, is the author of several books including The
+          Secret History of Consciousness, Touching the Light, and the
+          international bestseller The Children of Now. She is the
+          creator/channeler of The Living Light Cards. Dr. Meg is a Master
+          Healer, speaker, and teacher and an ordained minister in both
+          Spiritual Science and Metaphysics. She is a PhD of Holistic Life
+          Coaching and holds a Doctoral Degree in Metaphysics. She lives in
+          eastern Washington. Visit her at: www.spiritlite.com.
+        </p>
+      </div>
+    </div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/210002049/touching-the-light-day-by-day/meg-blackburn-losey/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

@@ -1,0 +1,162 @@
+---
+title: Through the Eyes of Another | Free Book
+date: 2024-10-23 14:14:32
+updated: 2024-10-26 10:39:44
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/ca7a8489d6af8d88b665b427f6cc9cee70e2a194138fef6db587374cc6c0f9e8.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        A Medium's Guide to Creating Heaven on Earth by Encountering Your Life
+        Review Now
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/3a8a91e0d68f025945329736f8d705e443fb8312925c2927005f92828c6fa7c9.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2">Hay House</span>
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2">July 2012</span>
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781401940157</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >Through the Eyes of Another</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2">Karen Noe</span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Hay House LLC</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">240</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <b
+            >The lesson from beyond this world that allows everyone to
+            understand and transform their lives</b
+          ><br /><br />As a psychic medium, <b>Karen Noe</b> often receives
+          messages of regret—deceased loved ones communicate that they’re now
+          able to see that they should have said or done things differently when
+          they were still on Earth. In <i>Through the Eyes of Another</i>, Karen
+          shows that you don’t have to die to go through your life review. You
+          can go through it now . . . before it’s too late. <br /><br />Karen
+          explains how writing different types of letters can help you see the
+          "bigger picture" of the way you’re affecting those in your path. She
+          takes you on a personal journey of how her life was transformed after
+          she wrote these types of letters to her loved ones, and then goes on
+          to demonstrate how you can do the same. <br /><br />By seeing
+          everything through the eyes of others, you will learn how to:
+          <br /><br />&nbsp;&nbsp;&nbsp;•&nbsp;Heal your relationships
+          <br />&nbsp;&nbsp;&nbsp;•&nbsp;Love and honor yourself
+          <br />&nbsp;&nbsp;&nbsp;•&nbsp;Forgive your living and deceased loved
+          ones <br />&nbsp;&nbsp;&nbsp;•&nbsp;See more positive aspects in those
+          around you <br />&nbsp;&nbsp;&nbsp;•&nbsp;Understand more fully why
+          others do certain things <br />&nbsp;&nbsp;&nbsp;•&nbsp;Become more
+          compassionate<br /><br /><br />As an added bonus, Karen shares stories
+          from her favorite readings to answer some of the most common questions
+          people have concerning the afterlife.
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- excerpts-->
+      <div class="book-excerpts-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>About the Author</span>
+        </h4>
+        <p>
+          Karen Noe is a psychic medium and author of The Rainbow Follows the
+          Storm: How to Obtain Inner Peace by Connecting with Angels and
+          Deceased Loved Ones. She is the founder of the Angel Quest Center in
+          Ramsey, NJ, where she teaches classes, gives readings, and practices
+          alternative healing. You can listen to Karen on The Angel Quest Radio
+          Show by tuning to www.wrcr.com on the first Saturday of every month.
+        </p>
+      </div>
+    </div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/96316813/through-the-eyes-of-another/karen-noe/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

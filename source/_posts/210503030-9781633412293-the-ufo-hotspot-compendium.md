@@ -1,0 +1,168 @@
+---
+title: The UFO Hotspot Compendium | Free Book
+date: 2024-10-23 20:28:57
+updated: 2024-10-26 10:18:53
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/2509624896740632e5dd2c46d1ecc33138da41a48b1898b5dcdc0cc16ee831a9.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        All the Places to Visit Before You Die or Are Abducted
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/4470fe0e44fd2e9b29e5986cd9c1089edc99b1b11cf70f92e62f6bd30d6a952d.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >Red Wheel Weiser</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2">October 2022</span>
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781633412293</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >The UFO Hotspot Compendium</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2">Craig Campobasso</span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">MUFON</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">256</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <p>
+            <b
+              >The definitive UFO hunter's bucket list of legendary and active
+              UFO and alien hotspots in North America</b
+            ><br />
+            &nbsp;<br /><i>The UFO Hotspot Compendium </i>will take you on your
+            own behind-the-scenes trip to some of the most visited UFO
+            hotspots—areas where aliens and cryptids are spotted, forbidden
+            scary locations, as well as terrifying places only the brave dare to
+            visit.<br /><br />
+            Based on first-hand information gleaned from MUFON’s trained
+            investigators and researchers, interviews with people who have had
+            extraordinary UFO experiences, and the author’s travel to many of
+            the locations, this book is a guided tour of thirty-five of the most
+            remarkable UFO-related sites: the when, where, backstory,
+            investigations, and things to do when visiting the site. Included
+            are MUFON’s top twenty-five places known for the most UFO sightings,
+            legendary spots known for UFO activity, alien kitsch sites,
+            locations that have the added benefit of sacred retreats, and places
+            you might not want to visit but should know about.<br /><br />
+            From the Skinwalker Ranch to Area 51 to Joshua Tree,
+            <i>The UFO Hotspot Compendium </i>will be a hit with true believers,
+            the mildly curious, and those intrigued by all things
+            off-planet.&nbsp; Experience the wonder and terror of alien
+            abduction, a spaceship crash, or a UFO sighting from the safety of
+            your own home.<br />
+            &nbsp;
+          </p>
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- excerpts-->
+      <div class="book-excerpts-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>About the Author</span>
+        </h4>
+        <p>
+          <b>Craig Campobasso</b> is an award-winning filmmaker and
+          Emmy-nominated casting director with a career that spans three
+          decades. Craig has appeared on many radio shows, including
+          <i>Coast to Coast AM</i> with George Noory, <i>Open Minds</i> with
+          Regina Meredith, and <i>Beyond Belief.</i> He has also appeared on the
+          History channel’s <i>Ancient Aliens. </i>Craig is the author of the
+          bestselling <i>The Extraterrestrial Species Almanac.</i><br />
+        </p>
+      </div>
+    </div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/210503030/the-ufo-hotspot-compendium/craig-campobasso/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

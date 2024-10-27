@@ -1,0 +1,151 @@
+---
+title: Are There People Without a Self? | Free Book
+date: 2024-10-24 23:51:16
+updated: 2024-10-26 11:12:14
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/940aa25fbb5b87db15ff34b4a78b2bc74bfac83831e3dd5fc4882340e7c748f0.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        On the Mystery of the Ego and the Appearance in the Present Day of
+        Egoless Individuals
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/75f5223fef83b64cdc848bd5b43c302e5bd543786475dd1b14fae5052460410a.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >Temple Lodge Publishing</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2"
+              >October 2021; Copyright</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781912230853</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >Are There People Without a Self?</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2"
+              >Ermuth Johannes Grosse</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2"
+              >Temple Lodge Publishing</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2"></span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          'That in our times a kind of supernumerary person is appearing who is
+          egoless, who in reality is not a human being, is a terrible truth.' –
+          Rudolf SteinerAre there people on earth today who do not have a self –
+          a human ego or 'I'? The phenomenon of 'egolessness' – the absence of a
+          human being's core – was discussed by the spiritual teacher Rudolf
+          Steiner in lectures and personal conversations. An egoless individual,
+          he intimated, is an empty sheath through which other spiritual
+          entities could operate. Erdmuth J. Grosse brings together many
+          little-known quotations from Rudolf Steiner's spiritual research and
+          supports them with a wealth of disquieting reports, testimonies and
+          examples from literature and politics. He places these insights within
+          the broader context of the riddle of the human self, throwing light on
+          the spiritual development of the individual and humanity as a whole.In
+          this thought-provoking study, Grosse goes on to discuss the role of
+          comets, the effects of cyanide on the human constitution – especially
+          in the light of the Holocaust – and the hidden effects of ceremonial
+          magic, occult lodges, cults and sects. In conclusion, he offers
+          positive solutions to humanity's present predicament by describing the
+          healing impulses of social threefolding, the invisible spiritual
+          beings seeking to help humanity, the role of the gods, the Christ
+          impulse and the true goals of human evolution.
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"></div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/210932983/are-there-people-without-a-self/ermuth-johannes-grosse/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

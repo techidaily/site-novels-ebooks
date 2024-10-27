@@ -1,0 +1,182 @@
+---
+title: The Shamanic Way of the Bee (2nd ed.) | Free Book
+date: 2024-10-24 21:27:15
+updated: 2024-10-26 10:48:26
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/aeb55c1855791abb3001e6e01487acf10ba59e78a00f1cc33845d5ed1ab8b7a3.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        Ancient Wisdom and Healing Practices of the Bee Masters
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/37447d774e51bd1e2dbf33ae8fe629e561856471ae021a4765fbae47219c0a4d.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >Inner Traditions/Bear &amp; Company</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2">January 2006</span>
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781594779107</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >The Shamanic Way of the Bee</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2">Simon Buxton</span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Destiny Books</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">224</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          Reveals for the first time the ancient tradition of bee shamanism and
+          its secret practices and teachings<br /><br />• Examines the healing
+          and ceremonial powers of the honeybee and the hive<br /><br />•
+          Reveals bee shamanism’s system of acupuncture, which predates the
+          Chinese systems<br /><br />• Imparts teachings from the female
+          tradition and explores the transformative powers of the magico-sexual
+          elixirs they produce<br /><br />Bee shamanism may well be the most
+          ancient and enigmatic branch of shamanism. It exists throughout the
+          world--wherever in fact the honeybee exists. Its medicinal tools--such
+          as honey, pollen, propolis, and royal jelly--are now in common usage,
+          and even the origins of Chinese acupuncture can be traced back to the
+          ancient practice of applying bee stings to the body’s meridians.
+          <br /><br />In this authoritative ethnography and spiritual memoir,
+          Simon Buxton, an elder of the Path of Pollen, reveals for the first
+          time the richness of this tradition: its subtle intelligence; its
+          sights, sounds, and smells; and its unique ceremonies, which until now
+          have been known only to initiates. Buxton unknowingly took his first
+          steps on the Path of Pollen at age nine, when a neighbor--an Austrian
+          bee shaman--cured him of a near-fatal bout of encephalitis. This early
+          contact prepared him for his later meeting with an elder of the
+          tradition who took him on as an apprentice. Following an intense
+          initiation that opened him to the mysteries of the hive mind, Buxton
+          learned over the next 13 years the practices, rituals, and tools of
+          bee shamanism. He experienced the healing and spiritual powers of
+          honey and other bee products, including the “flying ointment” once
+          used by medieval witches, as well as ritual initiations with the
+          female members of the tradition--the Mellisae--and the application of
+          magico-sexual “nektars” that promote longevity and ecstasy.
+          <i>The Shamanic Way of the Bee</i> is a rare view into the secret
+          wisdom of this age-old tradition.
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- excerpts-->
+      <div class="book-excerpts-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>In The Press</span>
+        </h4>
+        <p>
+          “In this authoritative ethnography and spiritual memoir Simon Buxton,
+          an elder in the path of pollen, reveals for the first time the
+          richness of this tradition, its subtle intelligence; its sights sounds
+          and smells, and its unique ceremonies which until now have been known
+          only to initiates. <i>The Shamanic Way of the Bee</i> is a rare view
+          into the secret wisdom of this age-old tradition.”
+        </p>
+      </div>
+    </div>
+    <div class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- about author-->
+      <div class="book-main-author-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>About the Author</span>
+        </h4>
+        <p>
+          SIMON BUXTON is a beekeeper, the British faculty for Dr. Michael
+          Harner’s Foundation for Shamanic Studies, and the founder/ director of
+          The Sacred Trust, a U.K.-based educational organization dedicated to
+          the teaching of practical shamanism for the modern world. He lives in
+          England and teaches internationally.
+        </p>
+      </div>
+    </div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/95782635/the-shamanic-way-of-the-bee/simon-buxton/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

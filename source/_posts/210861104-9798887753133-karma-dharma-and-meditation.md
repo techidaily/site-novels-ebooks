@@ -1,0 +1,139 @@
+---
+title: Karma Dharma and Meditation | Free Book
+date: 2024-10-23 16:39:55
+updated: 2024-10-26 11:23:38
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/453eb7ac1c9e0ec938074294e717f516d20fe090171cf4a99f119a92cff15457.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">Devi Dayal Agarwal</div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/7be2cf83aea300e84fb7cb715db570dd9abbdfa673038af314c5d77172d653fd.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2">Gotham Books</span>
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2"
+              >June 2023; Copyright</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9798887753133</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >Karma Dharma and Meditation</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2">Devi Dayal Agarwal</span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Gotham Books</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">224</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <p>
+            A person comes in the universe to do three jobs- Karma, Dharma, and
+            Meditation. These three contain the entire philosophy of living.
+            Karma is to take action for earning money, producing children and
+            their bringing up while living in the universe; Dharma is to do this
+            action as per tenets of one's Dharma and meditation is to surrender
+            all one's doing to God. However, he gets absorbed in earning money
+            and producing and bringing up children. He remembers nothing or a
+            little of Dharma and completely ignores Meditation.
+          </p>
+          <p><br /></p>
+          <p>
+            This book, which is based on vast knowledge of Vedas and Shastras
+            and over seventy years of experience of meditation is the answer to
+            the fulfilment of one's jobs (mentioned above). The author has made
+            these very easy to follow and intelligible, and it is hoped that the
+            book would be of help to readers achieve the goal of Karma, Dharma
+            and Meditation, which gives mental relief.
+          </p>
+        </div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"></div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/210861104/karma-dharma-and-meditation/devi-dayal-agarwal/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

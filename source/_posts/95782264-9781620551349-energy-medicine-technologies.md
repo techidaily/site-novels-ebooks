@@ -1,0 +1,191 @@
+---
+title: Energy Medicine Technologies | Free Book
+date: 2024-10-25 19:53:27
+updated: 2024-10-26 10:51:22
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/6b86d931af94d8c31c87cfacd8895ef8ed588730b33437d6f95ea0e380bce1b9.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        Ozone Healing, Microcrystals, Frequency Therapy, and the Future of
+        Health
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/d0c9dcaa09be34958bca8bdc718e1658ffc05ce97d1281ea30f0e7b001a27d71.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >Inner Traditions/Bear &amp; Company</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2">May 2013</span>
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781620551349</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >Energy Medicine Technologies</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2"
+              >Finley Eversole (ed.); Karl Maret (other)</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Inner Traditions</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">368</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          New and suppressed breakthroughs in energy medicine, ways to combat
+          toxins and electromagnetic fields, and the importance of non-GMO foods
+          <br />
+          <br />• Explores the use of microcrystals, ozone and hydrogen peroxide
+          therapy, and how to tap in to healing antioxidant electrons from the
+          Earth <br />
+          <br />• Reveals the scientifically proven health risks of genetically
+          modified foods <br />
+          <br />• Examines the suppressed cancer-curing electromedicine of Royal
+          Raymond Rife and Nobel laureate Albert Szent-Györgi <br />
+          <br />Natural, nontoxic, inexpensive, and effective alternatives to
+          conventional medicine exist, yet they have been suppressed by the
+          profit-driven medical-pharmaceutical complex. <br />
+          <br />Presenting a compendium of some of the most revolutionary yet
+          still widely unknown discoveries in health and energy medicine, this
+          book edited by Finley Eversole, Ph.D., explores the use of
+          microcrystals to harmonize the energies of body, mind, and
+          environment; the healing effects of ozone and hydrogen peroxide
+          therapy; ways to combat electromagnetic fields and environmental
+          toxins; sources of disruptive energy that cause stress and health
+          problems, including other people’s negative emotions; and how to tap
+          in to healing antioxidant electrons from the Earth. The book reveals
+          the scientifically proven health risks of genetically modified
+          foods--the first irreversible technology in human history with still
+          unknown consequences. It looks at the link between industrial farming
+          and the precipitous rise in heart disease, cancer, diabetes, and
+          Alzheimer’s over the past 100 years, providing a 10-point Low-Toxin
+          Program to reduce your risk. It explores the cancer-curing
+          electromedicine of Royal Raymond Rife and its suppression by the
+          medical establishment as well as Nobel laureate Albert Szent-Györgi’s
+          follow-up discovery of Frequency Therapy. <br />
+          <br />Offering a window into the holistic future of medicine, the book
+          shows the body not simply as a biological machine to be patched and
+          repaired but as a living organism made up of cells dynamically linked
+          to their inner and outer environments.
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- excerpts-->
+      <div class="book-excerpts-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>In The Press</span>
+        </h4>
+        <p>
+          “This meaty volume explores diseases of civilization due to
+          electromagnetic pollution, the dangers of genetically modified and
+          pesticideladen foods, and other examples of what might be considered
+          ‘man’s inhumanity to man.’ It also recommends ways to prevent or
+          reduce these in chapters devoted to the benefits of organic foods,
+          light and sound energies, ozone and hydrogen peroxide therapy, as well
+          as intercessory prayer and remote healing.”
+        </p>
+      </div>
+    </div>
+    <div class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- about author-->
+      <div class="book-main-author-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>About the Author</span>
+        </h4>
+        <p>
+          Finley Eversole, Ph.D., was executive director of the Society for the
+          Arts, Religion and Contemporary Culture from 1966 to 1969,
+          collaborating with Joseph Campbell and other visionaries. The author
+          of <i>Art and Spiritual Transformation</i> and editor of
+          <i>Infinite Energy Technologies</i>, he lives in Birmingham, Alabama.
+        </p>
+      </div>
+    </div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/95782264/energy-medicine-technologies/finley-eversole/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

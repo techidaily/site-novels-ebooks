@@ -1,0 +1,150 @@
+---
+title: True Ghost Stories and Hauntings | Free Book
+date: 2024-10-24 11:38:16
+updated: 2024-10-26 10:49:39
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/82b8ae38d37ac02ab9919c492bcf8e8d9496cd3f28e8e88d95e8ac83d3f81d71.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        Chilling Stories of Poltergeists, Unexplained Phenomenon, and Haunted
+        Houses
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/c809918bbbc859a7552e8a47a45801c98cd83c63ae9ac7abc641b455f081ea37.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >Lets Write Books, Inc.</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2"
+              >February 2017; Copyright</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9780997118582</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >True Ghost Stories and Hauntings</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2">Simon B Murik</span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2"
+              >Paranormal Publishing</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">110</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <p>
+            <strong>BE AFRAID...&nbsp;</strong>This unusual collection of true
+            ghost stories and hauntings has been put together by Simon B Murik
+            who is the son of a long line of mediums and sensitives originally
+            from Eastern Europe. Many of the stories come from his own
+            experiences while others have been contributed by family members and
+            those who have shared paranormal experiences and unexplained
+            phenomenon with him.&nbsp;<br /><br />.Here is a sampling of some of
+            stories you will find in this book:<br /><br />• The parents of a
+            young girl who drowns in their backyard swimming pool have a
+            painting made to keep her memory alive. The painting takes on a life
+            of its own.<br /><br />• A police detective meets the ghost of the
+            last man he killed.<br /><br />• Teenage girls playing with a Ouija
+            Board late at night get far more answers than they were looking
+            for.<br /><br />• A poltergeist invades a man’s apartment and leads
+            him on a ridiculous treasure hunt.<br /><br />• A workaholic
+            executive staying late at night to finish a report has an “other
+            worldly” experience that changes his life forever.<br /><br />If you
+            enjoy true ghost stories, reading about paranormal experiences and
+            real haunted houses then you will love this book. Get ready for a
+            few chills and goosebumps!
+          </p>
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"></div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/209858546/true-ghost-stories-and-hauntings/simon-b-murik/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

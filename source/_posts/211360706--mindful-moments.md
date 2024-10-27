@@ -1,0 +1,142 @@
+---
+title: Mindful Moments | Free Book
+date: 2024-10-25 19:42:23
+updated: 2024-10-26 11:21:54
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/c9b60192b68811fd558ab02563ee9fac6ed983dc427a837f730bb5a5ed5441ea.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        Breathing Necklaces for Tranquility and Balance
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/4ad7a548443fac8815bcb19249adca85be8f597351a85150d28c7ed13d843303.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"></span>
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2"></span>
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2"></span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"></span>
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2"></span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2"></span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2"></span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2"></span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <p>
+            Embark on a journey of mindfulness and relaxation with Breathing
+            Necklaces, the latest trend in wellness accessories designed to
+            enhance breath control and promote mental well-being. Discover the
+            allure of these stylish and functional necklaces that offer stress
+            relief, improved focus, and emotional balance. Immerse yourself in
+            the world of mindful meditation and explore the transformative power
+            of incorporating breathing techniques into your daily routine.
+            Unleash the potential of mindfulness practices with Breathing
+            Necklaces as you deepen your connection to the present moment and
+            cultivate inner peace. Dive into the realm of meditation and
+            mindfulness with this innovative accessory that serves as a reminder
+            to prioritize self-care and mental clarity. Visit the book store or
+            online bookshop to explore guides on mindful meditation and holistic
+            well-being, enhancing your journey to inner peace and tranquility.
+            Discover how Breathing Necklaces can complement your mindfulness
+            practices and elevate your overall wellness. Elevate your well-being
+            with Breathing Necklaces and embark on a path to a balanced and
+            harmonious life.
+          </p>
+          <p><br /></p>
+          <p><br /></p>
+          <p><br /></p>
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"></div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/211360706/mindful-moments/roc-jane/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

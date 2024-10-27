@@ -1,0 +1,169 @@
+---
+title: Myths and Legends of the Celts | Free Book
+date: 2024-10-23 17:41:44
+updated: 2024-10-26 10:25:40
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/2b398f15a279123ab82badbcb2738c2461a012967987518b17d83da9bc8fca01.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">James MacKillop</div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/2fe9ff3b4464d9fc1642fc352d3d180b73cb363f4b64531960418a279088cd67.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2"
+              >Penguin Books Ltd</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2">June 2006</span>
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9780141941394</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >Myths and Legends of the Celts</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2">James MacKillop</span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Penguin</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">416</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <p>
+            Myths and Legends of the Celts is a fascinating and wide-ranging
+            introduction to the mythology of the peoples who inhabited the
+            northwestern fringes of Europe - from Britain and the Isle of Man to
+            Gaul and Brittany.<br /><br />Drawing on recent historical and
+            archaeological research, as well as literary and oral sources, the
+            guide looks at the gods and goddesses of Celtic myth; at the nature
+            of Celtic religion, with its rituals of sun and moon worship; and at
+            the druids who served society as judges, diviners and philosophers.
+            It also examines the many Celtic deities who were linked with
+            animals and such natural phenomena as rivers and caves, or who later
+            became associated with local Christian saints. And it explores in
+            detail the rich variety of Celtic myths: from early legends of King
+            Arthur to the stories of the Welsh Mabinogi, and from tales of
+            heroes including Cúchulainn, Fionn mac Cumhaill and the warrior
+            queen Medb to tales of shadowy otherworlds - the homes of spirits
+            and fairies. <br /><br />What emerges is a wonderfully diverse and
+            fertile tradition of myth making that has captured the imagination
+            of countless generations, introduced and explained here with
+            compelling insight.
+          </p>
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- excerpts-->
+      <div class="book-excerpts-main">
+        <hr />
+        <h4 class="placeholder placeholder-heading">
+          <span>About the Author</span>
+        </h4>
+        <p></p>
+        <p>
+          Dr James MacKillop is an eminent scholar of Celtic history and
+          culture, having been Visiting Fellow in Celtic Languages at Harvard
+          University, Professor of English at the State University of New York,
+          Visiting Professor at the Université de Rennes and President of the
+          American Conference for Irish Studies. His many publications include
+          the Dictionary of Celtic Mythology (1998), Fionn mac Cumhaill (1986)
+          and Irish Literature: A Reader (1987, 2005). He is based in Syracuse,
+          New York.<br /><br /><br />Dr James MacKillop is an eminent scholar of
+          Celtic history and culture, having been Visiting Fellow in Celtic
+          Languages at Harvard University, Professor of English at the State
+          University of New York, Visiting Professor at the Université de Rennes
+          and President of the American Conference for Irish Studies. His many
+          publications include the Dictionary of Celtic Mythology (1998), Fionn
+          mac Cumhaill (1986) and Irish Literature: A Reader (1987, 2005). He is
+          based in Syracuse, New York.
+        </p>
+        <p></p>
+      </div>
+    </div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/210482851/myths-and-legends-of-the-celts/james-mackillop/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

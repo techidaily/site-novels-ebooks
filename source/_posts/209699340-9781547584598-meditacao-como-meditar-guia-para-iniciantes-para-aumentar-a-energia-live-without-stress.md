@@ -1,0 +1,146 @@
+---
+title: "Meditação : Como Meditar Guia Para Iniciantes Para Aumentar A Energia (Live Without Stress) | Free Book"
+date: 2024-10-24 21:27:59
+updated: 2024-10-26 12:49:18
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/795da05efd222dff8cb6dd6b17399bdff2fa769e08ddfdde80d2959eadba1c71.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        Como viver seus momentos, sem stress e preocupações em um estado
+        constante de paz e felicidade
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/cdc996d07e7e3b37d77d3dd22b2bd7b713f2a1ed864ae339556fc4cf59f1fe8b.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2">Dan Knoll</span>
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2"
+              >April 2019; Copyright</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781547584598</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2">Meditação</span>
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2"
+              >Akshat Agrawal; Juliana Lopes (trans.)</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Dan Knoll</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">Portuguese</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">43</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <b
+            >Cada meditação deste livro tem alguns pensamentos para a sua
+            reflexão e tem uma afirmação única no final, que você usa para a sua
+            meditação.</b
+          >
+          &nbsp;<br />Você deve ler atentamente as reflexões contidas e depois
+          meditar sobre a afirmação. O livro inclui capítulos sobre atuação na
+          zona, confiança, planejamento de sucesso, ser um líder forte, ter
+          conversas poderosas, lidar com barreiras ao sucesso, ter uma visão
+          poderosa, treinar bem, ser saúde, ser um espírito livre, ser centrado
+          e criativo e ser mentalmente resistente.<br />É cientificamente
+          comprovado que a meditação exibe benefícios mentais e físicos para
+          aqueles que tiram tempo do dia regularmente para praticar a meditação.
+          Alguns dos benefícios são &nbsp;cientificamente comprovados da
+          meditação ,como, o aumento de foco, que resulta em uma diminuição da
+          ansiedade e do estresse emocional, e é ótimo para pessoas que sofrem
+          de ansiedade ou outros transtornos relacionados ao humor. Para aqueles
+          que sofrem de ataques de pânico, uma forma extrema de ansiedade que é
+          acompanhada por sentimentos de medo e respostas físicas, como aumento
+          do batimento cardíaco e aumento da adrenalina, praticando meditação
+          pode ajudar a minimizar esses sintomas quando no meio de um ataque, e
+          pode ajudar prevenir futuros ataques.<br />
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"></div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/209699340/medita-o-como-meditar-guia-para-iniciantes-para-aumentar-a-energia-live-without-stress/akshat-agrawal/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>

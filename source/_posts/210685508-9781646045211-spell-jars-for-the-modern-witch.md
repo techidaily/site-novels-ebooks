@@ -1,0 +1,147 @@
+---
+title: Spell Jars for the Modern Witch | Free Book
+date: 2024-10-23 18:12:55
+updated: 2024-10-26 12:34:41
+categories:
+  - Body, Mind & Spirit
+thumbnail: https://thmb-001-ebook.techidaily.com/e9041fe92ced6ae73ef913489cc2f861fb5b2c1531316a20802ed7ba5a2bb4b7.jpg
+---
+<main id="book-container">
+  <div class="flex flex-col">
+    <div class="book-brief flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <!-- brief-->
+      <div class="book-brief-main">
+        A Practical Guide to Crafting Spell Jars for Abundance, Luck,
+        Protection, and More
+      </div>
+    </div>
+    <div
+      class="book-meta-info flex-1 grid gap-4 col-start-1 col-end-3 row-start-1 sm:mb-6 sm:grid-cols-4 lg:gap-6 lg:col-start-2 lg:row-end-6 lg:row-span-6 lg:mb-0"
+    >
+      <div
+        class="book-meta-info-left place-content-center mt-4 p-4 text-sm leading-6 col-start-2 col-span-2 dark:text-slate-400"
+      >
+        <img
+          class="w-full h-500 object-cover rounded-lg sm:h-255 sm:col-span-2 lg:col-span-full"
+          src="https://img-001-ebook.techidaily.com/12553f25112afdeddac0c1937c4290df51c33eaa2b6314738870790a5b68febc.jpg"
+          alt=""
+          width="312"
+          height="500"
+        />
+      </div>
+      <div
+        class="book-meta-info-right mt-2 col-start-1 row-start-2 col-span-3 self-center"
+      >
+        <!-- meta data  -->
+        <div class="flex flex-col px-4 md:px-8">
+          <div class="flex-1">
+            <strong>Publisher</strong>:<span class="px-2">Ulysses Press</span>
+          </div>
+          <div class="flex-1">
+            <strong>Published</strong>:<span class="px-2"
+              >June 2023; Copyright</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>ISBN</strong>:<span class="px-2">9781646045211</span>
+          </div>
+          <div class="flex-1">
+            <strong>Title</strong>:<span class="px-2"
+              >Spell Jars for the Modern Witch</span
+            >
+          </div>
+          <div class="flex-1">
+            <strong>Author</strong>:<span class="px-2">Minerva Siegel</span>
+          </div>
+          <div class="flex-1">
+            <strong>Imprint</strong>:<span class="px-2">Ulysses Press</span>
+          </div>
+          <div class="flex-1">
+            <strong>Language</strong>:<span class="px-2">English</span>
+          </div>
+          <div class="flex-1">
+            <strong>Number of Pages</strong>:<span class="px-2">160</span>
+          </div>
+        </div>
+      </div>
+    </div>
+    <div class="book-description flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <div class="book-description-main">
+        <div accordion-content="" id="description">
+          <b
+            >Dive into the magickal world of spellcrafting&nbsp;with fifty
+            unique and customizable spell jar recipes, using everything from
+            crystals and candles to tarot cards and herbs to heal, protect, and
+            manifest your desires.&nbsp;</b
+          ><br /><br /><i>Spell Jars for the Modern Witch</i> will guide you
+          through the entire process of jar spellcrafting—creating spells inside
+          sealed containers—from setting your intentions, to cleansing your
+          ritual space, to building and activating your spells. But before
+          diving into individual spell jar recipes, you’ll first learn all about
+          magickal color, crystal, number, and astrological properties; how to
+          best time the creation of your spell; and the power meaning of certain
+          herbs, flowers, and other natural ingredients that will help you
+          decide what to include in your spell jars.<br />
+          <br />
+          Then begin manifesting your goals with fifty step-by-step spell jar
+          recipes for everyday life, including spells for:<br />
+          Protection from nightmares Financial abundance Manifesting
+          self-confidence Successful job hunting Memorializing a loved one
+          Cultivating a stable, happy home life And more <br />Whether you’re
+          looking to craft spell jars to banish bad vibes or simply discover
+          more joy in your life, this comprehensive, easy-to-use guide has you
+          covered.
+        </div>
+        <div class="accordion-fader"></div>
+      </div>
+    </div>
+    <div class="book-excerpts flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"></div>
+    <div
+      class="book-about-author flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8"
+    ></div>
+    <div class="book-free-get flex-1 py-6 px-4 sm:p-6 md:py-10 md:px-8">
+      <button
+        id="btn-free-get"
+        class="bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+      >
+        Free Get EBook (.PDF/.epub)
+      </button>
+      <div id="countdown-display" class="px-2 text-lg mt-2"></div>
+      <a
+        id="free-link"
+        class="hidden bg-blue-500 hover:bg-blue-700 text-white font-bold py-2 px-4 rounded"
+        href="https://www.ebooks.com/en-us/book/210685508/spell-jars-for-the-modern-witch/minerva-siegel/"
+        target="_blank"
+        >Click here to get a free link</a
+      >
+    </div>
+    <script>
+      let countdownTime = 0;
+      let countdownInterval = null;
+      document
+        .getElementById('btn-free-get')
+        .addEventListener('click', startCountdown);
+      function startCountdown() {
+        countdownTime = new Date().getTime() + 60000 * 3;
+        countdownInterval = setInterval(updateCountdown, 1000);
+        document.getElementById('btn-free-get').disabled = true;
+        document
+          .getElementById('btn-free-get')
+          .classList.add('bg-gray-500', 'cursor-not-allowed');
+      }
+      function updateCountdown() {
+        let currentTime = new Date().getTime();
+        let timeLeft = countdownTime - currentTime;
+        let secondsLeft = Math.floor(timeLeft / 1000);
+        document.getElementById('countdown-display').innerHTML =
+          `Remaining time: ${secondsLeft} seconds.`;
+        if (secondsLeft <= 0) {
+          clearInterval(countdownInterval);
+          document.getElementById('btn-free-get').classList.add('hidden');
+          document.getElementById('free-link').classList.remove('hidden');
+          document.getElementById('countdown-display').innerHTML = '';
+        }
+      }
+    </script>
+  </div>
+</main>
