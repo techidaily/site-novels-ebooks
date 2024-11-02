@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2024-10-23T05:15:57.461Z
-updated: 2024-10-27T04:42:22.550Z
+date: 2024-10-25T21:16:15.491Z
+updated: 2024-11-01T17:02:13.598Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -129,3 +129,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126001-9781609253974-retrograde-planets/"><u>Retrograde Planets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126002-9781609256449-return-again/"><u>Return Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126005-9781609256678-rules-for-spiritual-initiation/"><u>Rules for Spiritual Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126006-9781609253011-runes-for-transformation/"><u>Runes for Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126016-9781609252953-the-secret-history-of-consciousness/"><u>The Secret History of Consciousness | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2024-10-19T19:44:30.858Z
-updated: 2024-10-27T00:04:53.959Z
+date: 2024-10-25T20:39:44.954Z
+updated: 2024-11-01T22:40:34.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -157,3 +157,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138543814-9781528783200-pistis-sophia-a-gnostic-gospel-with-extracts-from-the-books-of-the-saviour-appended/"><u>Pistis Sophia - A Gnostic Gospel (With Extracts from the Books of the Saviour Appended) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543628-9781528783569-raphaels-horary-astrology-by-which-every-question-relating-to-the-future-may-be-answered/"><u>Raphael's Horary Astrology by which Every Question Relating to the Future May Be Answered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543384-9781633535367-rituals-for-magic-and-meaning/"><u>Rituals for Magic and Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543805-9781528783187-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-procedure-its-rites-and-its-mysteries/"><u>The History of Magic - Including a Clear and Precise Exposition of its Procedure, Its Rites and Its Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543728-9781528783279-the-magical-ritual-of-the-sanctum-regnum-interpreted-by-the-tarot-trumps/"><u>The Magical Ritual of the Sanctum Regnum - Interpreted by the Tarot Trumps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543674-9781528783118-zetetic-astronomy-earth-not-a-globe-an-experimental-inquiry-into-the-true-figure-of-the-earth-proving-it-a-plane-without-axial-or-orbital-motion-and-the-only-ma/"><u>Zetetic Astronomy - Earth Not a Globe! An Experimental Inquiry into the True Figure of the Earth: Proving it a Plane, Without Axial or Orbital Motion; and the Only Material World in the Universe! | Free Book</u></a></li>
+</ul></div>
+

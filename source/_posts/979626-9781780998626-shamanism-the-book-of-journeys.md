@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2024-10-21T23:40:48.642Z
-updated: 2024-10-26T23:32:24.460Z
+date: 2024-10-28T21:49:48.702Z
+updated: 2024-11-01T21:00:58.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -138,3 +138,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125983-9781609257705-quantum-affirmations/"><u>Quantum Affirmations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125994-9781609252847-reclaim-the-power-of-the-witch/"><u>Reclaim the Power of the Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125997-9781609254087-relating/"><u>Relating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125976-9781609254650-the-psychic-self-defense-personal-training-manual/"><u>The Psychic Self-Defense Personal Training Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125982-9781609257903-the-qabalah/"><u>The Qabalah | Free Book</u></a></li>
+</ul></div>
+

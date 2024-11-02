@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-10-21T02:29:01.388Z
-updated: 2024-10-27T04:52:46.699Z
+date: 2024-10-31T22:54:47.652Z
+updated: 2024-11-01T20:11:20.553Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -243,3 +243,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/121819-9780253108388-claiming-sacred-ground/"><u>Claiming Sacred Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216496-9781583947272-manifesting-minds/"><u>Manifesting Minds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1215871-9781612830308-the-back-in-time-tarot-book/"><u>The Back in Time Tarot Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1212604-9781583948149-the-passionate-mind-revisited/"><u>The Passionate Mind Revisited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216500-9781583948200-the-return-of-the-mother/"><u>The Return of the Mother | Free Book</u></a></li>
+</ul></div>
+

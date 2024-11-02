@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-10-23T18:41:45.951Z
-updated: 2024-10-26T18:16:04.109Z
+date: 2024-10-31T00:30:38.848Z
+updated: 2024-11-01T21:31:50.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -127,3 +127,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125834-9781609254131-learning-the-tarot/"><u>Learning the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125848-9781609254247-light-on-relationships/"><u>Light on Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125870-9781609255398-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125829-9781609257644-the-laws-of-manifestation/"><u>The Laws of Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125838-9781609253776-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125853-9781609254513-the-little-book-of-life-after-death/"><u>The Little Book of Life After Death | Free Book</u></a></li>
+</ul></div>
+

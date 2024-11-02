@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-10-20T18:46:15.986Z
-updated: 2024-10-26T23:30:26.281Z
+date: 2024-10-31T18:08:54.856Z
+updated: 2024-11-02T00:42:05.991Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -184,3 +184,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125917-9781609256586-mysteries-of-templar-treasure-the-holy-grail/"><u>Mysteries of Templar Treasure & the Holy Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125919-9781609255992-mystery-teachings-from-the-living-earth/"><u>Mystery Teachings from the Living Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125922-9781609253509-navigating-the-collapse-of-time/"><u>Navigating the Collapse of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125935-9781609253103-ogdoadic-magick/"><u>Ogdoadic Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125938-9781609251505-the-old-girls-book-of-spells/"><u>The Old Girl's Book of Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125937-9781609251826-the-old-girls-book-of-dreams/"><u>The Old Girls' Book of Dreams | Free Book</u></a></li>
+</ul></div>
+

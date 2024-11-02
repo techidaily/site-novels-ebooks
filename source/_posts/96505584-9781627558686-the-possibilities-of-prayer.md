@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-10-25T19:26:58.929Z
-updated: 2024-10-26T23:15:11.129Z
+date: 2024-10-26T20:16:17.677Z
+updated: 2024-11-01T23:37:05.733Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -137,3 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138569713-9780595764785-being-remarkable/"><u>Being Remarkable | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569673-9781450207997-how-did-i-miss-all-this-before/"><u>How Did I Miss All This Before? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569610-9781475915631-how-to-achieve-self-realization-through-properly-integrating-thematerial-face-of-god/"><u>How to Achieve Self-Realization Through Properly Integrating Thematerial Face of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569620-9781452532080-the-book-of-revelation-a-new-beginning/"><u>The Book of Revelation: a New Beginning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569700-9781452500638-the-tao-of-mermaids/"><u>The Tao of Mermaids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569690-9781449707248-when-i-discovered-i-was-awesome/"><u>When I Discovered I Was Awesome | Free Book</u></a></li>
+</ul></div>
+

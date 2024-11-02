@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2024-10-23T21:10:30.989Z
-updated: 2024-10-27T01:46:16.176Z
+date: 2024-10-29T21:31:30.957Z
+updated: 2024-11-01T19:03:42.321Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -146,3 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138572767-9781450261104-faith-to-conquer-fear/"><u>Faith to Conquer Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572694-9781475908817-its-all-about-love/"><u>It's All About Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572980-9781440139260-santa-fe-light/"><u>Santa Fe Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573061-9781450248853-stumbling-into-lifes-lessons/"><u>Stumbling into Life's Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573007-9781440169229-tangible-echoes/"><u>Tangible Echoes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572807-9780595893867-the-family-of-light/"><u>The Family of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573108-9781450214353-the-heart-speaks-to-the-mind/"><u>The Heart Speaks to the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573092-9780595807413-up-from-the-abyss/"><u>Up from the Abyss | Free Book</u></a></li>
+</ul></div>
+

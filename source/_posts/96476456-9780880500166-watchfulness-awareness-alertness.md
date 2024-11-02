@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-10-24T19:58:36.911Z
-updated: 2024-10-26T21:06:10.549Z
+date: 2024-10-29T20:43:06.054Z
+updated: 2024-11-01T23:14:38.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -161,3 +161,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1527932-9781476740775-break-through-the-power-in-your-name/"><u>Break Through the Power in Your Name | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1527979-9781476739052-soul-contracts/"><u>Soul Contracts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1528029-9781451636031-waking-up/"><u>Waking Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1528023-9781451668544-wild-creative/"><u>Wild Creative | Free Book</u></a></li>
+</ul></div>
+

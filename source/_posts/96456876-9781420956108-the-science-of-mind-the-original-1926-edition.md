@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-10-20T20:00:57.566Z
-updated: 2024-10-26T21:01:44.095Z
+date: 2024-10-27T21:23:54.547Z
+updated: 2024-11-01T16:39:23.236Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -153,3 +153,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1764974-9781472904959-britains-x-traordinary-files/"><u>Britain's X-traordinary Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1770704-9781782794752-naming-the-goddess/"><u>Naming the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1766086-9781455531295-the-hand-on-the-mirror/"><u>The Hand on the Mirror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1769062-9781612833330-the-only-little-prayer-you-need/"><u>The Only Little Prayer You Need | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1770712-9781782796466-the-road-to-second-degree-priesthood/"><u>The Road to Second Degree Priesthood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1770713-9781782796060-what-wags-the-world/"><u>What Wags the World | Free Book</u></a></li>
+</ul></div>
+

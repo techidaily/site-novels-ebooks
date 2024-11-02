@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-10-22T18:48:31.819Z
-updated: 2024-10-27T00:20:07.446Z
+date: 2024-10-26T17:59:37.433Z
+updated: 2024-11-01T16:58:23.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -259,3 +259,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1424551-9781780283609-the-watkins-dictionary-of-angels/"><u>The Watkins Dictionary of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424552--the-watkins-dictionary-of-magic/"><u>The Watkins Dictionary of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424550-9781780283579-the-watkins-dictionary-of-symbols/"><u>The Watkins Dictionary of Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424553-9781780283647-the-watkins-tarot-handbook/"><u>The Watkins Tarot Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424549-9781780283562-understanding-the-future/"><u>Understanding The Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424555-9781780283678-women-of-wisdom/"><u>Women of Wisdom | Free Book</u></a></li>
+</ul></div>
+

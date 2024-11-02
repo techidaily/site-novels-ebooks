@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2024-10-23T22:23:23.380Z
-updated: 2024-10-26T20:58:37.080Z
+date: 2024-10-30T17:56:37.601Z
+updated: 2024-11-01T20:57:32.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -139,3 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1164029-9781101633755-afterlife/"><u>Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/116665-9780749919818-barefoot-doctors-handbook-for-heroes/"><u>Barefoot Doctor's Handbook for Heroes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1168107--messages-from-spirit/"><u>Messages from Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1164413--the-episodes/"><u>The Episodes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1163986-9781101601525-the-power-of-meditation/"><u>The Power of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/116679-9781582186399-the-soul-of-the-indian/"><u>The Soul of the Indian | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1164094-9781608827763-why/"><u>Why? | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2024-10-21T02:03:30.524Z
-updated: 2024-10-27T04:45:18.233Z
+date: 2024-10-28T00:45:49.504Z
+updated: 2024-11-01T17:35:11.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -163,3 +163,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209516540-9781632659613-eternal-dharma/"><u>Eternal Dharma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515671-9781401933418-facing-lifes-challenges/"><u>Facing Life's Challenges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515647-9780399591600-signs/"><u>Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516543-9781632659330-the-lost-history-of-ancient-america/"><u>The Lost History of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516541-9781632659576-the-pleiadian-promise/"><u>The Pleiadian Promise | Free Book</u></a></li>
+</ul></div>
+

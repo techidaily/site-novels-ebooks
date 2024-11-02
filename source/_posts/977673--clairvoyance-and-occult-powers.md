@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2024-10-22T16:45:41.844Z
-updated: 2024-10-26T20:54:21.570Z
+date: 2024-10-26T23:52:28.092Z
+updated: 2024-11-01T16:46:00.992Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -130,3 +130,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125873-9781609257194-maat-magick/"><u>Maat Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125875-9781609250188-magic-when-you-need-it/"><u>Magic When You Need It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125876-9781609250508-magic-words/"><u>Magic Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125878-9781609257750-magical-hearth/"><u>Magical Hearth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125880-9781609256524-magical-world-of-the-tarot/"><u>Magical World of the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125889-9781609252748-math-for-mystics/"><u>Math for Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125874-9781609255848-the-magic-of-shapeshifting/"><u>The Magic of Shapeshifting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125884-9781609257880-the-magus/"><u>The Magus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125887-9781609250379-the-manifestation-wheel/"><u>The Manifestation Wheel | Free Book</u></a></li>
+</ul></div>
+

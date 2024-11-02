@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-10-26T02:33:10.579Z
-updated: 2024-10-26T23:14:55.220Z
+date: 2024-10-28T18:14:52.575Z
+updated: 2024-11-01T23:04:52.077Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -140,3 +140,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1128291-9781136183072-john-dees-natural-philosophy/"><u>John Dee's Natural Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1131763-9781609258481-spirit-walking/"><u>Spirit Walking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1130170-9780982432389-the-witches-almanac-issue-31-spring-2012-to-spring-2013/"><u>The Witches' Almanac: Issue 31, Spring 2012 to Spring 2013 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1130171-9780982432341-the-witches-almanac-issue-32-spring-2013-to-spring-2014/"><u>The Witches' Almanac: Issue 32, Spring 2013 to Spring 2014 | Free Book</u></a></li>
+</ul></div>
+

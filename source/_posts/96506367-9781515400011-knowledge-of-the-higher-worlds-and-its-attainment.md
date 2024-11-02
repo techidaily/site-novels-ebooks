@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2024-10-22T20:51:48.765Z
-updated: 2024-10-26T17:10:56.761Z
+date: 2024-10-25T22:45:41.840Z
+updated: 2024-11-01T21:43:26.972Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -135,3 +135,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1168327-9781577317883-the-gift/"><u>The Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1168328-9781577317876-the-gift-of-our-compulsions/"><u>The Gift of Our Compulsions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1168344-9781577318941-the-mindfulness-code/"><u>The Mindfulness Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1168345-9781577317968-the-miracle-of-the-breath/"><u>The Miracle of the Breath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1168805-9781577313113-the-power-of-now/"><u>The Power of Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1168807-9781577318651-the-power-of-stillness/"><u>The Power of Stillness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1168816-9781577318330-the-secret-history-of-dreaming/"><u>The Secret History of Dreaming | Free Book</u></a></li>
+</ul></div>
+

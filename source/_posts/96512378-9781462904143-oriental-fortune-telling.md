@@ -1,7 +1,7 @@
 ---
 title: Oriental fortune Telling | Free Book
-date: 2024-10-20T03:12:38.648Z
-updated: 2024-10-27T02:20:22.012Z
+date: 2024-10-27T21:49:31.646Z
+updated: 2024-11-01T21:17:39.135Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9812525ebbe1a6ac377a14372f8984b504.jpg
@@ -144,3 +144,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125544-9781609256890-astral-odyssey/"><u>Astral Odyssey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125537-9781609257071-the-art-and-practice-of-astral-projection/"><u>The Art and Practice of Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125539-9781609250706-the-art-and-practice-of-geomancy/"><u>The Art and Practice of Geomancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125541-9781609257965-the-art-of-living-out-loud/"><u>The Art of Living Out Loud | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125547-9781609253844-the-astrological-neptune-and-the-quest-for-redemption/"><u>The Astrological Neptune and the Quest for Redemption | Free Book</u></a></li>
+</ul></div>
+

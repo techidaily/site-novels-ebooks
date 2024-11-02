@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2024-10-20T17:15:18.345Z
-updated: 2024-10-26T20:32:23.023Z
+date: 2024-10-27T17:34:14.010Z
+updated: 2024-11-01T23:10:18.707Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -152,3 +152,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1153682-9781577317005-365-prescriptions-for-the-soul/"><u>365 Prescriptions for the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152436-9781451696837-healing-with-the-arts/"><u>Healing with the Arts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152505-9781476728643-the-spiritual-science-of-emma-curtis-hopkins/"><u>The Spiritual Science of Emma Curtis Hopkins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152610-9781476744728-tipping-sacred-cows/"><u>Tipping Sacred Cows | Free Book</u></a></li>
+</ul></div>
+

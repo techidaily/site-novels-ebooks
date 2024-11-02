@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-10-21T01:16:05.418Z
-updated: 2024-10-26T23:25:22.163Z
+date: 2024-10-30T00:20:07.427Z
+updated: 2024-11-01T21:28:39.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -133,3 +133,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1041055-9781583944646-codex-of-the-soul/"><u>Codex of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1040835-9780307828606-dreamland/"><u>Dreamland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1041973-9781846949074-the-effect/"><u>The Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036967-9781780993041-the-meaning/"><u>The Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1037524-9780786490639-the-thought-reader-craze/"><u>The Thought Reader Craze | Free Book</u></a></li>
+</ul></div>
+

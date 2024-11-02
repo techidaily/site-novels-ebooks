@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-10-24T02:21:24.432Z
-updated: 2024-10-26T18:05:42.476Z
+date: 2024-10-29T19:36:18.949Z
+updated: 2024-11-01T23:50:36.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -163,3 +163,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1576827-9781459726567-satanism-and-demonology/"><u>Satanism and Demonology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1576837-9781459725577-the-ufo-files/"><u>The UFO Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1576836-9781459725607-toward-wisdom/"><u>Toward Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1576838-9781459725560-ufos-over-canada/"><u>UFOs Over Canada | Free Book</u></a></li>
+</ul></div>
+

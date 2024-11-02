@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2024-10-23T22:38:35.706Z
-updated: 2024-10-26T20:17:05.346Z
+date: 2024-10-30T00:02:32.479Z
+updated: 2024-11-01T22:11:41.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -163,3 +163,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1648027-9781476735498-harness-astrologys-bad-boy/"><u>Harness Astrology's Bad Boy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1648105-9781439128947-healing-the-soul-of-america/"><u>Healing the Soul of America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650305-9781612833286-induced-after-death-communication/"><u>Induced After Death Communication | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650259-9781782795117-on-dragonfly-wings/"><u>On Dragonfly Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1645559-9781476765037-reflexiones-diarias-de-el-secreto/"><u>Reflexiones Diarias de El Secreto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/164636-9780743488709-the-psychic-in-you/"><u>The Psychic in You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1651771-9781609259532-the-theban-oracle/"><u>The Theban Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650264-9781780991160-throw-away-your-loincloth/"><u>Throw Away Your Loincloth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1648019-9781476764450-you-cant-make-this-stuff-up/"><u>You Can't Make This Stuff Up | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2024-10-20T00:44:08.538Z
-updated: 2024-10-27T03:03:35.503Z
+date: 2024-10-29T19:23:32.039Z
+updated: 2024-11-01T20:39:21.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -246,3 +246,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126063-9781609255749-spells-for-the-solitary-witch/"><u>Spells for the Solitary Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126065-9781609255756-spirit-faces/"><u>Spirit Faces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126066-9781609250300-spirit-maps/"><u>Spirit Maps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126085-9781609250782-sun-of-god/"><u>Sun of gOd | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126089-9781609257101-tai-chi/"><u>Tai Chi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126083-9781609255046-the-study-of-witchcraft/"><u>The Study of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126098-9781609255718-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+</ul></div>
+

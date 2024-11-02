@@ -1,7 +1,7 @@
 ---
 title: Your Invisible Power and How to Use It | Free Book
-date: 2024-10-21T03:41:45.538Z
-updated: 2024-10-26T17:40:21.665Z
+date: 2024-10-29T17:38:13.128Z
+updated: 2024-11-01T20:09:07.022Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035b03b1cc767fa3501b8a4d68e2e51d3180.jpg
@@ -137,3 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1142781-9780857010056-chen/"><u>Chen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138136-9780892545674-jung-and-the-alchemical-imagination/"><u>Jung and the Alchemical Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138817-9781101658239-one-last-time/"><u>One Last Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1142783-9780857010070-seeking-the-spirit-of-the-book-of-change/"><u>Seeking the Spirit of The Book of Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1139008-9781780997230-shaman-pathways-aubrys-dog-power-animals-in-traditional-witchcraft/"><u>Shaman Pathways - Aubry's Dog: Power Animals In Traditional Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1139009-9781780999593-shaman-pathways-web-of-life/"><u>Shaman Pathways - Web of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138134-9780892545711-the-astrology-of-self-discovery/"><u>The Astrology of Self-Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138141-9781609259242-the-chemical-wedding-of-christian-rosenkreutz/"><u>The Chemical Wedding of Christian Rosenkreutz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138202-9780988178724-the-universe-speaks-a-heavenly-dialogue-book-two/"><u>The Universe Speaks a Heavenly Dialogue, Book Two | Free Book</u></a></li>
+</ul></div>
+

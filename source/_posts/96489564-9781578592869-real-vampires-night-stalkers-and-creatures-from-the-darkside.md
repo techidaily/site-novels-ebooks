@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-10-26T05:04:45.946Z
-updated: 2024-10-27T04:35:09.320Z
+date: 2024-10-27T19:50:41.580Z
+updated: 2024-11-01T18:31:21.124Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -210,3 +210,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1424534-9781780283203-karma-yoga/"><u>Karma Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424535-9781780283227-secrets-of-meditation/"><u>Secrets of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424533-9781780283180-the-five-healing-tibetans/"><u>The Five Healing Tibetans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424536-9781780283319-the-imperial-guide-to-feng-shui-chinese-astrology/"><u>The Imperial Guide to Feng-Shui & Chinese Astrology | Free Book</u></a></li>
+</ul></div>
+

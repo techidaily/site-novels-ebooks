@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-10-21T18:16:01.439Z
-updated: 2024-10-26T16:21:15.957Z
+date: 2024-10-27T23:34:51.372Z
+updated: 2024-11-01T22:19:10.780Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -180,3 +180,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621300-9781601633767-between-now-and-when/"><u>Between Now and When | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621306-9781601634771-dragonflame/"><u>Dragonflame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621289-9781632659736-lightworker-relationships/"><u>Lightworker Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621297-9781601633941-mind-wars/"><u>Mind Wars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621307-9781601634375-the-alchemy-of-self-healing/"><u>The Alchemy of Self Healing | Free Book</u></a></li>
+</ul></div>
+

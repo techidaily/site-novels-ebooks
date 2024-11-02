@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-10-21T04:20:54.694Z
-updated: 2024-10-27T04:38:04.646Z
+date: 2024-10-29T17:26:16.666Z
+updated: 2024-11-01T19:28:14.159Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -136,3 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138623062-9781401954178-already-here/"><u>Already Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138622185-9780761870869-eight-brief-lessons-on-life/"><u>Eight Brief Lessons on Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138623090-9780834842052-from-mindfulness-to-insight/"><u>From Mindfulness to Insight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621381-9781601639608-lore-of-the-ghost/"><u>Lore of the Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621380-9781601639585-magickal-connections/"><u>Magickal Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138622060-9781351103725-religious-literacy-in-hospice-care/"><u>Religious Literacy in Hospice Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138622035-9781608685578-the-jewel-of-abundance/"><u>The Jewel of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621385-9781601639240-zombies/"><u>Zombies | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-10-21T04:47:35.202Z
-updated: 2024-10-26T19:30:30.629Z
+date: 2024-10-27T19:03:53.354Z
+updated: 2024-11-01T20:13:08.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -140,3 +140,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1058057-9781448175765-astrology-decoded/"><u>Astrology Decoded | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1050238-9781780995588-healing-with-spirit/"><u>Healing with Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1058508-9781780991986-i-am-boundlessness/"><u>I Am Boundlessness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1056931-9781780994741-seeds-of-change/"><u>Seeds of Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1056930-9781780994406-the-astrological-dynamics-of-the-universe/"><u>The Astrological Dynamics of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1058509-9781780992228-why-women-believe-in-god/"><u>Why Women Believe in God | Free Book</u></a></li>
+</ul></div>
+

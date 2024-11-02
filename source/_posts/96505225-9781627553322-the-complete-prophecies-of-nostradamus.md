@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2024-10-20T04:34:13.134Z
-updated: 2024-10-26T22:25:36.869Z
+date: 2024-10-30T19:46:35.202Z
+updated: 2024-11-01T18:51:14.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138567895-9780595895175-a-practical-guide-for-the-spiritist/"><u>A Practical Guide for the Spiritist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567794-9780595735631-as-easy-as-breathing/"><u>As Easy as Breathing: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567668-9781450258210-authentic-insights/"><u>Authentic Insights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567799-9781462022045-e-mails-to-my-grandchildren/"><u>E-Mails to My Grandchildren | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567766-9781469737799-fly-without-fear-or-stress/"><u>Fly Without Fear or Stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567677-9781491762011-how-to-unleash-the-supernatural-power-within-you/"><u>How to Unleash the Supernatural Power Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567765-9781469764887-journey-to-alternity/"><u>Journey to Alternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567773-9780595780310-loving-a-woman-well/"><u>Loving a Woman Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567693-9781462020768-seventy-meditation-lessons-from-my-universe/"><u>Seventy Meditation Lessons from My Universe | Free Book</u></a></li>
+</ul></div>
+

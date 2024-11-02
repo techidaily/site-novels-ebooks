@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2024-10-20T00:03:12.734Z
-updated: 2024-10-27T01:48:26.939Z
+date: 2024-10-27T17:46:10.041Z
+updated: 2024-11-01T21:43:12.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -141,3 +141,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138566314-9781401951603-angels-of-love/"><u>Angels of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566300-9781401932121-animal-spirit-guides/"><u>Animal Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566303-9781401951559-clear-home-clear-heart/"><u>Clear Home, Clear Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566296-9781401932923-the-force/"><u>The Force | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566302-9781401921408-the-guru-of-joy/"><u>The Guru of Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566317-9781623173746-the-handbook-of-chinese-horoscopes/"><u>The Handbook of Chinese Horoscopes | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-10-23T17:46:12.632Z
-updated: 2024-10-27T01:38:12.341Z
+date: 2024-10-30T22:35:03.700Z
+updated: 2024-11-01T22:43:08.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -167,3 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1628697-9781444129151-be-your-own-life-coach/"><u>Be Your Own Life Coach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628699-9781444129182-beat-stress-with-meditation-teach-yourself/"><u>Beat Stress With Meditation: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628547-9780748111657-becoming-clairvoyant/"><u>Becoming Clairvoyant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628701-9781444129212-change-your-mood-with-aromatherapy-teach-yourself/"><u>Change Your Mood With Aromatherapy: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628215-9780748117932-conscious-medicine/"><u>Conscious Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628705-9781444129359-get-started-in-reiki/"><u>Get Started In Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628307-9780748122530-say-no-to-cancer/"><u>Say No To Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628294-9781444725834-what-women-know/"><u>What Women Know | Free Book</u></a></li>
+</ul></div>
+

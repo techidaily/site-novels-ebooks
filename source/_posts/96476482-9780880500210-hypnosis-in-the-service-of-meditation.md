@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-10-20T22:50:12.601Z
-updated: 2024-10-26T21:49:18.382Z
+date: 2024-10-26T17:51:33.496Z
+updated: 2024-11-01T18:31:29.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -164,3 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1625556-9781444743784-calm-the-soul-a-book-of-simple-wisdom-and-prayer/"><u>Calm the Soul: A Book of Simple Wisdom and Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625684-9781405522397-feeling-safe/"><u>Feeling Safe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1624939-9781444181739-peacefulness-teach-yourself/"><u>Peacefulness: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625227-9780733628924-silence-your-mind/"><u>Silence Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625157-9781444777543-touched-by-evil/"><u>Touched by Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625685-9781405522410-working-with-angels-fairies-and-nature-spirits/"><u>Working With Angels, Fairies And Nature Spirits | Free Book</u></a></li>
+</ul></div>
+

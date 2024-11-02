@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2024-10-21T16:09:33.315Z
-updated: 2024-10-26T20:41:47.761Z
+date: 2024-10-27T00:32:37.625Z
+updated: 2024-11-01T16:12:18.716Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -142,3 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1763376-9781776583669-adventurings-in-the-psychical/"><u>Adventurings in the Psychical | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763375-9781776583645-historic-ghosts-and-ghost-hunters/"><u>Historic Ghosts and Ghost Hunters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763849-9781934336960-interviewed-by-god/"><u>Interviewed by God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763403-9781776584208-mind-and-body/"><u>Mind and Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763680-9780804152310-miracle-prayer/"><u>Miracle Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763380-9781776583744-ten-thousand-dreams-interpreted/"><u>Ten Thousand Dreams Interpreted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763349-9781776583126-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
+</ul></div>
+

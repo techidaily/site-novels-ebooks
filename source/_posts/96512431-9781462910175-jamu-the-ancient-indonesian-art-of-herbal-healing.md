@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-10-23T23:57:13.866Z
-updated: 2024-10-27T01:09:34.313Z
+date: 2024-10-25T17:16:00.471Z
+updated: 2024-11-01T23:35:41.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -172,3 +172,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125597-9781609256692-a-book-of-pagan-rituals/"><u>A Book of Pagan Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125608-9781609254759-bucklands-book-of-saxon-witchcraft/"><u>Buckland's Book of Saxon Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125610-9781609256227-casting-sacred-space/"><u>Casting Sacred Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125587-9781609251710-the-black-pullet/"><u>The Black Pullet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125594-9781609255961-the-book-of-enoch-prophet/"><u>The Book of Enoch Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125595-9781609257330-the-book-of-ordinary-oracles/"><u>The Book Of Ordinary Oracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125617-9781609256654-the-chakras-esoteric-healing/"><u>The Chakras & Esoteric Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125621-9781609257316-the-chicken-qabalah-of-rabbi-lamed-ben-clifford/"><u>The Chicken Qabalah of Rabbi Lamed Ben Clifford | Free Book</u></a></li>
+</ul></div>
+

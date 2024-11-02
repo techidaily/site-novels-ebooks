@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2024-10-24T19:05:51.943Z
-updated: 2024-10-27T04:23:02.688Z
+date: 2024-10-25T20:40:12.844Z
+updated: 2024-11-02T00:27:36.996Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -150,3 +150,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126973-9781612830124-healing-lost-souls/"><u>Healing Lost Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126982-9781612831848-how-to-pray-without-talking-to-god/"><u>How to Pray Without Talking to God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126987-9781612830001-im-spiritual-dammit/"><u>I'm Spiritual, Dammit! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126965-9781612830339-the-ghost-who-would-not-die/"><u>The Ghost Who Would Not Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127003-9781612832777-the-journey-of-robert-monroe/"><u>The Journey of Robert Monroe | Free Book</u></a></li>
+</ul></div>
+

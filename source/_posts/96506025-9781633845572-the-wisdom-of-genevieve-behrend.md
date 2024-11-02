@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2024-10-22T02:13:39.655Z
-updated: 2024-10-26T17:51:41.850Z
+date: 2024-10-31T18:46:08.664Z
+updated: 2024-11-01T19:06:20.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -155,3 +155,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1144840-9781612832791-the-seven-chakra-sisters/"><u>The Seven Chakra Sisters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144828-9781938289064-the-universe-in-black-and-white/"><u>The Universe in Black and White | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144833-9781612831329-the-witches-almanac-issue-30-spring-2011-to-spring-2012/"><u>The Witches' Almanac: Issue 30, Spring 2011 to Spring 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144830-9781609256159-voodoo-hoodoo-spellbook/"><u>Voodoo Hoodoo Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144843-9781612833095-we-are-the-children-of-the-stars/"><u>We Are the Children of the Stars | Free Book</u></a></li>
+</ul></div>
+

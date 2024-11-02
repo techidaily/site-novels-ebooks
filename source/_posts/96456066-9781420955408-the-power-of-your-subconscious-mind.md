@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-10-20T04:01:45.245Z
-updated: 2024-10-26T18:23:41.617Z
+date: 2024-10-29T19:55:39.018Z
+updated: 2024-11-01T20:46:38.758Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -153,3 +153,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1733829-9781453279717-famous-ghosts/"><u>Famous Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1732133-9781885928245-initiation-into-hermetics/"><u>Initiation Into Hermetics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1733676-9781497665538-miracles-angels-afterlife/"><u>Miracles, Angels & Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1736609-9781497644526-soul-numbers/"><u>Soul Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1732132-9781885928252-the-key-to-the-true-kabbalah/"><u>The Key to the True Kabbalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1733830-9781453279724-this-house-is-haunted/"><u>This House Is Haunted | Free Book</u></a></li>
+</ul></div>
+

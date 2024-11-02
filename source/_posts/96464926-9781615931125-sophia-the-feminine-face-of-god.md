@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2024-10-21T22:32:25.324Z
-updated: 2024-10-26T16:37:42.992Z
+date: 2024-10-30T00:17:26.876Z
+updated: 2024-11-01T23:31:49.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -131,3 +131,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1776781-9781583949009-love-in-the-age-of-ecological-apocalypse/"><u>Love in the Age of Ecological Apocalypse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1779503-9781493011247-more-spooky-campfire-tales/"><u>More Spooky Campfire Tales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1776784-9781583949115-the-hidden-teaching-beyond-yoga/"><u>The Hidden Teaching Beyond Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1776791-9781583949405-the-smell-of-rain-on-dust/"><u>The Smell of Rain on Dust | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1776786-9781583949153-the-wisdom-of-the-overself/"><u>The Wisdom of the Overself | Free Book</u></a></li>
+</ul></div>
+

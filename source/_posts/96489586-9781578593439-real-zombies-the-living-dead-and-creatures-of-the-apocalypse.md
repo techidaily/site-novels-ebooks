@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-10-23T03:41:43.251Z
-updated: 2024-10-26T19:04:25.594Z
+date: 2024-10-30T21:04:24.877Z
+updated: 2024-11-01T16:02:57.095Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -233,3 +233,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138590691-9781452536279-conscious-mastery/"><u>Conscious Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590599-9781452550930-inspired-by-reiki-energy/"><u>Inspired by Reiki Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590730-9781452504490-my-encounters-with-the-spirit-world/"><u>My Encounters with the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590695-9781452539867-the-universal-power-of-you/"><u>The Universal Power of You | Free Book</u></a></li>
+</ul></div>
+

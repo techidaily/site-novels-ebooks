@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-10-24T19:57:53.322Z
-updated: 2024-10-27T01:15:46.386Z
+date: 2024-10-28T21:57:35.742Z
+updated: 2024-11-01T18:56:35.601Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -168,3 +168,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1315795-9781583946640-emas-odyssey/"><u>Ema's Odyssey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1316751-9781608681204-guardians-of-being/"><u>Guardians of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1315787-9781400046867-sacred-contracts/"><u>Sacred Contracts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1316764-9781609256708-the-hades-moon/"><u>The Hades Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1297515-9780892545827-the-moons-nodes/"><u>The Moon's Nodes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1316765-9781881098010-the-witches-almanac-issue-33-spring-2014-spring-2015/"><u>The Witches' Almanac: Issue 33, Spring 2014-Spring 2015 | Free Book</u></a></li>
+</ul></div>
+

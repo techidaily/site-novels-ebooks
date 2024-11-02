@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2024-10-24T23:57:24.387Z
-updated: 2024-10-26T23:17:06.312Z
+date: 2024-10-29T16:51:40.707Z
+updated: 2024-11-01T22:28:42.658Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -146,3 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126936-9781612831268-emergence/"><u>Emergence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126937-9781612831534-emissary-of-love/"><u>Emissary of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126943-9781612831343-energy-work/"><u>Energy Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126945-9781612832630-eternal-life-and-how-to-enjoy-it/"><u>Eternal Life and How to Enjoy It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126954-9781612831022-eyes-of-an-angel/"><u>Eyes Of An Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126957-9781612831565-fast-lane-to-heaven/"><u>Fast Lane to Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126935-9781612832999-the-emerald-modem/"><u>The Emerald Modem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126953-9781612831435-the-extraterrestrial-answer-book/"><u>The Extraterrestrial Answer Book | Free Book</u></a></li>
+</ul></div>
+

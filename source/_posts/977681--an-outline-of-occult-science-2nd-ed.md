@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-10-20T23:44:32.735Z
-updated: 2024-10-27T02:16:29.436Z
+date: 2024-10-31T21:22:07.373Z
+updated: 2024-11-01T23:55:06.673Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -128,3 +128,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125895-9781609253905-meditation-and-kabbalah/"><u>Meditation and Kabbalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125896-9781609254865-meditation-and-the-bible/"><u>Meditation and the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125900-9781609250195-meta-magick-the-book-of-atem/"><u>Meta-Magick: The Book of ATEM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125904-9781609254674-modern-shamanic-living/"><u>Modern Shamanic Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125914-9781609258009-mrs-bs-guide-to-household-witchery/"><u>Mrs. B's Guide to Household Witchery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125892-9781609257255-the-mayan-ouroboros/"><u>The Mayan Ouroboros | Free Book</u></a></li>
+</ul></div>
+

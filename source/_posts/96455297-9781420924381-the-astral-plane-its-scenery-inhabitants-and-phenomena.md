@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-10-25T02:10:36.442Z
-updated: 2024-10-27T01:06:03.535Z
+date: 2024-10-28T23:27:37.348Z
+updated: 2024-11-01T21:18:03.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -133,3 +133,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1724714-9781476775746-angels-of-divine-light/"><u>Angels of Divine Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1716816-9781466877863-divine-prescriptions/"><u>Divine Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1716377-9781776537365-evolution-of-life-and-form/"><u>Evolution of Life and Form | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1712936-9781473510333-seasons-of-hope/"><u>Seasons of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1713677-9781615645459-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1725062-9781466878631-the-truth-behind-men-in-black/"><u>The Truth Behind Men In Black | Free Book</u></a></li>
+</ul></div>
+

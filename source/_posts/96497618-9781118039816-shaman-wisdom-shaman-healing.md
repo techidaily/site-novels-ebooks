@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-10-22T20:53:13.003Z
-updated: 2024-10-26T20:43:12.434Z
+date: 2024-10-29T19:01:31.447Z
+updated: 2024-11-01T20:10:29.035Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -179,3 +179,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138579039-9781462020485-alayas-fables/"><u>Alaya's Fables | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138578533-9781449711061-ryans-world/"><u>Ryan's World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138578870-9781450292399-seasons/"><u>Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138578507-9781462005369-secrets-of-a-world-untold/"><u>Secrets of a World Untold | Free Book</u></a></li>
+</ul></div>
+

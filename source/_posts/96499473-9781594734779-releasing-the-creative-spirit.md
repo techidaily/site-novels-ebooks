@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2024-10-24T02:40:46.015Z
-updated: 2024-10-27T00:46:00.122Z
+date: 2024-11-01T00:30:03.792Z
+updated: 2024-11-01T17:25:54.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -179,3 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1342639-9781934588864-alien-crash-at-roswell/"><u>Alien Crash at Roswell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1337379-9780988677302-body-signals/"><u>Body Signals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1338603-9780985247928-diannas-way/"><u>Dianna's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1322633-9780988432758-en-glimt-av-nad/"><u>En Glimt Av Nad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1322231-9780804151139-laugh-i-thought-id-die-if-i-didnt/"><u>Laugh! I Thought I'd Die (If I Didn't) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1322659-9781609257309-tarot-of-ceremonial-magick/"><u>Tarot of Ceremonial Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1337380-9780988677319-the-practical-shaman/"><u>The Practical Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1331247-9781938289149-understanding-human-design/"><u>Understanding Human Design | Free Book</u></a></li>
+</ul></div>
+

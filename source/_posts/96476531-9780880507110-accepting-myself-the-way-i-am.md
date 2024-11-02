@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2024-10-25T02:11:49.558Z
-updated: 2024-10-26T22:19:42.491Z
+date: 2024-10-25T21:52:45.609Z
+updated: 2024-11-01T16:19:55.196Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -160,3 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621308-9781601634337-experiences-from-the-light/"><u>Experiences From the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621315-9781601635976-financial-sorcery/"><u>Financial Sorcery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621311-9781601634450-lost-secrets-of-the-gods/"><u>Lost Secrets of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621314-9781601634528-sex-sorcery-and-spirit/"><u>Sex, Sorcery, and Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621318-9781601635198-the-call-of-soul/"><u>The Call of Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621316-9781601635099-the-energetic-keys-to-indigo-kids/"><u>The Energetic Keys to Indigo Kids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621321-9781601635501-the-lightworkers-source/"><u>The Lightworker's Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621319-9781601635587-the-ufo-singularity/"><u>The UFO Singularity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621310-9781601634962-viral-mythology/"><u>Viral Mythology | Free Book</u></a></li>
+</ul></div>
+
