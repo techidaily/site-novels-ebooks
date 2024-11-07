@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2024-10-20T00:03:08.657Z
-updated: 2024-10-26T18:10:30.062Z
+date: 2024-11-05T16:25:33.259Z
+updated: 2024-11-07T16:25:15.123Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -161,3 +161,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209518627-9781620558195-mindapps/"><u>Mindapps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518629-9781620558843-sex-and-the-enneagram/"><u>Sex and the Enneagram | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519670-9781788887021-the-book-of-fortune-telling/"><u>The Book of Fortune Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519672-9781789502893-the-complete-book-of-ghosts/"><u>The Complete Book of Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519673-9781788886994-the-zodiac-oracle/"><u>The Zodiac Oracle | Free Book</u></a></li>
+</ul></div>
+

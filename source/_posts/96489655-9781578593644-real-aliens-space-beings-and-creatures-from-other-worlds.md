@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-10-30T22:31:47.624Z
-updated: 2024-11-01T16:06:53.909Z
+date: 2024-11-05T19:18:08.858Z
+updated: 2024-11-07T18:48:04.929Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,9 +264,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138574779-9781450223867-god-had-a-plan-for-me/"><u>God Had a Plan for Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574801-9781440115660-shadow-people/"><u>Shadow People | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574733-9781469788692-the-100-most-entertaining-predictions-about-the-21st-century/"><u>The 100 Most Entertaining Predictions About the 21St Century | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574763-9781462048434-the-magicians/"><u>The Magicians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301479-9781916045163-crystal-spell-kit-instruction-booklet/"><u>Crystal Spell Kit Instruction Booklet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210302048-9781782406983-secrets-of-color-healing/"><u>Secrets of Color Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301482-9781916045187-the-candle-magic-banishing-and-purification-instruction-booklet/"><u>The Candle Magic Banishing and Purification Instruction Booklet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301551-9781774815069-the-prophet/"><u>The Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210302104-9781735471082-venus-juice/"><u>Venus Juice | Free Book</u></a></li>
 </ul></div>
 

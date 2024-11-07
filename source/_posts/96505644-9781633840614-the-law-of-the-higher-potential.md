@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2024-10-28T17:38:48.241Z
-updated: 2024-11-01T16:12:16.585Z
+date: 2024-11-01T17:09:03.943Z
+updated: 2024-11-07T16:49:27.503Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,14 +135,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138570814-9781440193347-a-pathway-to-union/"><u>A Pathway To Union | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571115-9780595620678-angels/"><u>Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571025-9780595780181-church-folk-some-messed-up-folk/"><u>Church-Folk Some Messed-Up-Folk | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571063-9781440193125-divine-inspiration-divine-understanding/"><u>Divine Inspiration, Divine Understanding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571034-9781450226097-love-loss-and-enlightenment/"><u>Love, Loss and Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571032-9781449724672-moving-meditation/"><u>Moving Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138570822-9781450237116-soul-contracts/"><u>Soul Contracts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138570971-9780595841745-those-left-behind/"><u>Those Left Behind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571109-9781617640001-un-dia-importante/"><u>Un Día... Importante. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294429-9781644585757-a-complete-guide-to-godly-wisdom/"><u>A Complete Guide to Godly Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294367-9781644167991-awaken-a-soul-quenching-journey/"><u>Awaken: A Soul Quenching Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294292-9781644586648-beyond-doubt/"><u>Beyond Doubt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294150-9781641401463-stop-lying-on-god/"><u>Stop Lying On God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294318-9781644925584-tree-of-salvation/"><u>Tree of Salvation | Free Book</u></a></li>
 </ul></div>
 

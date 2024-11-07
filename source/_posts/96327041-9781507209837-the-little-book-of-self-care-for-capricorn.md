@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Capricorn | Free Book
-date: 2024-10-22T02:12:53.357Z
-updated: 2024-10-26T21:05:23.556Z
+date: 2024-10-31T17:39:40.010Z
+updated: 2024-11-07T17:05:12.056Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977ee44c94c191dcc84849061ae3794bfc4ca.jpg
@@ -166,3 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209854275-9780648011521-everyday-miracle-maker/"><u>Everyday Miracle Maker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854257-9780996902427-iphelia/"><u>Iphelia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854255-9781947369108-love-never-dies-a-psychic-artist-illustrates-true-stories-of-the-afterlife/"><u>Love Never Dies - A Psychic Artist Illustrates True Stories of the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853868-9780982508541-me-the-crazy-woman-and-breast-cancer-2nd-ed/"><u>Me, the Crazy Woman, and Breast Cancer (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854105-9789670310718-qi-men-dun-jia-forecasting-method-wealth-life-pursuits/"><u>Qi Men Dun Jia Forecasting Method - Wealth & Life Pursuits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853829-9781640850279-released-to-roar/"><u>Released To ROAR | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854335-9781889471303-spell-breaking-2/"><u>Spell Breaking 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853888-9781910559390-wild-wise/"><u>Wild & Wise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854114-9781947938236-your-first-step-to-re-create-your-life-in-oneness/"><u>Your First Step to Re-Create Your Life in Oneness | Free Book</u></a></li>
+</ul></div>
+

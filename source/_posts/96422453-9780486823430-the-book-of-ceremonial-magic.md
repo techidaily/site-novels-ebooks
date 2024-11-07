@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2024-10-24T03:40:46.107Z
-updated: 2024-10-26T16:53:14.578Z
+date: 2024-11-03T19:06:20.796Z
+updated: 2024-11-07T16:08:51.467Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -158,3 +158,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209537987-9781943869428-a-brief-history-of-a-physicists-soul/"><u>A Brief History of a Physicist's Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209533140-9781781803790-an-introduction-to-mediumship/"><u>An Introduction to Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209532196-9781789504279-astrology-in-the-workplace/"><u>Astrology in the Workplace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539765-9781601636560-defense-against-the-dark/"><u>Defense Against the Dark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209533150-9781848504417-spirit-messenger/"><u>Spirit Messenger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209533170-9781781803783-the-world-of-psychics/"><u>The World of Psychics | Free Book</u></a></li>
+</ul></div>
+

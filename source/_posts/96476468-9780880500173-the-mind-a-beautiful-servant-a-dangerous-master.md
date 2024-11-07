@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2024-10-29T20:47:41.092Z
-updated: 2024-11-01T20:16:35.477Z
+date: 2024-11-03T18:17:04.455Z
+updated: 2024-11-07T17:51:53.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,12 +167,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1582388-9781782793229-a-path-of-joy/"><u>A Path of Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1580050-9781780993294-heartlines-and-the-web/"><u>Heartlines and The Web | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1580121-9780892545995-initiation-in-the-aeon-of-the-child/"><u>Initiation in the Aeon of the Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1578232-9781476613673-reimagining-the-soul/"><u>Reimagining the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1582392-9781780996165-shaman-pathways-the-druid-shaman/"><u>Shaman Pathways - The Druid Shaman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1576841-9781459726574-the-worlds-greatest-unsolved-mysteries/"><u>The World's Greatest Unsolved Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1576842-9781459726581-the-worlds-most-mysterious-people/"><u>The World's Most Mysterious People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210402704-9781789048438-conform-or-be-cast-out/"><u>Conform or Be Cast Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210402490-9781638603658-lycanthrope/"><u>Lycanthrope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210403945-9780711266841-natural-magick/"><u>Natural Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210402715-9781782790556-pagan-portals-the-triple-goddess/"><u>Pagan Portals - The Triple Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404136-9798985059915-portrait-of-my-soul/"><u>Portrait Of My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404229-9781735740140-quantum-golf-2nd-edition/"><u>Quantum Golf 2nd Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210402702-9781789045642-the-winds-of-homecoming/"><u>The Winds of Homecoming | Free Book</u></a></li>
 </ul></div>
 

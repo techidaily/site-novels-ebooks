@@ -1,7 +1,7 @@
 ---
 title: Reality, Spirituality and Modern Man | Free Book
-date: 2024-10-25T02:48:56.337Z
-updated: 2024-10-26T17:45:02.976Z
+date: 2024-11-01T18:49:59.613Z
+updated: 2024-11-07T17:39:35.201Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c29326fcdaa989600a03f6d8338ae30261e9e6eaa46aab0c6ac6fee2cbd8aea.jpg
@@ -156,3 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c29326fcdaa989600a03f6d8338ae3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210174967-9781646546282-archangel-michael-breathes/"><u>Archangel Michael Breathes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210174979-9781646548798-crazy-or-not-here-i-come/"><u>Crazy or Not, Here I Come | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210175095-9780984035397-go-in-joy-an-alphabetical-adventure-second-edition/"><u>Go In Joy! An Alphabetical Adventure Second Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210175328-9780648554134-holy-ghost-like-mind-is-a-good-mother-like-character/"><u>Holy Ghost-like mind is a Good Mother-like character | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210175123-9781647465445-mind-over-natter/"><u>Mind Over Natter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210175124-9781913479756-natural-magic-for-the-modern-goddess/"><u>Natural Magic For The Modern Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210176518-9781722526320-the-million-dollar-mind/"><u>The Million Dollar Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210175837-9781934532492-the-mind/"><u>The Mind | Free Book</u></a></li>
+</ul></div>
+

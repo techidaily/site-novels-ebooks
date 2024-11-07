@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-10-29T19:05:43.732Z
-updated: 2024-11-01T19:52:28.970Z
+date: 2024-11-06T16:40:34.859Z
+updated: 2024-11-07T16:44:52.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,13 +179,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138580579-9781450294041-a-manual-for-the-modern-mystic/"><u>A Manual for the Modern Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580725-9781452537191-beautys-way/"><u>Beauty’S Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580192-9781452534787-going-out-in-style/"><u>Going out in Style | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580207-9781462061181-lucid-death/"><u>Lucid Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580715-9781617647031-ovnis/"><u>Ovnis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580655-9781462000562-small-steps-huge-changes/"><u>Small Steps, Huge Changes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580060-9781491754016-turn-abouts-fairplay/"><u>Turn About’S Fairplay | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580401-9781450293105-wisdom-for-the-good-life/"><u>Wisdom for the Good Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210320333-9780648453628-a-journey-of-self-discovery/"><u>A JOURNEY OF SELF DISCOVERY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210320929-9781667401638-criando-o-tarot-visconti-sforza/"><u>Criando o Tarot Visconti-Sforza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210319222-9782019459727-le-secret-de-lalchimiste/"><u>Le secret de l'Alchimiste | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210320435-9781631955181-murphys-dont-quit/"><u>Murphys Don’t Quit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210319126-9781528956499-the-mastery-of-life/"><u>The Mastery of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210320862-9781667402413-tu-mereces-lo-mejor/"><u>Tú mereces lo mejor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210320806-9781667402727-women-i-love-you/"><u>Women... I Love You | Free Book</u></a></li>
 </ul></div>
 

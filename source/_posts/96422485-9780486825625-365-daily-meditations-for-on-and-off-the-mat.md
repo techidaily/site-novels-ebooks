@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-10-22T05:15:50.243Z
-updated: 2024-10-27T03:18:25.308Z
+date: 2024-11-03T18:46:39.536Z
+updated: 2024-11-07T17:49:36.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -166,3 +166,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209539852-9781581771527-dirty-work/"><u>Dirty Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539767-9781601636539-exposed-uncovered-declassified-ufos-and-aliens/"><u>Exposed, Uncovered & Declassified: UFOs and Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539946-9780883913857-how-to-acquire-a-million-dollar-personality/"><u>How To Acquire A Million-Dollar Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539947-9780883915691-how-to-hypnotize-yourself-amp-others/"><u>How to Hypnotize Yourself &amp; Others | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539961-9780883915714-i-can-heal-myself-and-i-will/"><u>I Can Heal Myself and I Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539933-9780883915752-the-complete-beginners-guide-to-magic/"><u>The Complete Beginner's Guide to Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539964-9780883915585-the-magic-of-a-powerful-memory/"><u>The Magic of a Powerful Memory | Free Book</u></a></li>
+</ul></div>
+

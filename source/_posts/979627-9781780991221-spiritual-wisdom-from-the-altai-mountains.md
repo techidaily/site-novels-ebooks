@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2024-10-25T21:16:15.491Z
-updated: 2024-11-01T17:02:13.598Z
+date: 2024-11-04T19:15:58.679Z
+updated: 2024-11-07T19:22:55.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -132,10 +132,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126001-9781609253974-retrograde-planets/"><u>Retrograde Planets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126002-9781609256449-return-again/"><u>Return Again | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126005-9781609256678-rules-for-spiritual-initiation/"><u>Rules for Spiritual Initiation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126006-9781609253011-runes-for-transformation/"><u>Runes for Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126016-9781609252953-the-secret-history-of-consciousness/"><u>The Secret History of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210403-9781777318949-2021-year-of-tarot/"><u>2021 Year of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210284-9781647866617-a-quantum-healing-expression/"><u>A Quantum Healing Expression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209538-9781582708003-miracles-and-other-realities/"><u>Miracles and Other Realities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209405-9781071581094-passe-backstage-para-o-outro-lado/"><u>Passe Backstage Para O Outro Lado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209539-9781582708379-stop-fixing-yourself/"><u>Stop Fixing Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210651-9781722526122-the-power-of-your-transcendental-mind-condensed-classics/"><u>The Power of Your Transcendental Mind (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210656-9781722526719-the-secret-formula/"><u>The Secret Formula | Free Book</u></a></li>
 </ul></div>
 

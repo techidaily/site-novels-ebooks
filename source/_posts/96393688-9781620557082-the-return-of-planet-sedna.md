@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2024-10-20T20:10:42.258Z
-updated: 2024-10-26T20:21:47.320Z
+date: 2024-10-31T18:59:26.457Z
+updated: 2024-11-07T17:21:48.610Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -202,3 +202,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209634843-9781507193976-entendiendo-la-codependencia/"><u>Entendiendo la Codependencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634870-9781547530946-le-reiki-du-travailleur-de-lumiere/"><u>Le reiki du travailleur de lumière | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634896-9781547571352-meditacao-o-melhor-guia-para-aprender-a-meditar/"><u>Meditação: O Melhor Guia Para Aprender A Meditar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634887-9781547573073-meditazione-una-guida-per-principianti-per-scoprire-il-potere-della-meditazione/"><u>Meditazione: una guida per principianti per scoprire il potere della meditazione | Free Book</u></a></li>
+</ul></div>
+

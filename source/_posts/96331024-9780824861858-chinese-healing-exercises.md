@@ -1,7 +1,7 @@
 ---
 title: Chinese Healing Exercises | Free Book
-date: 2024-10-25T16:19:59.051Z
-updated: 2024-10-27T05:40:30.626Z
+date: 2024-11-04T17:35:47.694Z
+updated: 2024-11-07T18:45:05.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/721841b5e0d89bdd9e4cd3861a816fbd793cfcb6aa286d2d9b68065f60c6dcd1.jpg
@@ -171,3 +171,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/721841b5e0d89bdd9e4cd3861a816fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209856015-9780648184638-acupuncture-of-the-mind/"><u>Acupuncture of The Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855916-9780692509623-deeply-wounded-hope/"><u>Deeply Wounded Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855880-9780999480595-the-power-formula/"><u>The Power Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855887-9780692986127-thought-optional/"><u>Thought Optional | Free Book</u></a></li>
+</ul></div>
+

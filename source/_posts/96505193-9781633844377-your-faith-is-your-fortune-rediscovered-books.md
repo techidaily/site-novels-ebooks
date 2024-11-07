@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2024-10-27T17:46:10.041Z
-updated: 2024-11-01T21:43:12.930Z
+date: 2024-11-04T18:51:57.527Z
+updated: 2024-11-07T19:00:34.545Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,11 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138566314-9781401951603-angels-of-love/"><u>Angels of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566300-9781401932121-animal-spirit-guides/"><u>Animal Spirit Guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566303-9781401951559-clear-home-clear-heart/"><u>Clear Home, Clear Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566296-9781401932923-the-force/"><u>The Force | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566302-9781401921408-the-guru-of-joy/"><u>The Guru of Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566317-9781623173746-the-handbook-of-chinese-horoscopes/"><u>The Handbook of Chinese Horoscopes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283368-9781098077594-five-years-and-a-million-tears/"><u>Five Years and a Million Tears | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283408-9781098080068-just-random-thoughts/"><u>Just Random Thoughts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283411-9781098041151-liquid-love/"><u>Liquid Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283320-9781722523527-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-develop-self-confidence-and-self-esteem/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Develop Self Confidence and Self Esteem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283319-9781722526757-the-magic-keys/"><u>The Magic Keys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283321-9781722526764-your-super-powers/"><u>Your Super Powers! | Free Book</u></a></li>
 </ul></div>
 

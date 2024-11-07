@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2024-10-30T00:02:32.479Z
-updated: 2024-11-01T22:11:41.645Z
+date: 2024-11-04T16:31:36.111Z
+updated: 2024-11-07T19:24:58.601Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,14 +166,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1648027-9781476735498-harness-astrologys-bad-boy/"><u>Harness Astrology's Bad Boy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1648105-9781439128947-healing-the-soul-of-america/"><u>Healing the Soul of America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1650305-9781612833286-induced-after-death-communication/"><u>Induced After Death Communication | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1650259-9781782795117-on-dragonfly-wings/"><u>On Dragonfly Wings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1645559-9781476765037-reflexiones-diarias-de-el-secreto/"><u>Reflexiones Diarias de El Secreto | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/164636-9780743488709-the-psychic-in-you/"><u>The Psychic in You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1651771-9781609259532-the-theban-oracle/"><u>The Theban Oracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1650264-9781780991160-throw-away-your-loincloth/"><u>Throw Away Your Loincloth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1648019-9781476764450-you-cant-make-this-stuff-up/"><u>You Can't Make This Stuff Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418449-9781902405803-astrology-and-meditation/"><u>Astrology and Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418488-9781878203120-awaken-to-tarot/"><u>Awaken To Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418512-9781637675830-i-want-you-to-know-my-glory/"><u>I Want You To Know My Glory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418573-9781802270518-marvellous-magical-chakras/"><u>Marvellous Magical Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418472-9781914110078-myths-of-mindfulness/"><u>Myths of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418581-9781951879037-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418466-9781739857325-the-1-mindset/"><u>The 1% Mindset | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418609-9781956896282-the-game-of-lovelife/"><u>The Game of Love/Life | Free Book</u></a></li>
 </ul></div>
 

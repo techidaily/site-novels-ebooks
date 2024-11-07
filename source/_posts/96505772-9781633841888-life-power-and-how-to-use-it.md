@@ -1,7 +1,7 @@
 ---
 title: Life Power and How to Use It | Free Book
-date: 2024-10-31T17:58:03.602Z
-updated: 2024-11-01T23:05:09.446Z
+date: 2024-11-05T17:57:25.818Z
+updated: 2024-11-07T19:24:57.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f8b0d68c30dc559a17ffd4ac5d1f54a86a.jpg
@@ -135,9 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138572358-9780595616190-culture-clash/"><u>Culture Clash | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572676-9780595762569-fifty-five-positive-steps-black-people-can-take-to-preserve-themselves-into-the-21st-century/"><u>Fifty-Five Positive Steps Black People Can Take to Preserve Themselves into the 21St Century | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572389-9781469746166-questions-answers-on-the-path-of-ascension-and-self-realization/"><u>Questions & Answers on the Path of Ascension and Self-Realization | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572646-9781450212618-you-wake-me-each-morning/"><u>You Wake Me Each Morning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297156-9781641910644-building-your-dream-muscle/"><u>Building Your Dream Muscle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297218-9781643496351-difficult-blessings/"><u>Difficult Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297280-9781098029173-dreams-of-a-layman/"><u>Dreams of a Layman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297245-9781641149419-energy-of-love/"><u>Energy Of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297167-9781644167779-mind-to-heart/"><u>Mind To Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297335-9781640792920-revelations-of-a-real-man-or-woman/"><u>Revelations of A Real Man (or Woman) | Free Book</u></a></li>
 </ul></div>
 

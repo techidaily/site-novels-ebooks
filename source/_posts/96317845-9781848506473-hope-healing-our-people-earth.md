@@ -1,7 +1,7 @@
 ---
 title: HOPE - Healing Our People & Earth | Free Book
-date: 2024-10-24T18:25:26.475Z
-updated: 2024-10-27T05:50:30.231Z
+date: 2024-11-05T16:34:24.816Z
+updated: 2024-11-07T19:23:31.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00fe265d1888dba59e0648b23d931a9e95f3452fad1c37c057127a1eeeb01fe4.jpg
@@ -161,3 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00fe265d1888dba59e0648b23d931a9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209868280-9780648457916-bodies-of-consequence/"><u>Bodies of Consequence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868253-9780578445687-finding-home-restoring-the-sacred-to-life/"><u>Finding Home: Restoring the Sacred to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868200-9781912014262-mighty-angels-by-your-side/"><u>Mighty Angels By Your Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868287-9781946054104-roar/"><u>ROAR! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868136-9781947811027-surfing-the-himalayas/"><u>Surfing the Himalayas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868072-9780957619524-the-human-energy-system/"><u>The Human Energy System | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868015-9789387550179-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868237-9780578445625-women-wisdom-dreams/"><u>Women, Wisdom & Dreams | Free Book</u></a></li>
+</ul></div>
+

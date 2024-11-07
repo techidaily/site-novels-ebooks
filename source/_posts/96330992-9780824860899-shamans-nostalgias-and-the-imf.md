@@ -1,7 +1,7 @@
 ---
 title: Shamans, Nostalgias, and the IMF | Free Book
-date: 2024-10-20T23:44:23.231Z
-updated: 2024-10-26T21:34:00.689Z
+date: 2024-11-02T17:06:26.449Z
+updated: 2024-11-07T18:55:58.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2363d581d42094f58090872f835c4b61aa822c64594c77ffd2615b241c42a00.jpg
@@ -173,3 +173,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2363d581d42094f58090872f835c4b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209855781-9780648014010-6-dimensions-of-healing/"><u>6 Dimensions Of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855793-9781784569501-female-energy-awakening/"><u>Female Energy Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855553-9781938015465-leap-of-faith/"><u>Leap of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855758-9780990885986-shifting-paradigms-for-men-transformation-through-renewed-vision-instructor-guide/"><u>Shifting Paradigms For Men Transformation Through Renewed Vision Instructor Guide: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855506-9780992924898-shrouded-truth/"><u>Shrouded Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855780-9781944796051-the-big-if-in-life-discover-the-biggest-purpose-ever-guiding-you/"><u>The Big IF in Life: Discover the Biggest Purpose Ever Guiding You | Free Book</u></a></li>
+</ul></div>
+

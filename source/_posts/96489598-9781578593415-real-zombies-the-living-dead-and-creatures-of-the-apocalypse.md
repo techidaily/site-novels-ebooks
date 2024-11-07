@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-10-30T00:32:49.312Z
-updated: 2024-11-01T20:39:48.075Z
+date: 2024-10-31T16:33:22.963Z
+updated: 2024-11-07T16:50:43.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,9 +238,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138592432-9781452538556-7-days/"><u>7 Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592306-9781452568027-artful-grief/"><u>Artful Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592454-9781452536248-enlightenment-journal/"><u>Enlightenment Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592254-9781463313678-quisqueya-un-pais-en-el-mundo/"><u>Quisqueya: Un País En El Mundo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346089-9782226465078-il-suffit-parfois-dun-signe/"><u>Il suffit parfois d'un signe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346028-9782226460554-les-cles-de-lesoterisme-chakras/"><u>Les Clés de l'ésotérisme - Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346075-9782226466013-nos-ames-oubliees/"><u>Nos âmes oubliées | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346323-9782807331082-soigner-en-pleine-conscience/"><u>Soigner en pleine conscience | Free Book</u></a></li>
 </ul></div>
 

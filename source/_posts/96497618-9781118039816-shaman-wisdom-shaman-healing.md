@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-10-29T19:01:31.447Z
-updated: 2024-11-01T20:10:29.035Z
+date: 2024-11-06T18:45:17.519Z
+updated: 2024-11-07T17:33:51.151Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,9 +182,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138579039-9781462020485-alayas-fables/"><u>Alaya's Fables | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138578533-9781449711061-ryans-world/"><u>Ryan's World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138578870-9781450292399-seasons/"><u>Seasons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138578507-9781462005369-secrets-of-a-world-untold/"><u>Secrets of a World Untold | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313053-9780984002979-dialogues-with-yeshua-and-mary-magdalene/"><u>Dialogues with Yeshua and Mary Magdalene | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210312926-9781636300955-gods-grace-on-me/"><u>God's Grace on Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210312845-9781649524423-imagine-living-life-well-with-perspective-perseverance/"><u>Imagine Living Life Well with Perspective & Perseverance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210311461-9781789046595-looking-back-on-the-future/"><u>Looking Back on the Future | Free Book</u></a></li>
 </ul></div>
 

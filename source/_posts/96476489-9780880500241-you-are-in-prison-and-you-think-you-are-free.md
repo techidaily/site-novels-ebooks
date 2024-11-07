@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-10-30T22:35:03.700Z
-updated: 2024-11-01T22:43:08.367Z
+date: 2024-10-31T18:52:24.252Z
+updated: 2024-11-07T19:21:15.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,13 +170,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1628697-9781444129151-be-your-own-life-coach/"><u>Be Your Own Life Coach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628699-9781444129182-beat-stress-with-meditation-teach-yourself/"><u>Beat Stress With Meditation: Teach Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628547-9780748111657-becoming-clairvoyant/"><u>Becoming Clairvoyant | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628701-9781444129212-change-your-mood-with-aromatherapy-teach-yourself/"><u>Change Your Mood With Aromatherapy: Teach Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628215-9780748117932-conscious-medicine/"><u>Conscious Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628705-9781444129359-get-started-in-reiki/"><u>Get Started In Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628307-9780748122530-say-no-to-cancer/"><u>Say No To Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628294-9781444725834-what-women-know/"><u>What Women Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412133-9781667415628-baraja-de-tarot-visconti-sforza-para-cortar/"><u>Baraja de Tarot Visconti-Sforza para Cortar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412148-9781667415345-meditacion-mindfulness-para-mejorar-el-sueno/"><u>Meditaciòn Mindfulness para mejorar el sueño | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412098-9781667414638-mindfulness-conoce-la-paz-y-felicidad-que-brindan-la-atencion-plena-y-la-meditacion/"><u>Mindfulness: Conoce la paz y felicidad que brindan la Atención Plena y la Meditación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412155-9781667415673-osare/"><u>Osare | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412099-9781667417097-trasforma-gli-estranei-in-amici/"><u>Trasforma gli estranei in amici | Free Book</u></a></li>
 </ul></div>
 

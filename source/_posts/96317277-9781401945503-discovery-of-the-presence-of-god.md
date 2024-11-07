@@ -1,7 +1,7 @@
 ---
 title: Discovery of the Presence of God | Free Book
-date: 2024-10-23T04:16:38.366Z
-updated: 2024-10-26T23:56:22.803Z
+date: 2024-11-03T17:32:44.390Z
+updated: 2024-11-07T16:55:24.416Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f99b2cffe07f2480ca828672d44a0a2c6fcc9fd3d3325dde4fc0068be922957.jpg
@@ -174,3 +174,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f99b2cffe07f2480ca828672d44a0a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210002044-9781601637611-cosmic-conversations/"><u>Cosmic Conversations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002067-9781601637628-encyclopedia-of-haunted-places-revised-edition/"><u>Encyclopedia of Haunted Places, Revised Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002064-9781609254025-saturn-in-transit/"><u>Saturn in Transit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002043-9781601634481-strange-electromagnetic-dimensions/"><u>Strange Electromagnetic Dimensions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002049-9781609256401-touching-the-light-day-by-day/"><u>Touching the Light, Day by Day | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2024-10-30T17:56:37.601Z
-updated: 2024-11-01T20:57:32.937Z
+date: 2024-11-06T17:50:10.901Z
+updated: 2024-11-07T16:59:47.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,12 +142,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1164029-9781101633755-afterlife/"><u>Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/116665-9780749919818-barefoot-doctors-handbook-for-heroes/"><u>Barefoot Doctor's Handbook for Heroes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168107--messages-from-spirit/"><u>Messages from Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1164413--the-episodes/"><u>The Episodes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1163986-9781101601525-the-power-of-meditation/"><u>The Power of Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/116679-9781582186399-the-soul-of-the-indian/"><u>The Soul of the Indian | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1164094-9781608827763-why/"><u>Why? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252385-9781662424359-before-i-die/"><u>Before I Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252504-9780760370582-herbal-magic/"><u>Herbal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252419-9781990175015-i-shall-live/"><u>I Shall Live | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252348-9781098077020-its-time-for-a-revolution/"><u>It's Time for a Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252443-9781638482437-the-book-of-earth-opus-ii-taking-jesus-off-the-cross/"><u>The Book of Earth Opus II - Taking Jesus Off the Cross | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252428-9781945252884-the-four-fundamental-aspects-of-love/"><u>The Four Fundamental Aspects of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252467-9781734337853-the-manual/"><u>The Manual | Free Book</u></a></li>
 </ul></div>
 

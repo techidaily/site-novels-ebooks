@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Sagittarius | Free Book
-date: 2024-10-22T04:47:18.869Z
-updated: 2024-10-27T00:23:05.439Z
+date: 2024-11-03T17:15:00.585Z
+updated: 2024-11-07T16:28:25.218Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379c97a1dda998ff087b353f1fe5678bf59b.jpg
@@ -168,3 +168,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209851725-9781940863092-5-rules-for-drama-free-living/"><u>5 Rules for Drama-Free Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851635-9781944328764-after-death-communications/"><u>After-Death Communications | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851630-9788792980007-choose-a-simple-living/"><u>Choose a simple living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851886-9781947168015-the-workings-of-energy-in-the-human-energy-field-2nd-ed/"><u>The Workings of Energy in the Human Energy Field (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+

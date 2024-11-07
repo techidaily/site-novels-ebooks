@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2024-10-28T17:06:05.163Z
-updated: 2024-11-01T22:12:25.619Z
+date: 2024-11-01T17:00:55.716Z
+updated: 2024-11-07T17:16:40.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,14 +192,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125785-9781609253134-i-ching-companion/"><u>I Ching Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125795-9781609257385-initiation-into-numerology/"><u>Initiation into Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125800-9781609252304-intuition/"><u>Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125801-9781609251352-intuitive-living/"><u>Intuitive Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125805-9781609255725-john-dees-five-books-of-mystery/"><u>John Dee's Five Books of Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125817-9781609250751-keywords-for-the-crowley-tarot/"><u>Keywords for the Crowley Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125819-9781609251680-kids-who-see-ghosts/"><u>Kids Who See Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125797-9781609253875-the-inner-planets/"><u>The Inner Planets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125818-9781609254209-the-ki-process/"><u>The Ki Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200149-9781631597060-10-minute-crystal-ball/"><u>10-Minute Crystal Ball | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200268-9781888729757-beyond-esoteric/"><u>Beyond Esoteric | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199891-9781592338016-crystals-for-energy-healing/"><u>Crystals for Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199949-9780760361177-in-focus-meditation/"><u>In Focus Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200040-9780760364994-in-focus-reiki/"><u>In Focus Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199863-9780760365847-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200044-9781782407362-the-practice-of-mindful-yoga/"><u>The Practice of Mindful Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199948-9781631595769-the-ultimate-guide-to-crystal-grids/"><u>The Ultimate Guide to Crystal Grids | Free Book</u></a></li>
 </ul></div>
 

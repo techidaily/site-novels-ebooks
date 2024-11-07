@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Big Promises | Free Book
-date: 2024-10-25T05:46:54.304Z
-updated: 2024-10-26T18:07:38.994Z
+date: 2024-11-03T16:09:44.299Z
+updated: 2024-11-07T18:59:39.055Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3e2b9db9b4c4028005eaebb4db4e3a62cbf0b5dcdbb950b9590d1c04a39658a.jpg
@@ -179,3 +179,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3e2b9db9b4c4028005eaebb4db4e3a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209883627-9781620559246-emotional-intuition-for-peak-performance/"><u>Emotional Intuition for Peak Performance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883633-9781591433736-living-souls-in-the-spirit-dimension/"><u>Living Souls in the Spirit Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883643-9781644110294-primal-wisdom-of-the-ancients/"><u>Primal Wisdom of the Ancients | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883646-9781644110317-psychedelic-consciousness/"><u>Psychedelic Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883642-9781620559529-remote-healing/"><u>Remote Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883635-9781591433798-sacred-energies-of-the-sun-and-moon/"><u>Sacred Energies of the Sun and Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883625-9781644110256-the-druidic-art-of-divination/"><u>The Druidic Art of Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883637-9781620559673-the-mysterious-life-and-faked-death-of-jesse-james/"><u>The Mysterious Life and Faked Death of Jesse James | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883632-9781620559437-travels-to-the-otherworld-and-other-fantastic-realms/"><u>Travels to the Otherworld and Other Fantastic Realms | Free Book</u></a></li>
+</ul></div>
+

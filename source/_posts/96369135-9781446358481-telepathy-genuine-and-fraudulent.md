@@ -1,7 +1,7 @@
 ---
 title: "Telepathy: Genuine and Fraudulent | Free Book"
-date: 2024-10-22T02:20:00.617Z
-updated: 2024-10-27T05:36:49.469Z
+date: 2024-11-01T18:46:21.786Z
+updated: 2024-11-07T16:24:32.928Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391dc86b2fcd9a349461b60713368b976b43.jpg
@@ -147,3 +147,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209826516-9780008366353-cancer-2021-your-personal-horoscope/"><u>Cancer 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838161-9780991248902-heaven-is-everywhere/"><u>Heaven Is Everywhere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826517-9780008366438-pisces-2021-your-personal-horoscope/"><u>Pisces 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838034-9780992365318-poetry-for-inspiration-faith-truth-and-healing/"><u>Poetry for Inspiration, Faith, Truth and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826515-9780008366407-sagittarius-2021-your-personal-horoscope/"><u>Sagittarius 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209837982-9781889471297-spell-breaking/"><u>Spell Breaking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209831202-9781851688814-we-are-not-alone/"><u>We Are Not Alone | Free Book</u></a></li>
+</ul></div>
+

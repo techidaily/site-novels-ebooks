@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2024-10-26T19:23:14.340Z
-updated: 2024-11-01T17:15:21.933Z
+date: 2024-11-01T18:17:10.094Z
+updated: 2024-11-07T18:32:48.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,9 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138567583-9781617640384-el-infinito/"><u>El Infinito | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567641-9781452534121-its-a-metaphysical-world/"><u>It's a Metaphysical World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567493-9780595857876-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566329-9781984824158-the-secret-therapy-of-trees/"><u>The Secret Therapy of Trees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283680-9781636920870-angels-and-roses/"><u>Angels and Roses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283702-9781952648298-calming-the-brain-through-mindfulness-and-christian-meditation/"><u>Calming the Brain Through Mindfulness and Christian Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283764-9781684036813-essential-healing/"><u>Essential Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284652-9781913768126-living-witchcraft/"><u>Living WItchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284066-9781623176006-radical-healership/"><u>Radical Healership | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284654-9781735740102-self-empower-using-self-coaching-neuroadaptability-and-ayurveda/"><u>Self Empower: Using Self Coaching, Neuroadaptability, and Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284224-9781954676039-what-if-anything-is-out-there/"><u>What, If Anything, Is Out There? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283867-9781776095933-your-12-week-body-mind-transformation/"><u>Your 12-week Body & Mind Transformation | Free Book</u></a></li>
 </ul></div>
 

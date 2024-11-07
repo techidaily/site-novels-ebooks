@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2024-10-26T23:52:28.092Z
-updated: 2024-11-01T16:46:00.992Z
+date: 2024-11-04T19:08:03.554Z
+updated: 2024-11-07T19:18:30.717Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,14 +133,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125873-9781609257194-maat-magick/"><u>Maat Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125875-9781609250188-magic-when-you-need-it/"><u>Magic When You Need It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125876-9781609250508-magic-words/"><u>Magic Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125878-9781609257750-magical-hearth/"><u>Magical Hearth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125880-9781609256524-magical-world-of-the-tarot/"><u>Magical World of the Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125889-9781609252748-math-for-mystics/"><u>Math for Mystics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125874-9781609255848-the-magic-of-shapeshifting/"><u>The Magic of Shapeshifting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125884-9781609257880-the-magus/"><u>The Magus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125887-9781609250379-the-manifestation-wheel/"><u>The Manifestation Wheel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200999-9781908005151-art-of-mindful-silence/"><u>Art of Mindful Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202532-9781641605748-becoming-a-hollow-bone/"><u>Becoming a Hollow Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201517-9781647465773-becoming-whole/"><u>Becoming Whole | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202121-9781788174817-healing-is-the-new-high/"><u>Healing Is the New High | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201660-9781735740126-trouble-in-paradise/"><u>Trouble In Paradise | Free Book</u></a></li>
 </ul></div>
 

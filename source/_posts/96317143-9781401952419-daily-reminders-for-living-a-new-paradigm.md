@@ -1,7 +1,7 @@
 ---
 title: Daily Reminders for Living a New Paradigm | Free Book
-date: 2024-10-21T02:36:27.016Z
-updated: 2024-10-26T16:15:53.823Z
+date: 2024-11-04T16:56:25.376Z
+updated: 2024-11-07T16:20:23.027Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d613bcb4bd0ece0f46aafe58a03b83d8fc55fd4e552888c8eca1ea426b92d34.jpg
@@ -172,3 +172,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d613bcb4bd0ece0f46aafe58a03b83
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210140719-9781734426557-anxiety-rx/"><u>Anxiety Rx | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210138971-9781401961299-the-guardian-gateway/"><u>The Guardian Gateway | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210141699-9781507216262-the-official-guide-to-randonautica/"><u>The Official Guide to Randonautica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210137691-9781524866723-the-spirit-of-botany/"><u>The Spirit of Botany | Free Book</u></a></li>
+</ul></div>
+

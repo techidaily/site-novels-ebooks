@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Gemini | Free Book
-date: 2024-10-25T03:20:42.310Z
-updated: 2024-10-26T17:26:29.229Z
+date: 2024-10-31T17:09:01.079Z
+updated: 2024-11-07T18:21:41.826Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b70899244b6afd8c15f35581b3b721bc2026f4.jpg
@@ -166,3 +166,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b7089
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209851914-9780998915210-70-ways-to-hear-god/"><u>70 Ways To Hear God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853282-9781615000760-a-journey-into-the-spiritual-quest-of-who-we-are/"><u>A Journey Into The Spiritual Quest of Who We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853286-9781615000777-a-journey-into-the-spiritual-quest-of-who-we-are/"><u>A Journey Into The Spiritual Quest of Who We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853290-9781615000784-a-journey-into-the-spiritual-quest-of-who-we-are/"><u>A Journey Into The Spiritual Quest of Who We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853323-9780473402259-experimental-spirituality/"><u>Experimental Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209852058-9788792980021-lev-livet-enkelt-2nd-ed/"><u>Lev livet enkelt (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853357-9780473402792-the-matapaua-conversations/"><u>The Matapaua Conversations | Free Book</u></a></li>
+</ul></div>
+

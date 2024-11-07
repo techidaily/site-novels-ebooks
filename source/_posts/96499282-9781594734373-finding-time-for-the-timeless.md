@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2024-10-25T16:08:29.913Z
-updated: 2024-11-01T19:48:01.887Z
+date: 2024-11-01T16:31:16.404Z
+updated: 2024-11-07T17:41:46.131Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,13 +219,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138588413-9781462039951-a-new-order-of-the-ages/"><u>A New Order of the Ages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588546-9781462070602-a-woman-after-her-own-heart/"><u>A Woman After Her Own Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588598-9781449723675-anointed-to-be-a-foster-parent/"><u>Anointed to Be a Foster Parent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588498-9781475915983-mending-the-heart-tending-the-soul/"><u>Mending the Heart, Tending the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588476-9781452543482-recognizing-a-gift-from-god/"><u>Recognizing a Gift from God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588442-9781475964141-saturdays-child/"><u>Saturday's Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588542-9781452546261-the-creative-awakening/"><u>The Creative Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588555-9781452541792-the-next-awakening/"><u>The Next Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333497-9780957510456-enlightenment/"><u>Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333064-9781908421548-jack-webber-physical-medium/"><u>Jack Webber Physical Medium: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333159-9781529382341-journey-to-the-well/"><u>Journey to the Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333501-9780578943862-naked-starseed-ascension-handbook/"><u>Naked Starseed Ascension Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333058-9788792633729-read-like-the-devil/"><u>Read Like the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333573-9781401965051-the-wisdom-of-dr-david-r-hawkins/"><u>The Wisdom of Dr. David R. Hawkins | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Your Astrological Moon Sign | Free Book
-date: 2024-10-25T19:48:32.466Z
-updated: 2024-10-27T04:55:43.217Z
+date: 2024-11-02T17:26:32.262Z
+updated: 2024-11-07T16:04:36.592Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/253d54de379c8dba2f8526d18d2b60ca79f429dbdf67dfa862a65a080826a7cd.jpg
@@ -144,3 +144,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/253d54de379c8dba2f8526d18d2b60c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210001743-9781761034671-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001781-9781761034756-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001744-9781761034619-spirit-guides-for-beginners/"><u>Spirit Guides for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001990-9781601636676-tasting-the-universe/"><u>Tasting the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001979-9781601634313-the-worlds-most-haunted-house/"><u>The World's Most Haunted House | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001745-9781761034664-wicca-candle-spells/"><u>Wicca Candle Spells | Free Book</u></a></li>
+</ul></div>
+

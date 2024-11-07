@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-10-30T17:13:13.162Z
-updated: 2024-11-01T17:47:40.359Z
+date: 2024-10-31T17:36:54.443Z
+updated: 2024-11-07T18:37:47.345Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,13 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1127080-9781612832975-signs-on-the-earth/"><u>Signs on the Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127085-9781612830698-soul-agreements/"><u>Soul Agreements | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127086-9781612831978-spirit-animals-and-the-wheel-of-life/"><u>Spirit Animals and the Wheel of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128023-9781609258528-the-art-of-psychic-protection/"><u>The Art of Psychic Protection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127114-9781612831961-the-way-back-to-paradise/"><u>The Way Back to Paradise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127397-9781476727042-theres-more-to-life-than-this/"><u>There's More to Life Than This | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127100-9781612830810-traveling-between-the-worlds/"><u>Traveling Between the Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127115-9781612831770-weve-never-been-alone/"><u>We've Never Been Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233071-9781612834702-attract-happiness/"><u>Attract Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233070-9781612834719-attract-wealth/"><u>Attract Wealth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233072-9781632657442-confessions-of-an-egyptologist/"><u>Confessions of an Egyptologist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233075-9781612834689-prosperity-meditations/"><u>Prosperity Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233076-9780892546909-rites-of-the-mummy/"><u>Rites of the Mummy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233079-9781612834672-the-healing-power-of-african-american-spirituality/"><u>The Healing Power of African-American Spirituality | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-10-28T16:03:33.715Z
-updated: 2024-11-01T19:29:41.158Z
+date: 2024-11-05T18:41:54.627Z
+updated: 2024-11-07T16:32:44.591Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,12 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138547178-9780987866233-a-quest-for-healing-a-story-of-love-ebook/"><u>A Quest for Healing – A Story of Love - EBOOK | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545043-9781623173500-consciousness-medicine/"><u>Consciousness Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545085-9780399582561-dont-hate-meditate/"><u>Don't Hate, Meditate! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545037-9781401929886-four-acts-of-personal-power/"><u>Four Acts of Personal Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545033-9781401920517-the-art-of-redemption/"><u>The Art of Redemption | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545032-9781401920944-the-four-insights/"><u>The Four Insights | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138547224-9789176371138-the-prophet-wisehouse-classics-edition/"><u>THE PROPHET (Wisehouse Classics Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279536-9781788174824-consciousness-rising/"><u>Consciousness Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279584-9781922380449-im-positive-2nd-ed/"><u>I'm Positive! (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279723-9781910056844-lifting-the-veils-of-illusion/"><u>Lifting the Veils of Illusion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279741-9781788600361-the-foundations-of-mastery/"><u>The Foundations of Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279958-9781737092452-the-way-of-the-psychonaut-vol-1/"><u>The Way of the Psychonaut Vol. 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279957-9781737092445-the-way-of-the-psychonaut-vol-2/"><u>The Way of the Psychonaut Vol. 2 | Free Book</u></a></li>
 </ul></div>
 

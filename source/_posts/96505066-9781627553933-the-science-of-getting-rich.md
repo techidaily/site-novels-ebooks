@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-10-26T21:19:36.902Z
-updated: 2024-11-01T23:53:02.253Z
+date: 2024-11-06T18:36:27.213Z
+updated: 2024-11-07T16:52:41.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,14 +137,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138552564-9781578596928-area-51/"><u>Area 51 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553707-9781462916399-beyond-the-breath/"><u>Beyond the Breath | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553217-9781462907038-body-of-light/"><u>Body of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553373-9781462911271-japanese-fortune-calendar/"><u>Japanese Fortune Calendar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138555830-9781939681850-psychic-reiki/"><u>Psychic Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553168-9781462907380-simple-ways-to-wellness/"><u>Simple Ways to Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553150-9781462907854-talking-lightly/"><u>Talking Lightly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138556014-9780486829944-the-fabric-of-dreams/"><u>The Fabric of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138554740-9781948062107-witch-please-a-memoir/"><u>Witch, Please: A Memoir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210280112-9781736676714-nine-perfect-petals/"><u>Nine Perfect Petals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210280037-9781911134411-quareia/"><u>Quareia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210280038-9781911134435-quareia/"><u>Quareia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210280039-9781911134428-quareia/"><u>Quareia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210280071-9781736802700-taking-a-bath-with-quartz-crystals/"><u>Taking a Bath with Quartz Crystals | Free Book</u></a></li>
 </ul></div>
 

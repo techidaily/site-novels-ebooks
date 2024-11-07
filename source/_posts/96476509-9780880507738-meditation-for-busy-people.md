@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2024-10-28T19:07:39.094Z
-updated: 2024-11-01T21:10:28.416Z
+date: 2024-11-01T19:16:15.557Z
+updated: 2024-11-07T17:10:30.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -178,9 +178,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1682856-9780980885927-ascending-with-both-feet-on-the-ground/"><u>Ascending with Both Feet On the Ground | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1683723-9781317994176-god-image-handbook-for-spiritual-counseling-and-psychotherapy/"><u>God Image Handbook for Spiritual Counseling and Psychotherapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1682855-9780980885941-love-it-forward/"><u>Love it Forward | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1684660-9781466873889-love-lives-using-astrology-to-build-the-perfect-relationship-with-any-star-sign/"><u>Love Lives: Using Astrology to Build the Perfect Relationship with Any Star Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428922-9781683488057-babaji/"><u>BABAJI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428228-9780645206432-believing-in-me/"><u>believing in ME | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428200-9781956216042-born-giving-birth-to-a-new-you/"><u>Born Giving Birth to a New You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428916-9781662447952-quotes-the-famous-and-not-so-famous/"><u>Quotes: The Famous and Not so Famous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428766-9780762474288-the-night-school/"><u>The Night School | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210427372-9781913768256-the-roman-calendar/"><u>The Roman Calendar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210427203-9781088016381-two-near-death-experiences/"><u>Two Near-Death Experiences | Free Book</u></a></li>
 </ul></div>
 

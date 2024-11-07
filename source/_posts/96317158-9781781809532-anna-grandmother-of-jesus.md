@@ -1,7 +1,7 @@
 ---
 title: Anna, Grandmother of Jesus | Free Book
-date: 2024-10-21T01:44:06.902Z
-updated: 2024-10-26T23:37:44.101Z
+date: 2024-11-03T16:53:10.614Z
+updated: 2024-11-07T18:08:56.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/891ddf9a4adfa68b94acfea510c60a2a72421631752b6a45d6386a4924e5f466.jpg
@@ -163,3 +163,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/891ddf9a4adfa68b94acfea510c60a2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210147642-9780008438593-aquarius-2022-your-personal-horoscope/"><u>Aquarius 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147645-9780008438586-capricorn-2022-your-personal-horoscope/"><u>Capricorn 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147636-9780008438517-gemini-2022-your-personal-horoscope/"><u>Gemini 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147641-9780008438555-libra-2022-your-personal-horoscope/"><u>Libra 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147643-9780008438579-sagittarius-2022-your-personal-horoscope/"><u>Sagittarius 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147635-9780008438548-virgo-2022-your-personal-horoscope/"><u>Virgo 2022: Your Personal Horoscope | Free Book</u></a></li>
+</ul></div>
+

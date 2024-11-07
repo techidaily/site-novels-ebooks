@@ -1,7 +1,7 @@
 ---
 title: The Man with the Inexplicable Life | Free Book
-date: 2024-10-27T18:57:06.471Z
-updated: 2024-11-01T19:06:35.800Z
+date: 2024-11-06T18:05:16.278Z
+updated: 2024-11-07T16:39:19.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090d7a673c820c62b2b8653378e4a7827ca4.jpg
@@ -170,9 +170,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1637619-9781618520777-because-of-you-i-am/"><u>Because of You, I Am | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1638137-9781780282251-before-the-pyramids/"><u>Before the Pyramids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1638133-9781583947364-crop-circles-jung-and-the-reemergence-of-the-archetypal-feminine/"><u>Crop Circles, Jung, and the Reemergence of the Archetypal Feminine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1637061-9781459728615-tomes-of-terror/"><u>Tomes of Terror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416028-9781902405995-an-introduction-to-medical-astrology/"><u>An Introduction to Medical Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415867-9781722527020-at-your-command/"><u>At Your Command | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415932-9781088008799-blankets-of-praise/"><u>Blankets of Praise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415868-9781722523497-maximize-your-potential-through-the-power-of-your-subconscious-mind-for-a-more-spiritual-life/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind for A More Spiritual Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415869-9781722523503-maximize-your-potential-through-the-power-of-your-subconscious-mind-for-an-enriched-life/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind for An Enriched Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415884-9781638149026-tell-me-about-your-mother/"><u>Tell Me About Your Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415958-9781088008676-the-wayfarer-magazine/"><u>The Wayfarer Magazine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416000-9781638445777-to-kill-the-firstborn/"><u>To Kill the Firstborn | Free Book</u></a></li>
 </ul></div>
 

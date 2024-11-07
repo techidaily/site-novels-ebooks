@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2024-10-29T16:51:40.707Z
-updated: 2024-11-01T22:28:42.658Z
+date: 2024-11-03T17:57:05.347Z
+updated: 2024-11-07T19:13:24.911Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,13 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126936-9781612831268-emergence/"><u>Emergence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126937-9781612831534-emissary-of-love/"><u>Emissary of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126943-9781612831343-energy-work/"><u>Energy Work | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126945-9781612832630-eternal-life-and-how-to-enjoy-it/"><u>Eternal Life and How to Enjoy It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126954-9781612831022-eyes-of-an-angel/"><u>Eyes Of An Angel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126957-9781612831565-fast-lane-to-heaven/"><u>Fast Lane to Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126935-9781612832999-the-emerald-modem/"><u>The Emerald Modem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126953-9781612831435-the-extraterrestrial-answer-book/"><u>The Extraterrestrial Answer Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229149-9781952874437-exponiendo-practicas-espiritualistas-curativas/"><u>Exponiendo Prácticas Espiritualistas Curativas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228848-9780813174532-ghosts-of-old-louisville/"><u>Ghosts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228613-9780813174501-haunts-of-old-louisville/"><u>Haunts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228574-9780813174471-phantoms-of-old-louisville/"><u>Phantoms of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229382-9781732823884-rise/"><u>RISE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228534-9781838141110-signposts-to-source/"><u>Signposts to Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229431-9781951943325-spirits-speak/"><u>Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228445-9781638215479-this-is-pk-mind-over-matter-2nd-ed/"><u>This Is "PK " Mind Over Matter (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 

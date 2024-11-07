@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2024-10-29T23:59:31.141Z
-updated: 2024-11-01T17:46:11.781Z
+date: 2024-11-02T18:46:45.738Z
+updated: 2024-11-07T16:46:34.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,9 +181,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621334-9781601636003-a-new-way-to-be-human/"><u>A New Way to Be Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621336-9781601637543-ascension/"><u>Ascension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621343-9781601637574-contactees/"><u>Contactees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621331-9781601636386-lightworker/"><u>Lightworker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367961-9781612834764-how-to-live-a-happily-ever-afterlife/"><u>How to Live a Happily Ever Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367962-9781612834818-protect-your-light/"><u>Protect Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367958-9781612834801-the-art-of-breathing/"><u>The Art of Breathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367966-9781633412323-the-creative-pendulum/"><u>The Creative Pendulum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367965-9781633412002-the-magic-of-the-sword-of-moses/"><u>The Magic of the Sword of Moses | Free Book</u></a></li>
 </ul></div>
 

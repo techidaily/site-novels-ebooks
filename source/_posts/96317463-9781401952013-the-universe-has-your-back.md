@@ -1,7 +1,7 @@
 ---
 title: The Universe Has Your Back | Free Book
-date: 2024-10-19T16:57:04.174Z
-updated: 2024-10-27T04:34:19.434Z
+date: 2024-11-02T16:01:38.117Z
+updated: 2024-11-07T16:36:07.769Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2732858506d05bc559802f42fd3228415c050e1110850fd11e201c0b19b2028.jpg
@@ -245,3 +245,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2732858506d05bc559802f42fd3228
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209974026-9781633411890-blackthorns-botanical-brews/"><u>Blackthorn's Botanical Brews | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974021-9781633411883-tarot-no-questions-asked/"><u>Tarot: No Questions Asked | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974023-9781633411739-witch-hunt/"><u>Witch Hunt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974020-9781633411876-year-of-the-witch/"><u>Year of the Witch | Free Book</u></a></li>
+</ul></div>
+

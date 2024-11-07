@@ -1,7 +1,7 @@
 ---
 title: Dissolving the Ego, Realizing the Self | Free Book
-date: 2024-10-21T00:05:32.002Z
-updated: 2024-10-26T21:31:14.051Z
+date: 2024-11-04T18:13:40.635Z
+updated: 2024-11-07T17:17:10.993Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/872cb481b1fce9c297f4e6fcf65317a7ef2c9446043657d25ca6d62a984c7273.jpg
@@ -182,3 +182,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/872cb481b1fce9c297f4e6fcf65317a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210103392-9781250786456-aspects-of-meditation-book-2/"><u>Aspects of Meditation Book 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103412-9781250754639-chakra-rituals/"><u>Chakra Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103837-9781439671139-haunted-litchfield-county/"><u>Haunted Litchfield County | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103406-9781250796783-here-hereafter/"><u>Here & Hereafter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103416-9781250773951-making-contact/"><u>Making Contact | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103440-9781250794932-the-law-of-success/"><u>The Law of Success | Free Book</u></a></li>
+</ul></div>
+

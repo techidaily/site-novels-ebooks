@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2024-10-29T19:23:32.039Z
-updated: 2024-11-01T20:39:21.612Z
+date: 2024-11-01T17:36:35.866Z
+updated: 2024-11-07T16:46:27.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,12 +249,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126063-9781609255749-spells-for-the-solitary-witch/"><u>Spells for the Solitary Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126065-9781609255756-spirit-faces/"><u>Spirit Faces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126066-9781609250300-spirit-maps/"><u>Spirit Maps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126085-9781609250782-sun-of-god/"><u>Sun of gOd | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126089-9781609257101-tai-chi/"><u>Tai Chi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126083-9781609255046-the-study-of-witchcraft/"><u>The Study of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126098-9781609255718-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219062-9781914071195-ereshkigal/"><u>Ereshkigal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219658-9780895566386-floating-in-quiet-darkness/"><u>Floating in Quiet Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217603-9781841815084-godsfield-companion-chakras/"><u>Godsfield Companion: Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210218074-9781982170950-hello-goodbye/"><u>Hello, Goodbye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219248-9781662420733-k-dorm-in-90-days/"><u>K Dorm in 90 days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219450-9781880765784-love-miracles-original-creation-2nd-ed/"><u>Love, Miracles & Original Creation (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219209-9781662413087-remember-to-love/"><u>Remember to Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217872-9781507215883-the-green-witchs-garden/"><u>The Green Witch's Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219089-9781736186039-yahweh-gods-harmony-in-creation/"><u>Yahweh God's Harmony in Creation | Free Book</u></a></li>
 </ul></div>
 

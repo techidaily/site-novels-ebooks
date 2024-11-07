@@ -1,7 +1,7 @@
 ---
 title: "I: Reality and Subjectivity | Free Book"
-date: 2024-10-19T17:13:45.884Z
-updated: 2024-10-26T17:08:13.896Z
+date: 2024-11-03T17:55:52.711Z
+updated: 2024-11-07T18:19:31.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/923753a34cc720b7eefb73ccf0a8df361ac301208d3091bfc4c8df29a6d9a5b3.jpg
@@ -190,3 +190,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/923753a34cc720b7eefb73ccf0a8df3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209863906-9781939119353-her-story-the-legacy-journal/"><u>Her Story The Legacy Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864137-9781732163539-now-is-the-time/"><u>Now Is The Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863621-9781948400817-open-your-gifts/"><u>Open Your G.I.F.T.S. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864144-9780692184967-reiki-as-a-spiritual-practice/"><u>Reiki as a Spiritual Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864025-9781926926971-she-reflects/"><u>She Reflects | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864049-9781732411814-surprised-by-tragedy/"><u>Surprised by Tragedy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864083-9780648367543-thoughts-create/"><u>Thoughts Create | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863631-9781732476011-we-are-all-jacobs-children/"><u>We Are All Jacob's Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863732-9780998169316-where-the-magic-happens/"><u>Where the Magic Happens! | Free Book</u></a></li>
+</ul></div>
+

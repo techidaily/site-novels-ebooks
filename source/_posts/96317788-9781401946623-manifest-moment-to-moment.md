@@ -1,7 +1,7 @@
 ---
 title: Manifest Moment to Moment | Free Book
-date: 2024-10-20T19:39:54.722Z
-updated: 2024-10-26T18:09:01.722Z
+date: 2024-11-06T18:44:56.477Z
+updated: 2024-11-07T17:22:59.854Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f8872b27007ca03d3bad41d8d36772fd0b406f9f0a43c8c9f925daa3106769b4.jpg
@@ -222,3 +222,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f8872b27007ca03d3bad41d8d36772f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209864726-9781732295117-a-joyful-pause/"><u>A Joyful Pause | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864447-9780938001690-auras/"><u>Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864325-9781999630898-heart-mind-connection/"><u>Heart Mind Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864241-9781732552005-master-in-the-making/"><u>Master In The Making | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864298-9780979148316-new-tools-for-new-creation/"><u>New Tools for New Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864195-9780692157671-the-way-and-the-spirit/"><u>The Way and the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864452-9780938001713-unleash-your-psychic-powers/"><u>Unleash Your Psychic Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864373-9780938001676-words-of-power-and-transformation/"><u>WORDS OF POWER and TRANSFORMATION | Free Book</u></a></li>
+</ul></div>
+

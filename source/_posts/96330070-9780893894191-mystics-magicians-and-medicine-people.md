@@ -1,7 +1,7 @@
 ---
 title: Mystics, Magicians and Medicine People | Free Book
-date: 2024-10-23T22:45:30.607Z
-updated: 2024-10-27T00:23:50.960Z
+date: 2024-11-01T17:43:58.141Z
+updated: 2024-11-07T18:50:06.847Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0fae499f807a4f6ae483d75d03bc773f0ea83ef0ea4930dfc984ba59087d36f.jpg
@@ -154,3 +154,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0fae499f807a4f6ae483d75d03bc77
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209855027-9781775132158-average-is-extraordinary/"><u>Average is Extraordinary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855371-9781936902262-butterfly-soup/"><u>Butterfly Soup | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855451-9781775089131-goddess-reclaimed/"><u>Goddess Reclaimed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855123-9781946928030-suffering-is-optional/"><u>Suffering is Optional | Free Book</u></a></li>
+</ul></div>
+

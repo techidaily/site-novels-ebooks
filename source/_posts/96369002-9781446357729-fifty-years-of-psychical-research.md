@@ -1,7 +1,7 @@
 ---
 title: Fifty Years of Psychical Research | Free Book
-date: 2024-10-24T01:37:43.486Z
-updated: 2024-10-26T16:54:03.034Z
+date: 2024-10-31T18:28:26.476Z
+updated: 2024-11-07T17:02:39.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2163593613e23d23e162d5f4e1237cd05c.jpg
@@ -136,3 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209801183-9781789042351-abide-as-that/"><u>Abide As That | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209801184-9781789041859-diary-of-a-death-doula/"><u>Diary of a Death Doula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804322-9781465498861-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804484-9781608936700-new-england-ufos/"><u>New England UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209800563-9781609251161-stepping-stones/"><u>Stepping Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209803952-9780349425634-the-little-book-of-moon-magic/"><u>The Little Book of Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209801041-9781250236647-the-power-of-your-subconscious-mind-the-complete-original-edition/"><u>The Power of Your Subconscious Mind: The Complete Original Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209801182-9781789042443-true-magic/"><u>True Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804591-9781609948016-yoga-wisdom-at-work/"><u>Yoga Wisdom at Work | Free Book</u></a></li>
+</ul></div>
+

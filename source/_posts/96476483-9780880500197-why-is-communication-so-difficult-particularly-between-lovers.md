@@ -1,7 +1,7 @@
 ---
 title: Why Is Communication So Difficult, Particularly Between Lovers? | Free Book
-date: 2024-10-28T21:09:11.005Z
-updated: 2024-11-01T20:59:07.835Z
+date: 2024-11-03T16:44:33.707Z
+updated: 2024-11-07T18:21:05.094Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba02d0595eef03cefab50e725b75bcb8401.jpg
@@ -173,14 +173,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1626533-9781444719826-embracing-eternity/"><u>Embracing Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626381-9781405516013-living-magically/"><u>Living Magically | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626570--living-the-reiki-way/"><u>Living The Reiki Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625964-9781444725810-sonas-celtic-thoughts-on-happiness/"><u>Sonas: Celtic Thoughts on Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626379-9781405515993-stepping-into-the-magic/"><u>Stepping Into The Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625686-9781405522427-the-endorphin-effect/"><u>The Endorphin Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626439-9781841814254-the-spiritual-guide-to-attracting-love/"><u>The Spiritual Guide to Attracting Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626440-9781841814261-the-spiritual-guide-to-attracting-prosperity/"><u>The Spiritual Guide to Attracting Prosperity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626380-9781405516006-wild-love/"><u>Wild Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411313-9781722526986-awakened-imagination/"><u>Awakened Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411363-9781761037429-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410939-9781644115657-dreamtimes-and-thoughtforms/"><u>Dreamtimes and Thoughtforms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411002-9781638143680-love-and-surrender/"><u>LOVE AND SURRENDER | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411315-9781722526993-seedtime-and-harvest/"><u>Seedtime and Harvest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411314-9781722527006-the-law-and-the-promise/"><u>The Law and the Promise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411312-9781722526979-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410938-9781644115176-tom-sawyer-a-modern-day-messenger-from-god/"><u>Tom Sawyer: A Modern-Day Messenger from God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411311-9781722526962-your-faith-is-your-fortune/"><u>Your Faith is Your Fortune | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2024-10-22T19:07:28.984Z
-updated: 2024-10-27T00:38:52.688Z
+date: 2024-11-03T19:32:45.988Z
+updated: 2024-11-07T18:23:00.873Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -139,3 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209650576-9780757319051-becoming-a-sage/"><u>Becoming a Sage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650601-9780757318856-connecting-with-coincidence/"><u>Connecting with Coincidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652300-9781912807086-earth-divination-earth-magic/"><u>Earth Divination, Earth Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649455-9781982132972-living-full-circle/"><u>Living Full Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652338-9781493040780-spooky-california-2nd-ed/"><u>Spooky California (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649841-9780757391873-the-medium-next-door/"><u>The Medium Next Door | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650525-9780757397448-the-secrets-and-mysteries-of-hawaii/"><u>The Secrets and Mysteries of Hawaii | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649797-9780757319525-what-will-they-say-about-you-when-youre-gone/"><u>What Will They Say About You When You're Gone? | Free Book</u></a></li>
+</ul></div>
+

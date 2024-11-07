@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2024-10-29T21:31:30.957Z
-updated: 2024-11-01T19:03:42.321Z
+date: 2024-11-04T19:05:23.047Z
+updated: 2024-11-07T17:41:50.978Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,13 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138572767-9781450261104-faith-to-conquer-fear/"><u>Faith to Conquer Fear | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572694-9781475908817-its-all-about-love/"><u>It's All About Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572980-9781440139260-santa-fe-light/"><u>Santa Fe Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573061-9781450248853-stumbling-into-lifes-lessons/"><u>Stumbling into Life's Lessons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573007-9781440169229-tangible-echoes/"><u>Tangible Echoes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572807-9780595893867-the-family-of-light/"><u>The Family of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573108-9781450214353-the-heart-speaks-to-the-mind/"><u>The Heart Speaks to the Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573092-9780595807413-up-from-the-abyss/"><u>Up from the Abyss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297891-9781645593300-a-quote-of-evidence/"><u>A Quote of Evidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297895-9781636300160-how-to-have-the-favor-of-god/"><u>How to Have the Favor of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297364-9781644586051-she-wasnt-just-a-kitty/"><u>She Wasn't Just A Kitty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297715-9781644684733-the-replacement-theory-the-power-of-pain-and-prayer/"><u>The Replacement Theory: The Power of Pain and Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298061-9781644680902-who-am-i/"><u>Who Am I? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297535-9781990346033-eshyo-odin-spravochnik-ce-5/"><u>ЕЩЁ ОДИН СПРАВОЧНИК CE-5 | Free Book</u></a></li>
 </ul></div>
 

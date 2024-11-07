@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-10-29T20:24:31.703Z
-updated: 2024-11-01T20:16:37.159Z
+date: 2024-11-02T18:40:41.255Z
+updated: 2024-11-07T19:31:02.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,9 +148,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138566249-9781401954031-the-7-secrets-of-sound-healing-revised-edition/"><u>The 7 Secrets of Sound Healing Revised Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566267-9781401948207-the-abundance-loop/"><u>The Abundance Loop | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566263-9781401930257-the-complete-book-of-numerology/"><u>The Complete Book of Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566261-9781401951382-wisdom-from-your-spirit-guides/"><u>Wisdom from Your Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282119-9781955275002-alma-mater/"><u>Alma Mater | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282111-9780645160918-god-is-me/"><u>God is Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282131-9780645116113-grow-your-mind-grow-your-life/"><u>Grow Your Mind, Grow Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210281669-9781631950476-life-20/"><u>Life 2.0 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282278-9781589239944-magickal-tarot/"><u>Magickal Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282196-9781736532614-rippling-waves/"><u>Rippling Waves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210281445-9780753734902-the-art-of-positive-living/"><u>The Art of Positive Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282248-9781737092490-the-ultimate-journey-2nd-edition-2nd-ed/"><u>The Ultimate Journey (2nd Edition) (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-10-31T22:54:47.652Z
-updated: 2024-11-01T20:11:20.553Z
+date: 2024-11-02T16:55:32.589Z
+updated: 2024-11-07T17:41:33.493Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,10 +246,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/121819-9780253108388-claiming-sacred-ground/"><u>Claiming Sacred Ground | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1216496-9781583947272-manifesting-minds/"><u>Manifesting Minds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1215871-9781612830308-the-back-in-time-tarot-book/"><u>The Back in Time Tarot Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1212604-9781583948149-the-passionate-mind-revisited/"><u>The Passionate Mind Revisited | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1216500-9781583948200-the-return-of-the-mother/"><u>The Return of the Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266252-9781644112991-a-celtic-book-of-dying-2nd-ed/"><u>A Celtic Book of Dying (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266250-9781644112328-aleister-crowley-in-england/"><u>Aleister Crowley in England | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266251-9781644112427-anton-lavey-and-the-church-of-satan/"><u>Anton LaVey and the Church of Satan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266254-9781644113530-neuroaffective-meditation/"><u>Neuroaffective Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266255-9781644113554-shamanic-creativity/"><u>Shamanic Creativity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266257-9781644113158-the-chintamani-crystal-matrix/"><u>The Chintamani Crystal Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266253-9781644113578-the-lone-ranger-and-tonto-meet-buddha/"><u>The Lone Ranger and Tonto Meet Buddha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266249-9781644112175-the-way-of-abundance-and-joy/"><u>The Way of Abundance and Joy | Free Book</u></a></li>
 </ul></div>
 

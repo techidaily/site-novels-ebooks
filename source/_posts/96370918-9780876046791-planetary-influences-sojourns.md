@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2024-10-22T20:58:52.907Z
-updated: 2024-10-27T05:44:51.919Z
+date: 2024-11-04T17:53:30.732Z
+updated: 2024-11-07T19:15:39.879Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -136,3 +136,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209649436-9781620559734-awakening-your-crystals/"><u>Awakening Your Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649432-9781620558645-opening-doors-within-3rd-ed/"><u>Opening Doors Within (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649431-9781620558881-russian-black-magic/"><u>Russian Black Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649440-9781620559840-the-wonder-of-unicorns-2nd-ed/"><u>The Wonder of Unicorns (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+

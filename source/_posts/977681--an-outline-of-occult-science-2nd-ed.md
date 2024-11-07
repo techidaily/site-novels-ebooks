@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-10-31T21:22:07.373Z
-updated: 2024-11-01T23:55:06.673Z
+date: 2024-11-01T17:37:28.544Z
+updated: 2024-11-07T19:23:34.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,11 +131,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125895-9781609253905-meditation-and-kabbalah/"><u>Meditation and Kabbalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125896-9781609254865-meditation-and-the-bible/"><u>Meditation and the Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125900-9781609250195-meta-magick-the-book-of-atem/"><u>Meta-Magick: The Book of ATEM | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125904-9781609254674-modern-shamanic-living/"><u>Modern Shamanic Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125914-9781609258009-mrs-bs-guide-to-household-witchery/"><u>Mrs. B's Guide to Household Witchery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125892-9781609257255-the-mayan-ouroboros/"><u>The Mayan Ouroboros | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203697-9781637958636-exploring-the-galaxy/"><u>Exploring the Galaxy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204515-9781684035731-good-morning-intentions/"><u>Good Morning Intentions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203693-9781637958803-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203588-9780907791867-psychedelic-justice/"><u>Psychedelic Justice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203115-9781528767798-remarkable-spirit-manifestations/"><u>Remarkable Spirit Manifestations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203636-9781420971620-the-law-of-success/"><u>The Law of Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203698-9781637958810-written-in-the-stars/"><u>Written in the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204337--your-soul-had-a-dream-your-life-is-it/"><u>Your Soul Had a Dream, Your Life Is It | Free Book</u></a></li>
 </ul></div>
 

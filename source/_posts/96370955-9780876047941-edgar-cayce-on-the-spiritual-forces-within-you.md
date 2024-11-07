@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Spiritual Forces Within You | Free Book
-date: 2024-10-21T17:30:35.421Z
-updated: 2024-10-26T19:49:01.820Z
+date: 2024-11-04T17:43:25.947Z
+updated: 2024-11-07T17:31:18.107Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470b857f14ac64c99772e37190174dfb5c38.jpg
@@ -141,3 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209676666-9781620559567-conscious-confidence/"><u>Conscious Confidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676663-9781620559888-earth-spirit-dreaming/"><u>Earth Spirit Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209677278-9781465489432-healing-crystals/"><u>Healing Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209679963-9781642500622-living-the-faery-life/"><u>Living the Faery Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676660-9781620559710-lsd-and-the-mind-of-the-universe/"><u>LSD and the Mind of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676661-9781620559222-sex-shamans/"><u>Sex Shamans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676747-9781722523060-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209678098-9780990942443-the-power-to-heal/"><u>The Power to Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209677279-9781465489418-wicca-and-witchcraft/"><u>Wicca and Witchcraft | Free Book</u></a></li>
+</ul></div>
+

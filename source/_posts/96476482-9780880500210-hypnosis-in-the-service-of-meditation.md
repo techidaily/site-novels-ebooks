@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-10-26T17:51:33.496Z
-updated: 2024-11-01T18:31:29.347Z
+date: 2024-11-02T19:05:40.912Z
+updated: 2024-11-07T19:08:16.965Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,11 +167,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1625556-9781444743784-calm-the-soul-a-book-of-simple-wisdom-and-prayer/"><u>Calm the Soul: A Book of Simple Wisdom and Prayer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625684-9781405522397-feeling-safe/"><u>Feeling Safe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1624939-9781444181739-peacefulness-teach-yourself/"><u>Peacefulness: Teach Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625227-9780733628924-silence-your-mind/"><u>Silence Your Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625157-9781444777543-touched-by-evil/"><u>Touched by Evil | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625685-9781405522410-working-with-angels-fairies-and-nature-spirits/"><u>Working With Angels, Fairies And Nature Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410935-9781644115305-activate-your-super-human-potential/"><u>Activate Your Super-Human Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410930-9781644114575-embodying-the-mystery/"><u>Embodying the Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410931-9781644114643-lightbringers-of-the-north/"><u>Lightbringers of the North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410936-9781644115060-microdosing-with-amanita-muscaria/"><u>Microdosing with Amanita Muscaria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410937-9781644115008-proof-of-spiritual-phenomena/"><u>Proof of Spiritual Phenomena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410929-9781644114315-sacred-geometry-of-the-starcut-diagram-2nd-ed/"><u>Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410932-9781644114759-the-kabbalah-of-light/"><u>The Kabbalah of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410933-9781644114780-witch-wisdom-for-magical-aging/"><u>Witch Wisdom for Magical Aging | Free Book</u></a></li>
 </ul></div>
 

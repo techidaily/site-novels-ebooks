@@ -1,7 +1,7 @@
 ---
 title: The Mystery and Magic of Love | Free Book
-date: 2024-10-20T20:46:34.047Z
-updated: 2024-10-26T20:17:30.604Z
+date: 2024-11-01T17:20:03.896Z
+updated: 2024-11-07T16:51:28.726Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a509815de2c665039ef3e5813e2bd90f13ed44c00fde6e20cba4838669e98c2d.jpg
@@ -158,3 +158,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a509815de2c665039ef3e5813e2bd90
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210103389-9781250786432-aspects-of-meditation-book-1/"><u>Aspects of Meditation Book 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103375-9781250786470-aspects-of-meditation-book-3/"><u>Aspects of Meditation Book 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103374-9781250786494-aspects-of-meditation-book-4/"><u>Aspects of Meditation Book 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103381-9781250780218-celtic-spirituality/"><u>Celtic Spirituality | Free Book</u></a></li>
+</ul></div>
+

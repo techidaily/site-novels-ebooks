@@ -1,7 +1,7 @@
 ---
 title: Kindling the Native Spirit | Free Book
-date: 2024-10-22T03:28:10.653Z
-updated: 2024-10-26T17:08:16.618Z
+date: 2024-11-04T17:52:30.428Z
+updated: 2024-11-07T18:24:00.671Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c189013c69dab8eafba6270530739cc1dfb6eaab4d55da501ddac5ad9c55875.jpg
@@ -170,3 +170,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c189013c69dab8eafba6270530739c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210172900-9781736180112-awaken-the-wizard-within-1001-3rd-ed/"><u>Awaken the Wizard Within 1001 (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173565-9780310124757-fit-for-purpose/"><u>Fit for Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210172463-9789390492220-five-lessons/"><u>Five Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173120-9781735056319-liquid-love/"><u>Liquid Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210172896-9780985653521-the-healing-network/"><u>The Healing Network | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173481-9781777370022-unfold-me/"><u>Unfold Me | Free Book</u></a></li>
+</ul></div>
+

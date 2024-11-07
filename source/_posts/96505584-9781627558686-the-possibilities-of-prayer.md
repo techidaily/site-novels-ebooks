@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-10-26T20:16:17.677Z
-updated: 2024-11-01T23:37:05.733Z
+date: 2024-11-04T16:12:36.362Z
+updated: 2024-11-07T18:26:34.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,11 +140,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138569713-9780595764785-being-remarkable/"><u>Being Remarkable | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569673-9781450207997-how-did-i-miss-all-this-before/"><u>How Did I Miss All This Before? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569610-9781475915631-how-to-achieve-self-realization-through-properly-integrating-thematerial-face-of-god/"><u>How to Achieve Self-Realization Through Properly Integrating Thematerial Face of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569620-9781452532080-the-book-of-revelation-a-new-beginning/"><u>The Book of Revelation: a New Beginning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569700-9781452500638-the-tao-of-mermaids/"><u>The Tao of Mermaids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569690-9781449707248-when-i-discovered-i-was-awesome/"><u>When I Discovered I Was Awesome | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290864-9781645690481-endurance-race-of-life-and-addiction/"><u>Endurance Race of Life and Addiction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290638-9781801345880-guided-meditations-for-deep-sleep/"><u>Guided Meditations For Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290878-9781098044190-i-stuff-my-braso-what/"><u>I Stuff My Bra...So What? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290940-9781644920350-im-not-a-hypocrite-im-human/"><u>I'm Not a Hypocrite I'm Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290847-9781098011635-identity-in-christ/"><u>Identity in Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290439-9781662410581-principles-of-progress/"><u>Principles of Progress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290961-9781645694946-rest/"><u>R.E.S.T. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290511-9781636308029-visible-visions-motivation/"><u>Visible Visions Motivation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290849-9781098017040-will-there-be-chocolate-in-heaven/"><u>Will There Be Chocolate in Heaven? | Free Book</u></a></li>
 </ul></div>
 

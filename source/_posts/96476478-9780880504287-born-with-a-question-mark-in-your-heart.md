@@ -1,7 +1,7 @@
 ---
 title: Born With a Question Mark in Your Heart | Free Book
-date: 2024-10-25T17:28:17.406Z
-updated: 2024-11-01T21:08:00.649Z
+date: 2024-11-05T18:26:13.773Z
+updated: 2024-11-07T18:15:44.291Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f885342066bdc3b498e7939ef186e37a9e69.jpg
@@ -171,12 +171,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f88
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1604621-9781906658212-a-introduction-to-spiritual-healing/"><u>A Introduction to spiritual healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1605485-9781459728905-haunted-ontario-2-book-bundle/"><u>Haunted Ontario 2-Book Bundle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1608995-9780761862956-reclaim-your-soul/"><u>Reclaim Your Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1616031-9780733628191-the-australian-ghost-whisperer/"><u>The Australian Ghost Whisperer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1604403-9781101629000-the-demon-of-brownsville-road/"><u>The Demon of Brownsville Road | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1614373-9781444762327-the-restful-mind/"><u>The Restful Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1615055-9781405525350-your-body-speaks-your-mind/"><u>Your Body Speaks Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210409157-9781956996029-angels-and-awakening/"><u>Angels and Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410214-9780760368763-ayurveda-for-life/"><u>Ayurveda for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210408450-9781735173870-finding-everyday-magic/"><u>Finding Everyday Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410379-9781797215136-morning-meditations/"><u>Morning Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210408676-9781982256241-remembering-the-soul-of-you/"><u>Remembering: the Soul of You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210407509-9781841815220-the-tarot-life-planner/"><u>The Tarot Life Planner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210407909-9781524876760-whats-your-sign/"><u>What's Your Sign? | Free Book</u></a></li>
 </ul></div>
 

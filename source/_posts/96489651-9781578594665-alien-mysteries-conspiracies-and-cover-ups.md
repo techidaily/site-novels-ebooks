@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-10-29T00:26:40.709Z
-updated: 2024-11-01T20:37:31.671Z
+date: 2024-11-04T17:59:27.760Z
+updated: 2024-11-07T18:50:15.317Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,12 +192,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138574-9780743221894-a-mans-journey-to-simple-abundance/"><u>A Man's Journey to Simple Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574199-9780595879526-auras-chakras-and-energy-fields/"><u>Auras, Chakras, and Energy Fields | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574068-9781462073788-how-to-lay-on-the-altar-without-wiggling/"><u>How to Lay on the Altar Without Wiggling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574209-9781469761916-love-cycles/"><u>Love Cycles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574305-9780595795789-more-than-just-words/"><u>More Than Just Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574145-9781462079803-reaching-out/"><u>Reaching Out | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138574162-9781450252607-stop-talking-to-me/"><u>Stop Talking to Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300267-9782036008007-reveillons-les-sorcieres/"><u>Réveillons les sorcières ! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300564-9781398810471-spells-charms/"><u>Spells & Charms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300563-9781398814103-tarot-other-divination-arts/"><u>Tarot & Other Divination Arts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300565-9781398814097-the-healing-handbook/"><u>The Healing Handbook | Free Book</u></a></li>
 </ul></div>
 

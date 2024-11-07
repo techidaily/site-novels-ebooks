@@ -1,7 +1,7 @@
 ---
 title: The Case for and Against Psychical Belief | Free Book
-date: 2024-10-20T02:27:16.169Z
-updated: 2024-10-27T01:19:50.217Z
+date: 2024-11-02T17:09:23.386Z
+updated: 2024-11-07T18:43:14.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd68aba4f894ccc75eb755219656b54aa6a.jpg
@@ -139,3 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209785388-9780857838674-breathe-well/"><u>Breathe Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785768-9781439668092-creepy-florida/"><u>Creepy Florida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209787707-9791033609056-experiences-de-vie-imminente/"><u>Expériences de Vie Imminente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209787844-9780750992886-haunted-yorkshire/"><u>Haunted Yorkshire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785767-9781439668054-haunts-of-the-white-city/"><u>Haunts of the White City | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785244-9781788173940-surrender/"><u>Surrender | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209787096-9781616145866-the-science-of-ghosts/"><u>The Science of Ghosts | Free Book</u></a></li>
+</ul></div>
+

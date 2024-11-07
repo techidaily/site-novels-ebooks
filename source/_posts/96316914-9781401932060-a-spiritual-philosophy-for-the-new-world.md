@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Philosophy for the New World | Free Book
-date: 2024-10-19T17:06:43.915Z
-updated: 2024-10-27T00:19:16.049Z
+date: 2024-11-02T16:06:51.316Z
+updated: 2024-11-07T17:50:57.918Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21bfba785e4264389ad860fda5a4a74aeb03f704e30772f2d31d534bd8cae892.jpg
@@ -149,3 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21bfba785e4264389ad860fda5a4a74
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210163638-9781643500768-gods-poetic-and-creational-word/"><u>God's Poetic and Creational Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163661-9781640828179-got-inspiration-365-days-of-inspiration-for-you/"><u>Got Inspiration? 365 Days of Inspiration for You! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163917-9781646282203-higher-learning-for-higher-activities/"><u>Higher Learning for Higher Activities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163650-9781644240205-i-am-the-thorn-in-satans-side/"><u>I Am The Thorn In Satan's Side! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163979-9781647017002-medium-brave/"><u>Medium Brave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163516-9781645445593-ryans-recovery/"><u>Ryan's Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163509-9781640823709-the-possibility-of-reincarnation/"><u>The Possibility Of Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163728-9781644628126-the-team/"><u>The Team | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163435-9781684099368-there-is-no-cheese/"><u>There Is No Cheese | Free Book</u></a></li>
+</ul></div>
+

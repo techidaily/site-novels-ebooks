@@ -1,7 +1,7 @@
 ---
 title: You Can Have An Amazing Life In Just 60 Days! | Free Book
-date: 2024-10-25T01:17:36.206Z
-updated: 2024-10-26T20:30:47.419Z
+date: 2024-11-03T19:23:50.444Z
+updated: 2024-11-07T16:36:32.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f23e1770ed214f67357cbbfa1ac857165725e95bc679f48146030095858f12d1.jpg
@@ -154,3 +154,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f23e1770ed214f67357cbbfa1ac8571
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209861734-9781948172912-beyond-the-cross/"><u>Beyond the Cross | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861853-9780999228418-ensoulment/"><u>Ensoulment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861743-9781948172936-laying-up-treasures-in-heaven/"><u>Laying Up Treasures In Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861705-9780999858622-member-heal-thyself/"><u>Member Heal Thyself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861954-9781999392116-soothsaying-tarot-and-the-mantegna-revealed/"><u>Soothsaying Tarot and the Mantegna Revealed | Free Book</u></a></li>
+</ul></div>
+

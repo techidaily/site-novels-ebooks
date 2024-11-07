@@ -1,7 +1,7 @@
 ---
 title: Uplifting Prayers to Light Your Way | Free Book
-date: 2024-10-26T02:54:57.944Z
-updated: 2024-10-27T00:29:18.472Z
+date: 2024-11-04T16:55:28.579Z
+updated: 2024-11-07T16:40:33.093Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/353c6cac770c62e908dd51ebd70e5129a6596b0a9d4b5d1b892a266473f36f93.jpg
@@ -168,3 +168,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/353c6cac770c62e908dd51ebd70e512
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210133171-9781644112380-a-visionary-guide-to-lucid-dreaming/"><u>A Visionary Guide to Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133173-9781644112366-grandmother-ayahuasca/"><u>Grandmother Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133180-9781644112618-occult-botany/"><u>Occult Botany | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133179-9781644112700-precognitive-dreamwork-and-the-long-self/"><u>Precognitive Dreamwork and the Long Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133172-9781644111796-revival-of-the-runes/"><u>Revival of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133174-9781644112212-the-ancestral-power-of-amulets-talismans-and-mascots/"><u>The Ancestral Power of Amulets, Talismans, and Mascots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133182-9781644112663-the-last-ecstasy-of-life/"><u>The Last Ecstasy of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133178-9781644112403-time-shifts/"><u>Time Shifts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133177-9781644112274-traditional-brazilian-black-magic/"><u>Traditional Brazilian Black Magic | Free Book</u></a></li>
+</ul></div>
+

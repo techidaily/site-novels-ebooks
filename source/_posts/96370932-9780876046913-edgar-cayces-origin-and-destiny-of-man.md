@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Origin and Destiny of Man | Free Book
-date: 2024-10-24T17:19:14.797Z
-updated: 2024-10-27T05:12:49.416Z
+date: 2024-11-05T18:16:45.560Z
+updated: 2024-11-07T18:54:45.203Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa2c793124908b958b4a5f62931aa531578.jpg
@@ -138,3 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209667253-9781547575718-liderazgo-persuasion-para-el-crecimiento-personal-conseguir-el-exito-y-motivar-a-los-demas/"><u>Liderazgo: Persuasión Para El Crecimiento Personal, Conseguir El Éxito Y Motivar A Los Demás. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667256-9781547574544-meditacao-segredo-para-uma-vida-zen-bem-sucedida-e-feliz/"><u>Meditação : Segredo Para Uma Vida Zen Bem Sucedida E Feliz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667248-9781547574520-meditacao-um-guia-para-iniciantes-para-descobrir-o-poder-da-meditacao/"><u>Meditação: Um Guia Para Iniciantes Para Descobrir O Poder Da Meditação | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667230-9781547574568-meditacion-activa-tus-chakras-y-vive-la-vida-llena-de-felicidad/"><u>Meditación : Activa Tus Chakras Y Vive La Vida Llena De Felicidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667216-9781547579631-meditacion-aprenda-a-meditar-usando-la-atencion-plena-use-meditacion-guiada-y-trascendental/"><u>Meditación: Aprenda A Meditar Usando La Atención Plena (Use Meditación Guiada Y Trascendental) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667234-9781547579594-meditacion-guia-de-atencion-plena-para-aumentar-la-felicidad-meditacion-para-principiantes/"><u>Meditación: Guía De Atención Plena Para Aumentar La Felicidad (Meditación Para Principiantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667243-9781547576517-meditacion-tecnicas-simples-de-meditacion-para-eliminar-la-depresion-llenar-tu-vida-con-felicidad/"><u>Meditación: Técnicas Simples De Meditación Para Eliminar La Depresión (Llenar Tu Vida Con Felicidad) | Free Book</u></a></li>
+</ul></div>
+

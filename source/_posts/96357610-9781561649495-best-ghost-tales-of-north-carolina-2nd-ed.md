@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina (2nd ed.) | Free Book
-date: 2024-10-22T22:59:07.127Z
-updated: 2024-10-27T01:58:23.317Z
+date: 2024-11-06T19:12:49.921Z
+updated: 2024-11-07T18:53:26.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951cc0ca1ce8cce45e75434e981ae3e320eec.jpg
@@ -153,3 +153,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209766152-9781465498182-a-little-book-of-self-care-breathwork/"><u>A Little Book of Self Care: Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209764174-9781789040555-coherent-self-coherent-world/"><u>Coherent Self, Coherent World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209766654-9781493043699-ghost-writers/"><u>Ghost Writers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209764170-9781789042078-hoodoo-in-the-psalms/"><u>Hoodoo in the Psalms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209769974-9780593086568-reading-the-leaves/"><u>Reading the Leaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209762183-9781632658081-witchs-master-grimoire/"><u>Witch's Master Grimoire | Free Book</u></a></li>
+</ul></div>
+

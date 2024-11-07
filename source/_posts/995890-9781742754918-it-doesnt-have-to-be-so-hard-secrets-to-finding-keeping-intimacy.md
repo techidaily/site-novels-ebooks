@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-10-28T16:57:43.550Z
-updated: 2024-11-01T18:26:26.372Z
+date: 2024-11-02T18:40:08.841Z
+updated: 2024-11-07T16:41:47.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,10 +176,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1078464-9781780996141-how-to-love-a-libra/"><u>How to Love a Libra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1078465-9781780994642-lets-talk-about-pagan-festivals/"><u>Let's Talk About Pagan Festivals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1079187-9781420924350-malleus-maleficarum/"><u>Malleus Maleficarum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1078466-9781780993645-nine-lives/"><u>Nine Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1078468-9781846949685-soul-to-soul-connections/"><u>Soul to Soul Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187889-9781250801302-emotional-detox-now/"><u>Emotional Detox Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187844-9781250786357-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188000-9781949661392-inspired-manifesting/"><u>INSPIRED MANIFESTING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187876-9781250817761-the-prophet-the-complete-original-edition/"><u>The Prophet: The Complete Original Edition | Free Book</u></a></li>
 </ul></div>
 

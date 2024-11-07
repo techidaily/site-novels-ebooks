@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-10-28T21:57:35.742Z
-updated: 2024-11-01T18:56:35.601Z
+date: 2024-11-05T18:20:59.370Z
+updated: 2024-11-07T18:17:15.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,11 +171,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1315795-9781583946640-emas-odyssey/"><u>Ema's Odyssey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1316751-9781608681204-guardians-of-being/"><u>Guardians of Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1315787-9781400046867-sacred-contracts/"><u>Sacred Contracts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1316764-9781609256708-the-hades-moon/"><u>The Hades Moon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1297515-9780892545827-the-moons-nodes/"><u>The Moon's Nodes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1316765-9781881098010-the-witches-almanac-issue-33-spring-2014-spring-2015/"><u>The Witches' Almanac: Issue 33, Spring 2014-Spring 2015 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270251-9781071555132-diario-de-meditacao-para-reflexoes-diarias/"><u>Diário de Meditação para Reflexões Diárias | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270388-9781538707630-dreamers-dictionary/"><u>Dreamer's Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270547-9781250780256-heal-from-within/"><u>Heal from Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270185-9781071593448-impostor-yo-nunca-mas/"><u>Impostor, ¿yo? Nunca más... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270268-9781071595480-impostor-eu-nunca-mais/"><u>Impostor, eu? Nunca mais... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270199-9781071593295-impostor-not-anymore/"><u>Impostor... Not anymore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270470-9781582708515-modern-merlin/"><u>Modern Merlin | Free Book</u></a></li>
 </ul></div>
 

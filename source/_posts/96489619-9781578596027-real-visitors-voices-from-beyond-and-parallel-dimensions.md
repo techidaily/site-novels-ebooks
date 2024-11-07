@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2024-10-28T22:18:03.575Z
-updated: 2024-11-01T19:33:47.250Z
+date: 2024-11-06T16:17:27.933Z
+updated: 2024-11-07T18:17:44.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,13 +254,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138595871-9781452537108-a-green-witchs-formulary/"><u>A Green Witch's Formulary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595947-9781452537122-ageless-child/"><u>Ageless Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595807-9781452504155-ethics-of-a-psychic-reading/"><u>Ethics of a Psychic Reading | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595827-9781452545189-finding-the-light/"><u>Finding the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595986-9781452554228-health-a-conscious-truth/"><u>Health, a Conscious Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595817-9781504351966-keys-to-your-divine/"><u>Keys to Your Divine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595800-9781462052547-shadow-path/"><u>Shadow Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595841-9781452503967-the-dawn-chorus/"><u>The Dawn Chorus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349615-9782226300126-365-tweets-de-sagesse/"><u>365 Tweets de sagesse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349549-9782226290946-lesprit-de-solitude/"><u>L'Esprit de solitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349653-9782226294982-la-vie-dermite/"><u>La Vie d'ermite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349616-9782226300140-quand-la-fragilite-change-tout/"><u>Quand la fragilité change tout | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349544-9782226295323-une-journee-une-vie/"><u>Une journée une vie | Free Book</u></a></li>
 </ul></div>
 

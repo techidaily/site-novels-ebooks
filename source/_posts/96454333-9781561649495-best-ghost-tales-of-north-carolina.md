@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2024-10-24T00:59:46.534Z
-updated: 2024-10-26T21:48:45.061Z
+date: 2024-11-06T18:47:53.137Z
+updated: 2024-11-07T17:23:55.537Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -138,3 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209556785-9781250313317-astro-poets/"><u>Astro Poets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209557409-9781578597017-celebrity-ghosts-and-notorious-hauntings/"><u>Celebrity Ghosts and Notorious Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556320-9780525504696-i-know-what-i-saw/"><u>I Know What I Saw | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209558579-9781547561827-teu-outro-corpo/"><u>Teu outro Corpo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209557410-9781578597031-the-alien-book/"><u>The Alien Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556702-9781250307514-the-path-made-clear/"><u>The Path Made Clear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209552797-9781786782632-the-ultimate-colin-wilson/"><u>The Ultimate Colin Wilson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209557813-9781459745537-touched-by-the-light/"><u>Touched by the Light | Free Book</u></a></li>
+</ul></div>
+

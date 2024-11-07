@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2024-10-28T23:02:48.193Z
-updated: 2024-11-01T22:30:45.129Z
+date: 2024-11-05T18:49:28.057Z
+updated: 2024-11-07T16:05:00.794Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,14 +166,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138588672-9781449735630-2251-acoustic-neuroma/"><u>225.1 Acoustic Neuroma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588724-9781469781549-aliens-and-angels-ii/"><u>Aliens and Angels Ii | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588653-9781449734596-new-growth/"><u>New Growth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588910-9781452541341-slow-train/"><u>Slow Train | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588944-9781452545868-surrendering-to-the-call/"><u>Surrendering to the Call | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588671-9781452549279-the-12-principles-of-pyonghwa/"><u>The 12 Principles of Pyong'hwa | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588712-9781449744205-the-adorning-of-a-woman/"><u>The Adorning of a Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588892-9781452539034-the-awakening-of-a-warrior-angel/"><u>The Awakening of a Warrior-Angel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588998-9781449717872-worship-me-because/"><u>Worship Me Because | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334614-9781506480404-blessings-for-the-long-night-poems-and-meditations-to-help-you-through-depression/"><u>Blessings for the Long Night: Poems and Meditations to Help You through Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333811-9781922565457-our-eternal-relationship/"><u>Our Eternal Relationship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334594-9781506468624-take-what-you-need-life-lessons-after-losing-everything/"><u>Take What You Need: Life Lessons after Losing Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334503-9781638440529-the-peoples-cry/"><u>The People's Cry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334254-9781420974362-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key to the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334717-9780834844087-the-wakeful-body/"><u>The Wakeful Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334233-9780760372654-the-witchs-complete-guide-to-self-care/"><u>The Witch's Complete Guide to Self-Care | Free Book</u></a></li>
 </ul></div>
 

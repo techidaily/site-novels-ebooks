@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of a Satanist | Free Book
-date: 2024-10-21T01:59:16.070Z
-updated: 2024-10-27T03:51:04.866Z
+date: 2024-11-03T16:41:11.357Z
+updated: 2024-11-07T16:02:36.666Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290f30e1c936b63c2de7854a4594e4b69411.jpg
@@ -157,3 +157,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209780350-9781633411784-futhark/"><u>Futhark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780343-9781633411722-horse-magick/"><u>Horse Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780342-9781950253012-how-to-meditate-like-a-buddhist/"><u>How to Meditate Like a Buddhist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780346-9781632657626-on-the-trail-of-bigfoot/"><u>On the Trail of Bigfoot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780352-9781633411265-orishas-goddesses-and-voodoo-queens/"><u>Orishas, Goddesses, and Voodoo Queens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780344-9781633411647-stellas-daemonum/"><u>Stellas Daemonum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780351-9781633411548-the-21-divisions/"><u>The 21 Divisions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780349-9781633411708-utterly-wicked/"><u>Utterly Wicked | Free Book</u></a></li>
+</ul></div>
+

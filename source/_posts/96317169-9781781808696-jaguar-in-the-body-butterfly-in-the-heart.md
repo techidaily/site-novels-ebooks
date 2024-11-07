@@ -1,7 +1,7 @@
 ---
 title: Jaguar in the Body, Butterfly in the Heart | Free Book
-date: 2024-10-21T18:00:36.834Z
-updated: 2024-10-27T04:22:53.986Z
+date: 2024-11-04T18:37:59.968Z
+updated: 2024-11-07T16:22:42.300Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfbd7a93062ddbe34c80689554db31490e9e01f4385aad7ead9b39f0729cf9aa.jpg
@@ -252,3 +252,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfbd7a93062ddbe34c80689554db314
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210065089-9781989838525-bedtime-stories-guided-meditations-for-busy-adults-2-in-1/"><u>Bedtime Stories & Guided Meditations For Busy Adults (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065087-9781989838518-bedtime-stories-guided-meditations-for-busy-adults/"><u>Bedtime Stories & Guided Meditations for Busy Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210066908-9780578714646-from-comatose-to-consciousness/"><u>From Comatose To Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065471-9781982152321-space-nomads-set-a-course-for-mars/"><u>Space Nomads: Set a Course for Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065396-9781982164874-the-house-your-stars-built/"><u>The House Your Stars Built | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210066607-9781908421395-the-scole-report/"><u>The Scole Report | Free Book</u></a></li>
+</ul></div>
+

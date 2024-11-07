@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2024-10-29T21:01:08.976Z
-updated: 2024-11-01T16:45:03.817Z
+date: 2024-11-05T16:44:01.223Z
+updated: 2024-11-07T17:22:12.294Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,14 +167,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1318738-9781782792000-are-you-happy-now/"><u>Are You Happy Now? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1322138-9781476762517-blues-aint-nothing-but-a-good-soul-feeling-bad/"><u>Blues Ain't Nothing But a Good Soul Feeling Bad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318743-9781782790129-delayed-departure/"><u>Delayed Departure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318745-9781780998589-eternal-way-to-bliss/"><u>Eternal Way to Bliss | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318746-9781782791003-how-to-listen-to-a-gemini/"><u>How to Listen to a Gemini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318805-9781612830704-suddenly-psychic/"><u>Suddenly Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318807-9781609259082-the-kundalini-book-of-living-and-dying/"><u>The Kundalini Book of Living and Dying | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318755-9781780999371-the-power-of-the-voice/"><u>The Power of the Voice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318756-9781782791553-traditional-witchcraft-and-the-pagan-revival/"><u>Traditional Witchcraft and the Pagan Revival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270642-9781250773838-the-body-code/"><u>The Body Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270645-9781250766786-the-complete-book-of-astrology/"><u>The Complete Book of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270649-9781250279552-the-kickass-coven/"><u>The Kickass Coven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270585-9781250828729-the-science-of-breath-the-essential-works-of-yogi-ramacharaka/"><u>The Science of Breath: The Essential Works of Yogi Ramacharaka | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-10-29T17:26:16.666Z
-updated: 2024-11-01T19:28:14.159Z
+date: 2024-11-04T16:10:17.572Z
+updated: 2024-11-07T16:51:14.702Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,13 +139,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138623062-9781401954178-already-here/"><u>Already Here | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622185-9780761870869-eight-brief-lessons-on-life/"><u>Eight Brief Lessons on Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623090-9780834842052-from-mindfulness-to-insight/"><u>From Mindfulness to Insight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621381-9781601639608-lore-of-the-ghost/"><u>Lore of the Ghost | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621380-9781601639585-magickal-connections/"><u>Magickal Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622060-9781351103725-religious-literacy-in-hospice-care/"><u>Religious Literacy in Hospice Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622035-9781608685578-the-jewel-of-abundance/"><u>The Jewel of Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621385-9781601639240-zombies/"><u>Zombies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374568-9780760370827-city-witchery/"><u>City Witchery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374650-9780578988641-french-toast-witchery-volume-1/"><u>French Toast Witchery: Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374594-9781734198751-grandmother-dreams/"><u>Grandmother Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210373674-9781797210360-money-magic/"><u>Money Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374563-9781087985718-remember/"><u>Remember | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210373710-9782017166092-shine-on/"><u>Shine on | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374599-9781734198744-traveling-light/"><u>Traveling Light | Free Book</u></a></li>
 </ul></div>
 

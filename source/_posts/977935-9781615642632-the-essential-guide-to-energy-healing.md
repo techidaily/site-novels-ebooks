@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-10-31T18:08:54.856Z
-updated: 2024-11-02T00:42:05.991Z
+date: 2024-11-04T17:06:49.659Z
+updated: 2024-11-07T16:23:43.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,11 +187,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125917-9781609256586-mysteries-of-templar-treasure-the-holy-grail/"><u>Mysteries of Templar Treasure & the Holy Grail | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125919-9781609255992-mystery-teachings-from-the-living-earth/"><u>Mystery Teachings from the Living Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125922-9781609253509-navigating-the-collapse-of-time/"><u>Navigating the Collapse of Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125935-9781609253103-ogdoadic-magick/"><u>Ogdoadic Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125938-9781609251505-the-old-girls-book-of-spells/"><u>The Old Girl's Book of Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125937-9781609251826-the-old-girls-book-of-dreams/"><u>The Old Girls' Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204715-9781925816334-a-year-of-loving-kindness-to-myself/"><u>A Year of Loving Kindness to Myself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206036-9781954345386-emotional-rags-to-spiritual-riches/"><u>Emotional Rags to Spiritual Riches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206029-9780648893226-how-to-find-your-lifes-divine-purpose/"><u>How To Find Your Life's Divine Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205004-9781528767637-inferences-from-haunted-houses-and-haunted-men/"><u>Inferences from Haunted Houses and Haunted Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206035-9781954345263-small-space/"><u>Small Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205218-9780826362322-the-believer/"><u>The Believer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204782-9781528767811-the-light-beyond-translated-by-alexander-teixeira-de-mattos/"><u>The Light Beyond - Translated by Alexander Teixeira de Mattos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205150-9781945252952-the-soul-of-america-speaks/"><u>The Soul of America Speaks | Free Book</u></a></li>
 </ul></div>
 

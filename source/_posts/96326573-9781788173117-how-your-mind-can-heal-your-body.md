@@ -1,7 +1,7 @@
 ---
 title: How Your Mind Can Heal Your Body | Free Book
-date: 2024-10-23T04:36:48.152Z
-updated: 2024-10-26T16:14:05.514Z
+date: 2024-11-04T16:04:06.662Z
+updated: 2024-11-07T16:46:00.060Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae21f464db4b729cc585ccad327ca47566d7.jpg
@@ -207,3 +207,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209848938-9781680328721-chakras-for-beginners-restful-yoga-for-stressful-times-how-to-balance-chakras/"><u>Chakras For Beginners: Restful Yoga For Stressful Times - How To Balance Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849118-9780995735118-labyrinth-a-w/"><u>Labyrinth A-Ω | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849098-9789535945208-love-outside-the-box/"><u>Love Outside The Box | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848896-9781635017007-meditation-techniques-for-beginners-the-daily-meditation-ritual-lifestyle-the-best-kept-secrets-about-meditation-techniques-meditation-exercises-meditation-tran/"><u>Meditation Techniques For Beginners: The Daily Meditation Ritual Lifestyle: The Best Kept Secrets about Meditation Techniques, Meditation Exercises, Meditation Transcendental & Meditation Motivation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848866-9781634282697-secret-ways-of-how-letting-go-empowers-your-life-discover-the-seat-of-the-soul-live-longer-happy-mind-slim-healthy-body-start-your-longer-life-today-2-in-1-box-/"><u>Secret Ways Of How Letting GO Empowers Your Life: Discover The Seat Of The Soul & Live Longer! Happy Mind, Slim & Healthy Body. Start Your Longer Life Today! - 2 In 1 Box Set: 2 In 1 Box Set: Book 1: Daily Meditation Ritual + Book 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848864-9781634282888-wherever-you-go-mindfulness-in-every-day-life-is-with-you-2-in-1-box-set/"><u>WHEREVER YOU GO! Mindfulness In Every Day LIFE Is With YOU! - 2 In 1 Box Set | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848949-9781681270197-yoga-for-weight-loss-for-beginners-peace-bliss/"><u>Yoga For Weight Loss For Beginners - Peace & Bliss | Free Book</u></a></li>
+</ul></div>
+

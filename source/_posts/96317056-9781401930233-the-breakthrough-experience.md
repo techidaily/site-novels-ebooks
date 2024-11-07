@@ -1,7 +1,7 @@
 ---
 title: The Breakthrough Experience | Free Book
-date: 2024-10-20T18:27:25.024Z
-updated: 2024-10-26T22:14:45.558Z
+date: 2024-11-03T18:40:06.996Z
+updated: 2024-11-07T17:34:10.702Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5816a70cb2d70c97f3c1e7a991da3b88600b92eab94e4a693e52728fd59a7edd.jpg
@@ -179,3 +179,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5816a70cb2d70c97f3c1e7a991da3b8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210120828-9781476640211-back-to-human-nature/"><u>Back to Human Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210121179-9780647530832-christ-centred-mindfulness/"><u>Christ-Centred Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210120762-9781623176280-rescuing-the-light/"><u>Rescuing the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210120732-9781946764874-the-eight-realizations-of-great-beings/"><u>The Eight Realizations of Great Beings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210121343-9780578731193-the-whole-kit-and-caboodle-is-as-sacred-as-123-2nd-ed/"><u>The Whole Kit And Caboodle Is... As Sacred As 1,2,3 (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+

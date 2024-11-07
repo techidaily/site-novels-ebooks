@@ -1,7 +1,7 @@
 ---
 title: The Contagious Power of Thinking | Free Book
-date: 2024-10-21T17:35:43.645Z
-updated: 2024-10-26T20:29:38.874Z
+date: 2024-11-04T16:47:03.642Z
+updated: 2024-11-07T16:51:40.689Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40073490e401cd2e9022aab982aec219d62a09d81c5a477b85d7b18af9be5848.jpg
@@ -167,3 +167,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40073490e401cd2e9022aab982aec21
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210023869-9781787755215-clouds-over-qingcheng-mountain/"><u>Clouds Over Qingcheng Mountain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210023636-9780753734452-everyday-confidence/"><u>Everyday Confidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210023638-9780753734469-everyday-tidiness/"><u>Everyday Tidiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210024188-9781950719419-girl-youre-not-crazy-youre-dealing-with-a-narcissist/"><u>Girl, You're Not Crazy. You're Dealing With a Narcissist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210023874-9781789043662-shine-on/"><u>Shine On | Free Book</u></a></li>
+</ul></div>
+

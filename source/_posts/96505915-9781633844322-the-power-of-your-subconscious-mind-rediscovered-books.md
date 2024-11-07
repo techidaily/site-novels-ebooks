@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2024-10-25T20:40:12.844Z
-updated: 2024-11-02T00:27:36.996Z
+date: 2024-10-31T17:37:52.071Z
+updated: 2024-11-07T16:27:02.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,10 +153,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126973-9781612830124-healing-lost-souls/"><u>Healing Lost Souls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126982-9781612831848-how-to-pray-without-talking-to-god/"><u>How to Pray Without Talking to God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126987-9781612830001-im-spiritual-dammit/"><u>I'm Spiritual, Dammit! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126965-9781612830339-the-ghost-who-would-not-die/"><u>The Ghost Who Would Not Die | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127003-9781612832777-the-journey-of-robert-monroe/"><u>The Journey of Robert Monroe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232005-9780648599555-calm-before-the-scan/"><u>Calm Before the Scan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210231477-9781071585955-evocazioni/"><u>Evocazioni | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210231508-9781071588307-megan-e-il-gatto-perduto/"><u>Megan e il gatto perduto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232058-9780578862651-power-boundaries/"><u>Power Boundaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210230532-9780593295946-tarot-for-change/"><u>Tarot for Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210231969-9781647465896-the-heart-of-healing/"><u>The Heart of Healing | Free Book</u></a></li>
 </ul></div>
 

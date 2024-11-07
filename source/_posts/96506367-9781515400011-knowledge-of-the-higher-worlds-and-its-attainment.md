@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2024-10-25T22:45:41.840Z
-updated: 2024-11-01T21:43:26.972Z
+date: 2024-11-04T17:32:00.738Z
+updated: 2024-11-07T17:09:33.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,12 +138,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1168327-9781577317883-the-gift/"><u>The Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168328-9781577317876-the-gift-of-our-compulsions/"><u>The Gift of Our Compulsions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168344-9781577318941-the-mindfulness-code/"><u>The Mindfulness Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168345-9781577317968-the-miracle-of-the-breath/"><u>The Miracle of the Breath | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168805-9781577313113-the-power-of-now/"><u>The Power of Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168807-9781577318651-the-power-of-stillness/"><u>The Power of Stillness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168816-9781577318330-the-secret-history-of-dreaming/"><u>The Secret History of Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252601-9781682131831-an-army-in-heaven/"><u>An Army in Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252959-9781101993064-becoming-aware/"><u>Becoming Aware | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253203-9781087954615-finding-your-superpowers-in-the-place-you-left-them/"><u>Finding Your Superpowers in the Place you Left Them | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253212-9780578840130-holy-bleep-that-was-not-a-coincidence/"><u>Holy BLEEP! That Was Not a Coincidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253233-9781736600603-lets-go-home/"><u>Let's Go Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253168-9781733807913-persephones-pearls/"><u>Persephone's Pearls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252807-9781611534023-who-cares-what-the-numbers-say/"><u>Who Cares What the Numbers Say | Free Book</u></a></li>
 </ul></div>
 

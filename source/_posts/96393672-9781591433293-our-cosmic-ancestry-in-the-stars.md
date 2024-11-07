@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2024-10-21T19:07:09.721Z
-updated: 2024-10-27T03:02:34.619Z
+date: 2024-11-02T17:14:22.677Z
+updated: 2024-11-07T16:44:57.406Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -188,3 +188,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209612308-9781547570041-meditacion-aprender-a-meditar-tecnicas-de-relajacion-y-meditacion-zen/"><u>Meditación: Aprender A Meditar Técnicas De Relajación Y Meditación Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209612299-9781547570034-meditacion-guia-de-atencion-plena-para-eliminar-el-estres-la-ansiedad-y-la-depresion/"><u>Meditación: Guía De Atención Plena Para Eliminar El Estrés, La Ansiedad Y La Depresión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209612303-9781547567546-meditacion-guia-impresionante-para-principiantes-por-gabriyell-buechner/"><u>Meditación: Guía Impresionante Para Principiantes Por Gabriyell Buechner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209612309-9781547569984-meditacion-la-mejor-guia-de-meditacion-para-la-meditacion/"><u>Meditación: La Mejor Guía De Meditación Para La Meditación. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209612310-9781547570058-meditacion-tecnicas-rapidas-de-meditacion-para-personas-tecnicas-de-atencion-plena-para-la-meditacion/"><u>Meditación: Técnicas Rápidas De Meditación Para Personas (Técnicas De Atención Plena Para La Meditación) | Free Book</u></a></li>
+</ul></div>
+

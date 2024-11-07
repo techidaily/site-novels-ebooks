@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-10-28T22:20:09.589Z
-updated: 2024-11-01T20:52:46.068Z
+date: 2024-10-31T17:33:36.751Z
+updated: 2024-11-07T16:05:43.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,12 +137,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1127063-9781612830667-psychic-children-speak-to-the-world/"><u>Psychic Children Speak to the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127068-9781612830681-questions-and-answers-on-conversations-with-god/"><u>Questions and Answers on Conversations with God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127072-9781612832852-return-of-the-revolutionaries/"><u>Return of the Revolutionaries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127056-9781612833149-the-pk-man/"><u>The PK Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127061-9781612830421-the-practical-psychic-self-defense-handbook/"><u>The Practical Psychic Self-Defense Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127064-9781612831701-the-psychic-housewives-handbook/"><u>The Psychic Housewives' Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127066-9781612830438-the-quantum-doctor/"><u>The Quantum Doctor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233068-9780892546916-elucidation-of-necromancy-lucidarium-artis-nigromantice-attributed-to-peter-of-abano/"><u>Elucidation of Necromancy Lucidarium Artis Nigromantice attributed to Peter of Abano | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232960-9788293791409-highly-intuitive-people/"><u>Highly Intuitive People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233013-9780744041538-mindfulness/"><u>Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232963-9781734514674-my-adventures-as-a-psychic-nurse-medium/"><u>My Adventures as a Psychic Nurse & Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232964-9781734514698-my-adventures-as-a-psychic-nurse-medium/"><u>My Adventures as a Psychic Nurse & Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232469-9781644113974-our-african-unconscious-3rd-ed/"><u>Our African Unconscious (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232471-9781644113332-psychedelics-and-psychotherapy/"><u>Psychedelics and Psychotherapy | Free Book</u></a></li>
 </ul></div>
 

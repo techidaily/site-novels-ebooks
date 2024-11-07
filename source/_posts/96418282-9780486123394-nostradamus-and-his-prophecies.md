@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2024-10-21T22:40:18.567Z
-updated: 2024-10-27T05:25:15.787Z
+date: 2024-11-03T16:46:49.584Z
+updated: 2024-11-07T17:19:53.910Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -148,3 +148,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209518622-9781620558768-developing-supersensible-perception/"><u>Developing Supersensible Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518621-9781620558478-familiars-in-witchcraft/"><u>Familiars in Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518624-9781591433378-the-murder-of-moses-2nd-ed/"><u>The Murder of Moses (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518620-9781620558621-the-sacred-herbs-of-samhain/"><u>The Sacred Herbs of Samhain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518625-9781620559031-working-with-chakras-for-belief-change/"><u>Working with Chakras for Belief Change | Free Book</u></a></li>
+</ul></div>
+

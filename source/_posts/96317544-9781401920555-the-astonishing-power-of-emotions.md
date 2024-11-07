@@ -1,7 +1,7 @@
 ---
 title: The Astonishing Power of Emotions | Free Book
-date: 2024-10-24T01:12:56.664Z
-updated: 2024-10-27T05:07:43.973Z
+date: 2024-10-31T16:41:07.745Z
+updated: 2024-11-07T17:14:12.420Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b3e92f07329ac42e18c31986b7bf505b432f42bd418670a95c5e7277a09f994.jpg
@@ -231,3 +231,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b3e92f07329ac42e18c31986b7bf50
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209912607-9780975815755-from-now-to-eternity/"><u>FROM NOW TO ETERNITY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913264-9781789042528-is-this-a-dream/"><u>Is This a Dream? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913043-9781733343718-stormys-words-of-wisdom/"><u>Stormy's Words of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913263-9781785359095-the-hidden-goddess/"><u>The Hidden Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209912882-9781506458625-the-mindful-christian-cultivating-a-life-of-intentionality-openness-and-faith/"><u>The Mindful Christian: Cultivating a Life of Intentionality, Openness, and Faith | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2024-10-30T20:16:04.520Z
-updated: 2024-11-01T18:32:17.036Z
+date: 2024-11-02T19:20:55.511Z
+updated: 2024-11-07T17:07:01.768Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,13 +175,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1576774-9781459725584-abductions-and-aliens/"><u>Abductions and Aliens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1575729-9780813146515-adventures-in-paranormal-investigation/"><u>Adventures in Paranormal Investigation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1573162-9781932073706-bridge-between-worlds/"><u>Bridge Between Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1573626-9781615644384-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1570641-9780804152211-power-of-the-witch/"><u>Power of the Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1568974-9781583947807-second-wave-spirituality/"><u>Second Wave Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1567730-9781408832172-spiritual-intelligence/"><u>Spiritual Intelligence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1574624-9781583948026-the-ayahuasca-sessions/"><u>The Ayahuasca Sessions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399393-9781088008485-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399399-9781088008409-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399236-9789388760867-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399175-9789389716610-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399165-9789389716627-the-secret-of-imagining/"><u>The Secret of Imagining | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399158-9789389716634-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399241-9789389157635-the-seven-laws-of-teaching/"><u>The Seven Laws of Teaching | Free Book</u></a></li>
 </ul></div>
 

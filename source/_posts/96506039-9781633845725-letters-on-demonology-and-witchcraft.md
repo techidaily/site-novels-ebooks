@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2024-10-27T17:34:14.010Z
-updated: 2024-11-01T23:10:18.707Z
+date: 2024-11-03T17:32:45.109Z
+updated: 2024-11-07T16:43:29.597Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,9 +155,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1153682-9781577317005-365-prescriptions-for-the-soul/"><u>365 Prescriptions for the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1152436-9781451696837-healing-with-the-arts/"><u>Healing with the Arts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1152505-9781476728643-the-spiritual-science-of-emma-curtis-hopkins/"><u>The Spiritual Science of Emma Curtis Hopkins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1152610-9781476744728-tipping-sacred-cows/"><u>Tipping Sacred Cows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240087-9781398701953-astrosex-aries/"><u>Astrosex: Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240094-9781398702110-astrosex-sagittarius/"><u>Astrosex: Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240084-9781398702059-astrosex-virgo/"><u>Astrosex: Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210238864-9781773056555-in-praise-of-retreat/"><u>In Praise of Retreat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240306-9781787756533-qigong-in-yoga-teaching-and-practice/"><u>Qigong in Yoga Teaching and Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210239541-9781496833037-the-cards/"><u>The Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210239389-9781087953298-true-feathers/"><u>True Feathers | Free Book</u></a></li>
 </ul></div>
 

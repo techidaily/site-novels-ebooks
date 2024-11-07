@@ -1,7 +1,7 @@
 ---
 title: Messages from Water and the Universe | Free Book
-date: 2024-10-26T02:20:19.368Z
-updated: 2024-10-26T21:08:41.738Z
+date: 2024-11-02T16:42:27.571Z
+updated: 2024-11-07T17:00:33.403Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c518cc4e9a09f6ff42d2392e496bfcf37761bdec1fdccb116b121146e5b4eb71.jpg
@@ -213,3 +213,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c518cc4e9a09f6ff42d2392e496bfcf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210101239-9781922456014-breakthrough/"><u>BREAKTHROUGH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101337-9781734337839-hell-no-reincarnation/"><u>Hell No, Reincarnation? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210100742-9781646540815-incarcerated-walker/"><u>Incarcerated Walker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101207-9781913479503-just-be/"><u>Just BE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210100621-9781641378581-mirrors-windows/"><u>Mirrors & Windows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101205-9781913479428-the-search-for-mind-body-energy/"><u>The Search for Mind-Body Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210100832-9780648899716-transformation-and-the-golden-keys/"><u>Transformation and the Golden Keys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210100745-9781646542819-unbreakable/"><u>Unbreakable | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101227-9781945064272-who-do-you-think-you-are-365-meditations-and-the-books-they-came-from/"><u>Who Do You Think You Are? 365 Meditations and the Books They Came From | Free Book</u></a></li>
+</ul></div>
+

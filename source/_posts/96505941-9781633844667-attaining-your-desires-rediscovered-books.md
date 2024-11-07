@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-10-28T19:08:07.330Z
-updated: 2024-11-01T23:01:01.795Z
+date: 2024-11-04T16:26:57.134Z
+updated: 2024-11-07T17:01:31.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,14 +140,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1127026-9781612830025-a-mind-for-murder/"><u>A Mind for Murder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127009-9781612831992-lessons-out-of-the-body/"><u>Lessons Out of the Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127018-9781612831640-marilyn-monroe-returns/"><u>Marilyn Monroe Returns | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127020-9781612830636-meditations-from-conversations-with-god/"><u>Meditations from Conversations With God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127021-9781612830513-meditations-from-conversations-with-god-book-2/"><u>Meditations from Conversations With God, Book 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127023-9781612830155-memories-of-god-and-creation/"><u>Memories of God and Creation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127027-9781612830179-mind-reach/"><u>Mind-Reach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127011-9781612831305-the-little-book-of-true-ghost-stories/"><u>The Little Book of True Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127015-9781612832340-the-lost-secret-of-death/"><u>The Lost Secret of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232141-9781087951102-at-first-glance/"><u>At First Glance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232448-9781591434085-journeys-with-plant-spirits/"><u>Journeys with Plant Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232449-9781591434221-love-god-and-everything/"><u>Love, God, and Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232228-9780753734827-moon-astrology/"><u>Moon Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232215-9780753734797-the-crystal-healer/"><u>The Crystal Healer | Free Book</u></a></li>
 </ul></div>
 

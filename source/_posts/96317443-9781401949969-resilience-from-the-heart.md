@@ -1,7 +1,7 @@
 ---
 title: Resilience from the Heart | Free Book
-date: 2024-10-21T20:02:38.699Z
-updated: 2024-10-26T19:29:55.718Z
+date: 2024-11-01T16:24:13.379Z
+updated: 2024-11-07T18:17:30.813Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a6a9c46cf51a6a0f75acb81ca1e951a8696723846a9908552d65fb73d064c5a.jpg
@@ -183,3 +183,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a6a9c46cf51a6a0f75acb81ca1e951
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209966770-9781683692041-crystal-clear/"><u>Crystal Clear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962956-9781775230069-fear-breakthrough/"><u>Fear Breakthrough | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962960-9781989840078-its-all-about-energy/"><u>It's All About Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966785-9781401961251-mind-over-medicine-revised-edition/"><u>Mind Over Medicine - REVISED EDITION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966739-9781524749125-philosophy-for-polar-explorers/"><u>Philosophy for Polar Explorers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209963645-9781615649082-the-law-of-attraction/"><u>The Law of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966774-9780834842915-the-posture-of-meditation/"><u>The Posture of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966743-9780735276833-the-scientist-and-the-psychic/"><u>The Scientist and the Psychic | Free Book</u></a></li>
+</ul></div>
+

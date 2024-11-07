@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2024-10-19T17:52:22.854Z
-updated: 2024-10-26T17:14:15.454Z
+date: 2024-11-01T19:06:03.556Z
+updated: 2024-11-07T17:43:12.419Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -170,3 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209579242-9781984856258-astrology-for-real-relationships/"><u>Astrology for Real Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209579027-9781633534780-nourished/"><u>Nourished | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209588699-9781684033966-on-the-mystery-of-being/"><u>On the Mystery of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209580046-9781608685202-seven-practices-of-a-mindful-leader/"><u>Seven Practices of a Mindful Leader | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209587863-9781946764508-the-friend-of-the-desert/"><u>The Friend of the Desert | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209579221-9781623173838-the-map-to-wholeness/"><u>The Map to Wholeness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209579026-9781633533875-things-i-wish-i-knew-before-my-mom-died/"><u>Things I Wish I Knew Before My Mom Died | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209579419-9780762467327-wellness-witch/"><u>Wellness Witch | Free Book</u></a></li>
+</ul></div>
+

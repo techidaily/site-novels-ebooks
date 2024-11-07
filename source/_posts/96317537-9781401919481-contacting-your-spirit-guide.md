@@ -1,7 +1,7 @@
 ---
 title: Contacting Your Spirit Guide | Free Book
-date: 2024-10-25T00:59:21.105Z
-updated: 2024-10-27T03:39:11.084Z
+date: 2024-10-31T18:17:53.315Z
+updated: 2024-11-07T17:30:32.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4d335b64330b5cc46dbc38a594a3efc686a8764b4047501f07864bf391a9c4c.jpg
@@ -168,3 +168,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4d335b64330b5cc46dbc38a594a3ef
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209900940-9781623174934-deep-liberation/"><u>Deep Liberation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209900074-9781912892037-sacred-path-book-one/"><u>Sacred Path: Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209900071-9781641842280-sheros-journey/"><u>Shero's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901105-9781912807345-the-city-of-hermes/"><u>The City of Hermes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209897258-9781733182638-the-magic-of-malas/"><u>The Magic of Malas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209897921-9781441158802-thor/"><u>Thor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901440-9781528956390-willpower-and-energy-yoganandas-energisation-exercises/"><u>Willpower and Energy: Yogananda's Energisation Exercises | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209897786-9781472571694-yoga-meditation-and-mysticism/"><u>Yoga, Meditation, and Mysticism | Free Book</u></a></li>
+</ul></div>
+

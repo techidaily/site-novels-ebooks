@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2024-10-26T21:33:57.350Z
-updated: 2024-11-01T20:06:44.166Z
+date: 2024-11-04T17:35:36.643Z
+updated: 2024-11-07T19:02:45.005Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,10 +160,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1729455-9781501100680-angeles-de-luz-divina-angels-of-divine-light-spanish-edition/"><u>Ángeles de Luz Divina (Angels of Divine Light Spanish edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1725827-9780857011510-principles-of-eft-emotional-freedom-technique/"><u>Principles of EFT (Emotional Freedom Technique) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1726104-9781609257088-the-art-practice-of-creative-visualization/"><u>The Art & Practice of Creative Visualization | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1730675-9780600627883-the-shamanism-bible/"><u>The Shamanism Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1730837-9781609259181-the-witchs-eight-paths-of-power/"><u>The Witch's Eight Paths of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437063-9781449437435-coast-to-coast-ghosts/"><u>Coast to Coast Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436611-9798985098914-dancing-with-unity/"><u>Dancing with Unity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437236-9781528983440-le-grand-tarot-de-lamour/"><u>Le Grand Tarot de L’amour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436691-9781956955033-somatic-fanatic/"><u>Somatic Fanatic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436641-9781396320583-the-key-to-health-wealth-and-love/"><u>The Key to Health, Wealth and Love | Free Book</u></a></li>
 </ul></div>
 

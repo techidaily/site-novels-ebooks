@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales on Land and Sea | Free Book
-date: 2024-10-19T22:24:14.040Z
-updated: 2024-10-26T20:17:55.512Z
+date: 2024-11-02T17:25:20.357Z
+updated: 2024-11-07T17:29:08.007Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84ca67bb8fdd72f5a2d46f84bb32fed98e81.jpg
@@ -131,3 +131,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209781790-9781439667989-ghosts-and-legends-of-northern-ohio/"><u>Ghosts and Legends of Northern Ohio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781786-9781439667958-haunted-clarke-county-virginia/"><u>Haunted Clarke County, Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781822-9781722523534-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-create-wealth-and-success/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Create Wealth and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781823-9781722523541-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-overcome-fear-and-worry/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Overcome Fear and Worry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780782-9781984857859-pocket-guide-to-the-tarot-revised/"><u>Pocket Guide to the Tarot, Revised | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781815-9781722523749-psychic-perception/"><u>Psychic Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781821-9781722523732-telepsychics/"><u>Telepsychics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781818-9781722523855-the-power-of-your-subconscious-mind-for-wealth-and-spirituality/"><u>The Power of Your Subconscious Mind for Wealth and Spirituality | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-10-30T23:22:36.954Z
-updated: 2024-11-01T19:51:59.954Z
+date: 2024-11-05T16:21:59.572Z
+updated: 2024-11-07T18:59:51.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,11 +153,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138623711-9781250204233-beyond-the-known-realization/"><u>Beyond the Known: Realization | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623689-9781250214492-forest-bathing/"><u>Forest Bathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623548-9780762465989-magical-places/"><u>Magical Places | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138624597-9781722520274-self-reliance-condensed-classics/"><u>Self-Reliance (Condensed Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623763-9781250214522-the-emotion-code/"><u>The Emotion Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623764-9781250319296-the-secret-history-of-america/"><u>The Secret History of America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375470-9781940837598-art-and-yoga/"><u>Art and Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375471-9781940837611-enlightened-bodies/"><u>Enlightened Bodies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375475-9781940837635-everyday-grace/"><u>Everyday Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374880-9781638377092-haunted-hoarder/"><u>Haunted Hoarder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375265-9781786786432-how-to-be-highly-sensitive-and-empowered/"><u>How To Be Highly Sensitive and Empowered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374748-9781636767864-reclaim-your-power/"><u>Reclaim Your Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375128-9781942125891-rojin-buddhas-mystical-power/"><u>Rojin, Buddha's Mystical Power | Free Book</u></a></li>
 </ul></div>
 

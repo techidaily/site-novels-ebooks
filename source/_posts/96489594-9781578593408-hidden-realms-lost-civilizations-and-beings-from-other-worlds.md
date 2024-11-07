@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-10-31T21:49:36.521Z
-updated: 2024-11-01T19:08:58.714Z
+date: 2024-11-06T19:06:29.828Z
+updated: 2024-11-07T19:13:01.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,13 +227,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138591440-9781452505619-born-with-a-gift/"><u>Born with a Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591540-9781469732329-chasing-davis/"><u>Chasing Davis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591721-9781452545301-focuspocus/"><u>Focuspocus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591777-9781469738420-interior-lights-in-a-dark-universe/"><u>Interior Lights in a Dark Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591499-9781462049059-she-wouldnt-go/"><u>She Wouldn’T Go! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591814-9781462071098-the-big-picture/"><u>The Big Picture | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591478-9781469738543-the-grimpebbet-almanac/"><u>The Grimpebbet Almanac | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591595-9781469747101-you-can-also-be-rich/"><u>You Can Also Be Rich | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344427-9781647467678-love-wellness-and-happiness/"><u>Love, Wellness, and Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344377-9781648015571-the-girl-in-the-window/"><u>The Girl in the Window | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344454-9780578751283-the-perks-of-being-terminal/"><u>The Perks of Being Terminal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210343456-9781631599996-the-ultimate-guide-to-shamanism/"><u>The Ultimate Guide to Shamanism | Free Book</u></a></li>
 </ul></div>
 

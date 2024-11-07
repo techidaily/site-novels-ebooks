@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-10-28T23:27:37.348Z
-updated: 2024-11-01T21:18:03.970Z
+date: 2024-11-05T17:34:02.477Z
+updated: 2024-11-07T18:37:52.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,11 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1724714-9781476775746-angels-of-divine-light/"><u>Angels of Divine Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1716816-9781466877863-divine-prescriptions/"><u>Divine Prescriptions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1716377-9781776537365-evolution-of-life-and-form/"><u>Evolution of Life and Form | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1712936-9781473510333-seasons-of-hope/"><u>Seasons of Hope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1713677-9781615645459-the-tarot/"><u>The Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1725062-9781466878631-the-truth-behind-men-in-black/"><u>The Truth Behind Men In Black | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436558-9781684860357-blueberry-dreams/"><u>Blueberry Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434731-9781722527044-introduction-to-the-occult/"><u>Introduction To The Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434828-9781952692239-present-moment-wonderful-moment-revised-edition/"><u>Present Moment Wonderful Moment (Revised Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434647-9781420979770-prosperity/"><u>Prosperity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436548-9781761037535-wicca/"><u>Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436533-9781761037566-wicca-spells/"><u>Wicca Spells | Free Book</u></a></li>
 </ul></div>
 

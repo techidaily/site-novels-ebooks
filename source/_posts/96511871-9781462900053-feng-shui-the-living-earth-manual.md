@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2024-10-28T16:35:44.610Z
-updated: 2024-11-02T00:44:21.947Z
+date: 2024-11-05T18:58:07.836Z
+updated: 2024-11-07T17:42:49.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,10 +148,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1122848-9781136183218-alchemy-in-europe/"><u>Alchemy in Europe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124117-9781618520470-enchanted-one/"><u>Enchanted One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124118-9781618520234-foal-and-the-angels/"><u>Foal and the Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124121-9781609258627-the-best-of-the-equinox-dramatic-ritual/"><u>The Best of the Equinox, Dramatic Ritual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/112408-9781930051195-the-joy-of-weight-loss/"><u>The Joy of Weight Loss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193187-9781642500165-adventures-in-cryptozoology-volume-1/"><u>Adventures in Cryptozoology Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193279-9781609257484-family-blessings-for-special-moments-great-and-small/"><u>Family Blessings for Special Moments Great and Small | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193284-9781633536487-get-out-of-your-own-way-guide-to-life/"><u>Get Out of Your Own Way Guide to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193273-9781609259716-soul-vows/"><u>Soul Vows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193248-9781609252380-the-way-we-pray/"><u>The Way We Pray | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193250-9781609253202-the-womans-book-of-spirit/"><u>The Woman's Book of Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193320-9781633537309-think-happy-to-stay-happy/"><u>Think Happy to Stay Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193230-9781609253660-us/"><u>Us! | Free Book</u></a></li>
 </ul></div>
 

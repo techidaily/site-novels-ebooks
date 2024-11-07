@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Aries | Free Book
-date: 2024-10-22T19:51:25.763Z
-updated: 2024-10-27T02:11:17.803Z
+date: 2024-11-05T17:27:54.459Z
+updated: 2024-11-07T18:10:46.113Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c673df5f0e24e4004b6764826ed31b1d645.jpg
@@ -175,3 +175,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209853360-9781945604645-claim-your-healing/"><u>Claim Your Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853655-9780692938942-gotta-kidney/"><u>Gotta Kidney?! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853597-9788792252227-integral-meditation/"><u>Integral Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853388-9780648089315-the-4-pillars-of-life/"><u>The 4 Pillars of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853454-9781999738754-the-path-to-happy/"><u>The path to HAPPY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853466-9780648147602-wake-up/"><u>Wake Up! | Free Book</u></a></li>
+</ul></div>
+

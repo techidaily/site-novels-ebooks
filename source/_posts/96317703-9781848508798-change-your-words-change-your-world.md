@@ -1,7 +1,7 @@
 ---
 title: Change Your Words, Change Your World | Free Book
-date: 2024-10-22T16:08:36.178Z
-updated: 2024-10-27T03:12:08.257Z
+date: 2024-10-31T17:21:11.372Z
+updated: 2024-11-07T18:05:01.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4122d2d2fd7d9ed8e07c0254f92365da91a1aba1b0235e0cd3e11893c648484.jpg
@@ -161,3 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4122d2d2fd7d9ed8e07c0254f92365
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209876607-9781913140106-creative-regeneration/"><u>Creative Regeneration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876683-9781913192372-grave-doubts/"><u>Grave Doubts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876641-9780648658207-leader-of-the-dance/"><u>Leader of the Dance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876593-9781643145945-souls-from-mercury/"><u>Souls from Mercury | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876564-9781732083240-the-power-of-the-elevation-of-consciousness/"><u>The Power of the Elevation of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876584-9789389157765-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876794-9781999067625-the-way-to-peace/"><u>the Way to Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876634-9780648520214-uncage-the-lion-within/"><u>Uncage the Lion Within | Free Book</u></a></li>
+</ul></div>
+

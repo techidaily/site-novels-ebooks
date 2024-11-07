@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2024-10-22T00:00:56.738Z
-updated: 2024-10-26T20:37:36.788Z
+date: 2024-11-05T18:39:18.974Z
+updated: 2024-11-07T19:10:45.174Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -181,3 +181,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209597234-9781495046018-haunted-america-faq/"><u>Haunted America FAQ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209597408-9781608685530-signs-from-the-other-side/"><u>Signs from the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209597409-9781608686186-simple-truths/"><u>Simple Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209597264-9781495082887-ufo-faq/"><u>UFO FAQ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209596091-9781633539716-your-life-is-your-prayer/"><u>Your Life is Your Prayer | Free Book</u></a></li>
+</ul></div>
+

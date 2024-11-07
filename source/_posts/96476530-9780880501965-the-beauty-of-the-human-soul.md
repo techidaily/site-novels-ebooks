@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-10-27T23:34:51.372Z
-updated: 2024-11-01T22:19:10.780Z
+date: 2024-11-06T17:45:12.797Z
+updated: 2024-11-07T18:10:13.416Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,10 +183,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621300-9781601633767-between-now-and-when/"><u>Between Now and When | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621306-9781601634771-dragonflame/"><u>Dragonflame | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621289-9781632659736-lightworker-relationships/"><u>Lightworker Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621297-9781601633941-mind-wars/"><u>Mind Wars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621307-9781601634375-the-alchemy-of-self-healing/"><u>The Alchemy of Self Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364074-9781648410963-evergreen-ape/"><u>Evergreen Ape | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363175-9780760371848-living-lunarly/"><u>Living Lunarly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363906-9781638375487-magickal-living-series-volume-one/"><u>Magickal Living Series Volume One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363924-9781637303580-permission-to-create/"><u>Permission to Create | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363304-9781608687534-rituals-of-the-soul/"><u>Rituals of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363910-9781956634037-stay-in-the-boat-devotional-book/"><u>Stay in the Boat Devotional Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363960-9781637305645-stirring-the-pot/"><u>Stirring the Pot | Free Book</u></a></li>
 </ul></div>
 

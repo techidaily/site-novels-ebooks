@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2024-10-19T23:21:12.109Z
-updated: 2024-10-27T02:20:34.536Z
+date: 2024-11-03T16:19:48.696Z
+updated: 2024-11-07T18:18:07.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -211,3 +211,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209564581-9781628739817-1001-pearls-of-spiritual-wisdom/"><u>1,001 Pearls of Spiritual Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209565144-9781632207340-animal-energies/"><u>Animal Energies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209565012-9781634508612-bioenergy-healing/"><u>Bioenergy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209564775-9781510722699-maharishi-me/"><u>Maharishi & Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209564818-9781510732001-natural-meditation/"><u>Natural Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209565101-9781629140315-tarot-decoder/"><u>Tarot Decoder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209565149-9781634504775-the-big-dictionary-of-dreams/"><u>The Big Dictionary of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209565004-9781632201942-women-healers-of-the-world/"><u>Women Healers of the World | Free Book</u></a></li>
+</ul></div>
+

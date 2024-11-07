@@ -1,7 +1,7 @@
 ---
 title: The Nature of Good and Evil | Free Book
-date: 2024-10-24T20:58:02.863Z
-updated: 2024-10-26T21:49:34.079Z
+date: 2024-10-31T17:06:18.500Z
+updated: 2024-11-07T18:17:43.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3132d3fd49f68c0eb430669e87f4ed4604054be6011930fa0df124f64446a45f.jpg
@@ -161,3 +161,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3132d3fd49f68c0eb430669e87f4ed4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210128582-9781401962951-african-goddess-initiation/"><u>African Goddess Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127817-9781735539355-breathing-with-orisha/"><u>Breathing With Orisha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129042-9781420970159-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210128301-9780691221991-doctor-illuminatus/"><u>Doctor Illuminatus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129031-9781420970814-the-edinburgh-lectures-on-mental-science/"><u>The Edinburgh Lectures on Mental Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127799-9781087915005-to-hell-with-corona/"><u>TO HELL WITH CORONA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129000-9781420970319-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
+</ul></div>
+

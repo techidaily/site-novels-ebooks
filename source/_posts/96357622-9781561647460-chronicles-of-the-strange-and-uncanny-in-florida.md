@@ -1,7 +1,7 @@
 ---
 title: Chronicles of the Strange and Uncanny in Florida | Free Book
-date: 2024-10-23T20:30:12.890Z
-updated: 2024-10-26T21:36:11.477Z
+date: 2024-11-06T18:53:36.974Z
+updated: 2024-11-07T19:01:57.633Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce015e0475ce278eec2f74db690fa7d3ca82.jpg
@@ -135,3 +135,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209772964-9781440315107-inspiritu-jewelry/"><u>Inspiritu Jewelry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209772117-9781504345187-the-art-of-surrender/"><u>The Art of Surrender | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209769982-9781401957513-the-course-in-miracles-experiment/"><u>The Course in Miracles Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209772548-9781440349270-the-crystal-bible/"><u>The Crystal Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209775851-9780525503880-the-gift-of-presence/"><u>The Gift of Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209770137-9781783253692-the-wellfulness-project/"><u>The Wellfulness Project | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209774674-9781945147326-thirteen-pathways-of-occult-herbalism/"><u>Thirteen Pathways of Occult Herbalism | Free Book</u></a></li>
+</ul></div>
+

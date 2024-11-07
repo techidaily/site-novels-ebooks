@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-10-25T17:16:00.471Z
-updated: 2024-11-01T23:35:41.663Z
+date: 2024-11-03T18:40:24.411Z
+updated: 2024-11-07T18:17:39.148Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,13 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125597-9781609256692-a-book-of-pagan-rituals/"><u>A Book of Pagan Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125608-9781609254759-bucklands-book-of-saxon-witchcraft/"><u>Buckland's Book of Saxon Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125610-9781609256227-casting-sacred-space/"><u>Casting Sacred Space | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125587-9781609251710-the-black-pullet/"><u>The Black Pullet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125594-9781609255961-the-book-of-enoch-prophet/"><u>The Book of Enoch Prophet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125595-9781609257330-the-book-of-ordinary-oracles/"><u>The Book Of Ordinary Oracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125617-9781609256654-the-chakras-esoteric-healing/"><u>The Chakras & Esoteric Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125621-9781609257316-the-chicken-qabalah-of-rabbi-lamed-ben-clifford/"><u>The Chicken Qabalah of Rabbi Lamed Ben Clifford | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198346-9781631593987-being-with-flowers/"><u>Being with Flowers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198394-9780760367384-in-focus-numerology/"><u>In Focus Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198298-9780760364215-love-spells/"><u>Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198187-9781631594281-magic-medicine/"><u>Magic Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198326-9781782407126-secrets-of-crystals/"><u>Secrets of Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198321-9781627889568-witchcraft/"><u>Witchcraft | Free Book</u></a></li>
 </ul></div>
 

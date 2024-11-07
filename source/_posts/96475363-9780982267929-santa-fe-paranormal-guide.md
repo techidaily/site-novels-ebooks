@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2024-10-27T16:57:27.061Z
-updated: 2024-11-01T16:59:09.837Z
+date: 2024-10-31T17:13:05.414Z
+updated: 2024-11-07T16:30:28.731Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,14 +134,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1433500-9781136602696-a-companion-to-yi-jing-numerology-and-cosmology/"><u>A Companion to Yi jing Numerology and Cosmology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424604-9781780286945-beyond-the-occult/"><u>Beyond the Occult | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1426734--heaven-on-earth/"><u>Heaven on Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1429457-9781608827503-mindfulness-for-prolonged-grief/"><u>Mindfulness for Prolonged Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424603-9781780286266-prayers-of-manifestation/"><u>Prayers of Manifestation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424605-9781780286952-supernatural/"><u>Supernatural | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424595-9781780286150-the-gene-keys/"><u>The Gene Keys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424602-9781780286242-the-last-pope/"><u>The Last Pope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1438047-9781608827817-the-tao-of-stress/"><u>The Tao of Stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395967-9781452163659-cosmos-sexy-sutra/"><u>Cosmo's Sexy Sutra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395669-9781452120270-spirit-animals/"><u>Spirit Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395803-9781452158198-the-golden-book-of-fortune-telling/"><u>The Golden Book of Fortune-Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395931-9781452127255-the-little-book-of-angels/"><u>The Little Book of Angels | Free Book</u></a></li>
 </ul></div>
 

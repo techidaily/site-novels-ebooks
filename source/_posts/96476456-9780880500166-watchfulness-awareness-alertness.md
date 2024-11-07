@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-10-29T20:43:06.054Z
-updated: 2024-11-01T23:14:38.235Z
+date: 2024-10-31T18:44:32.575Z
+updated: 2024-11-07T16:12:33.879Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,9 +164,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1527932-9781476740775-break-through-the-power-in-your-name/"><u>Break Through the Power in Your Name | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1527979-9781476739052-soul-contracts/"><u>Soul Contracts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1528029-9781451636031-waking-up/"><u>Waking Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1528023-9781451668544-wild-creative/"><u>Wild Creative | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398638-9781667413044-a-life-of-dreams/"><u>A Life of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398634-9781667412665-arquitectura-del-mas-alla-vida/"><u>Arquitectura Del Mas Alla Vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398544-9781667413624-atencion-plena-navegar-la-vida-diara-usando-la-nueva-ciencia-de-la-salud-y-la-felicidad/"><u>Atención plena: Navegar la vida diara usando la nueva ciencia de la salud y la felicidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398609-9781667414218-consciencia-plena-maneja-tus-emociones-y-calma-tu-mente-con-consciencia/"><u>Consciencia plena - maneja tus emociones y calma tu mente con consciencia. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398632-9781667409641-consejos-para-ser-resiliente-en-momentos-de-estres/"><u>Consejos para ser resiliente en Momentos de Estrés: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398627-9781667414225-mindfulness-el-poder-supremo-de-mindfulness/"><u>Mindfulness: El poder supremo de Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398622-9781667414232-mindfulness-su-guia-diaria-para-lograr-la-atencion-plena/"><u>Mindfulness: su guía diaria para lograr la atención plena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398673-9781667414195-minfulness-una-guia-practica-al-mindfulness-para-principiantes/"><u>Minfulness: Una Guía Práctica al Mindfulness para Principiantes | Free Book</u></a></li>
 </ul></div>
 

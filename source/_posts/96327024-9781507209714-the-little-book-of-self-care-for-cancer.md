@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Cancer | Free Book
-date: 2024-10-22T20:59:41.209Z
-updated: 2024-10-26T16:08:32.307Z
+date: 2024-11-05T16:31:44.820Z
+updated: 2024-11-07T17:22:25.314Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc77010266581c0d7b9341443fd3de9c5ed.jpg
@@ -165,3 +165,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209850928-9781945031014-how-to-live-with-a-psychic/"><u>How to Live with a Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850921-9780983696414-message-for-the-tribe-of-many-colors/"><u>Message for the Tribe of Many Colors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850935-9780997261059-sweat/"><u>Sweat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850936-9780648101710-weird/"><u>Weird | Free Book</u></a></li>
+</ul></div>
+

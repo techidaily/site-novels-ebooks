@@ -1,7 +1,7 @@
 ---
 title: David Wells's Psychic Secrets | Free Book
-date: 2024-10-25T20:59:10.687Z
-updated: 2024-10-27T03:49:19.320Z
+date: 2024-11-01T19:19:45.856Z
+updated: 2024-11-07T18:21:40.425Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/997ea9aa806293012c646259d09a922eba734e2183246b785155e1b1185fa81f.jpg
@@ -153,3 +153,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/997ea9aa806293012c646259d09a922
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209875869-9780359759415-beginning-meditation/"><u>Beginning Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209875808-9780995475830-crystal-magick/"><u>crystal magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876027-9781911159032-how-to-attract-your-perfect-life/"><u>How to Attract Your Perfect Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209875838-9781784566579-never-again/"><u>Never Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209875861-9780578537474-one-million-steps/"><u>One Million Steps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876067-9781733137850-the-ancient-bones-of-ceremony/"><u>The Ancient Bones of Ceremony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209875442-9781943070640-the-twelve-rays-practical-applications/"><u>The Twelve Rays Practical Applications | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209875446-9781943070657-the-twelve-rays-practical-applications/"><u>The Twelve Rays Practical Applications | Free Book</u></a></li>
+</ul></div>
+

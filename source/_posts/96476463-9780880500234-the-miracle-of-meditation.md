@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-10-29T19:36:18.949Z
-updated: 2024-11-01T23:50:36.322Z
+date: 2024-11-06T18:25:54.498Z
+updated: 2024-11-07T18:32:23.014Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,9 +166,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1576827-9781459726567-satanism-and-demonology/"><u>Satanism and Demonology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1576837-9781459725577-the-ufo-files/"><u>The UFO Files | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1576836-9781459725607-toward-wisdom/"><u>Toward Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1576838-9781459725560-ufos-over-canada/"><u>UFOs Over Canada | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210401453-9780645271515-call-of-the-era/"><u>Call of the Era | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210401239-9781638149873-get-real-with-god/"><u>Get Real with GOD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210401429-9781956803198-the-diary-of-a-soul/"><u>The Diary of a Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210401489-9781737850212-unravel-the-bullsht/"><u>Unravel the Bullsh*t | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210400678-9781982185633-wild-witchcraft/"><u>Wild Witchcraft | Free Book</u></a></li>
 </ul></div>
 

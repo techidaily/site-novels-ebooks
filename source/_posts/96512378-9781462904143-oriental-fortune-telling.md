@@ -1,7 +1,7 @@
 ---
 title: Oriental fortune Telling | Free Book
-date: 2024-10-27T21:49:31.646Z
-updated: 2024-11-01T21:17:39.135Z
+date: 2024-10-31T17:46:14.107Z
+updated: 2024-11-07T18:16:01.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9812525ebbe1a6ac377a14372f8984b504.jpg
@@ -147,10 +147,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125544-9781609256890-astral-odyssey/"><u>Astral Odyssey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125537-9781609257071-the-art-and-practice-of-astral-projection/"><u>The Art and Practice of Astral Projection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125539-9781609250706-the-art-and-practice-of-geomancy/"><u>The Art and Practice of Geomancy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125541-9781609257965-the-art-of-living-out-loud/"><u>The Art of Living Out Loud | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125547-9781609253844-the-astrological-neptune-and-the-quest-for-redemption/"><u>The Astrological Neptune and the Quest for Redemption | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197741-9781782408109-art-of-mindful-reading/"><u>Art of Mindful Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197603-9780760365809-eff-this-meditation/"><u>Eff This! Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197696-9780760363652-in-focus-tarot/"><u>In Focus Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197803-9780760368220-knot-magic/"><u>Knot Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197538-9781782406310-mindfulness-and-the-big-questions/"><u>Mindfulness and the Big Questions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197569-9781782407133-secrets-of-numerology/"><u>Secrets of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197589-9780711252844-the-mindful-universe/"><u>The Mindful Universe | Free Book</u></a></li>
 </ul></div>
 

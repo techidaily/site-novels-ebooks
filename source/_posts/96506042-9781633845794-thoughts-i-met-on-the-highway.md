@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2024-10-26T22:45:05.857Z
-updated: 2024-11-01T20:10:54.676Z
+date: 2024-11-04T16:13:10.303Z
+updated: 2024-11-07T18:54:58.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,12 +137,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1154015-9781577319696-a-book-of-miracles/"><u>A Book of Miracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1153688-9781577319658-active-dreaming/"><u>Active Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1153690-9781577317074-all-my-relations/"><u>All My Relations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1153701-9781608681396-astrology-for-the-new-age/"><u>Astrology for the New Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1153704-9781577318293-beginning-mindfulness/"><u>Beginning Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1153708-9781577318378-beyond-knowing/"><u>Beyond Knowing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154025-9781577319535-christian-mystics/"><u>Christian Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240511-9781684036097-quick-calm/"><u>Quick Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240657-9780984428755-the-afterlife-is-a-party/"><u>The Afterlife Is a Party | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240812-9789351940340-the-children-of-nature-the-life-and-legacy-of-ramana-maharshi/"><u>The Children of Nature: The Life and Legacy of Ramana Maharshi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240987-9781736465219-the-evolution-revolution/"><u>The Evolution Revolution | Free Book</u></a></li>
 </ul></div>
 

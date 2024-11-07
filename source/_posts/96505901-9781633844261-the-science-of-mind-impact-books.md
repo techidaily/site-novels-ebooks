@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-10-29T21:38:46.979Z
-updated: 2024-11-02T00:13:56.659Z
+date: 2024-11-01T16:17:03.136Z
+updated: 2024-11-07T17:30:39.773Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,10 +137,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126915-9781612831169-conversations-with-god-for-teens/"><u>Conversations with God for Teens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126918-9781612830599-cosmic-ordering/"><u>Cosmic Ordering | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126930-9781612830070-do-you-see-what-i-see/"><u>Do You See What I See? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126919-9781612830759-the-cosmic-ordering-service/"><u>The Cosmic Ordering Service | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126929-9781612831121-the-dna-of-healing/"><u>The DNA of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228254-9781736107416-choosing-wellness/"><u>Choosing Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224056-9781684038916-mood-magick/"><u>Mood Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224094-9781644249840-sammy-and-the-angels/"><u>Sammy and the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224933-9780857909817-the-diary-of-archie-the-alpaca/"><u>The Diary of Archie the Alpaca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224035-9781684037162-the-science-of-channeling/"><u>The Science of Channeling | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Your Life After Their Death | Free Book
-date: 2024-10-20T21:42:25.646Z
-updated: 2024-10-26T20:59:43.375Z
+date: 2024-11-01T16:22:09.902Z
+updated: 2024-11-07T18:36:56.220Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/27102e2626a9584dec484fec9d594737db132fa3321ef50675d96683a809455b.jpg
@@ -164,3 +164,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/27102e2626a9584dec484fec9d59473
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209862600-9789081991056-jesus-the-untold-story/"><u>Jesus, the untold story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862588-9781643703671-mindfulness-breaks/"><u>Mindfulness Breaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862523-9781635354065-the-phoenix-lights-petroglyphsinthesky-landscapes-for-the-spirits/"><u>The Phoenix Lights- Petroglyphsinthesky (Landscapes for the Spirits) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862531-9780997146738-womens-rites-womens-mysteries/"><u>Women's Rites, Women's Mysteries | Free Book</u></a></li>
+</ul></div>
+

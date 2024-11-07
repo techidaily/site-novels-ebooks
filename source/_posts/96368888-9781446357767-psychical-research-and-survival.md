@@ -1,7 +1,7 @@
 ---
 title: Psychical Research and Survival | Free Book
-date: 2024-10-26T02:20:26.657Z
-updated: 2024-10-26T21:32:18.476Z
+date: 2024-10-31T18:03:56.556Z
+updated: 2024-11-07T18:27:13.954Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e1773637d63b2cf046deae37eb848ccca9c1991.jpg
@@ -143,3 +143,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e17736
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209785236-9781786784087-a-short-history-of-nearly-everything-paranormal/"><u>A Short History of (Nearly) Everything Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209783338-9781950584406-finding-god-in-ordinary-time/"><u>Finding God in Ordinary Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209784545-9781524856854-the-little-book-of-forest-bathing/"><u>The Little Book of Forest Bathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209782153-9781600379246-weight-release/"><u>Weight Release | Free Book</u></a></li>
+</ul></div>
+

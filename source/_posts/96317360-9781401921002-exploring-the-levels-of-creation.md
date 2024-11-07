@@ -1,7 +1,7 @@
 ---
 title: Exploring the Levels of Creation | Free Book
-date: 2024-10-24T17:39:53.905Z
-updated: 2024-10-26T18:16:34.695Z
+date: 2024-11-06T18:14:45.099Z
+updated: 2024-11-07T19:13:28.461Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/247555f059d5a683554daf332e92daee99ecec3d06bcdcca9f6d85168de68e9c.jpg
@@ -163,3 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/247555f059d5a683554daf332e92dae
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210027112-9780744033427-a-history-of-magic-witchcraft-and-the-occult/"><u>A History of Magic, Witchcraft, and the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210026299-9781609250652-chakra-foods-for-optimum-health/"><u>Chakra Foods for Optimum Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210024818-9781912409068-for-humanity/"><u>For Humanity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210026281-9780835631877-man-the-measure-of-all-things/"><u>Man, the Measure of All Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210025905-9789198578522-mission-space/"><u>Mission Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210025281-9781538131459-researching-the-paranormal/"><u>Researching the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210025284-9781493044801-spooky-maryland-2nd-ed/"><u>Spooky Maryland (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210026302-9781609253325-the-art-of-dreaming/"><u>The Art of Dreaming | Free Book</u></a></li>
+</ul></div>
+

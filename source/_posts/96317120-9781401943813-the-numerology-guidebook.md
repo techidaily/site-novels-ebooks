@@ -1,7 +1,7 @@
 ---
 title: The Numerology Guidebook | Free Book
-date: 2024-10-25T22:39:25.575Z
-updated: 2024-10-27T00:20:23.132Z
+date: 2024-11-05T17:35:15.719Z
+updated: 2024-11-07T18:06:15.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f8c4b082b3774775beb14a99fde6c6443f884c09542c38ebf492f84d4a2cf45.jpg
@@ -180,3 +180,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f8c4b082b3774775beb14a99fde6c6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210133163-9781644110393-animal-spirit-wisdom/"><u>Animal Spirit Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133160-9781620557204-introduction-to-magic-volume-iii/"><u>Introduction to Magic, Volume III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133164-9781644110799-mysteries-of-the-werewolf/"><u>Mysteries of the Werewolf | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133161-9781620559789-the-fall-of-spirituality/"><u>The Fall of Spirituality | Free Book</u></a></li>
+</ul></div>
+

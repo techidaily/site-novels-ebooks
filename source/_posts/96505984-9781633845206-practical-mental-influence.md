@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-10-28T18:14:52.575Z
-updated: 2024-11-01T23:04:52.077Z
+date: 2024-11-02T19:10:41.897Z
+updated: 2024-11-07T18:13:08.488Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,9 +143,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1128291-9781136183072-john-dees-natural-philosophy/"><u>John Dee's Natural Philosophy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1131763-9781609258481-spirit-walking/"><u>Spirit Walking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1130170-9780982432389-the-witches-almanac-issue-31-spring-2012-to-spring-2013/"><u>The Witches' Almanac: Issue 31, Spring 2012 to Spring 2013 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1130171-9780982432341-the-witches-almanac-issue-32-spring-2013-to-spring-2014/"><u>The Witches' Almanac: Issue 32, Spring 2013 to Spring 2014 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233091-9781633412378-hoodoo-justice-magic/"><u>Hoodoo Justice Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233089-9781633412347-ossman-steels-classic-household-guide-to-appalachian-folk-healing/"><u>Ossman & Steel's Classic Household Guide to Appalachian Folk Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233093-9781633412408-pure-magic/"><u>Pure Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233092-9781633412095-saturn/"><u>Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233090-9781633412026-spiritual-cleansing/"><u>Spiritual Cleansing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233088-9781633412330-the-mystical-qabalah/"><u>The Mystical Qabalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233095-9781633412392-the-witch-at-the-forests-edge/"><u>The Witch at the Forest's Edge | Free Book</u></a></li>
 </ul></div>
 

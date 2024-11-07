@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-10-27T19:03:53.354Z
-updated: 2024-11-01T20:13:08.158Z
+date: 2024-11-05T17:25:38.267Z
+updated: 2024-11-07T16:18:16.318Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,11 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1058057-9781448175765-astrology-decoded/"><u>Astrology Decoded | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1050238-9781780995588-healing-with-spirit/"><u>Healing with Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1058508-9781780991986-i-am-boundlessness/"><u>I Am Boundlessness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1056931-9781780994741-seeds-of-change/"><u>Seeds of Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1056930-9781780994406-the-astrological-dynamics-of-the-universe/"><u>The Astrological Dynamics of the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1058509-9781780992228-why-women-believe-in-god/"><u>Why Women Believe in God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185884-9780997507836-art-hope-the-way-to-creative-wellness/"><u>ART HOPE The Way To Creative Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185985-9781777508913-carols-lives/"><u>Carol's Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185874-9781914269011-gurdjieff-and-the-women-of-the-rope/"><u>Gurdjieff and the Women of the Rope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185877-9781914269004-gurdjieffs-early-talks-1914-1931/"><u>Gurdjieff's Early Talks 1914-1931 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185963-9781914269059-gurdjieffs-emissary-in-new-york/"><u>Gurdjieff's Emissary in New York | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185970-9781914269080-les-premiers-entretiens-de-gurdjieff-1914-1931/"><u>Les Premiers Entretiens de Gurdjieff 1914-1931 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185883-9781636762517-living-free/"><u>Living Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185972-9781914269066-psychological-lectures-1934-1940/"><u>Psychological Lectures 1934-1940 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185876-9781914269028-transcripts-of-gurdjieffs-meetings-1941-1946/"><u>Transcripts of Gurdjieff's Meetings 1941-1946 | Free Book</u></a></li>
 </ul></div>
 
