@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-11-06T18:36:27.213Z
-updated: 2024-11-07T16:52:41.570Z
+date: 2024-11-13T16:37:55.585Z
+updated: 2024-11-17T19:11:39.200Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,10 +137,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210280112-9781736676714-nine-perfect-petals/"><u>Nine Perfect Petals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210280037-9781911134411-quareia/"><u>Quareia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210280038-9781911134435-quareia/"><u>Quareia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210280039-9781911134428-quareia/"><u>Quareia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210280071-9781736802700-taking-a-bath-with-quartz-crystals/"><u>Taking a Bath with Quartz Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780573-9781803411613-beyond-sustainability/"><u>Beyond Sustainability | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780143-9781633413160-healing-pluto-problems/"><u>Healing Pluto Problems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780572-9781803412214-letting-glow/"><u>Letting Glow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780147-9781950253463-the-cauldron-and-the-drum/"><u>The Cauldron and the Drum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780145-9781633413221-the-edge-of-reality/"><u>The Edge of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780149-9781950253401-the-shamans-path-to-freedom/"><u>The Shaman's Path to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780141-9781633413184-wanderers-tarot-guidebook/"><u>Wanderer's Tarot Guidebook | Free Book</u></a></li>
 </ul></div>
 

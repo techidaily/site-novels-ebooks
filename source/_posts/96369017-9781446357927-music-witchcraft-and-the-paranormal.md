@@ -1,7 +1,7 @@
 ---
 title: Music, Witchcraft and the Paranormal | Free Book
-date: 2024-11-06T17:54:37.900Z
-updated: 2024-11-07T17:02:18.178Z
+date: 2024-11-12T02:24:50.640Z
+updated: 2024-11-18T02:09:22.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/824849f88568044cb778bb35098294032212fd9721553ac1111758a73a30f9bb.jpg
@@ -142,13 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/824849f88568044cb778bb350982940
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209815496-9781789042429-ancient-teachings-for-modern-times/"><u>Ancient Teachings for Modern Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2098150-9781459733473-creepy-capital/"><u>Creepy Capital | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209814593-9781982135539-everything-you-wanted-to-know-about-the-afterlife-but-were-afraid-to-ask/"><u>Everything You Wanted to Know about the Afterlife but Were Afraid to Ask | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209820540-9781743586518-find-your-sparkle/"><u>Find Your Sparkle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209814266-9781783253852-five-minutes-in-the-evening/"><u>Five Minutes in the Evening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209815494-9781789042177-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209821369-9781786784100-learn-to-dowse/"><u>Learn to Dowse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209815503-9781789041385-the-energetic-dimension/"><u>The Energetic Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211228242-9781797228174-beaming/"><u>Beaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211228166-9798989213337-being-human/"><u>Being Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211230821-9788195991747-calm-the-monkey-mind/"><u>Calm the Monkey Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211231093--how-to-let-things-go/"><u>How to Let Things Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211230380-9798889609964-simply-put/"><u>Simply Put | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211230392-9781662480409-the-asmr/"><u>The A.S.M.R. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211231295-9781784887704-the-book-of-luck/"><u>The Book of Luck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211231236-9781608688630-the-illumination-code/"><u>The Illumination Code | Free Book</u></a></li>
 </ul></div>
 

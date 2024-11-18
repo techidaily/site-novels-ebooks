@@ -1,7 +1,7 @@
 ---
 title: Astrology and Your Past Lives | Free Book
-date: 2024-10-22T23:19:30.978Z
-updated: 2024-10-26T18:55:45.051Z
+date: 2024-11-15T03:05:20.367Z
+updated: 2024-11-17T17:39:09.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c2285efaf8abcd0db148740eb625323acd4715766d07d6f9539db8eada05c18d.jpg
@@ -137,3 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c2285efaf8abcd0db148740eb625323
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210642634-9781958921029-ancestors/"><u>Ancestors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210643671-9781638853473-believe-a-wells-legacy/"><u>BELIEVE ~ A WELLS LEGACY! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210643527-9781608688395-conversations-with-the-zs-book-one/"><u>Conversations with the Z’s, Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642561-9780645361810-directional/"><u>Directional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210643704-9780008601614-gentle-spells-kind-magic/"><u>Gentle Spells & Kind Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642770-9798986491929-mastering-the-art-of-mindfulness/"><u>Mastering the Art of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210643758-9780760376362-protection-spells/"><u>Protection Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210643670-9781638145981-the-pen-of-a-soul/"><u>The Pen of A Soul | Free Book</u></a></li>
+</ul></div>
+

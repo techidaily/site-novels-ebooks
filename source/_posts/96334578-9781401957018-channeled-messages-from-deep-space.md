@@ -1,7 +1,7 @@
 ---
 title: Channeled Messages from Deep Space | Free Book
-date: 2024-11-04T18:32:16.787Z
-updated: 2024-11-07T19:15:55.628Z
+date: 2024-11-15T21:40:57.238Z
+updated: 2024-11-17T22:35:30.069Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f7b764cbb04d2a03ae69325a1bbdf28490.jpg
@@ -230,9 +230,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209758045-9780917849800-chronicles-of-religious-science-volume-ii-1960-2012/"><u>Chronicles of Religious Science, Volume II, 1960-2012 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209755029-9781787751767-compassionate-mindful-inquiry-in-therapeutic-practice/"><u>Compassionate Mindful Inquiry in Therapeutic Practice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209760161-9781119643135-feng-shui-for-dummies-2nd-ed/"><u>Feng Shui For Dummies (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209758588-9781401958053-no-endings-only-beginnings/"><u>No Endings, Only Beginnings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211186049-9782017229872-a-lecoute-des-esprits/"><u>À l'écoute des Esprits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211185409-9798869093967-critical-reflection-and-biblical-scholarship/"><u>Critical Reflection and Biblical Scholarship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211186057-9782017229629-encyclopedie-des-cristaux/"><u>Encyclopédie des cristaux | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211186439-9781914317453-instant-magic-oracle/"><u>Instant Magic Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211186059-9782385640491-les-11-codes-quantiques-pour-activer-votre-potentiel/"><u>Les 11 codes quantiques pour activer votre potentiel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211188936-9781493085729-spooky-appalachia/"><u>Spooky Appalachia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211188596-9798887637440-the-cycles-of-creation/"><u>The Cycles of Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211188968-9781958655146-the-truth-about-spiritual-phenomena/"><u>The Truth about Spiritual Phenomena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211184643-9781608688913-untapped-magic/"><u>Untapped Magic | Free Book</u></a></li>
 </ul></div>
 

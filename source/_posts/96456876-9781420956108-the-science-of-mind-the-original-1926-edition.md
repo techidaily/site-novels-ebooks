@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-10-27T21:23:54.547Z
-updated: 2024-11-01T16:39:23.236Z
+date: 2024-11-14T18:21:40.318Z
+updated: 2024-11-18T00:31:35.559Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,11 +156,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1764974-9781472904959-britains-x-traordinary-files/"><u>Britain's X-traordinary Files | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1770704-9781782794752-naming-the-goddess/"><u>Naming the Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1766086-9781455531295-the-hand-on-the-mirror/"><u>The Hand on the Mirror | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1769062-9781612833330-the-only-little-prayer-you-need/"><u>The Only Little Prayer You Need | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1770712-9781782796466-the-road-to-second-degree-priesthood/"><u>The Road to Second Degree Priesthood | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1770713-9781782796060-what-wags-the-world/"><u>What Wags the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968728-9781088225400-aimless-hearts/"><u>Aimless Hearts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968722-9798988050513-buddha-behind-bars-a-memoir/"><u>Buddha Behind Bars - A Memoir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968712-9781761039348-erwachen-des-dritten-auges/"><u>Erwachen des Dritten Auges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968714-9781761039409-geistfuhrer/"><u>Geistführer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968745-9781088237458-greta/"><u>Greta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968727-9781088225646-lessons-that-life-provides/"><u>LESSONS THAT LIFE PROVIDES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968740-9781088225714-no-rules-to-love/"><u>NO RULES TO LOVE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968744-9781088231494-the-world-i-found/"><u>The World I Found | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968742-9781088232996-toujours-avec-moi/"><u>Toujours avec moi | Free Book</u></a></li>
 </ul></div>
 

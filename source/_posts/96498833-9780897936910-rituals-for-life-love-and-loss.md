@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-11-06T16:40:34.859Z
-updated: 2024-11-07T16:44:52.101Z
+date: 2024-11-16T00:19:13.321Z
+updated: 2024-11-17T23:48:07.754Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,12 +179,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210320333-9780648453628-a-journey-of-self-discovery/"><u>A JOURNEY OF SELF DISCOVERY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210320929-9781667401638-criando-o-tarot-visconti-sforza/"><u>Criando o Tarot Visconti-Sforza | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210319222-9782019459727-le-secret-de-lalchimiste/"><u>Le secret de l'Alchimiste | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210320435-9781631955181-murphys-dont-quit/"><u>Murphys Don’t Quit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210319126-9781528956499-the-mastery-of-life/"><u>The Mastery of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210320862-9781667402413-tu-mereces-lo-mejor/"><u>Tú mereces lo mejor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210320806-9781667402727-women-i-love-you/"><u>Women... I Love You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850025-9781446359211-jungian-spirituality/"><u>Jungian Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850015-9781446358443-secret-societies-of-the-middle-ages/"><u>Secret Societies of the Middle Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850012-9781446358481-telepathy/"><u>Telepathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850553-9798886859300-the-arrow-of-a-second-chance/"><u>The Arrow of a Second Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850094-9781504085694-the-sorcerers-handbook/"><u>The Sorcerer's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850963-9781398831957-the-wiccan-guide-to-self-care/"><u>The Wiccan Guide to Self-care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850016-9781446358542-tree-lore/"><u>Tree Lore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850024-9781446359198-your-dark-side/"><u>Your Dark Side | Free Book</u></a></li>
 </ul></div>
 

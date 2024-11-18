@@ -1,7 +1,7 @@
 ---
 title: Financial Vipers of Venice | Free Book
-date: 2024-11-05T18:25:41.113Z
-updated: 2024-11-07T16:25:47.915Z
+date: 2024-11-15T18:37:34.877Z
+updated: 2024-11-18T02:54:32.028Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf70277606d3f7799e20c490b0b531163059.jpg
@@ -137,14 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209778071-9781843584667-get-a-fcking-grip/"><u>Get a F*cking Grip | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209779130-9781439667897-haunted-southern-maryland/"><u>Haunted Southern Maryland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209778719-9780795316487-linda-goodmans-love-signs/"><u>Linda Goodman's Love Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209778776-9780795316098-linda-goodmans-sun-signs/"><u>Linda Goodman's Sun Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209776661-9781722523657-success-original-classic-edition/"><u>Success! (Original Classic Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209776658-9781420963083-the-zodiac-and-the-salts-of-salvation/"><u>The Zodiac and the Salts of Salvation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209778541-9781843586319-they-walk-among-us/"><u>They Walk Among Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209777524-9781550717488-writing-poetry-to-save-your-life/"><u>Writing Poetry To Save Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209776805-9781760872243-you-already-know/"><u>You Already Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211206264-9781684814879-crones-dont-whine/"><u>Crones Don't Whine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211206327-9798887938639-gods-universal-foundation/"><u>God's Universal Foundation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211207003-9780062087133-im-not-dead-im-different/"><u>I'm Not Dead, I'm Different | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211204321--its-all-magic/"><u>It's All Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211203718-9791028528652-lamour-une-aventure-spirituelle/"><u>L'Amour, une aventure spirituelle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211203716-9782017230021-le-guide-moderne-des-mudras/"><u>Le guide moderne des Mudras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211207447-9780062656162-sister-of-darkness/"><u>Sister of Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211202983-9780762487387-the-little-encyclopedia-of-fairies/"><u>The Little Encyclopedia of Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211203575-9781493083992-yellowstone-ghost-stories/"><u>Yellowstone Ghost Stories | Free Book</u></a></li>
 </ul></div>
 

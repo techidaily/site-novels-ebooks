@@ -1,7 +1,7 @@
 ---
 title: Energy Healing for Everyone | Free Book
-date: 2024-10-29T20:50:54.958Z
-updated: 2024-11-01T20:39:53.514Z
+date: 2024-11-12T18:31:52.791Z
+updated: 2024-11-18T01:33:28.443Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859a2687327012523ee141028dafe5e3e789.jpg
@@ -175,12 +175,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1931505-9781476621333-a-world-in-a-grain-of-sand/"><u>A World in a Grain of Sand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/193231-9780767911528-breaking-open-the-head/"><u>Breaking Open the Head | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/192810-9781400045488-emotional-alchemy/"><u>Emotional Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/192649-9780440334637-its-a-miracle-3/"><u>It's a Miracle 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/192561-9780767919623-letting-go-of-the-person-you-used-to-be/"><u>Letting Go of the Person You Used to Be | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1931481-9781476606484-psychics-sensitives-and-somnambules/"><u>Psychics, Sensitives and Somnambules | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1925436-9781782794134-teen-spirit-guide-to-working-with-mediumship/"><u>Teen Spirit Guide to Working with Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970492-9781088227718-candle-magic-for-beginners/"><u>Candle Magic For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970493-9781088226933-candle-magic-for-beginners/"><u>Candle Magic For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970478-9781088226148-cord-magic/"><u>CORD Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970672-9781803413068-phantoms-in-the-night-or-ets/"><u>Phantoms in the Night or ETs? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970501-9781088222546-the-empaths-guide-understanding-the-many-facets-of-empathy-traits-abilities-characteristics-attributes-fulfillment-and-well-being-understanding-the-many-facets-/"><u>The Empath's Guide: Understanding the Many Facets of Empathy: Traits, Abilities, Characteristics, Attributes, Fulfillment and Well-Being: Understanding the Many Facets of Empathy | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Time Has Come... to Accept Your Intuitive Gifts! | Free Book
-date: 2024-10-21T02:18:34.080Z
-updated: 2024-10-26T19:45:12.696Z
+date: 2024-11-10T16:35:59.304Z
+updated: 2024-11-17T18:49:54.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f8c62752adad77b08061b15c508a97614ee5a7c2fcada47c752ed73231d339a3.jpg
@@ -157,3 +157,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f8c62752adad77b08061b15c508a976
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210528144-9781909141872-breathing-mudras-and-meridians/"><u>Breathing, Mudras and Meridians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528181-9781909141711-mindful-relationships/"><u>Mindful Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528017-9781644116708-psychedelic-buddhism/"><u>Psychedelic Buddhism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528021-9781644117040-shamanic-dreaming/"><u>Shamanic Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528016-9781644116203-the-nature-of-astrology/"><u>The Nature of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528150-9781912085941-yoga-and-resilience/"><u>Yoga and Resilience | Free Book</u></a></li>
+</ul></div>
+

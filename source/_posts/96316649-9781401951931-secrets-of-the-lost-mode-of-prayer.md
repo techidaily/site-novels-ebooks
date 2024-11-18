@@ -1,7 +1,7 @@
 ---
 title: Secrets of the Lost Mode of Prayer | Free Book
-date: 2024-10-24T00:40:36.539Z
-updated: 2024-10-27T00:37:22.589Z
+date: 2024-11-12T03:31:53.680Z
+updated: 2024-11-18T00:53:15.201Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d6059e0c198d3fd65f7e47374576dba7c51edfe5a8b7c20f1645686ed02d288.jpg
@@ -167,3 +167,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d6059e0c198d3fd65f7e47374576db
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210502018-9781774816950-initiates-of-the-flame/"><u>Initiates of the Flame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502015-9781953120472-source-dialogues/"><u>Source Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502132-9781669350415-summary-of-diane-ahlquists-moon-magic/"><u>Summary of Diane Ahlquist's Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502359-9781942125983-the-laws-of-messiah/"><u>The Laws Of Messiah | Free Book</u></a></li>
+</ul></div>
+

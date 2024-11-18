@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-11-04T18:56:03.976Z
-updated: 2024-11-07T19:19:45.129Z
+date: 2024-11-15T21:55:44.192Z
+updated: 2024-11-18T03:10:26.283Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,10 +213,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210389811-9781493046317-haunted-connecticut-2nd-ed/"><u>Haunted Connecticut (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389812-9781493045778-haunted-illinois-2nd-ed/"><u>Haunted Illinois (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389810-9781493047925-haunted-wisconsin-2nd-ed/"><u>Haunted Wisconsin (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389815-9781493044863-spooky-florida-2nd-ed/"><u>Spooky Florida (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389971-9781737464129-the-natural-law-of-attraction/"><u>The Natural Law Of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932756-9781906999704-anthroposophy/"><u>Anthroposophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932761-9781855843745-from-limestone-to-lucifer/"><u>From Limestone to Lucifer... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932764-9781855844995-the-east-in-the-light-of-the-west/"><u>The East in the Light of the West | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932755-9781912992300-the-enchanted-garden/"><u>The Enchanted Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932757-9781855843509-the-heart-of-peace/"><u>The Heart of Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932762-9781912230655-the-illustrated-calendar-of-the-soul/"><u>The Illustrated Calendar of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932767-9781905570997-transforming-demons/"><u>Transforming Demons | Free Book</u></a></li>
 </ul></div>
 

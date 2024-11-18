@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-11-06T19:06:29.828Z
-updated: 2024-11-07T19:13:01.618Z
+date: 2024-11-11T17:14:33.355Z
+updated: 2024-11-18T00:40:21.621Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,9 +227,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210344427-9781647467678-love-wellness-and-happiness/"><u>Love, Wellness, and Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344377-9781648015571-the-girl-in-the-window/"><u>The Girl in the Window | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344454-9780578751283-the-perks-of-being-terminal/"><u>The Perks of Being Terminal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210343456-9781631599996-the-ultimate-guide-to-shamanism/"><u>The Ultimate Guide to Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210875406-9789358561319-musings-on-this-world-and-that-ideas-amp-jellyfish/"><u>Musings On This World And That Ideas &amp; Jellyfish | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210875890-9780711290808-self-love-crystals/"><u>Self-Love Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210876895-9781452173542-the-astrological-grimoire/"><u>The Astrological Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210875883-9780760387184-therapy-chickens/"><u>Therapy Chickens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210876749-9780762483044-this-is-your-bravery-test/"><u>This Is Your Bravery Test | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210875637-9781608688845-three-minutes-a-day/"><u>Three Minutes a Day | Free Book</u></a></li>
 </ul></div>
 

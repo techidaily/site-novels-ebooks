@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2024-10-28T21:20:07.232Z
-updated: 2024-11-01T18:04:32.579Z
+date: 2024-11-16T23:01:50.956Z
+updated: 2024-11-17T22:02:25.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,10 +179,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1903431-9781594748448-field-guide-to-dreams/"><u>Field Guide to Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1915234-9780813156446-lucifer-ascending/"><u>Lucifer Ascending | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1911512-9781612833392-never-argue-with-a-dead-person/"><u>Never Argue With a Dead Person | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1903447-9781780288789-the-12-type-enneagram/"><u>The 12-Type Enneagram | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1899750-9780698195165-the-power-in-you/"><u>The Power in You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970401-9781088252499-heart-impulses/"><u>Heart Impulses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970402-9781088251768-la-force-du-destin/"><u>La Force Du Destin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970411-9781088252734-the-power-of-fate/"><u>The Power Of Fate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970412-9781088252123-twins/"><u>TWINS | Free Book</u></a></li>
 </ul></div>
 

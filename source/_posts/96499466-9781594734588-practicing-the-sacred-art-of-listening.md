@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2024-11-05T16:44:01.223Z
-updated: 2024-11-07T17:22:12.294Z
+date: 2024-11-13T17:22:44.997Z
+updated: 2024-11-17T20:53:31.040Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,9 +167,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210270642-9781250773838-the-body-code/"><u>The Body Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270645-9781250766786-the-complete-book-of-astrology/"><u>The Complete Book of Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270649-9781250279552-the-kickass-coven/"><u>The Kickass Coven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270585-9781250828729-the-science-of-breath-the-essential-works-of-yogi-ramacharaka/"><u>The Science of Breath: The Essential Works of Yogi Ramacharaka | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773363-9781925939873-alzheimers-dons-faithful-journey/"><u>ALZHEIMER'S: Don's Faithful Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773353-9781649697332-one-fine-day/"><u>One Fine Day. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773316-9781685830625-shine-bright-sister/"><u>Shine Bright Sister | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773281-9781649695109-the-human-mind/"><u>The Human Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773287-9781685833848-unpacking-my-shit/"><u>Unpacking My Shit | Free Book</u></a></li>
 </ul></div>
 

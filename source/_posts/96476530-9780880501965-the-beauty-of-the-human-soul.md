@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-11-06T17:45:12.797Z
-updated: 2024-11-07T18:10:13.416Z
+date: 2024-11-11T00:59:13.746Z
+updated: 2024-11-18T03:22:16.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,12 +183,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210364074-9781648410963-evergreen-ape/"><u>Evergreen Ape | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210363175-9780760371848-living-lunarly/"><u>Living Lunarly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210363906-9781638375487-magickal-living-series-volume-one/"><u>Magickal Living Series Volume One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210363924-9781637303580-permission-to-create/"><u>Permission to Create | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210363304-9781608687534-rituals-of-the-soul/"><u>Rituals of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210363910-9781956634037-stay-in-the-boat-devotional-book/"><u>Stay in the Boat Devotional Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210363960-9781637305645-stirring-the-pot/"><u>Stirring the Pot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925795-9780639939537-acta-non-verba/"><u>Acta Non Verba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210922806-9781803814254-destiny-blockers/"><u>Destiny Blockers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925076-9781920707385-embrace-your-elegant-power/"><u>Embrace Your Elegant Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926285-9781903353554-from-the-moment-we-met/"><u>From The Moment We Met | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925708-9780639992891-life-simplified/"><u>Life Simplified | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926283-9781903353639-the-astrology-of-the-self/"><u>The Astrology of the Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925914-9780639992983-train-naked/"><u>Train Naked | Free Book</u></a></li>
 </ul></div>
 

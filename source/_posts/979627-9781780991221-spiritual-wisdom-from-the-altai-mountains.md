@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2024-11-04T19:15:58.679Z
-updated: 2024-11-07T19:22:55.555Z
+date: 2024-11-11T20:38:12.283Z
+updated: 2024-11-18T01:18:18.743Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -132,12 +132,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210210403-9781777318949-2021-year-of-tarot/"><u>2021 Year of Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210284-9781647866617-a-quantum-healing-expression/"><u>A Quantum Healing Expression | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209538-9781582708003-miracles-and-other-realities/"><u>Miracles and Other Realities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209405-9781071581094-passe-backstage-para-o-outro-lado/"><u>Passe Backstage Para O Outro Lado | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209539-9781582708379-stop-fixing-yourself/"><u>Stop Fixing Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210651-9781722526122-the-power-of-your-transcendental-mind-condensed-classics/"><u>The Power of Your Transcendental Mind (Condensed Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210656-9781722526719-the-secret-formula/"><u>The Secret Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758949-9781639365302-ashes-and-stones/"><u>Ashes and Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758607-9781399719391-energy-secrets/"><u>Energy Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758596-9781523526017-finding-your-way/"><u>Finding Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758854-9781507221198-the-modern-witchcraft-book-of-crystal-magick/"><u>The Modern Witchcraft Book of Crystal Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758954-9781646045631-the-retrograde-guidebook/"><u>The Retrograde Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758873-9781510776500-the-ultimate-guide-to-emotional-healing-with-crystals-and-stones/"><u>The Ultimate Guide to Emotional Healing with Crystals and Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758532-9781635866650-wake-up-grateful/"><u>Wake Up Grateful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758858-9781507221358-whats-my-aura/"><u>What's My Aura? | Free Book</u></a></li>
 </ul></div>
 

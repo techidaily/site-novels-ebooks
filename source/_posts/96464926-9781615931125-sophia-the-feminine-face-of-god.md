@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2024-10-30T00:17:26.876Z
-updated: 2024-11-01T23:31:49.930Z
+date: 2024-11-14T19:27:27.718Z
+updated: 2024-11-18T02:12:50.033Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,10 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1776781-9781583949009-love-in-the-age-of-ecological-apocalypse/"><u>Love in the Age of Ecological Apocalypse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1779503-9781493011247-more-spooky-campfire-tales/"><u>More Spooky Campfire Tales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1776784-9781583949115-the-hidden-teaching-beyond-yoga/"><u>The Hidden Teaching Beyond Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1776791-9781583949405-the-smell-of-rain-on-dust/"><u>The Smell of Rain on Dust | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1776786-9781583949153-the-wisdom-of-the-overself/"><u>The Wisdom of the Overself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969974-9781088229774-el-evangelio-de-los-humildes/"><u>El Evangelio de los Humildes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969977-9781088229828-mediumnidad-sin-lagrimas/"><u>Mediumnidad sin Lágrimas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969963-9781088229859-renunciando-por-amor/"><u>Renunciando por Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969992-9781088233061-revival-of-hope/"><u>Revival Of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969990-9781088232163-the-force-of-kidness/"><u>The Force of Kidness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969986-9781088240335-turns-of-life/"><u>Turns Of Life | Free Book</u></a></li>
 </ul></div>
 

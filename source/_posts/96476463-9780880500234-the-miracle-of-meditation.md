@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-11-06T18:25:54.498Z
-updated: 2024-11-07T18:32:23.014Z
+date: 2024-11-11T19:01:55.339Z
+updated: 2024-11-17T17:10:14.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,10 +166,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210401453-9780645271515-call-of-the-era/"><u>Call of the Era | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210401239-9781638149873-get-real-with-god/"><u>Get Real with GOD | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210401429-9781956803198-the-diary-of-a-soul/"><u>The Diary of a Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210401489-9781737850212-unravel-the-bullsht/"><u>Unravel the Bullsh*t | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210400678-9781982185633-wild-witchcraft/"><u>Wild Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932953-9781855844445-good-and-evil-spirits/"><u>Good and Evil Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932961-9781855844698-human-and-cosmic-thought/"><u>Human and Cosmic Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932959-9781912992393-reincarnation-and-karma-an-introduction/"><u>Reincarnation and Karma, An Introduction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932956-9781855843110-the-fifth-gospel/"><u>The Fifth Gospel | Free Book</u></a></li>
 </ul></div>
 

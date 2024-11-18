@@ -1,7 +1,7 @@
 ---
 title: The Spontaneous Healing of Belief | Free Book
-date: 2024-10-20T18:09:55.727Z
-updated: 2024-10-26T17:32:21.713Z
+date: 2024-11-14T19:28:24.153Z
+updated: 2024-11-18T01:42:39.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8248c9cc727795fcd815bee79dce1e9a25208b46f24e0ca15d24b9b693ac300b.jpg
@@ -168,3 +168,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8248c9cc727795fcd815bee79dce1e9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210551667-9798986204802-30-days-of-me/"><u>30 Days of Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551537-9798985224825-chimera-conflict/"><u>Chimera Conflict | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551517-9798985735239-egos/"><u>Egos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551521-9798985735215-kosmos/"><u>Kosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210550652-9781667428833-les-followers-de-megan/"><u>Les followers de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551518-9798985735277-logos/"><u>Logos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210550634-9781667427430-megans-garten/"><u>Megans Garten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210550628-9781667430805-perdao/"><u>Perdão... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551093-9781529901733-the-book-of-ceremonial-magic/"><u>The Book Of Ceremonial Magic | Free Book</u></a></li>
+</ul></div>
+

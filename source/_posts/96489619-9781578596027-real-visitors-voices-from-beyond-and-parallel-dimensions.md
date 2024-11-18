@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2024-11-06T16:17:27.933Z
-updated: 2024-11-07T18:17:44.706Z
+date: 2024-11-13T16:36:38.408Z
+updated: 2024-11-17T18:42:18.274Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,10 +254,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210349615-9782226300126-365-tweets-de-sagesse/"><u>365 Tweets de sagesse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349549-9782226290946-lesprit-de-solitude/"><u>L'Esprit de solitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349653-9782226294982-la-vie-dermite/"><u>La Vie d'ermite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349616-9782226300140-quand-la-fragilite-change-tout/"><u>Quand la fragilité change tout | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349544-9782226295323-une-journee-une-vie/"><u>Une journée une vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877363-9781633411579-enochian-vision-magick/"><u>Enochian Vision Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877364-9781934708590-hidden-wisdom/"><u>Hidden Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877362-9781633411173-magickal-astrology/"><u>Magickal Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877359-9781633411524-the-cia-ufo-papers/"><u>The CIA UFO Papers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877361-9781633411616-the-practice-of-enochian-magick/"><u>The Practice of Enochian Magick | Free Book</u></a></li>
 </ul></div>
 

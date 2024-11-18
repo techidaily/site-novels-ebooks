@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2024-11-05T18:49:28.057Z
-updated: 2024-11-07T16:05:00.794Z
+date: 2024-11-10T16:23:40.095Z
+updated: 2024-11-17T20:19:31.797Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,12 +166,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210334614-9781506480404-blessings-for-the-long-night-poems-and-meditations-to-help-you-through-depression/"><u>Blessings for the Long Night: Poems and Meditations to Help You through Depression | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210333811-9781922565457-our-eternal-relationship/"><u>Our Eternal Relationship | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210334594-9781506468624-take-what-you-need-life-lessons-after-losing-everything/"><u>Take What You Need: Life Lessons after Losing Everything | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210334503-9781638440529-the-peoples-cry/"><u>The People's Cry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210334254-9781420974362-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key to the Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210334717-9780834844087-the-wakeful-body/"><u>The Wakeful Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210334233-9780760372654-the-witchs-complete-guide-to-self-care/"><u>The Witch's Complete Guide to Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860397-9781998082117-awakening-your-true-self/"><u>Awakening Your True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860708-9781088124840-healing-from-within/"><u>Healing From Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859793-9781667452265-mein-gluckliches-leben-als-expat-frau/"><u>Mein Glückliches Leben als Expat-Frau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860699-9798987777534-my-journey-to-spiritual-restoration/"><u>My Journey to Spiritual Restoration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859762-9781667453934-o-jogo-da-encarnacao/"><u>O Jogo Da Encarnação | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860131-9781623178482-red-tarot/"><u>Red Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860008-9781991016515-shadow-worlds/"><u>Shadow Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859802-9781667454757-simboli-di-guarigione-degli-antichi-slavi-glagolitico-arte-terapia/"><u>Simboli di Guarigione degli Antichi Slavi. Glagolitico. Arte Terapia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859734-9781667453590-khasha-ka-bharama/"><u>खुशी का भ्रम | Free Book</u></a></li>
 </ul></div>
 

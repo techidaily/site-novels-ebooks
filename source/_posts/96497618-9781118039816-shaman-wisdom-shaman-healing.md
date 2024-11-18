@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-11-06T18:45:17.519Z
-updated: 2024-11-07T17:33:51.151Z
+date: 2024-11-12T19:21:52.560Z
+updated: 2024-11-18T00:42:55.138Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,9 +182,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210313053-9780984002979-dialogues-with-yeshua-and-mary-magdalene/"><u>Dialogues with Yeshua and Mary Magdalene | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210312926-9781636300955-gods-grace-on-me/"><u>God's Grace on Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210312845-9781649524423-imagine-living-life-well-with-perspective-perseverance/"><u>Imagine Living Life Well with Perspective & Perseverance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210311461-9781789046595-looking-back-on-the-future/"><u>Looking Back on the Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847311-9781960752758-at-the-feet-of-the-master/"><u>At the Feet of the Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847281-9781841815527-find-your-power-crystals/"><u>Find Your Power: Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847278-9781841815565-find-your-power-mindfulness/"><u>Find Your Power: Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847406-9798889452393-heaven-knows-why/"><u>HEAVEN KNOWS WHY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847422-9781685680862-la-paz-interior/"><u>La paz interior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847543-9780996510387-living-the-deepest-truth-you-know/"><u>Living the Deepest Truth You Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847192-9781788178020-the-psychic-psychologist/"><u>The Psychic Psychologist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847421-9781685681067-vive-sin-miedo/"><u>Vive sin miedo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847324-9798988315711-who-are-you-exploration-of-your-souls-journeys/"><u>Who Are You ? Exploration of Your Soul's Journeys | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2024-10-31T18:57:15.876Z
-updated: 2024-11-07T17:28:35.304Z
+date: 2024-11-15T20:22:53.960Z
+updated: 2024-11-18T02:57:13.358Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,12 +181,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210198803-9781627882798-astrological-transits/"><u>Astrological Transits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198853-9780760364987-in-focus-chakra-healing/"><u>In Focus Chakra Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198730-9780760361184-in-focus-palmistry/"><u>In Focus Palmistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198942-9781782407850-mindful-thoughts-for-stargazers/"><u>Mindful Thoughts for Stargazers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198702-9781782409984-mindfulness-in-sound/"><u>Mindfulness in Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198706-9780760366295-superstitions/"><u>Superstitions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198728-9781631598432-the-magical-writing-grimoire/"><u>The Magical Writing Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751208-9798987551219-a-secret-gathering/"><u>A Secret Gathering | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751128-9781684988426-diversionary/"><u>Diversionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751388-9781638447504-more-tales-of-tails/"><u>More Tales Of Tails | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751235-9780991510276-the-connoisseur-of-time-an-invitation-to-presence/"><u>The Connoisseur of Time: An Invitation to Presence | Free Book</u></a></li>
 </ul></div>
 

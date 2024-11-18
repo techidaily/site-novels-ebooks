@@ -1,7 +1,7 @@
 ---
 title: Psychical Research and Survival | Free Book
-date: 2024-10-31T18:03:56.556Z
-updated: 2024-11-07T18:27:13.954Z
+date: 2024-11-16T19:34:49.799Z
+updated: 2024-11-17T22:29:37.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e1773637d63b2cf046deae37eb848ccca9c1991.jpg
@@ -146,9 +146,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e17736
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209785236-9781786784087-a-short-history-of-nearly-everything-paranormal/"><u>A Short History of (Nearly) Everything Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209783338-9781950584406-finding-god-in-ordinary-time/"><u>Finding God in Ordinary Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209784545-9781524856854-the-little-book-of-forest-bathing/"><u>The Little Book of Forest Bathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209782153-9781600379246-weight-release/"><u>Weight Release | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211213375-9798889603474-angels-my-bedside/"><u>Angels @ My Bedside | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211218270-9781789048612-fairy/"><u>Fairy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211213608-9798350069341-summary-of-dean-koontzs-a-big-little-life/"><u>Summary of Dean Koontz's A Big Little Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211218272-9781803412665-the-mindful-medium-a-practical-guide-to-spirituality/"><u>The Mindful Medium: A Practical Guide to Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211213934-9781801292795-why-our-minds-wander/"><u>Why Our Minds Wander | Free Book</u></a></li>
 </ul></div>
 

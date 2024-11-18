@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-11-02T16:55:32.589Z
-updated: 2024-11-07T17:41:33.493Z
+date: 2024-11-11T02:17:52.771Z
+updated: 2024-11-18T02:29:19.218Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,13 +246,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210266252-9781644112991-a-celtic-book-of-dying-2nd-ed/"><u>A Celtic Book of Dying (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266250-9781644112328-aleister-crowley-in-england/"><u>Aleister Crowley in England | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266251-9781644112427-anton-lavey-and-the-church-of-satan/"><u>Anton LaVey and the Church of Satan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266254-9781644113530-neuroaffective-meditation/"><u>Neuroaffective Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266255-9781644113554-shamanic-creativity/"><u>Shamanic Creativity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266257-9781644113158-the-chintamani-crystal-matrix/"><u>The Chintamani Crystal Matrix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266253-9781644113578-the-lone-ranger-and-tonto-meet-buddha/"><u>The Lone Ranger and Tonto Meet Buddha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266249-9781644112175-the-way-of-abundance-and-joy/"><u>The Way of Abundance and Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210771674-9781646639595-face-lift/"><u>Face-Lift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210771514-9781636980393-the-7-initiatory-fires-of-modern-manhood/"><u>The 7 Initiatory Fires of Modern Manhood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770774-9781636920030-the-good-the-bad-and-the-ugly/"><u>The Good, the Bad, and the Ugly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770767-9781684988389-the-second-life/"><u>The Second Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210771159-9798218148201-who-am-i/"><u>Who Am I | Free Book</u></a></li>
 </ul></div>
 

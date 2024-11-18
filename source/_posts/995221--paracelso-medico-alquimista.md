@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-11-05T17:25:38.267Z
-updated: 2024-11-07T16:18:16.318Z
+date: 2024-11-12T01:59:56.091Z
+updated: 2024-11-17T23:07:27.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,14 +143,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210185884-9780997507836-art-hope-the-way-to-creative-wellness/"><u>ART HOPE The Way To Creative Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185985-9781777508913-carols-lives/"><u>Carol's Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185874-9781914269011-gurdjieff-and-the-women-of-the-rope/"><u>Gurdjieff and the Women of the Rope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185877-9781914269004-gurdjieffs-early-talks-1914-1931/"><u>Gurdjieff's Early Talks 1914-1931 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185963-9781914269059-gurdjieffs-emissary-in-new-york/"><u>Gurdjieff's Emissary in New York | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185970-9781914269080-les-premiers-entretiens-de-gurdjieff-1914-1931/"><u>Les Premiers Entretiens de Gurdjieff 1914-1931 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185883-9781636762517-living-free/"><u>Living Free | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185972-9781914269066-psychological-lectures-1934-1940/"><u>Psychological Lectures 1934-1940 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185876-9781914269028-transcripts-of-gurdjieffs-meetings-1941-1946/"><u>Transcripts of Gurdjieff's Meetings 1941-1946 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714875-9781528798495-a-course-of-advanced-lessons-in-clairvoyance-and-occult-power/"><u>A Course of Advanced Lessons in Clairvoyance and Occult Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713619-9781739165321-a-gentle-goodbye-with-cinnamon-the-rabbit/"><u>A Gentle Goodbye with Cinnamon the Rabbit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714897-9798822908178-everything-i-learned-about-prostate-cancer-began-at-sixty-five/"><u>Everything I Learned about Prostate Cancer Began at Sixty-Five | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714746-9780984511990-river-of-angels/"><u>River of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713689-9798885409599-stress-less-and-soar-more/"><u>Stress Less and Soar More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713688-9798885408721-the-birthing-of-a-prophet/"><u>The Birthing of a Prophet | Free Book</u></a></li>
 </ul></div>
 

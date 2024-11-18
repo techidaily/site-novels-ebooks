@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2024-10-31T18:59:26.457Z
-updated: 2024-11-07T17:21:48.610Z
+date: 2024-11-14T17:19:42.416Z
+updated: 2024-11-17T16:47:58.255Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,9 +205,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209634843-9781507193976-entendiendo-la-codependencia/"><u>Entendiendo la Codependencia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209634870-9781547530946-le-reiki-du-travailleur-de-lumiere/"><u>Le reiki du travailleur de lumière | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209634896-9781547571352-meditacao-o-melhor-guia-para-aprender-a-meditar/"><u>Meditação: O Melhor Guia Para Aprender A Meditar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209634887-9781547573073-meditazione-una-guida-per-principianti-per-scoprire-il-potere-della-meditazione/"><u>Meditazione: una guida per principianti per scoprire il potere della meditazione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114278-9798987016480-ancient-sky-watchers-mythic-themes/"><u>Ancient Sky Watchers & Mythic Themes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114283-9798989037520-as-above-so-below-sun-moon-stars/"><u>As Above, So Below Sun, Moon & Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114131-9798885402774-hidden-treasures-ii/"><u>Hidden Treasures II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114167-9798822931657-light-truth-power/"><u>Light Truth Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211113763-9782385640156-manifestation-sacree/"><u>Manifestation sacrée | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114521-9781804131251-paganism-persisting/"><u>Paganism Persisting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114720-9798868906282-pendulum-healing/"><u>Pendulum Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114254-9780645912111-shine/"><u>SHINE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114390-9780994284587-the-book-of-hatma/"><u>The Book of Hatma | Free Book</u></a></li>
 </ul></div>
 

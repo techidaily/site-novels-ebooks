@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2024-10-27T20:39:56.006Z
-updated: 2024-11-01T23:42:33.882Z
+date: 2024-11-10T20:17:58.400Z
+updated: 2024-11-18T03:14:42.302Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,12 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2060467-9780892546657-astrology-for-yourself/"><u>Astrology for Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2065478-9781782799795-essence/"><u>Essence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2065481-9781785350085-live-in-the-moment-including-zen-and-the-art-of-healing/"><u>Live in the Moment, Including Zen and the Art of Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2066236-9781466846067-magicians-of-the-gods/"><u>Magicians of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2060527-9781608933648-no-ordinary-game/"><u>No Ordinary Game | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2065482-9781782797982-pagan-portals-nature-mystics/"><u>Pagan Portals - Nature Mystics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2065485-9781785350818-the-shamanic-handbook-of-sacred-tools-and-ceremonies/"><u>The Shamanic Handbook of Sacred Tools and Ceremonies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974497-9782384551750-100-proofs-that-earth-is-not-a-globe/"><u>100 Proofs That Earth Is Not A Globe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974503-9781088248607-amad-a-los-enemigos/"><u>Amad a los Enemigos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211008370-9781782742845-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974395-9798988786320-divine-mystical-truths/"><u>Divine Mystical Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211008406-9781782744016-ghost-sightings/"><u>Ghost Sightings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211008372-9781909160088-i-ching/"><u>I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211009182-9789358056761-some-haunted-houses-of-england-wales/"><u>Some Haunted Houses of England Wales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211002477-9798890039620-the-way-of-the-witch/"><u>The Way of the Witch | Free Book</u></a></li>
 </ul></div>
 

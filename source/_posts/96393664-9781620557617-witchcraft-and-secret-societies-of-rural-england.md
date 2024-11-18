@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2024-11-05T18:39:18.974Z
-updated: 2024-11-07T19:10:45.174Z
+date: 2024-11-11T02:17:59.322Z
+updated: 2024-11-17T16:41:54.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,10 +184,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209597234-9781495046018-haunted-america-faq/"><u>Haunted America FAQ | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209597408-9781608685530-signs-from-the-other-side/"><u>Signs from the Other Side | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209597409-9781608686186-simple-truths/"><u>Simple Truths | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209597264-9781495082887-ufo-faq/"><u>UFO FAQ | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209596091-9781633539716-your-life-is-your-prayer/"><u>Your Life is Your Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099507-9781803413495-by-no-means-equal/"><u>By No Means Equal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099496-9781615195367-in-tune/"><u>In Tune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099228-9781685269609-mary-dear-mary-whats-growing-in-your-garden/"><u>Mary, Dear Mary (What's Growing in Your Garden?) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099466-9781615192595-mindfulness-is-better-than-chocolate/"><u>Mindfulness Is Better Than Chocolate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099372-9798887315386-my-not-so-christian-walk-with-the-holy-spirit/"><u>My NOT-SO-CHRISTIAN Walk with The Holy Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099513-9781785359347-pagan-portals-rounding-the-wheel-of-the-year/"><u>Pagan Portals - Rounding the Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099512-9781803413105-the-10-principles-of-the-feminine/"><u>The 10 Principles of the Feminine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099474-9781615192571-the-foundations-of-mindfulness/"><u>The Foundations of Mindfulness | Free Book</u></a></li>
 </ul></div>
 

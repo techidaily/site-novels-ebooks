@@ -1,7 +1,7 @@
 ---
 title: The Biology of Belief 10th Anniversary Edition | Free Book
-date: 2024-10-21T02:29:58.046Z
-updated: 2024-10-26T19:09:45.659Z
+date: 2024-11-12T19:34:47.389Z
+updated: 2024-11-17T20:39:55.753Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee8ea185ce23b85c6b8be2e6f94a2542f60a4e8a6bd85336debe303d5465febc.jpg
@@ -293,3 +293,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee8ea185ce23b85c6b8be2e6f94a254
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210592449-9780760373729-breathe/"><u>Breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593260-9781524881887-haunted-in-america/"><u>Haunted in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593201-9782017166160-le-garcon-qui-chevauchait-un-ane/"><u>Le garçon qui chevauchait un âne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592377-9798985892680-never-forgotten/"><u>Never Forgotten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210591818-9798985991673-when-silence-is-misunderstood/"><u>When Silence is Misunderstood | Free Book</u></a></li>
+</ul></div>
+

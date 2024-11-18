@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-11-04T16:12:47.755Z
-updated: 2024-11-07T17:35:44.804Z
+date: 2024-11-16T01:09:26.512Z
+updated: 2024-11-18T03:16:08.553Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,12 +236,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210340084-9781638120278-dowsing-for-health-and-harmony/"><u>Dowsing For Health and Harmony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340281-9780578946559-i-didnt-ask-for-this-devotional/"><u>I Didn't Ask For This Devotional | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340033-9781940837086-mantra/"><u>Mantra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340110-9781802271423-only-a-thought-away/"><u>Only A Thought Away | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210339992-9781736684719-the-b-diet/"><u>The B+ Diet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340210-9781955885157-the-two-universes-of-self/"><u>The Two Universes of Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340088-9781955897112-white-rainbows/"><u>White Rainbows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867840-9781622034239-7-treasures-of-awakening/"><u>7 Treasures of Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867842-9781622035403-awakening-to-kali/"><u>Awakening to Kali | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867843-9781622039760-beginning-your-love-revolution/"><u>Beginning Your Love Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867670-9781638298304-brain-shift/"><u>Brain Shift | Free Book</u></a></li>
 </ul></div>
 

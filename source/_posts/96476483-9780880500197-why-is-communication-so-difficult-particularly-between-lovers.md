@@ -1,7 +1,7 @@
 ---
 title: Why Is Communication So Difficult, Particularly Between Lovers? | Free Book
-date: 2024-11-03T16:44:33.707Z
-updated: 2024-11-07T18:21:05.094Z
+date: 2024-11-13T01:41:35.258Z
+updated: 2024-11-17T20:29:50.204Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba02d0595eef03cefab50e725b75bcb8401.jpg
@@ -173,14 +173,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210411313-9781722526986-awakened-imagination/"><u>Awakened Imagination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411363-9781761037429-chakras/"><u>Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410939-9781644115657-dreamtimes-and-thoughtforms/"><u>Dreamtimes and Thoughtforms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411002-9781638143680-love-and-surrender/"><u>LOVE AND SURRENDER | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411315-9781722526993-seedtime-and-harvest/"><u>Seedtime and Harvest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411314-9781722527006-the-law-and-the-promise/"><u>The Law and the Promise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411312-9781722526979-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410938-9781644115176-tom-sawyer-a-modern-day-messenger-from-god/"><u>Tom Sawyer: A Modern-Day Messenger from God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411311-9781722526962-your-faith-is-your-fortune/"><u>Your Faith is Your Fortune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934794-9781782495208-little-book-of-crystal-tips-cures/"><u>Little Book of Crystal Tips & Cures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934799-9781782497721-mindfulness-and-sleep/"><u>Mindfulness and Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934793-9781800651739-the-book-of-norse-magic/"><u>The Book of Norse Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934789-9781782497554-the-self-healing-revolution/"><u>The Self-healing Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934831-9781800650787-wiccan-feasts-celebrations-and-rituals/"><u>Wiccan Feasts, Celebrations, and Rituals | Free Book</u></a></li>
 </ul></div>
 

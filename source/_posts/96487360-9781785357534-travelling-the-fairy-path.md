@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-11-05T16:21:59.572Z
-updated: 2024-11-07T18:59:51.571Z
+date: 2024-11-13T19:23:13.278Z
+updated: 2024-11-18T00:19:41.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,12 +153,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210375470-9781940837598-art-and-yoga/"><u>Art and Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210375471-9781940837611-enlightened-bodies/"><u>Enlightened Bodies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210375475-9781940837635-everyday-grace/"><u>Everyday Grace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210374880-9781638377092-haunted-hoarder/"><u>Haunted Hoarder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210375265-9781786786432-how-to-be-highly-sensitive-and-empowered/"><u>How To Be Highly Sensitive and Empowered | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210374748-9781636767864-reclaim-your-power/"><u>Reclaim Your Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210375128-9781942125891-rojin-buddhas-mystical-power/"><u>Rojin, Buddha's Mystical Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930406-9780717165964-between-death-and-life-conversations-with-a-spirit/"><u>Between Death and Life – Conversations with a Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930296-9781841815664-how-to-manifest-anything/"><u>How to Manifest Anything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932236-9781849942454-ingrid-pitt-bedside-companion-for-ghosthunters/"><u>Ingrid Pitt Bedside Companion for Ghosthunters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931797-9781782819141-learn-tarot/"><u>Learn Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930444-9780717184392-mind-body-soul-journal/"><u>Mind, Body, Soul Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930329-9780717151776-the-courage-to-be-happy/"><u>The Courage to Be Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931708-9780859658652-the-handbook-of-palmistry/"><u>The Handbook of Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931284-9780719822155-way-into-faerie/"><u>Way into Faerie | Free Book</u></a></li>
 </ul></div>
 

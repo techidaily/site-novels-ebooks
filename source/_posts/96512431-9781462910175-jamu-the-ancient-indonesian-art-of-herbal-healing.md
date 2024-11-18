@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-11-03T18:40:24.411Z
-updated: 2024-11-07T18:17:39.148Z
+date: 2024-11-16T21:32:54.697Z
+updated: 2024-11-18T02:41:44.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,11 +175,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210198346-9781631593987-being-with-flowers/"><u>Being with Flowers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198394-9780760367384-in-focus-numerology/"><u>In Focus Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198298-9780760364215-love-spells/"><u>Love Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198187-9781631594281-magic-medicine/"><u>Magic Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198326-9781782407126-secrets-of-crystals/"><u>Secrets of Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198321-9781627889568-witchcraft/"><u>Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210748867-9782017186779-dialogue-avec-tes-guides/"><u>Dialogue avec tes guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210748789-9781797211930-everyday-radiance/"><u>Everyday Radiance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210749196-9781841815428-find-your-power-manifest/"><u>Find Your Power: Manifest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210749194-9781841815374-find-your-power-numerology/"><u>Find Your Power: Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210748313-9780990625995-in-the-garden-of-remembrance/"><u>In the Garden of Remembrance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210748886-9782019469658-le-guide-complet-de-la-numerologie/"><u>Le guide complet de la numérologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210748792-9781797218564-pocket-nature-series-sunset-seeking/"><u>Pocket Nature Series: Sunset Seeking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210748123-9780593690291-shadow-work-journal-for-self-love/"><u>Shadow Work Journal for Self-Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210748895-9782017186700-tarot-et-autres-arts-divinatoires/"><u>Tarot et autres arts divinatoires | Free Book</u></a></li>
 </ul></div>
 

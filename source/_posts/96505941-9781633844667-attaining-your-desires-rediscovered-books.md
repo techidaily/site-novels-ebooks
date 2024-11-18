@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-11-04T16:26:57.134Z
-updated: 2024-11-07T17:01:31.669Z
+date: 2024-11-10T17:55:54.139Z
+updated: 2024-11-18T03:07:29.504Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,10 +140,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210232141-9781087951102-at-first-glance/"><u>At First Glance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232448-9781591434085-journeys-with-plant-spirits/"><u>Journeys with Plant Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232449-9781591434221-love-god-and-everything/"><u>Love, God, and Everything | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232228-9780753734827-moon-astrology/"><u>Moon Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232215-9780753734797-the-crystal-healer/"><u>The Crystal Healer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761750-9781604074567-embrace-release-heal/"><u>Embrace, Release, Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761699-9781683640486-living-an-examined-life/"><u>Living an Examined Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761770-9781591798361-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761752-9781591798200-mantra-meditation/"><u>Mantra Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761759-9781683649557-psychedelic-revival/"><u>Psychedelic Revival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761763-9781622030736-saint-francis-of-assisi/"><u>Saint Francis of Assisi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761760-9781604073348-tibetan-sound-healing/"><u>Tibetan Sound Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761751-9781622034529-walking-in-light/"><u>Walking in Light | Free Book</u></a></li>
 </ul></div>
 

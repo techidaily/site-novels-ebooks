@@ -1,7 +1,7 @@
 ---
 title: Born With a Question Mark in Your Heart | Free Book
-date: 2024-11-05T18:26:13.773Z
-updated: 2024-11-07T18:15:44.291Z
+date: 2024-11-12T01:28:19.272Z
+updated: 2024-11-18T02:33:49.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f885342066bdc3b498e7939ef186e37a9e69.jpg
@@ -171,12 +171,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f88
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210409157-9781956996029-angels-and-awakening/"><u>Angels and Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410214-9780760368763-ayurveda-for-life/"><u>Ayurveda for Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210408450-9781735173870-finding-everyday-magic/"><u>Finding Everyday Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410379-9781797215136-morning-meditations/"><u>Morning Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210408676-9781982256241-remembering-the-soul-of-you/"><u>Remembering: the Soul of You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210407509-9781841815220-the-tarot-life-planner/"><u>The Tarot Life Planner | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210407909-9781524876760-whats-your-sign/"><u>What's Your Sign? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934648-9781782497561-44-ways-to-talk-to-your-angels/"><u>44 Ways to Talk to Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934352-9781782492726-crystal-energy/"><u>Crystal Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934635-9781782496229-discovering-signs-and-symbols/"><u>Discovering Signs and Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933012-9781855844643-human-beings-experiences-beyond-the-gates-of-death/"><u>Human Being's Experiences Beyond The Gates of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934344-9781800652392-manifest-your-everything/"><u>Manifest Your Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934646-9781782496236-meditation-made-easy/"><u>Meditation Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933119--the-stupendous-story-of-us/"><u>The Stupendous Story of Us | Free Book</u></a></li>
 </ul></div>
 

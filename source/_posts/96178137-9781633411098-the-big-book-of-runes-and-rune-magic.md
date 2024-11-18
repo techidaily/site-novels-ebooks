@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Runes and Rune Magic | Free Book
-date: 2024-10-20T00:40:38.599Z
-updated: 2024-10-26T18:33:31.253Z
+date: 2024-11-16T23:32:19.831Z
+updated: 2024-11-18T02:43:16.998Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12f69e05bee19e8849c82d53715d23bc16c6ee69935409c7f509829b2f4a2d87.jpg
@@ -180,3 +180,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12f69e05bee19e8849c82d53715d23b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210687012-9781959182160-evolution-of-god-2nd-ed/"><u>EVOLUTION OF GOD (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210687252-9781475869200-learning-compassion/"><u>Learning Compassion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210687281-9781797221311-manifest/"><u>Manifest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210687274-9781529907384-never-shag-a-scorpio/"><u>Never Shag a Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210687004-9798885046954-the-whole-human/"><u>The Whole Human | Free Book</u></a></li>
+</ul></div>
+

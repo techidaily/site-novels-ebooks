@@ -1,7 +1,7 @@
 ---
 title: Revolt Against the Modern World | Free Book
-date: 2024-10-20T01:03:13.995Z
-updated: 2024-10-26T19:18:38.332Z
+date: 2024-11-15T22:57:26.289Z
+updated: 2024-11-17T16:33:06.432Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80b144385cdbeedba6d3a4ed8457dd4c4c00c685566d98694c862c1839d2a2fa.jpg
@@ -185,3 +185,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80b144385cdbeedba6d3a4ed8457dd4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210711243-9781911159179-a-comprehensive-guide-to-usui-reiki-1-2-and-3-all-the-degrees-of-reiki-energy-healing/"><u>A Comprehensive Guide To Usui Reiki 1, 2 and 3. All the Degrees Of Reiki Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711292-9781911159117-a-comprehensive-guide-to-usui-reiki-1-the-first-degree-of-reiki-energy-healing/"><u>A Comprehensive Guide To Usui Reiki 1. The First Degree Of Reiki Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711286-9781911159131-a-comprehensive-guide-to-usui-reiki-2-the-second-degree-of-reiki-energy-healing/"><u>A Comprehensive Guide To Usui Reiki 2. The Second Degree Of Reiki Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711288-9781911159155-a-comprehensive-guide-to-usui-reiki-3-the-third-degree-of-reiki-energy-healing/"><u>A Comprehensive Guide To Usui Reiki 3. The Third Degree Of Reiki Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711255-9781739194529-a-little-witch-in-waiting/"><u>A Little Witch in Waiting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711185-9780760371275-the-zenned-out-guide-to-understanding-the-wheel-of-the-year/"><u>The Zenned Out Guide to Understanding the Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711262-9781088076774-white-flame/"><u>White Flame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711299-9781959018520-wicca/"><u>Wicca | Free Book</u></a></li>
+</ul></div>
+

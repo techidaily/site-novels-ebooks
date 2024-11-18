@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2024-11-02T19:20:55.511Z
-updated: 2024-11-07T17:07:01.768Z
+date: 2024-11-13T21:03:28.749Z
+updated: 2024-11-18T01:30:25.791Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,12 +175,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210399393-9781088008485-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399399-9781088008409-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399236-9789388760867-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399175-9789389716610-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399165-9789389716627-the-secret-of-imagining/"><u>The Secret of Imagining | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399158-9789389716634-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399241-9789389157635-the-seven-laws-of-teaching/"><u>The Seven Laws of Teaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932933-9781855844667-concerning-the-affinity-of-the-living-and-the-dead/"><u>Concerning The Affinity of The Living And The Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932934-9781855843103-manifestations-of-karma/"><u>Manifestations of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932938-9781912992133-nature-spirits-and-what-they-say/"><u>Nature Spirits and What They Say | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932939-9781855842809-strengthening-the-will/"><u>Strengthening the Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932941-9781855844308-transforming-the-soul-volume-1/"><u>Transforming The Soul: Volume 1 | Free Book</u></a></li>
 </ul></div>
 

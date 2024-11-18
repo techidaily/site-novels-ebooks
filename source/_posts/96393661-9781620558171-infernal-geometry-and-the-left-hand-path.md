@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2024-11-05T18:56:45.189Z
-updated: 2024-11-07T16:56:28.138Z
+date: 2024-11-13T16:50:16.665Z
+updated: 2024-11-17T20:52:42.899Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,9 +203,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209593970-9781632658159-haindl-tarot-major-arcana-rev-ed/"><u>Haindl Tarot, Major Arcana, Rev Ed. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593570-9781925282344-healing-through-sound-colour-and-movement/"><u>Healing Through Sound, Colour and Movement | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593388-9781922036391-love-equals-power/"><u>Love Equals Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593416-9781922175854-the-power-of-your-words/"><u>The Power Of Your Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082733-9781647395667-holistic-wellness/"><u>Holistic Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082522-9781623154981-meditation-now/"><u>Meditation Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082774-9798886503845-protection-spells-for-new-witches/"><u>Protection Spells for New Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082504-9781638783206-shadow-work-journal-and-guide-for-beginners/"><u>Shadow Work Journal and Guide for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082620-9781646112050-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082696-9781647394790-the-mindfulness-workbook-for-depression/"><u>The Mindfulness Workbook for Depression | Free Book</u></a></li>
 </ul></div>
 

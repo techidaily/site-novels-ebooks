@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2024-11-01T18:09:07.687Z
-updated: 2024-11-07T19:20:59.736Z
+date: 2024-11-14T01:05:33.364Z
+updated: 2024-11-17T19:43:28.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -189,12 +189,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209593254-9781925283334-angels-guides-and-goosebumps/"><u>Angels: Guides and Goosebumps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209592630-9781625846631-historic-haunts-of-savannah/"><u>Historic Haunts of Savannah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593369-9780909608101-natures-whispers/"><u>Nature's Whispers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593222-9781921596858-sayings-of-the-buddha-and-other-masters/"><u>Sayings of the Buddha and Other Masters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593355-9781925416701-synchronicity-and-dreaming/"><u>Synchronicity and Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593306-9780909608194-the-five-principles-of-spiritual-reality/"><u>The Five Principles of Spiritual Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209593266-9781921596841-the-mind-that-changes-everything/"><u>The Mind That Changes Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211080599-9798889436201-a-tale-of-two-sides/"><u>A Tale of Two Sides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211079992-9798888321898-angel-airlines/"><u>Angel Airlines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211080540-9798889603658-knock-knock-a-true-ghost-story/"><u>Knock! Knock! A True Ghost Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082473-9781623154110-mindfulness-made-simple/"><u>Mindfulness Made Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2110748-9781476621050-parapsychology/"><u>Parapsychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211075179-9782017229452-pratiquer-left/"><u>Pratiquer l'EFT | Free Book</u></a></li>
 </ul></div>
 

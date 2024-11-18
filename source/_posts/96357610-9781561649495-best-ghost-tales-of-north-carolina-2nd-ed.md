@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina (2nd ed.) | Free Book
-date: 2024-11-06T19:12:49.921Z
-updated: 2024-11-07T18:53:26.885Z
+date: 2024-11-10T20:31:39.791Z
+updated: 2024-11-17T17:44:02.764Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951cc0ca1ce8cce45e75434e981ae3e320eec.jpg
@@ -156,11 +156,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209766152-9781465498182-a-little-book-of-self-care-breathwork/"><u>A Little Book of Self Care: Breathwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209764174-9781789040555-coherent-self-coherent-world/"><u>Coherent Self, Coherent World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209766654-9781493043699-ghost-writers/"><u>Ghost Writers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209764170-9781789042078-hoodoo-in-the-psalms/"><u>Hoodoo in the Psalms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209769974-9780593086568-reading-the-leaves/"><u>Reading the Leaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209762183-9781632658081-witchs-master-grimoire/"><u>Witch's Master Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211191287-9781782509219-carmina-gadelica/"><u>Carmina Gadelica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211190601-9798891301313-finding-my-joy/"><u>Finding My Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211189217-9781439678985-ghosts-and-legends-of-lafayette-and-louisville/"><u>Ghosts and Legends of Lafayette and Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211189850-9798886740103-reading-tarot/"><u>Reading Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211189849-9798886740080-reading-tea-leaves/"><u>Reading Tea Leaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211191339-9781454953852-social-media-spellbook/"><u>Social Media Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211190891-9780811749688-the-big-book-of-new-jersey-ghost-stories/"><u>The Big Book of New Jersey Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211191529-9789948777625-transformative-wellness/"><u>Transformative Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211189274-9781800653535-walking-with-the-seasons/"><u>Walking with the Seasons | Free Book</u></a></li>
 </ul></div>
 

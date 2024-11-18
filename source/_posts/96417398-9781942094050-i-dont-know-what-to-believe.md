@@ -1,7 +1,7 @@
 ---
 title: I Don't Know What to Believe | Free Book
-date: 2024-10-29T21:59:50.436Z
-updated: 2024-11-01T16:47:57.657Z
+date: 2024-11-11T23:07:29.134Z
+updated: 2024-11-18T00:57:45.017Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152bb6c16e86aeec1f648f85b672402b361fa.jpg
@@ -205,9 +205,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2008049-9781780288239-9-secrets-of-successful-meditation/"><u>9 Secrets of Successful Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2010492-9780835631600-fairies-at-work-and-play/"><u>Fairies at Work and Play | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2028045-9781782799498-honey-in-the-river/"><u>Honey in the River | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2028048-9781782799511-opening-love/"><u>Opening Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974327-9781611049831-a-call-to-prayer/"><u>A Call to Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974318-9798987211410-a-second-act-in-life/"><u>A Second Act in Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974314-9798888328545-finished/"><u>Finished | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974021-9781606390825-glacier-ghost-stories/"><u>Glacier Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974342-9781088243299-rumi-teaching/"><u>Rumi Teaching | Free Book</u></a></li>
 </ul></div>
 

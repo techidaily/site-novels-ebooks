@@ -1,7 +1,7 @@
 ---
 title: Blueprint for Holistic Healing | Free Book
-date: 2024-11-06T18:52:29.139Z
-updated: 2024-11-07T16:37:40.696Z
+date: 2024-11-11T21:52:12.078Z
+updated: 2024-11-17T18:34:46.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0c3fcfbb9f190d1a66c5dd6334d24e3be0.jpg
@@ -139,12 +139,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209699346-9781547584901-meditacion-guia-de-principiantes-para-llegar-al-estado-zen-y-librarse-del-estres/"><u>Meditación : Guía De Principiantes Para Llegar Al Estado Zen Y Librarse Del Estrés | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209703215-9781623174521-rune-reading-your-life/"><u>Rune Reading Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2097026-9781583949986-sky-shamans-of-mongolia/"><u>Sky Shamans of Mongolia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209703387-9780753733974-the-art-of-simple-living/"><u>The Art of Simple living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209703216-9781401959265-the-big-book-of-angel-tarot/"><u>The Big Book of Angel Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209703718-9781524854454-the-blue-day-book-illustrated-edition/"><u>The Blue Day Book Illustrated Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209703230-9781623174835-the-twelve-gates/"><u>The Twelve Gates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211163778-9782889702176-communiquer-intuitivement-avec-les-animaux/"><u>Communiquer intuitivement avec les animaux | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211163736-9780645665338-longchenpas-three-cycles-of-natural-freedom/"><u>Longchenpa’s Three Cycles of Natural Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211163495-9798887314976-physics-and-sufi-cosmology/"><u>PHYSICS AND SUFI COSMOLOGY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211163602-9781524894443-squishmallows/"><u>Squishmallows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211163607-9781524894382-trust-your-timing/"><u>Trust Your Timing | Free Book</u></a></li>
 </ul></div>
 

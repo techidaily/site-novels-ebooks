@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2024-11-03T17:47:13.883Z
-updated: 2024-11-07T17:58:11.710Z
+date: 2024-11-13T00:37:17.780Z
+updated: 2024-11-17T18:46:51.887Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -141,12 +141,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209725765-9781633383234-an-endless-quest-for-spiritual-truth-a-practical-guide-to-everyday-spirituality/"><u>An Endless Quest for Spiritual Truth: A Practical Guide to Everyday Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209723550-9781420962383-believe-in-yourself/"><u>Believe In Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209723696-9781633534841-eclectic-wicca/"><u>Eclectic Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209723692-9781633536746-goddess-power/"><u>Goddess Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209723675-9781633535633-moon-spell-magic/"><u>Moon Spell Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209723697-9781633535329-real-life-mindfulness/"><u>Real Life Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209723689-9781633532946-tea-spiration/"><u>Tea-spiration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166565-9781950921416-a-collection-of-true-paranormal-police-encounters/"><u>A Collection of True Paranormal Police Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166628-9781837822386-dreams-of-awakening-revised-edition/"><u>Dreams of Awakening (Revised Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211168067-9782017186601-le-grand-livre-de-lastrologie/"><u>Le grand livre de l'astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166603--the-little-book-of-gratitude/"><u>The Little Book of Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166602-9781841815817-the-little-book-of-meditation/"><u>The Little Book of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166571-9781396323119-wisdom-of-the-ages/"><u>Wisdom of the Ages | Free Book</u></a></li>
 </ul></div>
 

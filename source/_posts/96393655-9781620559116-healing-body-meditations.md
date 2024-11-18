@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2024-11-01T19:06:03.556Z
-updated: 2024-11-07T17:43:12.419Z
+date: 2024-11-16T01:00:34.662Z
+updated: 2024-11-17T20:17:41.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -173,13 +173,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209579242-9781984856258-astrology-for-real-relationships/"><u>Astrology for Real Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209579027-9781633534780-nourished/"><u>Nourished | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209588699-9781684033966-on-the-mystery-of-being/"><u>On the Mystery of Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209580046-9781608685202-seven-practices-of-a-mindful-leader/"><u>Seven Practices of a Mindful Leader | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209587863-9781946764508-the-friend-of-the-desert/"><u>The Friend of the Desert | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209579221-9781623173838-the-map-to-wholeness/"><u>The Map to Wholeness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209579026-9781633533875-things-i-wish-i-knew-before-my-mom-died/"><u>Things I Wish I Knew Before My Mom Died | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209579419-9780762467327-wellness-witch/"><u>Wellness Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066410-9789359043494-from-india-to-the-planet-mars/"><u>From India To The Planet Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066425-9789359043555-ghosts-in-solid-form/"><u>Ghosts in Solid Form | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066472-9789359043272-magic-and-mystery-a-popular-history/"><u>Magic And Mystery A Popular History | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066407-9789359043210-other-tongues-other-flesh/"><u>Other Tongues, Other Flesh | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066455-9789359043517-the-candle-of-vision/"><u>The Candle of Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066411-9789359043838-the-human-atmosphere/"><u>The Human Atmosphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066466-9788119007295-the-law-and-other-essays-on-manifestation/"><u>The Law and Other Essays on Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066413-9789359043593-the-planet-mars-and-its-inhabitants/"><u>The Planet Mars And Its Inhabitants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066438-9789359043715-wisdom-of-the-ages-revelations-from-zertoulem-the-prophet-of-tlaskanata/"><u>Wisdom of The Ages Revelations From Zertoulem The Prophet of Tlaskanata | Free Book</u></a></li>
 </ul></div>
 

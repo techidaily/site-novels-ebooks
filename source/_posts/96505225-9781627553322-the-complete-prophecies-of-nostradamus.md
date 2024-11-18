@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2024-10-31T19:00:57.134Z
-updated: 2024-11-07T18:07:30.174Z
+date: 2024-11-12T00:37:52.392Z
+updated: 2024-11-17T17:12:43.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,9 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210284757-9781098077259-a-view-from-the-pew/"><u>A View from the Pew | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210284748-9781098075163-growing-the-church/"><u>Growing the Church | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210284682-9781774815014-the-initiates-of-the-flame/"><u>The Initiates of the Flame | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210284667-9780645120516-they-sent-me-forth/"><u>They Sent Me Forth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800695-9781955811408-born-to-rise/"><u>Born to Rise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800693-9783988312037-crystals-healing-for-beginners/"><u>Crystals Healing for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800701-9781399949569-fear-not-the-spiritual-truth/"><u>Fear not the Spiritual Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800686-9781958082416-gods-gracious-glory/"><u>God's Gracious Glory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800683-9781958434826-musings-of-a-mad-scientist/"><u>Musings of a Mad Scientist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800704-9781959682547-outrageous-fortune/"><u>Outrageous Fortune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800396-9781959254010-present-moment-awareness-4th-ed/"><u>Present Moment Awareness (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800378-9781739347413-yantra-an-encyclopedia-volume-2/"><u>Yantra - An Encyclopedia - Volume 2 | Free Book</u></a></li>
 </ul></div>
 

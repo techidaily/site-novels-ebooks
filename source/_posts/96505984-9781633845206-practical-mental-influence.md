@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-11-02T19:10:41.897Z
-updated: 2024-11-07T18:13:08.488Z
+date: 2024-11-12T19:39:36.009Z
+updated: 2024-11-18T03:20:11.893Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,12 +143,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210233091-9781633412378-hoodoo-justice-magic/"><u>Hoodoo Justice Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233089-9781633412347-ossman-steels-classic-household-guide-to-appalachian-folk-healing/"><u>Ossman & Steel's Classic Household Guide to Appalachian Folk Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233093-9781633412408-pure-magic/"><u>Pure Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233092-9781633412095-saturn/"><u>Saturn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233090-9781633412026-spiritual-cleansing/"><u>Spiritual Cleansing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233088-9781633412330-the-mystical-qabalah/"><u>The Mystical Qabalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233095-9781633412392-the-witch-at-the-forests-edge/"><u>The Witch at the Forest's Edge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761832-9781649630612-a-box-of-magick/"><u>A Box of Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761835-9781591798910-feng-shui-for-abundance/"><u>Feng Shui for Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761837-9781591798514-instant-enlightenment/"><u>Instant Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761831-9781622033898-shift-into-freedom/"><u>Shift into Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761834-9781591798781-tapping-in/"><u>Tapping In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761829-9781591798774-the-end-of-your-world/"><u>The End of Your World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761839-9781591799016-the-sacred-yes/"><u>The Sacred Yes | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-10-31T17:45:39.137Z
-updated: 2024-11-07T16:23:06.668Z
+date: 2024-11-10T16:58:47.268Z
+updated: 2024-11-17T17:24:02.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,10 +192,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210352848-9781734875959-invisible-no-more-invincible-forever-more/"><u>Invisible No More; Invincible Forever More | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210352814-9781649527615-life-after-death-by-gods-hands/"><u>Life After Death by God's Hands | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210352818-9781637108093-parkinsons-life-lessons-five-years-into-the-journey/"><u>Parkinson's: Life Lessons Five Years into the Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210351820-9781734688559-the-egyptian-codex/"><u>The Egyptian Codex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210353032-9781786786456-the-modern-craft/"><u>The Modern Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884477-9781646042777-herbal-tea-magic-for-the-modern-witch/"><u>Herbal Tea Magic for the Modern Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210885704-9781088129463-shawana-a-memoir/"><u>Shawana, A Memoir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884541-9781612437712-the-healing-power-of-smudging/"><u>The Healing Power of Smudging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884593-9781646043446-the-healing-power-of-the-pineal-gland/"><u>The Healing Power of the Pineal Gland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884577-9781646042210-the-little-book-of-rootwork/"><u>The Little Book of Rootwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883116-9780834845305-the-luminous-self/"><u>The Luminous Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883306-9781837831593-the-lunar-year/"><u>The Lunar Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884475-9781646043255-the-modern-art-of-brujeria/"><u>The Modern Art of Brujería | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884600-9781646043231-the-reality-shifting-handbook/"><u>The Reality Shifting Handbook | Free Book</u></a></li>
 </ul></div>
 

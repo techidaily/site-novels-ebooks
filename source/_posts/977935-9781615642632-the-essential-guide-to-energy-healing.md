@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-11-04T17:06:49.659Z
-updated: 2024-11-07T16:23:43.593Z
+date: 2024-11-13T17:58:13.282Z
+updated: 2024-11-17T18:26:44.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,13 +187,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210204715-9781925816334-a-year-of-loving-kindness-to-myself/"><u>A Year of Loving Kindness to Myself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210206036-9781954345386-emotional-rags-to-spiritual-riches/"><u>Emotional Rags to Spiritual Riches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210206029-9780648893226-how-to-find-your-lifes-divine-purpose/"><u>How To Find Your Life's Divine Purpose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210205004-9781528767637-inferences-from-haunted-houses-and-haunted-men/"><u>Inferences from Haunted Houses and Haunted Men | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210206035-9781954345263-small-space/"><u>Small Space | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210205218-9780826362322-the-believer/"><u>The Believer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210204782-9781528767811-the-light-beyond-translated-by-alexander-teixeira-de-mattos/"><u>The Light Beyond - Translated by Alexander Teixeira de Mattos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210205150-9781945252952-the-soul-of-america-speaks/"><u>The Soul of America Speaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756757-9780760385562-animal-magic/"><u>Animal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756787-9780711286351-astrology-almanac-2024/"><u>Astrology Almanac 2024 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756730-9780760383117-cat-magick/"><u>Cat Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756752-9780760383957-divination-for-beginners/"><u>Divination for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756713-9780760384909-seasons-of-the-zodiac/"><u>Seasons of the Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756738-9780711281066-self-love-potions/"><u>Self-Love Potions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756700-9780711285392-the-leaping-hare-nature-almanac/"><u>The Leaping Hare Nature Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756773-9780711280670-the-tales-behind-tarot/"><u>The Tales Behind Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756436-9781683693369-we-are-not-alone/"><u>We Are Not Alone | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Oriental fortune Telling | Free Book
-date: 2024-10-31T17:46:14.107Z
-updated: 2024-11-07T18:16:01.008Z
+date: 2024-11-13T00:07:17.395Z
+updated: 2024-11-18T00:50:46.836Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9812525ebbe1a6ac377a14372f8984b504.jpg
@@ -147,12 +147,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210197741-9781782408109-art-of-mindful-reading/"><u>Art of Mindful Reading | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197603-9780760365809-eff-this-meditation/"><u>Eff This! Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197696-9780760363652-in-focus-tarot/"><u>In Focus Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197803-9780760368220-knot-magic/"><u>Knot Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197538-9781782406310-mindfulness-and-the-big-questions/"><u>Mindfulness and the Big Questions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197569-9781782407133-secrets-of-numerology/"><u>Secrets of Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197589-9780711252844-the-mindful-universe/"><u>The Mindful Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746675-9780593579749-astrolit/"><u>AstroLit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746671-9780593581377-remember-love/"><u>Remember Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746086-9798885044820-the-intuition-experiment/"><u>The Intuition Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210745628-9798987229217-what-you-want-wants-you/"><u>What You Want Wants You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746483-9781634243414-youre-not-alone/"><u>You’re Not Alone | Free Book</u></a></li>
 </ul></div>
 

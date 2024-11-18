@@ -1,7 +1,7 @@
 ---
 title: An Overview of the Edgar Cayce Material | Free Book
-date: 2024-11-01T19:19:15.919Z
-updated: 2024-11-07T16:47:30.884Z
+date: 2024-11-11T18:59:47.360Z
+updated: 2024-11-18T00:02:15.455Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa86584d7ab55c0c2edc64b865697096a39f.jpg
@@ -139,11 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209675958--mystical-molecules/"><u>Mystical Molecules | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209675549-9781789040074-shor-shamanic-epic-folktales/"><u>Shor Shamanic Epic Folktales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209676431-9781783253463-the-little-book-of-self-care/"><u>The Little Book of Self-care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209675547-9781782792888-the-magical-sexual-practices-of-ancient-egypt/"><u>The Magical Sexual Practices of Ancient Egypt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209675538-9781789041545-the-ritual-of-writing/"><u>The Ritual of Writing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209676275-9780880506137-the-search-for-peace/"><u>The Search for Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147006-9780645997118-a-proof-on-star-signs/"><u>A Proof On Star Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147750-9780762487707-an-introduction-to-magic/"><u>An Introduction to Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211146990-9781777279660-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211146995-9780645990508-decoding-extra-terrestrial-intelligence/"><u>DECODING EXTRA-TERRESTRIAL INTELLIGENCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147270-9781985900981-haint-country/"><u>Haint Country | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147793-9781915089977-interpreting-dreams/"><u>Interpreting Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147989-9781945783319-simply-put/"><u>Simply Put | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147057-9781998754380-writing-herstory/"><u>Writing HERstory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147884-9798888518731-years-of-tears/"><u>Years of Tears | Free Book</u></a></li>
 </ul></div>
 

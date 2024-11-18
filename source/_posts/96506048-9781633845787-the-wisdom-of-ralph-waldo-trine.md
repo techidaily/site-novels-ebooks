@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Ralph Waldo Trine | Free Book
-date: 2024-11-04T18:11:41.886Z
-updated: 2024-11-07T16:36:38.974Z
+date: 2024-11-11T20:54:54.714Z
+updated: 2024-11-18T01:11:41.137Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399143e33e364df922e51683bcdc0dfe214d.jpg
@@ -146,12 +146,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210243117-9780648873990-beautiful-you-within-me/"><u>Beautiful You Within Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243119-9780648873983-journey-of-the-yellow-feather/"><u>Journey of the Yellow Feather | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243272-9781734920901-journey-to-soul/"><u>Journey to Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243271-9781988387253-lighten-up-youre-eternal/"><u>Lighten Up, You're Eternal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243718-9780999717943-social-presencing-theater/"><u>Social Presencing Theater | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243146-9781952352072-spiritual-as-fck/"><u>Spiritual as F*ck | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243290-9781736856208-unlock-your-inner-self/"><u>Unlock Your Inner Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762244-9781786853875-dont-panic/"><u>Don't Panic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762283-9781786850973-find-calm/"><u>Find Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762277-9781786850881-project-happiness/"><u>Project Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762257-9781786851307-the-little-book-of-astrology/"><u>The Little Book of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762290-9781783727308-the-little-book-of-comfort/"><u>The Little Book of Comfort | Free Book</u></a></li>
 </ul></div>
 

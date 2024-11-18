@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2024-10-31T17:56:36.404Z
-updated: 2024-11-07T17:15:44.936Z
+date: 2024-11-15T02:43:36.358Z
+updated: 2024-11-17T19:35:23.203Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -193,14 +193,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209591155-9781473370753-fortune-telling-with-cards/"><u>Fortune Telling With Cards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209591240-9781473370760-gypsy-sorcery-and-fortune-telling-illustrated-by-numerous-incantations-specimens-of-medical-magic-anecdotes-and-tales/"><u>Gypsy Sorcery and Fortune Telling - Illustrated by Numerous Incantations, Specimens of Medical Magic, Anecdotes and Tales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209588734-9781684032501-how-to-be-a-spiritual-rebel/"><u>How to Be a Spiritual Rebel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209588706-9781684034185-i-dont-want-to-be-an-empath-anymore/"><u>I Don't Want to Be an Empath Anymore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209592305-9781250238191-meditation/"><u>Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209592447-9781782796558-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209588728-9781684032969-the-crystal-alchemist/"><u>The Crystal Alchemist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209589884-9781468307993-winged-pharaoh/"><u>Winged Pharaoh | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209590903-9781473370883-witch-warlock-and-magician-historical-sketches-of-magic-and-witchcraft-in-england-and-scotland/"><u>Witch, Warlock, and Magician - Historical Sketches of Magic and Witchcraft in England and Scotland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066479-9789358054187-advanced-course-in-yogi-philosophy-and-oriental-occultism/"><u>Advanced Course in Yogi Philosophy and Oriental Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211074794-9781449442545-be-a-light-unto-yourself/"><u>Be a Light Unto Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211074509-9781841815725-the-little-book-of-inner-peace/"><u>The Little Book of Inner Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211073804-9781579511401-the-politics-of-self-determination/"><u>The Politics of Self-Determination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211074511-9781841815732-you-are-my-sun-and-my-moon-and-all-my-stars/"><u>You are My Sun and My Moon and All My Stars | Free Book</u></a></li>
 </ul></div>
 

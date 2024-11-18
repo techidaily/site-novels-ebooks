@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2024-11-04T19:10:21.281Z
-updated: 2024-11-07T16:31:56.966Z
+date: 2024-11-17T02:45:58.510Z
+updated: 2024-11-18T01:06:04.527Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,11 +142,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210282902-9781950685653-always-arising/"><u>Always Arising | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282832-9781912807734-the-hand-reveals/"><u>The Hand Reveals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282855-9781801346344-the-practical-enneagram/"><u>The Practical Enneagram | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283123-9780578901176-the-timeline/"><u>The TimeLine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283288-9782357288003-thrice-greatest-hermes/"><u>Thrice-Greatest Hermes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283277-9780578899336-your-souls-gift/"><u>Your Soul's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210793337-9798886161731-and-you-shall-be-free/"><u>And You Shall Be Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210792711-9781616406240-astrology-and-the-art-of-healing/"><u>Astrology and the Art of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210794864-9781510778382-emerging-from-darkness/"><u>Emerging from Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210794129-9789355944269-kya-kahati-haim-hatha-ki-rekhaem/"><u>Kya Kahati Haim Hatha Ki Rekhaem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210792915-9781925442076-out-of-this-world/"><u>Out Of This World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210795739-9781507221532-the-modern-witchcraft-natural-magick-boxed-set/"><u>The Modern Witchcraft Natural Magick Boxed Set | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210792117-9780473553609-unwrap-your-dreams/"><u>Unwrap Your Dreams | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Life Power and How to Use It | Free Book
-date: 2024-11-05T17:57:25.818Z
-updated: 2024-11-07T19:24:57.902Z
+date: 2024-11-16T22:18:00.471Z
+updated: 2024-11-17T20:57:02.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f8b0d68c30dc559a17ffd4ac5d1f54a86a.jpg
@@ -135,11 +135,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210297156-9781641910644-building-your-dream-muscle/"><u>Building Your Dream Muscle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297218-9781643496351-difficult-blessings/"><u>Difficult Blessings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297280-9781098029173-dreams-of-a-layman/"><u>Dreams of a Layman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297245-9781641149419-energy-of-love/"><u>Energy Of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297167-9781644167779-mind-to-heart/"><u>Mind To Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297335-9781640792920-revelations-of-a-real-man-or-woman/"><u>Revelations of A Real Man (or Woman) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821103-9781088009284-ask-abundantly/"><u>Ask Abundantly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821424-9783988320179-my-neglected-gods/"><u>My Neglected Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821191-9798886545388-questions/"><u>questions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821420-9781684983766-the-devil-has-a-son/"><u>The Devil Has a Son | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821143-9780645732528-you-are-as-sick-as-your-secrets/"><u>You Are as Sick as Your Secrets. | Free Book</u></a></li>
 </ul></div>
 

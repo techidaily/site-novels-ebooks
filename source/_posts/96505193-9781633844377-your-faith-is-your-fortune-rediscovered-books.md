@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2024-11-04T18:51:57.527Z
-updated: 2024-11-07T19:00:34.545Z
+date: 2024-11-14T03:32:21.418Z
+updated: 2024-11-17T23:51:45.363Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,11 +144,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210283368-9781098077594-five-years-and-a-million-tears/"><u>Five Years and a Million Tears | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283408-9781098080068-just-random-thoughts/"><u>Just Random Thoughts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283411-9781098041151-liquid-love/"><u>Liquid Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283320-9781722523527-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-develop-self-confidence-and-self-esteem/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Develop Self Confidence and Self Esteem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283319-9781722526757-the-magic-keys/"><u>The Magic Keys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283321-9781722526764-your-super-powers/"><u>Your Super Powers! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210797597-9788411482950-arcana-mundi/"><u>Arcana Mundi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210796592-9780008603632-black-women-always-conversations-on-life-culture-and-creativity/"><u>Black Women Always: Conversations on life, culture and creativity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210798895-9781954641259-quiet-voice-awesome-power/"><u>Quiet Voice, Awesome Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210795740-9781507221556-the-modern-witchcraft-introductory-boxed-set/"><u>The Modern Witchcraft Introductory Boxed Set | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210798957-9798886442168-the-spiritual-self-assessment-interview/"><u>The Spiritual Self Assessment Interview | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210798960-9798886447132-when-life-throws-you-lemons/"><u>When Life Throws you Lemons | Free Book</u></a></li>
 </ul></div>
 

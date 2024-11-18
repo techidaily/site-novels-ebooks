@@ -1,7 +1,7 @@
 ---
 title: Green Mountain Ghosts, Ghouls & Unsolved Mysteries | Free Book
-date: 2024-10-20T17:59:34.286Z
-updated: 2024-10-26T21:14:24.903Z
+date: 2024-11-13T02:48:38.330Z
+updated: 2024-11-17T23:24:19.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1fc90322d609e48a0e52f39e45a879088a818894b8b778687d11d61555c8df58.jpg
@@ -156,3 +156,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1fc90322d609e48a0e52f39e45a8790
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210655536-9781454936794-prosperity-magick/"><u>Prosperity Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655502-9781454934714-wiccan-kitchen/"><u>Wiccan Kitchen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655566-9781454939030-zodiac-signs-cancer/"><u>Zodiac Signs: Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655569-9781454939047-zodiac-signs-capricorn/"><u>Zodiac Signs: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655568-9781454939078-zodiac-signs-libra/"><u>Zodiac Signs: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655570-9781454939092-zodiac-signs-sagittarius/"><u>Zodiac Signs: Sagittarius | Free Book</u></a></li>
+</ul></div>
+

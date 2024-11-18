@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Supernatural | Free Book
-date: 2024-10-31T19:01:55.373Z
-updated: 2024-11-07T16:06:40.992Z
+date: 2024-11-12T03:19:02.271Z
+updated: 2024-11-18T02:46:23.787Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566938aa6bc3f19a4f2c2da321ce85b9b240.jpg
@@ -142,9 +142,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209676657-9781620559642-a-burst-of-conscious-light/"><u>A Burst of Conscious Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209676658-9781620558607-fierce-feminine-rising/"><u>Fierce Feminine Rising | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209676654-9781591433576-mysteries-of-the-tayos-caves/"><u>Mysteries of the Tayos Caves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209676656-9781620559055-the-occult-i-ching/"><u>The Occult I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150221-9780008667535-aries-2025-your-personal-horoscope/"><u>Aries 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150224-9780008667566-cancer-2025-your-personal-horoscope/"><u>Cancer 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150223-9780008667559-gemini-2025-your-personal-horoscope/"><u>Gemini 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150225-9780008667573-leo-2025-your-personal-horoscope/"><u>Leo 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150227-9780008667597-libra-2025-your-personal-horoscope/"><u>Libra 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150222-9780008667542-taurus-2025-your-personal-horoscope/"><u>Taurus 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150226-9780008667580-virgo-2025-your-personal-horoscope/"><u>Virgo 2025: Your Personal Horoscope | Free Book</u></a></li>
 </ul></div>
 

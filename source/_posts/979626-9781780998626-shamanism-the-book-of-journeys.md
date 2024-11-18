@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2024-11-06T16:13:38.748Z
-updated: 2024-11-07T17:40:28.446Z
+date: 2024-11-16T02:29:53.758Z
+updated: 2024-11-18T02:28:56.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,10 +141,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210209300-9781071583340-como-lograr-tus-suenos-y-metas/"><u>Cómo lograr tus sueños y metas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210208786-9782017140702-le-guide-du-reve-lucide/"><u>Le guide du rêve lucide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210208788-9782017140696-le-secret-de-labondance/"><u>Le secret de l'abondance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209141-9781071584224-megan-gaat-zeilen/"><u>Megan Gaat Zeilen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209326-9781071579961-the-way-to-happiness/"><u>The Way to Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758348-9781088093283-count-the-cost/"><u>COUNT THE COST | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210757160-9785702158679-guru/"><u>Guru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210757190-9781956368482-in-search-of-simple/"><u>In Search of Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758021-9781685709693-spiritual-renewal/"><u>Spiritual Renewal | Free Book</u></a></li>
 </ul></div>
 

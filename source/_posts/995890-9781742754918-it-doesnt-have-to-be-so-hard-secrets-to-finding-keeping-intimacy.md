@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-11-02T18:40:08.841Z
-updated: 2024-11-07T16:41:47.739Z
+date: 2024-11-12T16:41:06.654Z
+updated: 2024-11-18T00:43:11.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,9 +176,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210187889-9781250801302-emotional-detox-now/"><u>Emotional Detox Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210187844-9781250786357-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210188000-9781949661392-inspired-manifesting/"><u>INSPIRED MANIFESTING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210187876-9781250817761-the-prophet-the-complete-original-edition/"><u>The Prophet: The Complete Original Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717353-9781685264413-a-case-for-faith-sharing-ancient-secrets-for-longer-life-health-and-happiness/"><u>A Case for Faith Sharing Ancient Secrets for Longer Life, Health and Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717477-9798885404365-betrayed-into-purpose/"><u>Betrayed into Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717284-9781739218713-connecting-to-source-a-path-to-self-discovery-through-verse/"><u>Connecting to Source - A path to self-discovery through verse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717348-9780876128114-manifesting-divine-consciousness-in-daily-life/"><u>Manifesting Divine Consciousness in Daily Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717349-9780876127889-only-love/"><u>Only Love | Free Book</u></a></li>
 </ul></div>
 

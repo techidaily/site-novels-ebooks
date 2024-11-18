@@ -1,7 +1,7 @@
 ---
 title: Curso rápido sobre magia do caos.  A magia moderna que todos usam e ninguém conta | Free Book
-date: 2024-10-21T21:09:35.969Z
-updated: 2024-10-27T00:54:10.024Z
+date: 2024-11-13T20:52:32.586Z
+updated: 2024-11-17T20:35:52.099Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93881dc7e6c3bbdc68cce9d0c9c41e423cf50dadf06f46b5d642eab708013649.jpg
@@ -158,3 +158,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93881dc7e6c3bbdc68cce9d0c9c41e4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210689336-9781684985630-32-healing-meditations-for-a-wounded-world/"><u>32 HEALING MEDITATIONS FOR A WOUNDED WORLD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689235-9788293791713-hygge/"><u>Hygge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689301-9781952692543-the-mindfulness-bell-91-mindfulness-public-health-2023/"><u>The Mindfulness Bell 91: Mindfulness & Public Health, 2023 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689299-9781952692505-the-mindfulness-bell-no-birth-no-death-only-continuation-issue-90-2022/"><u>The Mindfulness Bell: No Birth, No Death, Only Continuation, Issue 90, 2022 | Free Book</u></a></li>
+</ul></div>
+

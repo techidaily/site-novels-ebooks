@@ -1,7 +1,7 @@
 ---
 title: "Nine Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2024-11-04T18:05:41.661Z
-updated: 2024-11-07T19:05:46.934Z
+date: 2024-11-14T21:40:48.535Z
+updated: 2024-11-17T17:14:01.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439b6cbc62534ca76a09f60f54167ecc003e.jpg
@@ -140,12 +140,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209728898-9780806536422-goth-magick-an-enchanted-grimoire/"><u>Goth Magick: An Enchanted Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726966-9780806539546-magick-potions/"><u>Magick Potions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727270-9780806539560-phantom-felines-and-other-ghostly-animals/"><u>Phantom Felines and Other Ghostly Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727868-9780806539591-the-wicca-book-of-days/"><u>The Wicca Book of Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209729473-9780806539652-the-wicca-spellbook/"><u>The Wicca Spellbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727459-9780806539584-wicca-a-to-z/"><u>Wicca A to Z | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209729450-9780806538655-wicca-for-life/"><u>Wicca for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211169074--astrology-decoded/"><u>Astrology Decoded | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211170638-9781098032395-between-the-directive-and-the-destination-is-the-journey/"><u>Between the Directive and the Destination is the Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211170649-9798891305922-christians-and-aliens/"><u>Christians And Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211170647-9798888322451-the-miracle-guard-dog/"><u>The Miracle Guard Dog | Free Book</u></a></li>
 </ul></div>
 

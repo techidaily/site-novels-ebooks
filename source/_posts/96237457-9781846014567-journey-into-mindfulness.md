@@ -1,7 +1,7 @@
 ---
 title: Journey into Mindfulness | Free Book
-date: 2024-10-26T01:49:26.276Z
-updated: 2024-10-26T23:00:38.278Z
+date: 2024-11-13T01:40:42.556Z
+updated: 2024-11-17T18:26:18.185Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a38270f6f8851782783991c2f0016b3cba06228083d06589d5d54346e01c9f2.jpg
@@ -193,3 +193,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a38270f6f8851782783991c2f0016b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210659422-9798886802986-daily-dose-of-melancholy/"><u>Daily Dose of Melancholy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659509-9798985627138-inspired-meditations-book-ii/"><u>Inspired Meditations Book II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659510-9798985627152-inspired-meditations-book-iii/"><u>Inspired Meditations Book III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659444-9798985627114-inspired-meditations-book-i/"><u>Inspired Meditations: Book I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659821-9781685702731-know-your-future/"><u>Know Your Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659455-9781951879105-memoarer-fran-andra-dimensionen-del-1/"><u>Memoarer Från Andra Dimensionen, Del 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659796-9781952692482-the-mindfulness-bell-thich-nhat-hanh-memorial-issue-89-2022/"><u>The Mindfulness Bell: Thich Nhat Hanh Memorial Issue 89, 2022 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659493-9781951879136-the-spiritual-design-wave-3/"><u>The SPIRITUAL DESIGN WAVE 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659820-9781638740889-thoughts-from-a-mothers-love/"><u>Thoughts from a Mother's Love | Free Book</u></a></li>
+</ul></div>
+

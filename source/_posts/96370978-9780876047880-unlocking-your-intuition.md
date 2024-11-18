@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Intuition | Free Book
-date: 2024-11-01T18:02:53.451Z
-updated: 2024-11-07T16:50:13.650Z
+date: 2024-11-15T23:30:49.599Z
+updated: 2024-11-18T00:58:09.568Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc91bdc663b6f65fa5b3200c18dc7433ba47.jpg
@@ -144,13 +144,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209690884-9780857838261-ancient-wisdom-for-modern-living/"><u>Ancient Wisdom for Modern Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691039-9781250257741-auras/"><u>Auras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209690048-9780691200620-change/"><u>Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209690814-9781916068971-otherworlds/"><u>Otherworlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691091-9781250246455-reconnecting-to-the-source/"><u>Reconnecting to The Source | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691112-9781250253057-soul-magic/"><u>Soul Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691054-9781250250704-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691105-9781250230591-the-warrior-heart-practice/"><u>The Warrior Heart Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159410-9780062455406-ancient-aliens/"><u>Ancient Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159636-9781639458035-evolve-love/"><u>Evolve Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159508-9780062092120-fringe-ology/"><u>Fringe-ology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159426-9780062299499-motherpeace/"><u>Motherpeace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159334-9780062403865-siddharthas-brain/"><u>Siddhartha's Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159271-9780062976895-spells-for-the-modern-mystic/"><u>Spells for the Modern Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159894-9780062484185-the-close-encounters-man/"><u>The Close Encounters Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159325-9780061747984-the-history-of-last-nights-dream/"><u>The History of Last Night's Dream | Free Book</u></a></li>
 </ul></div>
 

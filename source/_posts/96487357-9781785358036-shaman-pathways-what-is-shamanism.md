@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-11-04T16:10:17.572Z
-updated: 2024-11-07T16:51:14.702Z
+date: 2024-11-14T23:25:29.744Z
+updated: 2024-11-17T18:49:41.742Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,12 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210374568-9780760370827-city-witchery/"><u>City Witchery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210374650-9780578988641-french-toast-witchery-volume-1/"><u>French Toast Witchery: Volume 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210374594-9781734198751-grandmother-dreams/"><u>Grandmother Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210373674-9781797210360-money-magic/"><u>Money Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210374563-9781087985718-remember/"><u>Remember | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210373710-9782017166092-shine-on/"><u>Shine on | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210374599-9781734198744-traveling-light/"><u>Traveling Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929655-9781803811413-finding-your-voice/"><u>Finding Your Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930172-9780717179152-michael-murphys-book-of-dreams/"><u>Michael Murphy's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930108-9780717191802-mind-full/"><u>Mind Full | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929624-9781839750458-playing-with-fire-tales-of-duality/"><u>Playing With Fire (Tales of Duality) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929622-9781839750694-strange-sightings-and-mysterious-creatures-in-the-new-forest-and-beyond/"><u>Strange Sightings and Mysterious Creatures in the New Forest and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929634-9781839750571-testament-to-a-new-dawn/"><u>Testament to a New Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930166-9780717181230-the-source/"><u>The Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929873-9780717190416-this-is-it/"><u>This Is It | Free Book</u></a></li>
 </ul></div>
 

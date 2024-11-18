@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2024-11-06T16:20:41.296Z
-updated: 2024-11-07T16:44:10.940Z
+date: 2024-11-16T23:11:41.009Z
+updated: 2024-11-17T19:15:48.196Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,12 +163,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209518617-9781620558218-jesse-james-and-the-lost-templar-treasure/"><u>Jesse James and the Lost Templar Treasure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518612-9781620557891-memory-palaces-and-masonic-lodges/"><u>Memory Palaces and Masonic Lodges | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518619-9781620558430-slavic-witchcraft/"><u>Slavic Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518615-9781620558782-the-art-and-science-of-face-reading/"><u>The Art and Science of Face Reading | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518616-9781620558683-the-energies-of-crop-circles/"><u>The Energies of Crop Circles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518613-9781620558300-the-lost-book-of-the-grail/"><u>The Lost Book of the Grail | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518614-9781591432982-wisdomkeepers-of-stonehenge/"><u>Wisdomkeepers of Stonehenge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013504-9781591435075-shamanic-teachings-of-the-condor/"><u>Shamanic Teachings of the Condor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013505-9781591435099-sorcerers-of-stone/"><u>Sorcerers of Stone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013572-9781644116340-the-hoodoo-tarot-workbook/"><u>The Hoodoo Tarot Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013503-9781591434870-the-mystery-of-life-energy/"><u>The Mystery of Life Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211012445-9781841815619-your-crystal-plan/"><u>Your Crystal Plan | Free Book</u></a></li>
 </ul></div>
 

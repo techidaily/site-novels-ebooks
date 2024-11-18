@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2024-11-05T17:55:50.972Z
-updated: 2024-11-07T18:17:49.693Z
+date: 2024-11-11T01:38:20.741Z
+updated: 2024-11-17T17:00:13.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,11 +163,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210365835-9781736939918-aspire/"><u>Aspire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210364420-9780645073263-etica-yogica-per-una-mente-equilibrata/"><u>Etica Yogica per Una Mente Equilibrata | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210364076-9781648410420-kitchen-witch/"><u>Kitchen Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210365829-9781914996214-the-lion-and-the-tiger/"><u>THE LION and THE TIGER | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210365843-9781802271652-the-magic-of-healing-touch/"><u>The Magic of Healing Touch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210365700-9781087984407-unapologetic/"><u>Unapologetic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926296-9781903353684-astrological-time/"><u>Astrological Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926291-9781903353714-humour-in-the-horoscope/"><u>Humour in the Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926287-9781903353578-planetary-cycles-cinema-trends/"><u>Planetary Cycles & Cinema Trends | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926292-9781903353592-pluto-in-libra-and-scorpio/"><u>Pluto in Libra and Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926295-9781903353486-the-astrology-quartet/"><u>The Astrology Quartet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926288-9781903353615-the-planets-and-awakening/"><u>The Planets and Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926294-9781903353585-the-visual-journey-of-venus/"><u>The Visual Journey of Venus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926290-9781903353370-vocation/"><u>Vocation | Free Book</u></a></li>
 </ul></div>
 

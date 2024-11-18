@@ -1,7 +1,7 @@
 ---
 title: Natural Law in the Spiritual World | Free Book
-date: 2024-11-05T19:21:37.200Z
-updated: 2024-11-07T17:06:29.817Z
+date: 2024-11-15T23:11:25.033Z
+updated: 2024-11-18T00:23:45.198Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf6958958cca10e64f647f82e013fd8bf669c9.jpg
@@ -143,14 +143,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf695
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210232463-9781644113172-angels-in-waiting/"><u>Angels in Waiting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232455-9781644113035-discover-your-crystal-family/"><u>Discover Your Crystal Family | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232454-9781644112342-dmt-entity-encounters/"><u>DMT Entity Encounters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232466-9781644113394-psychedelic-cannabis-2nd-ed/"><u>Psychedelic Cannabis (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232460-9781644111710-tales-of-witchcraft-and-wonder/"><u>Tales of Witchcraft and Wonder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232456-9781644112687-the-path-of-the-warrior-mystic/"><u>The Path of the Warrior-Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232461-9781644113356-the-poison-path-herbal/"><u>The Poison Path Herbal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232462-9781644113233-the-tree-horoscope/"><u>The Tree Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232467-9781644114179-three-books-of-occult-philosophy/"><u>Three Books of Occult Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761772-9781649631350-a-year-in-practice/"><u>A Year in Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761774-9781591798798-eyes-wide-open/"><u>Eyes Wide Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761782-9781683647638-how-to-be-loving/"><u>How to Be Loving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761781-9781622034680-tending-the-heart-fire/"><u>Tending the Heart Fire | Free Book</u></a></li>
 </ul></div>
 

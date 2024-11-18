@@ -1,7 +1,7 @@
 ---
 title: "Telepathy: Genuine and Fraudulent | Free Book"
-date: 2024-11-01T18:46:21.786Z
-updated: 2024-11-07T16:24:32.928Z
+date: 2024-11-13T03:21:13.746Z
+updated: 2024-11-17T18:44:01.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391dc86b2fcd9a349461b60713368b976b43.jpg
@@ -150,12 +150,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209826516-9780008366353-cancer-2021-your-personal-horoscope/"><u>Cancer 2021: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838161-9780991248902-heaven-is-everywhere/"><u>Heaven Is Everywhere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209826517-9780008366438-pisces-2021-your-personal-horoscope/"><u>Pisces 2021: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838034-9780992365318-poetry-for-inspiration-faith-truth-and-healing/"><u>Poetry for Inspiration, Faith, Truth and Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209826515-9780008366407-sagittarius-2021-your-personal-horoscope/"><u>Sagittarius 2021: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209837982-9781889471297-spell-breaking/"><u>Spell Breaking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209831202-9781851688814-we-are-not-alone/"><u>We Are Not Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236362-9798886151879-a-sacred-way-to-gain-freedom-from-multi-generational-curses/"><u>A Sacred Way to Gain Freedom from Multi-Generational Curses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236168-9781738282319-echoes-of-krishna/"><u>Echoes of Krishna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236222-9781998101689-effective-communication-in-relationships-marriage/"><u>Effective Communication In Relationships & Marriage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236159-9781739692339-egoist-effect/"><u>Egoist Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236234-9798869140395-habla-miguel/"><u>Habla Miguel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236379-9781396324833-in-days-to-come/"><u>In Days to Come | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236380-9789358814279-the-art-of-letting-go/"><u>The Art of Letting Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236418-9798989828623-the-art-of-mindkeeping/"><u>The Art of Mindkeeping | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236376-9781778921049-aaatmad-bh-nfs-zibatrin-lbasi-kh-mitoni-bposhi/"><u>اعتماد به نفس زیباترین لباسی که میتونی بپوشی | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Case for and Against Psychical Belief | Free Book
-date: 2024-11-02T17:09:23.386Z
-updated: 2024-11-07T18:43:14.462Z
+date: 2024-11-15T22:12:08.968Z
+updated: 2024-11-17T19:54:50.177Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd68aba4f894ccc75eb755219656b54aa6a.jpg
@@ -142,12 +142,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209785388-9780857838674-breathe-well/"><u>Breathe Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209785768-9781439668092-creepy-florida/"><u>Creepy Florida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209787707-9791033609056-experiences-de-vie-imminente/"><u>Expériences de Vie Imminente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209787844-9780750992886-haunted-yorkshire/"><u>Haunted Yorkshire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209785767-9781439668054-haunts-of-the-white-city/"><u>Haunts of the White City | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209785244-9781788173940-surrender/"><u>Surrender | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209787096-9781616145866-the-science-of-ghosts/"><u>The Science of Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219112-9798890611291-awakening-the-healing-power-within-holistic-nutrition-and-natural-therapies/"><u>Awakening The Healing Power Within Holistic Nutrition And Natural Therapies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219457-9781803817743-beyond-sight-and-touch/"><u>Beyond sight and touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211218275-9781803414799-developing-your-supernatural-awareness/"><u>Developing Your Supernatural Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211218273-9781803413228-pagan-portals-artemis/"><u>Pagan Portals: Artemis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219130-9798890439598-poems-given-by-god/"><u>Poems Given by God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219563-9781837992348-the-little-book-for-modern-witches/"><u>The Little Book for Modern Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219560-9781837991112-the-little-book-of-angels/"><u>The Little Book of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219559-9781837991792-the-little-book-of-buddhism/"><u>The Little Book of Buddhism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219566-9781837991020-the-little-book-of-reiki/"><u>The Little Book of Reiki | Free Book</u></a></li>
 </ul></div>
 

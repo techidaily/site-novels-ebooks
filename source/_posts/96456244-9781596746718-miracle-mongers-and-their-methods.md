@@ -1,7 +1,7 @@
 ---
 title: Miracle Mongers and Their Methods | Free Book
-date: 2024-10-25T16:48:24.320Z
-updated: 2024-11-01T23:06:23.356Z
+date: 2024-11-16T02:05:37.729Z
+updated: 2024-11-17T23:20:25.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e18e749e6e3e5ddec50f37fe4245221bc77.jpg
@@ -148,10 +148,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1752769-9781609259556-are-you-psychic-or-making-it-up/"><u>Are You Psychic or Making It Up? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1747030-9781453286463-control-your-dreams/"><u>Control Your Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1752770-9781612833354-conversations-with-god-books-2-3/"><u>Conversations with God, Books 2 & 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1744915-9781476789521-mas-alla-de-la-vida-theres-more-to-life-than-this/"><u>Más allá de la vida (There's More to Life Than This) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1746047-9781409156772-mindfulness-plain-simple/"><u>Mindfulness Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210967463-9798886740318-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968335-9782384551712-forgotten-truths/"><u>Forgotten Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968169-9780744099461-meditation-for-the-real-world/"><u>Meditation for the Real World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966504-9781636980850-one-minute-miracles/"><u>One Minute Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968060-9781803815237-out-of-time/"><u>Out of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968326-9781960159328-supraconscious/"><u>Supraconscious | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968359-9781088225738-the-book-of-truths/"><u>The Book Of Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968363-9781088225790-the-conquest-of-peace/"><u>THE CONQUEST OF PEACE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968361-9781088225493-the-right-to-be-happy/"><u>THE RIGHT TO BE HAPPY | Free Book</u></a></li>
 </ul></div>
 

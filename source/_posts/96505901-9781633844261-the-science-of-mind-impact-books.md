@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-11-01T16:17:03.136Z
-updated: 2024-11-07T17:30:39.773Z
+date: 2024-11-11T16:19:22.169Z
+updated: 2024-11-17T19:20:24.401Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,10 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210228254-9781736107416-choosing-wellness/"><u>Choosing Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224056-9781684038916-mood-magick/"><u>Mood Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224094-9781644249840-sammy-and-the-angels/"><u>Sammy and the Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224933-9780857909817-the-diary-of-archie-the-alpaca/"><u>The Diary of Archie the Alpaca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224035-9781684037162-the-science-of-channeling/"><u>The Science of Channeling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761617-9781683644835-freedom-for-all-of-us/"><u>Freedom for All of Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761638-9781683647034-maiden-to-mother/"><u>Maiden to Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761606-9781683644224-rewilding/"><u>Rewilding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761636-9781683646761-star-child/"><u>Star Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761611-9781683644293-stay-woke/"><u>Stay Woke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761630-9781683646150-the-direct-way/"><u>The Direct Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761631-9781683646631-the-way-of-the-monk/"><u>The Way of the Monk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761645-9781683647140-trusting-the-gold/"><u>Trusting the Gold | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2024-10-27T16:32:08.145Z
-updated: 2024-11-01T22:43:32.249Z
+date: 2024-11-14T22:42:20.983Z
+updated: 2024-11-17T23:34:41.603Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,13 +149,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2048718-9781634240024-a-sorcerers-apprentice/"><u>A Sorcerer's Apprentice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2054578-9781459732438-haunted-ontario-3-book-bundle/"><u>Haunted Ontario 3-Book Bundle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2052253-9780553419504-life-between-heaven-and-earth/"><u>Life Between Heaven and Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2052331-9781583949894-spiritual-balancing/"><u>Spiritual Balancing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/205692-9780743442589-the-afterlife-experiments/"><u>The Afterlife Experiments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2057562-9781609259884-the-complete-book-of-aquarian-magic/"><u>The Complete Book of Aquarian Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2055421-9780835631402-thought-forms/"><u>Thought Forms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2041962-9781782799832-tours-and-cures-of-a-lightsoldier/"><u>Tours and Cures of a Lightsoldier | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974390-9781088249642-el-ateo/"><u>El Ateo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974388-9781088250068-el-dificil-camino-de-las-drogas/"><u>El Difícil Camino de las Drogas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974387-9781088250181-el-misterio-del-terrazo/"><u>El Misterio del Terrazo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974383-9781088252048-la-mansion-de-la-piedra-torcida/"><u>LA MANSIÓN DE LA PIEDRA TORCIDA | Free Book</u></a></li>
 </ul></div>
 

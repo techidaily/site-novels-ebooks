@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-11-05T17:34:02.477Z
-updated: 2024-11-07T18:37:52.430Z
+date: 2024-11-14T01:36:23.465Z
+updated: 2024-11-17T22:42:42.758Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,11 +136,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210436558-9781684860357-blueberry-dreams/"><u>Blueberry Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210434731-9781722527044-introduction-to-the-occult/"><u>Introduction To The Occult | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210434828-9781952692239-present-moment-wonderful-moment-revised-edition/"><u>Present Moment Wonderful Moment (Revised Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210434647-9781420979770-prosperity/"><u>Prosperity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210436548-9781761037535-wicca/"><u>Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210436533-9781761037566-wicca-spells/"><u>Wicca Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966165-9781088228364-dolores/"><u>Dolores | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966129-9781088228722-en-la-frontera/"><u>En la Frontera | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966134-9781088209653-la-fuerza-del-amor/"><u>La Fuerza del Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966132-9781088229002-la-hija-del-hechicero/"><u>La Hija del Hechicero | Free Book</u></a></li>
 </ul></div>
 

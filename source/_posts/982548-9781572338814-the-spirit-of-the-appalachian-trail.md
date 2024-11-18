@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2024-11-01T17:36:35.866Z
-updated: 2024-11-07T16:46:27.473Z
+date: 2024-11-15T19:24:58.979Z
+updated: 2024-11-17T16:17:49.294Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,14 +249,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210219062-9781914071195-ereshkigal/"><u>Ereshkigal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219658-9780895566386-floating-in-quiet-darkness/"><u>Floating in Quiet Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210217603-9781841815084-godsfield-companion-chakras/"><u>Godsfield Companion: Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210218074-9781982170950-hello-goodbye/"><u>Hello, Goodbye | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219248-9781662420733-k-dorm-in-90-days/"><u>K Dorm in 90 days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219450-9781880765784-love-miracles-original-creation-2nd-ed/"><u>Love, Miracles & Original Creation (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219209-9781662413087-remember-to-love/"><u>Remember to Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210217872-9781507215883-the-green-witchs-garden/"><u>The Green Witch's Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219089-9781736186039-yahweh-gods-harmony-in-creation/"><u>Yahweh God's Harmony in Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761476-9781591798767-emptiness-dancing/"><u>Emptiness Dancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761479-9781604079456-energy-healing/"><u>Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761475-9781604074550-the-bowl-of-light/"><u>The Bowl of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761472-9781604074727-the-path-of-the-yoga-sutras/"><u>The Path of the Yoga Sutras | Free Book</u></a></li>
 </ul></div>
 

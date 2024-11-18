@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2024-11-04T19:05:23.047Z
-updated: 2024-11-07T17:41:50.978Z
+date: 2024-11-15T19:58:24.919Z
+updated: 2024-11-17T19:21:21.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,11 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210297891-9781645593300-a-quote-of-evidence/"><u>A Quote of Evidence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297895-9781636300160-how-to-have-the-favor-of-god/"><u>How to Have the Favor of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297364-9781644586051-she-wasnt-just-a-kitty/"><u>She Wasn't Just A Kitty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297715-9781644684733-the-replacement-theory-the-power-of-pain-and-prayer/"><u>The Replacement Theory: The Power of Pain and Prayer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298061-9781644680902-who-am-i/"><u>Who Am I? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297535-9781990346033-eshyo-odin-spravochnik-ce-5/"><u>ЕЩЁ ОДИН СПРАВОЧНИК CE-5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822430-9798218162627-the-power-of-perspective-and-the-gift-of-gratitude/"><u>The Power of Perspective and the Gift of Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821954-9798987771112-the-ruby-heart-of-the-dragon/"><u>The Ruby Heart of the Dragon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822246-9781638146544-the-worth-of-a-soul/"><u>The Worth of a Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821768-9780645739220-the-yowie-file/"><u>The Yowie File | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821898-9798887519142-you-can-know-god-personally/"><u>You Can Know God Personally | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821955-9798988097914-your-divine-power-within/"><u>Your Divine Power Within | Free Book</u></a></li>
 </ul></div>
 

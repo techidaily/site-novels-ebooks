@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of a Satanist | Free Book
-date: 2024-11-03T16:41:11.357Z
-updated: 2024-11-07T16:02:36.666Z
+date: 2024-11-16T02:48:22.031Z
+updated: 2024-11-17T22:21:19.782Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290f30e1c936b63c2de7854a4594e4b69411.jpg
@@ -160,13 +160,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209780350-9781633411784-futhark/"><u>Futhark | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780343-9781633411722-horse-magick/"><u>Horse Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780342-9781950253012-how-to-meditate-like-a-buddhist/"><u>How to Meditate Like a Buddhist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780346-9781632657626-on-the-trail-of-bigfoot/"><u>On the Trail of Bigfoot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780352-9781633411265-orishas-goddesses-and-voodoo-queens/"><u>Orishas, Goddesses, and Voodoo Queens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780344-9781633411647-stellas-daemonum/"><u>Stellas Daemonum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780351-9781633411548-the-21-divisions/"><u>The 21 Divisions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780349-9781633411708-utterly-wicked/"><u>Utterly Wicked | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211210099-9798890438836-a-daily-quest-for-any-year/"><u>A DAILY QUEST FOR ANY YEAR | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211210244-9781998101580-daily-vagus-nerve-exercises-for-self-healing-2-in-1/"><u>Daily Vagus Nerve Exercises For Self-Healing (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211210073-9781098039349-fatherless-yet-fabulous/"><u>Fatherless Yet Fabulous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211209654-9798350067842-summary-of-alan-cohens-a-course-in-miracles-made-easy/"><u>Summary of Alan Cohen's A Course in Miracles Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211209661-9798350067910-summary-of-chris-bledsoes-ufo-of-god/"><u>Summary of Chris Bledsoe's UFO of GOD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211209756-9798350068634-summary-of-cliff-tans-feng-shui-modern/"><u>Summary of Cliff Tan's Feng Shui Modern | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211209692-9798350068276-summary-of-queen-afuas-sacred-woman/"><u>Summary of Queen Afua's Sacred Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211209699-9798350068306-summary-of-sophie-bashfords-you-are-a-goddess/"><u>Summary of Sophie Bashford's You Are a Goddess | Free Book</u></a></li>
 </ul></div>
 

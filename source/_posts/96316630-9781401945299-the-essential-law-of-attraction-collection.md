@@ -1,7 +1,7 @@
 ---
 title: The Essential Law of Attraction Collection | Free Book
-date: 2024-10-20T04:19:30.107Z
-updated: 2024-10-26T18:03:35.081Z
+date: 2024-11-14T00:38:54.348Z
+updated: 2024-11-17T17:17:38.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2167b39ae5a9012989c4babf3828b3d9e7411f32db2587ffedb292a4808cd996.jpg
@@ -222,3 +222,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2167b39ae5a9012989c4babf3828b3d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210579984-9781631957710-a-dream-worth-fighting-for/"><u>A Dream Worth Fighting For | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210580376-9780760374429-crystal-magic/"><u>Crystal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579931-9781774341315-guided-meditations-for-deep-sleep/"><u>Guided Meditations for Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579973-9781684930821-metaphysical-healing/"><u>Metaphysical Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210580031-9798885405157-prepared-persistent-and-positioned-for-gods-blessing/"><u>Prepared, Persistent, and Positioned for God's Blessing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579991-9781956096590-the-first/"><u>The First | Free Book</u></a></li>
+</ul></div>
+

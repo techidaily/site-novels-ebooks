@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-11-03T17:38:01.151Z
-updated: 2024-11-07T18:12:48.904Z
+date: 2024-11-14T17:25:43.024Z
+updated: 2024-11-18T02:19:15.444Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,14 +130,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210200996-9781908005137-art-of-mindful-walking/"><u>Art of Mindful Walking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200595-9780711261785-mindful-thoughts-for-students/"><u>Mindful Thoughts for Students | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200997-9781908005540-mindfulness-the-art-of-managing-anger/"><u>Mindfulness & the Art of Managing Anger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200973-9781782401230-mindfulness-the-natural-world/"><u>Mindfulness & the Natural World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200731-9781610580502-the-best-meditations-on-the-planet/"><u>The Best Meditations on the Planet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200695-9781627887601-the-key-to-crystals/"><u>The Key to Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200649-9781589239906-the-power-of-guided-meditation/"><u>The Power of Guided Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200629-9781631599613-the-ultimate-guide-to-the-witchs-wheel-of-the-year/"><u>The Ultimate Guide to the Witch's Wheel of the Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200547-9780711254527-write-your-own-horoscope/"><u>Write Your Own Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755289-9782017205920-calmer-sa-peine/"><u>Calmer sa peine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755284-9791028523985-creer-une-alliance-avec-vos-animaux-totem/"><u>Créer une alliance avec vos animaux totem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755391-9791028519124-devenez-une-sorciere-cest-malin/"><u>Devenez une sorcière, c'est malin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755364-9791028523855-mon-abecedaire-spirite/"><u>Mon abécédaire spirite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755343-9791028526597-nouveau-karma-nouveau-moi/"><u>Nouveau karma, nouveau moi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755353-9791028523619-secrets-de-pendule/"><u>Secrets de pendule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755301-9791028521745-sexualite-sacree/"><u>Sexualité sacrée | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755392-9791028521530-vous-aussi-vous-etes-magnetiseur/"><u>Vous aussi, vous êtes magnétiseur ! | Free Book</u></a></li>
 </ul></div>
 

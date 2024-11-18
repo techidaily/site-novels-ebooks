@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-10-31T16:33:22.963Z
-updated: 2024-11-07T16:50:43.243Z
+date: 2024-11-16T22:15:32.564Z
+updated: 2024-11-17T22:59:30.314Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,9 +238,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210346089-9782226465078-il-suffit-parfois-dun-signe/"><u>Il suffit parfois d'un signe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346028-9782226460554-les-cles-de-lesoterisme-chakras/"><u>Les Clés de l'ésotérisme - Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346075-9782226466013-nos-ames-oubliees/"><u>Nos âmes oubliées | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346323-9782807331082-soigner-en-pleine-conscience/"><u>Soigner en pleine conscience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877159-9781609252151-between-the-gates/"><u>Between the Gates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877152-9781601639882-conversations-with-the-children-of-now/"><u>Conversations With the Children of Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877156-9781601639738-gnosis/"><u>Gnosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877153-9781601639660-indigo-adults/"><u>Indigo Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877151-9781601639615-learning-from-the-light/"><u>Learning from the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877125-9781601637772-the-psychic-life-of-abraham-lincoln/"><u>The Psychic Life of Abraham Lincoln | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877132-9781601637338-the-purpose-guided-universe/"><u>The Purpose-Guided Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877131-9781601637130-vampires/"><u>Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877145-9781601639301-walking-with-the-green-man/"><u>Walking With the Green Man | Free Book</u></a></li>
 </ul></div>
 

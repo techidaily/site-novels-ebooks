@@ -1,7 +1,7 @@
 ---
 title: You Know More than You Think | Free Book
-date: 2024-10-20T01:50:04.043Z
-updated: 2024-10-26T20:59:34.828Z
+date: 2024-11-12T18:55:07.892Z
+updated: 2024-11-17T22:59:37.149Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f56a18ba527f4076a75ab01ea2bdf54fff6dbca4d0786cd5008719c206d4085.jpg
@@ -193,3 +193,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f56a18ba527f4076a75ab01ea2bdf5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210489210-9782017150138-diosa-reveillez-votre-deesse-interieure/"><u>Diosa : Réveillez votre déesse intérieure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210483510-9780141959535-haunted-england/"><u>Haunted England | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210487724-9780718197995-heaven/"><u>Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210489883-9780990756415-luminescence-of-the-ordinary/"><u>Luminescence of the Ordinary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210488718-9781405943154-mindfulness-for-mums/"><u>Mindfulness for Mums | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210484112-9780141967943-the-love-key/"><u>The Love Key | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210483212-9780141938240-the-magus-of-strovolos/"><u>The Magus of Strovolos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210483713-9780141964065-the-secrets-of-angel-healing/"><u>The Secrets of Angel Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210489705-9788194849650-the-story-of-the-buddha/"><u>The Story Of The Buddha | Free Book</u></a></li>
+</ul></div>
+

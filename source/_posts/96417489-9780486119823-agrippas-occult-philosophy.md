@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2024-10-31T21:44:48.951Z
-updated: 2024-11-01T18:35:35.974Z
+date: 2024-11-13T23:02:21.708Z
+updated: 2024-11-17T21:41:34.166Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,14 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2028077-9781615648276-asmr/"><u>ASMR | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/202906-9780759520486-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203004-9780759520820-guilt-is-the-teacher-love-is-the-lesson/"><u>Guilt is the Teacher, Love is the Lesson | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2029268-9780698198661-it-works-deluxe-edition/"><u>It Works DELUXE EDITION | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2029335-9781466874930-the-best-advice-in-six-words/"><u>The Best Advice in Six Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203076-9780759522893-the-celestine-vision/"><u>The Celestine Vision | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/202837-9780446930529-the-ufo-enigma/"><u>The UFO Enigma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203145-9780759522060-touched-by-angels/"><u>Touched by Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203121-9780759523609-who-is-your-guardian-angel/"><u>Who Is Your Guardian Angel? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974367-9781088249062-cautivos-y-libertos/"><u>Cautivos y Libertos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974369-9781088249536-detestable-no-soy-adolescente/"><u>Detestable, no. ¡Soy adolescente! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974366-9781088249413-el-cielo-puede-esperar/"><u>El Cielo Puede Esperar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974363-9781088251140-el-esclavo-de-africa-a-la-senzala/"><u>El Esclavo De África a la Senzala | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974359-9781088250419-el-talisman-maldito/"><u>El Talismán Maldito | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974353-9798889453161-empath-awakening-of-the-soul/"><u>Empath: Awakening of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974368-9781088251447-hijo-adoptivo/"><u>Hijo Adoptivo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974370-9781088251850-la-gruta-de-las-orquideas/"><u>LA GRUTA DE LAS ORQUÍDEAS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974364-9781088251928-la-intrusa/"><u>La Intrusa | Free Book</u></a></li>
 </ul></div>
 

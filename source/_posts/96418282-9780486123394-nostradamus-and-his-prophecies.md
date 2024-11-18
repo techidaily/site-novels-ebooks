@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2024-11-03T16:46:49.584Z
-updated: 2024-11-07T17:19:53.910Z
+date: 2024-11-14T03:39:09.753Z
+updated: 2024-11-18T00:51:32.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,10 +151,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209518622-9781620558768-developing-supersensible-perception/"><u>Developing Supersensible Perception | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518621-9781620558478-familiars-in-witchcraft/"><u>Familiars in Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518624-9781591433378-the-murder-of-moses-2nd-ed/"><u>The Murder of Moses (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518620-9781620558621-the-sacred-herbs-of-samhain/"><u>The Sacred Herbs of Samhain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518625-9781620559031-working-with-chakras-for-belief-change/"><u>Working with Chakras for Belief Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013581-9781644119181-astrology-of-the-shadow-self/"><u>Astrology of the Shadow Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013582-9781644119228-coma-and-near-death-experience/"><u>Coma and Near-Death Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013579-9781644118917-healing-wisdom-from-the-afterlife/"><u>Healing Wisdom from the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013584-9781644119419-lessons-from-the-afterlife/"><u>Lessons from the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013573-9781644117354-occult-germany/"><u>Occult Germany | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013578-9781644118634-the-occult-sylvia-plath/"><u>The Occult Sylvia Plath | Free Book</u></a></li>
 </ul></div>
 

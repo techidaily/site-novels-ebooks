@@ -1,7 +1,7 @@
 ---
 title: The Lifetimes When Jesus and Buddha Knew Each Other | Free Book
-date: 2024-10-24T21:41:34.982Z
-updated: 2024-10-26T23:01:25.380Z
+date: 2024-11-12T17:56:08.987Z
+updated: 2024-11-17T22:07:55.758Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e851ae981b1ddd46e308dead01d7eadf664d1e02a1f580576b27e5beb44e7730.jpg
@@ -193,3 +193,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e851ae981b1ddd46e308dead01d7ead
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210513866-9781739770457-le-reve-des-anges/"><u>Le Rêve des Anges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210513327-9780241448700-lift-your-vibe/"><u>Lift Your Vibe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511620-9781945026942-nature/"><u>Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511621-9781774817070-the-tao/"><u>The Tao | Free Book</u></a></li>
+</ul></div>
+

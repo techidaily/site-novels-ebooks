@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2024-11-02T17:14:22.677Z
-updated: 2024-11-07T16:44:57.406Z
+date: 2024-11-10T19:50:48.322Z
+updated: 2024-11-17T16:22:52.841Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,10 +191,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209612308-9781547570041-meditacion-aprender-a-meditar-tecnicas-de-relajacion-y-meditacion-zen/"><u>Meditación: Aprender A Meditar Técnicas De Relajación Y Meditación Zen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209612299-9781547570034-meditacion-guia-de-atencion-plena-para-eliminar-el-estres-la-ansiedad-y-la-depresion/"><u>Meditación: Guía De Atención Plena Para Eliminar El Estrés, La Ansiedad Y La Depresión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209612303-9781547567546-meditacion-guia-impresionante-para-principiantes-por-gabriyell-buechner/"><u>Meditación: Guía Impresionante Para Principiantes Por Gabriyell Buechner | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209612309-9781547569984-meditacion-la-mejor-guia-de-meditacion-para-la-meditacion/"><u>Meditación: La Mejor Guía De Meditación Para La Meditación. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209612310-9781547570058-meditacion-tecnicas-rapidas-de-meditacion-para-personas-tecnicas-de-atencion-plena-para-la-meditacion/"><u>Meditación: Técnicas Rápidas De Meditación Para Personas (Técnicas De Atención Plena Para La Meditación) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211110965-9781544537207-all-is-well/"><u>All Is Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211110143-9780645830927-cosmic-magick-astrological-guide-2024/"><u>Cosmic Magick - Astrological Guide - 2024 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211110666-9781837991921-how-to-read-the-universe/"><u>How to Read the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211110670-9781837992171-nature-therapy/"><u>Nature Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211110662-9781837991334-the-little-book-of-crystal-healing/"><u>The Little Book of Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211111003-9783988315328-yoga-nidra/"><u>YOGA NIDRA | Free Book</u></a></li>
 </ul></div>
 

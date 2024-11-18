@@ -1,7 +1,7 @@
 ---
 title: Remembering the Light Within | Free Book
-date: 2024-10-25T23:40:47.292Z
-updated: 2024-10-27T02:43:00.720Z
+date: 2024-11-17T01:56:58.011Z
+updated: 2024-11-17T16:12:40.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/429719e6eaa9e6e2f8c5ad72ca8db068fdcd5faf5f68f803f7805d2ec51babb6.jpg
@@ -263,3 +263,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/429719e6eaa9e6e2f8c5ad72ca8db06
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210503045-9781950253326-earth-witch/"><u>Earth Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503044-9781950253302-the-human-design-workbook/"><u>The Human Design Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503042-9781633412774-the-magick-of-aleister-crowley/"><u>The Magick of Aleister Crowley | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503047-9781633412781-the-meaning-of-witchcraft/"><u>The Meaning of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503048-9781950253289-the-witchs-book-of-numbers/"><u>The Witch's Book of Numbers | Free Book</u></a></li>
+</ul></div>
+

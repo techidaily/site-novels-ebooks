@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2024-10-31T17:22:39.333Z
-updated: 2024-11-01T23:14:58.494Z
+date: 2024-11-17T00:02:16.781Z
+updated: 2024-11-18T01:32:27.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,14 +147,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1791392-9781782796206-a-kitchen-witchs-world-of-magical-herbs-plants/"><u>A Kitchen Witch's World of Magical Herbs & Plants | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791396-9781782795254-life-without-elgar/"><u>Life Without Elgar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1790247-9780762789573-spooky-georgia/"><u>Spooky Georgia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1790248-9780762789597-spooky-indiana/"><u>Spooky Indiana | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1790265-9781493001804-spooky-yellowstone/"><u>Spooky Yellowstone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791401-9781782796138-the-case-of-the-disappearing-cancer/"><u>The Case of the Disappearing Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791402-9781782795278-the-heart-of-the-hereafter/"><u>The Heart of the Hereafter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791407-9781782795414-the-woven-word/"><u>The Woven Word | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1790778-9781907203978-words-to-ease-your-soul/"><u>Words to Ease your Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970029-9781088233658-donde-esta-teresa/"><u>¿Dónde está Teresa? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970027-9781088232378-conexion-galilea/"><u>Conexión Galilea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970030-9781088234341-el-hilo-del-destino/"><u>El Hilo del Destino | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970024-9781088235133-ellos-continuan-entre-nosotros-volumen-i-y-ii/"><u>Ellos Continúan entre Nosotros. Volumen I y II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970026-9781088232569-jornada-de-los-angeles/"><u>Jornada de los Ángeles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970023-9781088231913-la-fuerza-de-la-bondad/"><u>La Fuerza de la Bondad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970025-9781088232064-los-penascos-son-de-arena/"><u>Los Peñascos son de Arena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970028-9781088232682-renacer-de-la-esperanza/"><u>Renacer de la Esperanza | Free Book</u></a></li>
 </ul></div>
 

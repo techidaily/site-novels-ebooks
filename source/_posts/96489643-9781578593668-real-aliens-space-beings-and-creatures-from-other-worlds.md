@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-11-05T16:33:48.475Z
-updated: 2024-11-07T19:02:36.484Z
+date: 2024-11-12T18:11:43.779Z
+updated: 2024-11-18T00:58:31.883Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,11 +262,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210298857-9781645592020-an-emotional-journey/"><u>An Emotional Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298703-9781646705559-come-with-a-hunger-come-with-a-thirst-be-filled-to-overflow/"><u>Come with a Hunger Come with a Thirst Be Filled to Overflow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298918-9781646707065-joe/"><u>Joe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298413-9781644682654-the-light-through-the-darkness/"><u>The Light Through The Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298197-9781644680636-three-simple-words/"><u>Three Simple Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298475-9781646705948-what-remains-behind/"><u>What Remains Behind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822908-9781088118030-four-citadels-the-key-of-twelve/"><u>FOUR CITADELS & THE KEY OF TWELVE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210824190-9783988312815-hoodoo-for-beginners/"><u>HOODOO FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823607-9781394208609-knowledge-and-ideation/"><u>Knowledge and Ideation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823529-9783988263049-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-rites-and-ist-mysteries/"><u>The History of Magic Including a Clear and Precise Exposition of its Rites and ist Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823670-9781399807371-the-knight-waite-tarot-guidebook/"><u>The Knight-Waite Tarot Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822443-9798886857399-what-are-your-hands-doing/"><u>What Are Your Hands Doing? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822954-9781960466051-budushee/"><u>Будущее | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210824571-9781685680398-zakon-uspeha/"><u>Закон успеха | Free Book</u></a></li>
 </ul></div>
 

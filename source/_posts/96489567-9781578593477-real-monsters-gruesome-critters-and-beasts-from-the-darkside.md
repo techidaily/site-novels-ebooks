@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-11-05T19:02:12.097Z
-updated: 2024-11-07T16:57:54.173Z
+date: 2024-11-13T03:21:24.900Z
+updated: 2024-11-17T17:29:14.691Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,10 +262,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210391962-9781734610642-claiming-my-soul/"><u>Claiming My Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210391741-9781631957123-estimated-time-of-departure/"><u>Estimated Time of Departure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210391984-9788794110129-inawainge-el-que-ve/"><u>Iñawaingé - El que ve | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210391759-9780646830094-run-mary-run/"><u>Run Mary Run | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210391714-9781777745318-soul-talks/"><u>Soul Talks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932799-9781855846210-daily-contemplations/"><u>Daily Contemplations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932797-9781855842892-how-to-cure-nervousness/"><u>How to Cure Nervousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932796-9781855844278-karmic-relationships-volume-7/"><u>Karmic Relationships: Volume 7 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932793-9781855842885-the-four-temperaments/"><u>The Four Temperaments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932791-9781912230693-the-tree-of-life-and-the-holy-grail/"><u>The Tree of Life and the Holy Grail | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-11-06T17:16:22.482Z
-updated: 2024-11-07T16:39:35.750Z
+date: 2024-11-15T00:04:39.436Z
+updated: 2024-11-17T23:28:50.102Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,9 +137,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210280697-9781615196241-brain-training-with-the-buddha/"><u>Brain Training with the Buddha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210280692-9781615195855-breathe-empower-achieve/"><u>Breathe, Empower, Achieve | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210281099-9781913029838-revolutionary-demonology/"><u>Revolutionary Demonology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210280893-9781612834580-voyage-to-curiositys-father/"><u>Voyage to Curiosity's Father | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210789706-9782889701445-astro-le-livre-du-feu/"><u>Astro : le livre du Feu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210790284-9780648595014-author-fears-and-how-to-overcome-them/"><u>Author Fears and How to Overcome Them | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780785-9781398488359-eds-odyssey-how-i-met-buddha-and-the-aliens/"><u>Ed’s Odyssey How I Met Buddha and the Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780652-9781649794086-four-seasons-of-your-life/"><u>Four Seasons of Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780577-9781803411460-spirituality-rekindled/"><u>Spirituality Rekindled | Free Book</u></a></li>
 </ul></div>
 

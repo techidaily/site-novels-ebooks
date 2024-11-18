@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2024-10-31T18:14:58.740Z
-updated: 2024-11-07T16:26:10.745Z
+date: 2024-11-15T18:04:04.267Z
+updated: 2024-11-17T19:37:55.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,11 +170,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210395573-9780811875905-celtic-wisdom/"><u>Celtic Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395575-9780811875912-chakra/"><u>Chakra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394851-9780998560366-comi/"><u>COMI | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395508-9780811870740-fortune-telling-birthday-book/"><u>Fortune-Telling Birthday Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395547-9781452136707-fortune-telling-book-of-colors/"><u>Fortune-Telling Book of Colors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395503-9780811870726-fortune-telling-book-of-dreams/"><u>Fortune-Telling Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932816-9781855842861-an-exercise-for-karmic-insight/"><u>An Exercise for Karmic Insight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932818-9781855842878-the-dead-are-with-us/"><u>The Dead Are With Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932814-9781855843158-the-evolution-of-consciousness/"><u>The Evolution of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932817-9781912230792-the-temple-and-the-grail/"><u>The Temple and the Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932815-9781855843608-verses-and-meditations/"><u>Verses and Meditations | Free Book</u></a></li>
 </ul></div>
 

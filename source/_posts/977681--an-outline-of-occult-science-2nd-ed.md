@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-11-01T17:37:28.544Z
-updated: 2024-11-07T19:23:34.158Z
+date: 2024-11-16T23:44:23.025Z
+updated: 2024-11-17T22:59:35.899Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,13 +131,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210203697-9781637958636-exploring-the-galaxy/"><u>Exploring the Galaxy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210204515-9781684035731-good-morning-intentions/"><u>Good Morning Intentions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210203693-9781637958803-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210203588-9780907791867-psychedelic-justice/"><u>Psychedelic Justice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210203115-9781528767798-remarkable-spirit-manifestations/"><u>Remarkable Spirit Manifestations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210203636-9781420971620-the-law-of-success/"><u>The Law of Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210203698-9781637958810-written-in-the-stars/"><u>Written in the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210204337--your-soul-had-a-dream-your-life-is-it/"><u>Your Soul Had a Dream, Your Life Is It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755575-9791028521158-developpez-vos-facultes-energetiques/"><u>Développez vos facultés énergétiques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755602-9791028519179-il-nous-faut-tous-un-jour-apprendre-a-mourir/"><u>Il nous faut tous un jour apprendre à mourir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755597-9791028521332-je-decouvre-le-chamanisme-cest-malin/"><u>Je découvre le chamanisme, c'est malin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755751-9791028514136-je-minitie-aux-rituels-de-purification-cest-malin/"><u>Je m'initie aux rituels de purification, c'est malin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755508-9791028508906-la-magie-de-la-priere/"><u>La magie de la prière | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755519-9791028521646-la-vierge-noire-rituels-de-guerison-de-la-grande-deesse/"><u>La Vierge noire : Rituels de guérison de la grande déesse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755578-9791028521172-nouvelle-terre-nouvelle-humanite/"><u>Nouvelle Terre Nouvelle Humanité | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756421-9781401972714-sacred-vibrations/"><u>Sacred Vibrations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755787-9791028515164-sagesse-des-chakras-au-feminin/"><u>Sagesse des chakras au féminin | Free Book</u></a></li>
 </ul></div>
 

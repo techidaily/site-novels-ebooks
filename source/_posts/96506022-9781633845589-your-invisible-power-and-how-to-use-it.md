@@ -1,7 +1,7 @@
 ---
 title: Your Invisible Power and How to Use It | Free Book
-date: 2024-11-04T17:27:46.926Z
-updated: 2024-11-07T16:31:13.609Z
+date: 2024-11-13T19:04:46.346Z
+updated: 2024-11-17T18:00:17.684Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035b03b1cc767fa3501b8a4d68e2e51d3180.jpg
@@ -140,11 +140,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210234910-9781476641188-advances-in-parapsychological-research-10/"><u>Advances in Parapsychological Research 10 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210236000-9781582707242-intuitive-intelligence/"><u>Intuitive Intelligence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210236349-9780760370124-mindful-astrology/"><u>Mindful Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210235979-9781582707259-miracle-minded-manager/"><u>Miracle Minded Manager | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210235978-9781582708294-the-way-of-miracles/"><u>The Way of Miracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210234675-9786171252707-semejnyj-sonnik-s-otvetami-na-kazhdyj-den/"><u>Семейный сонник с ответами на каждый день | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761859-9781591798644-awakening-into-oneness/"><u>Awakening into Oneness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761864-9781604079449-awakening-shakti/"><u>Awakening Shakti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761872-9781622036332-the-re-enchantment/"><u>The Re-Enchantment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761868-9781649630575-travel-light/"><u>Travel Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761876-9781591799030-what-to-do-when-you-cant-decide/"><u>What to Do When You Can't Decide | Free Book</u></a></li>
 </ul></div>
 

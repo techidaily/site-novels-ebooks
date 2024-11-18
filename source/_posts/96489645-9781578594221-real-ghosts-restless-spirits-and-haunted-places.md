@@ -1,7 +1,7 @@
 ---
 title: Real Ghosts, Restless Spirits, and Haunted Places | Free Book
-date: 2024-11-03T18:22:16.628Z
-updated: 2024-11-07T18:37:46.796Z
+date: 2024-11-16T23:50:10.007Z
+updated: 2024-11-17T23:57:58.102Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bfc0f058ccbd270756cad3455b75e0de936.jpg
@@ -280,9 +280,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210299946-9781789043600-everything-is-your-fault/"><u>Everything is Your Fault | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210299690-9781646701605-hope-that-helps-a-caregivers-thrival-guide-for-special-needs/"><u>Hope That Helps: A Caregiver's Thrival Guide For Special Needs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210299944-9781789047127-pagan-portals-iris-goddess-of-the-rainbow-and-messenger-of-the-godds/"><u>Pagan Portals - Iris, Goddess of the Rainbow and Messenger of the Godds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210299609-9781646701087-rebirth/"><u>Rebirth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829943-9781977240408-a-knock-in-the-attic/"><u>A Knock in the Attic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210830288-9781685260453-discover-victory-in-the-meaning-of-your-life/"><u>Discover Victory In the Meaning of Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210830254-9781478795704-mystical-memories/"><u>Mystical Memories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210830072-9781977219749-over-1000-beatings-spiritual-sanity-and-the-rejection-of-evil/"><u>Over 1,000 Beatings, Spiritual Sanity and the Rejection of Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829892-9781977234261-riding-with-ghosts-angels-and-the-spirits-of-the-dead/"><u>Riding with Ghosts, Angels, and the Spirits of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210830221-9781977236920-the-definitive-book-on-the-afterlife/"><u>The Definitive Book on the Afterlife | Free Book</u></a></li>
 </ul></div>
 

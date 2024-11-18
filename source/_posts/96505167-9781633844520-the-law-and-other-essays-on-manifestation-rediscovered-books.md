@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-11-02T18:40:41.255Z
-updated: 2024-11-07T19:31:02.641Z
+date: 2024-11-15T22:16:32.033Z
+updated: 2024-11-17T21:55:09.992Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,13 +148,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210282119-9781955275002-alma-mater/"><u>Alma Mater | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282111-9780645160918-god-is-me/"><u>God is Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282131-9780645116113-grow-your-mind-grow-your-life/"><u>Grow Your Mind, Grow Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210281669-9781631950476-life-20/"><u>Life 2.0 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282278-9781589239944-magickal-tarot/"><u>Magickal Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282196-9781736532614-rippling-waves/"><u>Rippling Waves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210281445-9780753734902-the-art-of-positive-living/"><u>The Art of Positive Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282248-9781737092490-the-ultimate-journey-2nd-edition-2nd-ed/"><u>The Ultimate Journey (2nd Edition) (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791322-9798987760338-chopping-down-the-tree-of-knowledge/"><u>Chopping Down the Tree of Knowledge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210790933-9780593579107-crystalpedia/"><u>Crystalpedia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791461-9798886541915-feelings-of-the-heart/"><u>Feelings of the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791602-9780711283268-goddess-stories/"><u>Goddess Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791392-9780998149080-impossible-to-know/"><u>Impossible To Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791570-9780711288249-mindfulness-in-baking/"><u>Mindfulness in Baking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791573-9780711288201-mindfulness-in-wild-swimming/"><u>Mindfulness in Wild Swimming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210790786-9781578598205-the-astrology-guide/"><u>The Astrology Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791568-9780760385784-the-complete-book-of-birthdays-gift-edition/"><u>The Complete Book of Birthdays - Gift Edition | Free Book</u></a></li>
 </ul></div>
 

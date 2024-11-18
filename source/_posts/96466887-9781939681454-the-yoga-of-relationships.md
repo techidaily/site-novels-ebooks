@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-10-28T21:35:48.874Z
-updated: 2024-11-02T00:23:30.102Z
+date: 2024-11-13T03:12:54.514Z
+updated: 2024-11-18T01:03:57.720Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,14 +162,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1938658-9780835630535-a-new-science-of-the-paranormal/"><u>A New Science of the Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/195589-9781596255487-an-enquiry-concerning-human-understanding/"><u>An Enquiry Concerning Human Understanding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/194600--antique-affair/"><u>Antique Affair | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/195947-9781596259355-bushido/"><u>Bushido | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/195591-9781596258532-dialogues-concerning-natural-religion/"><u>Dialogues Concerning Natural Religion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1938655-9780835631389-man-visible-and-invisible-2nd-ed/"><u>Man, Visible and Invisible (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1961555-9780983346678-stepping-into-ourselves/"><u>Stepping Into Ourselves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1956479-9780812998399-the-light-between-us/"><u>The Light Between Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1938592-9780835630405-the-reality-of-esp/"><u>The Reality of ESP | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970674-9781803410999-enter-the-journey/"><u>Enter the Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970676-9781803410036-pagan-portals-freya/"><u>Pagan Portals - Freya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970673-9781803413372-pause-a-spiritual-power/"><u>Pause - A Spiritual Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970675-9781803412290-spontaneous-contacts-with-the-deceased/"><u>Spontaneous Contacts with the Deceased | Free Book</u></a></li>
 </ul></div>
 

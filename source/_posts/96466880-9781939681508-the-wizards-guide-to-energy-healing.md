@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2024-10-29T18:43:34.099Z
-updated: 2024-11-01T21:40:20.871Z
+date: 2024-11-11T21:13:07.789Z
+updated: 2024-11-18T01:32:24.070Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,14 +178,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1918496-9781583949825-a-search-in-secret-egypt/"><u>A Search in Secret Egypt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1924704-9780698408753-angels/"><u>Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1925423-9781782790211-breaking-the-mother-goose-code/"><u>Breaking the Mother Goose Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1918552-9780804152181-psychic-children/"><u>Psychic Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1920844-9780786487523-the-conscious-mind-and-the-material-world/"><u>The Conscious Mind and the Material World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/191952-9780767910934-the-feng-shui-of-abundance/"><u>The Feng Shui of Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1924732-9780698137226-the-secret-teachers-of-the-western-world/"><u>The Secret Teachers of the Western World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1924696-9780698408067-the-simple-road/"><u>The Simple Road | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/191953-9780767910972-witch-crafting/"><u>Witch Crafting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970428-9781916673649-bedtime-stories-for-stressed-out-adults/"><u>Bedtime Stories For Stressed Out Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970413-9781088251652-jumelles/"><u>JUMELLES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970414-9781088250310-jurema-de-la-selva/"><u>Jurema de la Selva | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970416-9781088250990-recuerdos-que-el-viento-trae/"><u>Recuerdos que el Viento Trae | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970415-9781088251171-secretos-del-alma/"><u>Secretos del Alma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970417-9781088251294-sintiendo-en-la-propia-piel/"><u>Sintiendo en la propia piel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970420-9781088251416-solo-por-amor/"><u>Solo por Amor | Free Book</u></a></li>
 </ul></div>
 

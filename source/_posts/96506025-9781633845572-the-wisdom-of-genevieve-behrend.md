@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2024-11-02T16:19:11.634Z
-updated: 2024-11-07T17:11:46.742Z
+date: 2024-11-10T21:35:37.495Z
+updated: 2024-11-17T23:35:41.846Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,10 +158,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210238852-9781784884086-astrology-sos/"><u>Astrology SOS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210237613-9780645096316-awakening/"><u>AWAKENING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210238310-9780835630818-the-chakras/"><u>The Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210238644-9780648873969-wanting-to-be-me/"><u>Wanting to be Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210237745-9781916045125-witchcraft-and-the-old-religion/"><u>Witchcraft and The Old Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762111-9781787838574-calm-af/"><u>Calm AF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762115-9781787839144-lifes-a-journey-not-a-destination/"><u>Life's a Journey, Not a Destination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762091-9781800073531-the-art-of-simple-living/"><u>The Art of Simple Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762067-9781800073265-the-secret-to-happiness/"><u>The Secret to Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762104-9781800072541-the-secrets-of-fortune-telling/"><u>The Secrets of Fortune Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762109-9781800072572-the-secrets-of-spiritual-healing/"><u>The Secrets of Spiritual Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762075-9781800073296-you-can-totally-do-this/"><u>You Can Totally Do This | Free Book</u></a></li>
 </ul></div>
 

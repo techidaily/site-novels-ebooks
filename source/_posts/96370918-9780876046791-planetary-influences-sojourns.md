@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2024-11-04T17:53:30.732Z
-updated: 2024-11-07T19:15:39.879Z
+date: 2024-11-13T20:19:29.650Z
+updated: 2024-11-17T16:29:53.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -139,9 +139,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209649436-9781620559734-awakening-your-crystals/"><u>Awakening Your Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649432-9781620558645-opening-doors-within-3rd-ed/"><u>Opening Doors Within (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649431-9781620558881-russian-black-magic/"><u>Russian Black Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649440-9781620559840-the-wonder-of-unicorns-2nd-ed/"><u>The Wonder of Unicorns (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133073-9780975864968-avoiding-the-cosmic-2x4/"><u>Avoiding The Cosmic 2x4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133034-9781960466112-divine-creation-2nd-ed/"><u>Divine Creation (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133080-9798868942860-el-proximo-paso/"><u>El Próximo Paso | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133147-9781591811411-roadsigns/"><u>Roadsigns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133076-9781960466136-the-aquarius-age/"><u>The Aquarius Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133035-9781910559895-the-kitchen-witch-companion/"><u>The Kitchen Witch Companion | Free Book</u></a></li>
 </ul></div>
 

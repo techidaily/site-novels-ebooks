@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2024-11-04T17:35:36.643Z
-updated: 2024-11-07T19:02:45.005Z
+date: 2024-11-13T21:21:33.269Z
+updated: 2024-11-17T22:54:40.906Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,10 +160,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210437063-9781449437435-coast-to-coast-ghosts/"><u>Coast to Coast Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210436611-9798985098914-dancing-with-unity/"><u>Dancing with Unity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210437236-9781528983440-le-grand-tarot-de-lamour/"><u>Le Grand Tarot de L’amour | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210436691-9781956955033-somatic-fanatic/"><u>Somatic Fanatic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210436641-9781396320583-the-key-to-health-wealth-and-love/"><u>The Key to Health, Wealth and Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966188-9781088228517-el-faraon-mernephtah/"><u>EL FARAÓN MERNEPHTAH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966171-9781088207796-el-proceso/"><u>El Proceso | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966189-9781088228791-episodio-en-la-vida-de-tiberius/"><u>Episodio en la Vida de Tiberius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966193-9781088229200-la-leyenda-del-castillo-de-montignoso/"><u>La Leyenda del Castillo de Montignoso | Free Book</u></a></li>
 </ul></div>
 

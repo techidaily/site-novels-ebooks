@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2024-11-04T16:31:36.111Z
-updated: 2024-11-07T19:24:58.601Z
+date: 2024-11-11T23:17:18.324Z
+updated: 2024-11-17T22:52:11.931Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,13 +166,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210418449-9781902405803-astrology-and-meditation/"><u>Astrology and Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418488-9781878203120-awaken-to-tarot/"><u>Awaken To Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418512-9781637675830-i-want-you-to-know-my-glory/"><u>I Want You To Know My Glory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418573-9781802270518-marvellous-magical-chakras/"><u>Marvellous Magical Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418472-9781914110078-myths-of-mindfulness/"><u>Myths of Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418581-9781951879037-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418466-9781739857325-the-1-mindset/"><u>The 1% Mindset | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418609-9781956896282-the-game-of-lovelife/"><u>The Game of Love/Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210941343-9781847175052-a-bewitched-land/"><u>A Bewitched Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942104-9780995497870-bodyology/"><u>Bodyology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210941968-9781913962036-el-cielo-vs-la-reencarnacion-la-historieta/"><u>El Cielo Vs La Reencarnación La Historieta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210941914-9781912262694-life-after-death-beyond-doubt/"><u>Life After Death Beyond Doubt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942140-9781913568016-my-journey-to-zen/"><u>My Journey To Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210941925-9781912850839-the-spirit-of-life/"><u>The Spirit of Life | Free Book</u></a></li>
 </ul></div>
 

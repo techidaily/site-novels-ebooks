@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2024-11-03T16:41:32.667Z
-updated: 2024-11-07T19:27:40.017Z
+date: 2024-11-14T18:09:51.977Z
+updated: 2024-11-18T03:13:30.108Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,9 +160,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210275249-9781989838181-guided-meditations-for-anxiety-deep-sleep-and-self-healing/"><u>Guided Meditations for Anxiety, Deep Sleep, and Self Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210275257-9781989838259-guided-meditations-for-deep-sleep-overcoming-anxiety-stress-relief/"><u>Guided Meditations For Deep Sleep, Overcoming Anxiety & Stress Relief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210275250-9781989838198-guided-mindfulness-meditation-for-anxiety-stress-and-insomnia/"><u>Guided Mindfulness Meditation for Anxiety, Stress and Insomnia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210275251-9781989838204-guided-mindfulness-meditation-for-sleep-overcoming-anxiety-and-stress-relief/"><u>Guided Mindfulness Meditation for Sleep, Overcoming Anxiety and Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210777064-9798886850819-god-can-use-you/"><u>God Can Use You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210777063-9798886168969-having-faith-is-fun/"><u>Having Faith Is Fun | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210777228-9798889130239-inner-peace-discover-the-power-of-mindfulness-and-emotional-mastery-to-cultivate-a-life-of-inner-peace-and-happiness/"><u>Inner Peace: Discover the Power of Mindfulness and Emotional Mastery to Cultivate a Life of Inner Peace and Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210776979-9798218161729-memories-of-eternity-life-death-love-then-what-2nd-edition-2nd-ed/"><u>Memories of Eternity Life. Death. Love, then what? (2nd Edition) (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210777182-9780473672362-miracle-in-the-dark/"><u>Miracle in the Dark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210777114-9780646870540-open/"><u>Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210777144-9798987341841-the-guidance-groove/"><u>The Guidance Groove | Free Book</u></a></li>
 </ul></div>
 

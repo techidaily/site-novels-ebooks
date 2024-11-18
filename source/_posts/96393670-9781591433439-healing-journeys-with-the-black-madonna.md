@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2024-11-03T16:46:53.894Z
-updated: 2024-11-07T16:09:19.867Z
+date: 2024-11-10T17:56:10.488Z
+updated: 2024-11-17T19:38:21.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -212,13 +212,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209602229-9780834842229-choosing-compassion/"><u>Choosing Compassion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209604782-9781401958275-crystal365/"><u>CRYSTAL365 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209601377-9781547568727-el-libro-de-los-pensamientos-volumen-2/"><u>El libro de los pensamientos Volumen 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209602686-9781856754194-good-mornings/"><u>Good Mornings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209601320-9781547570072-los-trece-anos-de-megan/"><u>Los Trece Años de Megan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209601288-9781547570027-meditacion-una-guia-simple-para-aumentar-la-positividad/"><u>Meditación: Una Guía Simple Para Aumentar La Positividad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209601408-9781547567867-quelle-joie-de-vivre/"><u>Quelle joie de vivre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209602260-9781623174224-the-sacred-alignments-and-sigils/"><u>The Sacred Alignments and Sigils | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107741-9798886441727-a-journey-to-recovery/"><u>A Journey to Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107974-9798989184828-say-well/"><u>Say Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107881-9781952491979-spiritual-shortcuts/"><u>Spiritual Shortcuts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107929-9781544544892-system-vs-creator/"><u>System vs. Creator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107851-9789083267661-the-triangle-of-master-g/"><u>The Triangle of Master G | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107664-9780762482887-women-of-tarot/"><u>Women of Tarot | Free Book</u></a></li>
 </ul></div>
 

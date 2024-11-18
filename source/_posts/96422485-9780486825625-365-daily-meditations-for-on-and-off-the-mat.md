@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-11-03T18:46:39.536Z
-updated: 2024-11-07T17:49:36.045Z
+date: 2024-11-11T17:13:12.284Z
+updated: 2024-11-17T23:16:02.568Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,12 +169,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209539852-9781581771527-dirty-work/"><u>Dirty Work | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209539767-9781601636539-exposed-uncovered-declassified-ufos-and-aliens/"><u>Exposed, Uncovered & Declassified: UFOs and Aliens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209539946-9780883913857-how-to-acquire-a-million-dollar-personality/"><u>How To Acquire A Million-Dollar Personality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209539947-9780883915691-how-to-hypnotize-yourself-amp-others/"><u>How to Hypnotize Yourself &amp; Others | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209539961-9780883915714-i-can-heal-myself-and-i-will/"><u>I Can Heal Myself and I Will | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209539933-9780883915752-the-complete-beginners-guide-to-magic/"><u>The Complete Beginner's Guide to Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209539964-9780883915585-the-magic-of-a-powerful-memory/"><u>The Magic of a Powerful Memory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031017-9781961827011-case-files-of-the-rocky-mountain-paranormal-research-society-volume-1/"><u>Case Files of the Rocky Mountain Paranormal Research Society Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030908-9781960093790-the-djinns-gin/"><u>The Djinn's Gin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030940-9780997282573-the-essence-of-sound/"><u>The Essence of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031080-9798989009763-the-pillars-of-gynarchy/"><u>The Pillars of Gynarchy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030906-9781734989861-the-way-of-the-grace-filled-heart/"><u>The Way of the Grace-filled Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030911-9780997282511-the-way-of-the-simple-soul/"><u>The Way of the Simple Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031031-9798987004920-to-boob-or-not-to-boob/"><u>TO BOOB, OR NOT TO BOOB | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030963-9781088251874-trust-the-signs/"><u>Trust the Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031121-9781088267233-venciendo-el-pasado/"><u>Venciendo el Pasado | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2024-11-01T19:16:15.557Z
-updated: 2024-11-07T17:10:30.674Z
+date: 2024-11-14T20:46:44.334Z
+updated: 2024-11-17T17:42:41.061Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -178,12 +178,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210428922-9781683488057-babaji/"><u>BABAJI | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428228-9780645206432-believing-in-me/"><u>believing in ME | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428200-9781956216042-born-giving-birth-to-a-new-you/"><u>Born Giving Birth to a New You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428916-9781662447952-quotes-the-famous-and-not-so-famous/"><u>Quotes: The Famous and Not so Famous | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428766-9780762474288-the-night-school/"><u>The Night School | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210427372-9781913768256-the-roman-calendar/"><u>The Roman Calendar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210427203-9781088016381-two-near-death-experiences/"><u>Two Near-Death Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965013-9781685623067-a-seagull-named-papa/"><u>A Seagull Named Papa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965511-9781088222928-asi-en-la-tierra-como-en-el-cielo/"><u>Así en la Tierra como en el Cielo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965499-9781088207147-bajo-las-cenizas-del-tiempo/"><u>Bajo las Cenizas del Tiempo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965518-9781088214138-el-sonambulo/"><u>El Sonámbulo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965494-9781088222843-eternidad/"><u>Eternidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965425-9781401976279-get-quiet/"><u>Get Quiet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965519-9781088207291-tecla/"><u>Tecla | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965559-9781734198737-the-next-world/"><u>The Next World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210965515-9781088207376-todos-somos-mediums/"><u>Todos somos mediums | Free Book</u></a></li>
 </ul></div>
 

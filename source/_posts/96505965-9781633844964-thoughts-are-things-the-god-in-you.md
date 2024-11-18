@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-10-31T17:33:36.751Z
-updated: 2024-11-07T16:05:43.199Z
+date: 2024-11-14T22:18:18.432Z
+updated: 2024-11-17T16:11:06.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,12 +137,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210233068-9780892546916-elucidation-of-necromancy-lucidarium-artis-nigromantice-attributed-to-peter-of-abano/"><u>Elucidation of Necromancy Lucidarium Artis Nigromantice attributed to Peter of Abano | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232960-9788293791409-highly-intuitive-people/"><u>Highly Intuitive People | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233013-9780744041538-mindfulness/"><u>Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232963-9781734514674-my-adventures-as-a-psychic-nurse-medium/"><u>My Adventures as a Psychic Nurse & Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232964-9781734514698-my-adventures-as-a-psychic-nurse-medium/"><u>My Adventures as a Psychic Nurse & Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232469-9781644113974-our-african-unconscious-3rd-ed/"><u>Our African Unconscious (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232471-9781644113332-psychedelics-and-psychotherapy/"><u>Psychedelics and Psychotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761791-9781604073294-meditation-for-the-love-of-it/"><u>Meditation for the Love of It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761786-9781683648628-opening-to-darkness/"><u>Opening to Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761795-9781591798590-the-mystery-of-2012/"><u>The Mystery of 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761790-9781649631381-the-three-conditions/"><u>The Three Conditions | Free Book</u></a></li>
 </ul></div>
 

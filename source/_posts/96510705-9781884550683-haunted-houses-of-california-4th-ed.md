@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-11-05T18:20:59.370Z
-updated: 2024-11-07T18:17:15.036Z
+date: 2024-11-11T02:02:51.514Z
+updated: 2024-11-17T23:36:34.127Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,12 +171,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210270251-9781071555132-diario-de-meditacao-para-reflexoes-diarias/"><u>Diário de Meditação para Reflexões Diárias | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270388-9781538707630-dreamers-dictionary/"><u>Dreamer's Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270547-9781250780256-heal-from-within/"><u>Heal from Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270185-9781071593448-impostor-yo-nunca-mas/"><u>Impostor, ¿yo? Nunca más... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270268-9781071595480-impostor-eu-nunca-mais/"><u>Impostor, eu? Nunca mais... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270199-9781071593295-impostor-not-anymore/"><u>Impostor... Not anymore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270470-9781582708515-modern-merlin/"><u>Modern Merlin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773258-9781685830212-a-journey-of-self-healing/"><u>A Journey of Self-Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773234-9781649691958-brilliant-minds-in-captivity/"><u>Brilliant Minds in Captivity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773276-9781685830168-grace-to-you/"><u>GRACE TO YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773223-9781649699299-married-but-single-wives-without-husbands/"><u>Married, But Single; Wives Without Husbands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773250-9781649691040-the-path-to-freedom/"><u>THE PATH TO FREEDOM | Free Book</u></a></li>
 </ul></div>
 

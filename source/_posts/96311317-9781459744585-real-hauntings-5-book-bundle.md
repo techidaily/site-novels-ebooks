@@ -1,7 +1,7 @@
 ---
 title: Real Hauntings 5-Book Bundle | Free Book
-date: 2024-10-25T03:41:25.365Z
-updated: 2024-10-26T19:04:20.350Z
+date: 2024-11-17T01:46:39.126Z
+updated: 2024-11-17T22:00:00.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c12c15a0255c883aa132cf3b44d08362d6efe4fa5963e76a286ec48cf706f56c.jpg
@@ -172,3 +172,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c12c15a0255c883aa132cf3b44d0836
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210642213-9781088017821-audacity-of-amal/"><u>Audacity of Amal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642121-9781662455445-cognitive-liberty/"><u>Cognitive Liberty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642052-9781788179515-energy-rules/"><u>Energy Rules | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642107-9781662483523-from-the-other-side-of-the-bed/"><u>From the Other Side of the Bed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642171-9780645491265-just-soras-soliloquies/"><u>Just Sora's Soliloquies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642038-9781786787446-the-moon-dust-dream-dictionary/"><u>The Moon Dust Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210641243-9780762482108-weed-witch/"><u>Weed Witch | Free Book</u></a></li>
+</ul></div>
+

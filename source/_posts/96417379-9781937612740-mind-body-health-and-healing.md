@@ -1,7 +1,7 @@
 ---
 title: Mind-Body Health and Healing | Free Book
-date: 2024-10-31T18:57:22.556Z
-updated: 2024-11-07T16:17:45.564Z
+date: 2024-11-12T19:58:04.375Z
+updated: 2024-11-18T02:00:55.353Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8db117bf091c80d351409c4e99f8d0b8f0.jpg
@@ -185,11 +185,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2096442-9780892546633-astrological-insights-into-personality/"><u>Astrological Insights into Personality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209643983-9781632658050-before-you-cast-a-spell/"><u>Before You Cast A Spell | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209644890-9782824631929-dans-la-lumiere-de-votre-ange-gardien/"><u>Dans la lumière de votre ange gardien | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645416-9781462920631-japanese-tea-ceremony/"><u>Japanese Tea Ceremony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645573-9781620558706-the-magian-tarok-3rd-ed/"><u>The Magian Tarok (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645054-9781452175058-the-seasonal-soul/"><u>The Seasonal Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211129447-9781761187940-everyday-folklore/"><u>Everyday Folklore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130213-9781914271502-hot-erotic-short-stories-3-in-1naughty-adult-collection/"><u>Hot Erotic Short Stories 3 in 1Naughty Adult Collection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130477-9781604736649-shadows-and-cypress/"><u>Shadows and Cypress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130085-9781454949848-the-rainbow-witch/"><u>The Rainbow Witch | Free Book</u></a></li>
 </ul></div>
 

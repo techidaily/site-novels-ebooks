@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-11-02T19:05:40.912Z
-updated: 2024-11-07T19:08:16.965Z
+date: 2024-11-10T23:06:40.863Z
+updated: 2024-11-17T16:09:28.536Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,13 +167,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210410935-9781644115305-activate-your-super-human-potential/"><u>Activate Your Super-Human Potential | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410930-9781644114575-embodying-the-mystery/"><u>Embodying the Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410931-9781644114643-lightbringers-of-the-north/"><u>Lightbringers of the North | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410936-9781644115060-microdosing-with-amanita-muscaria/"><u>Microdosing with Amanita Muscaria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410937-9781644115008-proof-of-spiritual-phenomena/"><u>Proof of Spiritual Phenomena | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410929-9781644114315-sacred-geometry-of-the-starcut-diagram-2nd-ed/"><u>Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410932-9781644114759-the-kabbalah-of-light/"><u>The Kabbalah of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410933-9781644114780-witch-wisdom-for-magical-aging/"><u>Witch Wisdom for Magical Aging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934742-9781800651395-a-magical-night-journey/"><u>A Magical Night Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934775-9781782496212-be-your-own-astrologer/"><u>Be Your Own Astrologer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934711-9781800651371-harnessing-the-power-of-signs-symbols/"><u>Harnessing the Power of Signs & Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934738-9781782499176-magical-self-care-for-everyday-life/"><u>Magical Self-Care for Everyday Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934757-9781782492894-mindful-eating/"><u>Mindful Eating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934725-9781782499152-moon-wisdom/"><u>Moon Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934765-9781782497790-the-crystal-healer-volume-2/"><u>The Crystal Healer: Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934781-9781782495222-the-little-pocket-book-of-mindfulness/"><u>The Little Pocket Book of Mindfulness | Free Book</u></a></li>
 </ul></div>
 

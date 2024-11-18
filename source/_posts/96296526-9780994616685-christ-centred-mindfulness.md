@@ -1,7 +1,7 @@
 ---
 title: Christ-Centred Mindfulness | Free Book
-date: 2024-10-23T19:30:04.267Z
-updated: 2024-10-26T20:56:15.160Z
+date: 2024-11-15T01:12:30.187Z
+updated: 2024-11-18T02:38:27.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c21f9efcd26a7db733dc69ec1c1c2d21ab3f6504325e3feea27fa70d45f4bd2.jpg
@@ -148,3 +148,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c21f9efcd26a7db733dc69ec1c1c2d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210619955-9781722527570-free-your-magnificent-mind/"><u>Free Your Magnificent Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619957-9781722527259-it-works-deluxe-edition/"><u>It Works Deluxe Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619956-9781722527587-modern-occultism/"><u>Modern Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619960-9781722527563-seven-games-of-life/"><u>Seven Games of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210620090-9781954920255-winks-from-above/"><u>Winks from Above | Free Book</u></a></li>
+</ul></div>
+

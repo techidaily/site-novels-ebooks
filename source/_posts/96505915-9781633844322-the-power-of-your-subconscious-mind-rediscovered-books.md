@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2024-10-31T17:37:52.071Z
-updated: 2024-11-07T16:27:02.913Z
+date: 2024-11-12T22:28:46.630Z
+updated: 2024-11-17T22:03:08.614Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,11 +153,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210232005-9780648599555-calm-before-the-scan/"><u>Calm Before the Scan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210231477-9781071585955-evocazioni/"><u>Evocazioni | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210231508-9781071588307-megan-e-il-gatto-perduto/"><u>Megan e il gatto perduto | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232058-9780578862651-power-boundaries/"><u>Power Boundaries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210230532-9780593295946-tarot-for-change/"><u>Tarot for Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210231969-9781647465896-the-heart-of-healing/"><u>The Heart of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761698-9781683641353-high-magick/"><u>High Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761689-9781683649397-mindfulness-meditation-for-pain-relief/"><u>Mindfulness Meditation for Pain Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761685-9781622031627-resurrecting-jesus/"><u>Resurrecting Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761674-9781683649236-the-heart-of-who-we-are/"><u>The Heart of Who We Are | Free Book</u></a></li>
 </ul></div>
 

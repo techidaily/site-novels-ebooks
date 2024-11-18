@@ -1,7 +1,7 @@
 ---
 title: 365 Blessings to Heal Myself and the World | Free Book
-date: 2024-10-25T22:20:42.794Z
-updated: 2024-10-26T19:43:06.057Z
+date: 2024-11-13T20:27:03.669Z
+updated: 2024-11-17T16:53:15.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9350b248c98efc70afab6f18bb3ae86f38f4bf6ca0a88d0fa6cb7a608848a00.jpg
@@ -153,3 +153,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9350b248c98efc70afab6f18bb3ae8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210655605-9781454942160-1001-tarot-spreads/"><u>1001 Tarot Spreads | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655622-9781454943891-psychic-spellcraft/"><u>Psychic Spellcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655616-9781454943570-the-druid-path/"><u>The Druid Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655611-9781454943471-the-enneagram-workbook/"><u>The Enneagram Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655610-9781454942566-the-holistic-witch/"><u>The Holistic Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655596-9781454941019-wicca-crystal-magic/"><u>Wicca Crystal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655597-9781454941064-wicca-herbal-magic/"><u>Wicca Herbal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655599-9781454941101-wicca-year-of-magic/"><u>Wicca Year of Magic | Free Book</u></a></li>
+</ul></div>
+

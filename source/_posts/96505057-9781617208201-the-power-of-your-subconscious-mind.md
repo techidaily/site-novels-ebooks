@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-11-05T18:41:54.627Z
-updated: 2024-11-07T16:32:44.591Z
+date: 2024-11-15T19:51:44.330Z
+updated: 2024-11-18T02:46:32.161Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,11 +149,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210279536-9781788174824-consciousness-rising/"><u>Consciousness Rising | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210279584-9781922380449-im-positive-2nd-ed/"><u>I'm Positive! (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210279723-9781910056844-lifting-the-veils-of-illusion/"><u>Lifting the Veils of Illusion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210279741-9781788600361-the-foundations-of-mastery/"><u>The Foundations of Mastery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210279958-9781737092452-the-way-of-the-psychonaut-vol-1/"><u>The Way of the Psychonaut Vol. 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210279957-9781737092445-the-way-of-the-psychonaut-vol-2/"><u>The Way of the Psychonaut Vol. 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780136-9781633413207-a-tea-witchs-grimoire/"><u>A Tea Witch's Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780138-9781633413122-magical-tarot/"><u>Magical Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780137-9781633413153-the-marie-laveau-voodoo-grimoire/"><u>The Marie Laveau Voodoo Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780140-9781633413177-unlocking-the-secret-language-of-tarot/"><u>Unlocking the Secret Language of Tarot | Free Book</u></a></li>
 </ul></div>
 
