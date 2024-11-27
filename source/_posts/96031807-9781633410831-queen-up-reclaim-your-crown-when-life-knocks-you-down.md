@@ -1,7 +1,7 @@
 ---
 title: Queen Up! Reclaim Your Crown When Life Knocks You Down | Free Book
-date: 2024-10-20T17:26:06.564Z
-updated: 2024-10-26T22:26:34.457Z
+date: 2024-11-24T19:24:53.204Z
+updated: 2024-11-27T19:07:55.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7354587f9c5d76743ff43e5aaf0df7bef473e6f891ae57f894e4a541b90ea23a.jpg
@@ -185,3 +185,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7354587f9c5d76743ff43e5aaf0df7b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211341024-9781590795637-living-a-conscious-life/"><u>Living a Conscious Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211340230-9798869361400-planetary-pot/"><u>Planetary Pot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211341269-9782384553396-prayer-and-praying-men/"><u>Prayer and Praying Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211341292-9798869330390-sacred-sexuality/"><u>Sacred Sexuality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211341263-9782384553426-the-reality-of-prayer/"><u>The Reality of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211341287-9798218410919-thy-kingdom-come/"><u>Thy Kingdom Come | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211341536-9789948761723-shmokh-alkhyl/"><u>شموخ الخيل | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211341424-9789948760207-mthkrat-basa/"><u>مذكرات بائسة | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-11-13T19:23:13.278Z
-updated: 2024-11-18T00:19:41.423Z
+date: 2024-11-26T20:21:07.118Z
+updated: 2024-11-27T16:13:55.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,13 +153,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210930406-9780717165964-between-death-and-life-conversations-with-a-spirit/"><u>Between Death and Life – Conversations with a Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210930296-9781841815664-how-to-manifest-anything/"><u>How to Manifest Anything | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932236-9781849942454-ingrid-pitt-bedside-companion-for-ghosthunters/"><u>Ingrid Pitt Bedside Companion for Ghosthunters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210931797-9781782819141-learn-tarot/"><u>Learn Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210930444-9780717184392-mind-body-soul-journal/"><u>Mind, Body, Soul Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210930329-9780717151776-the-courage-to-be-happy/"><u>The Courage to Be Happy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210931708-9780859658652-the-handbook-of-palmistry/"><u>The Handbook of Palmistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210931284-9780719822155-way-into-faerie/"><u>Way into Faerie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95781683-9780895566102-book-of-floating/"><u>Book of Floating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95780352-9781101870419-this-life/"><u>This Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95778591-9781515412328-unveiled-mysteries/"><u>Unveiled Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95778596-9781515415145-what-all-the-worlds-a-seeking/"><u>What All the World’s A-Seeking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95781173-9781515415107-when-prophecy-fails/"><u>When Prophecy Fails | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95781176-9781515412335-wild-talents/"><u>Wild Talents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95778262-9780008268190-witch-a-magickal-journey-a-guide-to-modern-witchcraft/"><u>Witch: a Magickal Journey: A Guide to Modern Witchcraft | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

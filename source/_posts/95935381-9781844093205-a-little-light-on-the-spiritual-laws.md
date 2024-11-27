@@ -1,7 +1,7 @@
 ---
 title: A Little Light on the Spiritual Laws | Free Book
-date: 2024-10-25T18:14:18.594Z
-updated: 2024-10-27T00:55:23.106Z
+date: 2024-11-24T20:28:51.758Z
+updated: 2024-11-27T21:59:22.342Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/29185fcafb26e9a76a262a2cded12bfc83207ca2245334543c747a42642d0718.jpg
@@ -149,3 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/29185fcafb26e9a76a262a2cded12bf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211421923-9781803415017-embodying-prayer/"><u>Embodying Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211421922-9781803414614-infinite-perception/"><u>Infinite Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211420402-9781040123867-mindfulness-giving/"><u>Mindfulness Giving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211421924-9781803415567-pagan-portals-fairy-herbs-for-fairy-magic/"><u>Pagan Portals - Fairy Herbs for Fairy Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211421926-9781803415703-wolf/"><u>Wolf | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

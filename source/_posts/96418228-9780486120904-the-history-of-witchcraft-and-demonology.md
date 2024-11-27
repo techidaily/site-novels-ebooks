@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2024-11-12T17:31:16.497Z
-updated: 2024-11-17T22:57:26.146Z
+date: 2024-11-24T18:23:59.845Z
+updated: 2024-11-27T17:17:36.840Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,12 +166,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211011879-9781977266514-20-ways-to-increase-your-psychic-abilities/"><u>20 Ways to Increase Your Psychic Abilities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211011895-9781761039461-el-despertar-del-tercer-ojo/"><u>El despertar del Tercer Ojo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211011892-9781761039522-guias-espirituales/"><u>Guías Espirituales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211011891-9781761039553-reiki/"><u>Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211012045-9798886548068-what-a-ride/"><u>What a Ride | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211011935-9781088263679-witch-therapy/"><u>Witch Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211011929-9781088263945-witchcraft-therapy/"><u>Witchcraft Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783034-9781594775154-global-awakening/"><u>Global Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783031-9781594775185-green-psychology/"><u>Green Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783037-9781594779671-morphic-resonance-4th-ed/"><u>Morphic Resonance (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783033-9781594779176-radical-nature-2nd-ed/"><u>Radical Nature (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783035-9781594778667-the-crack-in-the-cosmic-egg/"><u>The Crack in the Cosmic Egg | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783032-9781594778582-the-spiritual-life-of-water/"><u>The Spiritual Life of Water | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

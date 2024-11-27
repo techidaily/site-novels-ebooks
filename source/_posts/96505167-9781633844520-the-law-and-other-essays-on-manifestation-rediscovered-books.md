@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-11-15T22:16:32.033Z
-updated: 2024-11-17T21:55:09.992Z
+date: 2024-11-23T17:03:36.008Z
+updated: 2024-11-27T17:11:34.471Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,14 +148,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210791322-9798987760338-chopping-down-the-tree-of-knowledge/"><u>Chopping Down the Tree of Knowledge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210790933-9780593579107-crystalpedia/"><u>Crystalpedia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791461-9798886541915-feelings-of-the-heart/"><u>Feelings of the Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791602-9780711283268-goddess-stories/"><u>Goddess Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791392-9780998149080-impossible-to-know/"><u>Impossible To Know | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791570-9780711288249-mindfulness-in-baking/"><u>Mindfulness in Baking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791573-9780711288201-mindfulness-in-wild-swimming/"><u>Mindfulness in Wild Swimming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210790786-9781578598205-the-astrology-guide/"><u>The Astrology Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791568-9780760385784-the-complete-book-of-birthdays-gift-edition/"><u>The Complete Book of Birthdays - Gift Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/658286-9781446406748-an-angel-at-my-shoulder/"><u>An Angel At My Shoulder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/662182-9780761852537-hold-fast-the-mountain-pass/"><u>Hold Fast the Mountain Pass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/658093-9781446406861-just-do-it-now/"><u>Just Do It Now! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/662082-9781451650280-powerhunch/"><u>Powerhunch! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/658103-9781446406984-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/661014-9780895565037-the-deep-self/"><u>The Deep Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/660708-9781587613852-the-faeries-guide-to-green-magick-from-the-garden/"><u>The Faerie's Guide to Green Magick from the Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/661437-9780856833557-wonders-of-spiritual-unfoldment/"><u>Wonders of Spiritual Unfoldment | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

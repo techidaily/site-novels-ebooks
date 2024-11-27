@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2024-11-14T22:42:20.983Z
-updated: 2024-11-17T23:34:41.603Z
+date: 2024-11-20T17:27:24.685Z
+updated: 2024-11-27T21:01:40.261Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,9 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210974390-9781088249642-el-ateo/"><u>El Ateo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974388-9781088250068-el-dificil-camino-de-las-drogas/"><u>El Difícil Camino de las Drogas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974387-9781088250181-el-misterio-del-terrazo/"><u>El Misterio del Terrazo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974383-9781088252048-la-mansion-de-la-piedra-torcida/"><u>LA MANSIÓN DE LA PIEDRA TORCIDA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782776-9781594778490-advanced-chi-nei-tsang/"><u>Advanced Chi Nei Tsang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782775-9781620553008-aspects-in-astrology/"><u>Aspects in Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782778-9781620553442-osogbo/"><u>Osogbo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782779-9781620555170-tao-tantric-arts-for-women/"><u>Tao Tantric Arts for Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782777-9781620550632-taoist-astrology/"><u>Taoist Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782774-9781620552841-the-five-dharma-types/"><u>The Five Dharma Types | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782773-9781620551363-the-future-of-human-experience/"><u>The Future of Human Experience | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

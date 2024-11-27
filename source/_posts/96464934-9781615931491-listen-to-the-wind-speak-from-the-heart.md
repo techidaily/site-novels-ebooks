@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2024-11-17T00:02:16.781Z
-updated: 2024-11-18T01:32:27.410Z
+date: 2024-11-24T21:56:12.789Z
+updated: 2024-11-27T18:29:54.731Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,13 +147,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210970029-9781088233658-donde-esta-teresa/"><u>¿Dónde está Teresa? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970027-9781088232378-conexion-galilea/"><u>Conexión Galilea | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970030-9781088234341-el-hilo-del-destino/"><u>El Hilo del Destino | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970024-9781088235133-ellos-continuan-entre-nosotros-volumen-i-y-ii/"><u>Ellos Continúan entre Nosotros. Volumen I y II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970026-9781088232569-jornada-de-los-angeles/"><u>Jornada de los Ángeles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970023-9781088231913-la-fuerza-de-la-bondad/"><u>La Fuerza de la Bondad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970025-9781088232064-los-penascos-son-de-arena/"><u>Los Peñascos son de Arena | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970028-9781088232682-renacer-de-la-esperanza/"><u>Renacer de la Esperanza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782564-9781591432463-advanced-autogenic-training-and-primal-awareness/"><u>Advanced Autogenic Training and Primal Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782562-9781591439813-advanced-civilizations-of-prehistoric-america/"><u>Advanced Civilizations of Prehistoric America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782568-9781591432760-love-has-seven-colors/"><u>Love Has Seven Colors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782566-9781591438830-on-the-toltec-path/"><u>On the Toltec Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782563-9781591438588-rituals-and-practices-with-the-motherpeace-tarot-2nd-ed/"><u>Rituals and Practices with the Motherpeace Tarot (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782565-9781591439721-the-ecstatic-experience/"><u>The Ecstatic Experience | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Buddha and Einstein Walk Into a Bar | Free Book
-date: 2024-10-19T23:42:21.119Z
-updated: 2024-10-26T19:35:01.562Z
+date: 2024-11-21T16:23:57.563Z
+updated: 2024-11-27T17:11:33.153Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c09ebb9c9e2ac3caa09227de5b5d6712b795ffcd536c7b5aba04fa6fc4e6c420.jpg
@@ -185,3 +185,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c09ebb9c9e2ac3caa09227de5b5d671
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211333818-9781803414393-crystal-creed/"><u>Crystal Creed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332780-9798893810240-just-when-you-thought-you-knew/"><u>Just When You Thought You Knew | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333826-9781803418094-kitchen-witchcraft-moon-magic/"><u>Kitchen Witchcraft & Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333815-9781803412139-sacred-bones-magic-bones/"><u>Sacred Bones, Magic Bones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333816-9781803413143-the-science-of-sound/"><u>The Science of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332902-9789362610744-yeshustan-living-a-heavenly-life/"><u>Yeshustan Living A Heavenly Life | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

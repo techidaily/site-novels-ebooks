@@ -1,7 +1,7 @@
 ---
 title: "Edgar Cayce : guérir par la musique | Free Book"
-date: 2024-10-24T21:02:50.361Z
-updated: 2024-10-26T19:25:05.187Z
+date: 2024-11-22T16:31:32.227Z
+updated: 2024-11-27T20:30:13.043Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d973c0703fe64536592cf19dd5adb377b552ba73d238e975b7fde15166cf2da0.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d973c0703fe64536592cf19dd5adb37
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/253600-9789004132429-astrology-and-numerology-in-medieval-and-early-modern-catalonia/"><u>Astrology and numerology in medieval and early modern Catalonia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2536700-9781501138270-how-the-secret-changed-my-life/"><u>How The Secret Changed My Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2534857-9781626256514-letters-to-my-grandson/"><u>Letters to My Grandson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2536439-9780008191498-the-ghost-whisperer/"><u>The Ghost Whisperer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2535703-9781784501754-transformative-imagery/"><u>Transformative Imagery | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

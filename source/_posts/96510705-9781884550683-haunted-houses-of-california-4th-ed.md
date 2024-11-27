@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-11-11T02:02:51.514Z
-updated: 2024-11-17T23:36:34.127Z
+date: 2024-11-26T19:22:59.786Z
+updated: 2024-11-27T20:06:29.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,10 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210773258-9781685830212-a-journey-of-self-healing/"><u>A Journey of Self-Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773234-9781649691958-brilliant-minds-in-captivity/"><u>Brilliant Minds in Captivity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773276-9781685830168-grace-to-you/"><u>GRACE TO YOU | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773223-9781649699299-married-but-single-wives-without-husbands/"><u>Married, But Single; Wives Without Husbands | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773250-9781649691040-the-path-to-freedom/"><u>THE PATH TO FREEDOM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611786--a-world-of-ufos/"><u>A World of UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611787-9781770703445-more-true-tales-of-the-paranormal/"><u>More True Tales of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611753-9781770703100-mysteries-and-secrets-of-voodoo-santeria-and-obeah/"><u>Mysteries and Secrets of Voodoo, Santeria, and Obeah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611720-9781770702776-strange-but-true/"><u>Strange but True | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

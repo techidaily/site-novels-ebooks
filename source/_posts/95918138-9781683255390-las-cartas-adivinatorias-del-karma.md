@@ -1,7 +1,7 @@
 ---
 title: Las cartas adivinatorias del karma | Free Book
-date: 2024-10-23T00:46:39.615Z
-updated: 2024-10-26T16:32:02.394Z
+date: 2024-11-21T16:56:43.829Z
+updated: 2024-11-27T16:38:05.129Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79201849da999e65541e56013ef5ac17c229842fe342341435192ebd860072ea.jpg
@@ -175,3 +175,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79201849da999e65541e56013ef5ac1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2602710-9780007378418-a-free-spirit/"><u>A Free Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260193-9781101190470-beyond-these-four-walls/"><u>Beyond These Four Walls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2603840-9781785353352-mediumship-within/"><u>Mediumship Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2598278-9780811745772-monsters-of-west-virginia/"><u>Monsters of West Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2603841-9781785353239-pagan-portals-the-cailleach/"><u>Pagan Portals - The Cailleach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2603842-9781782792543-shamanic-plant-medicine-san-pedro/"><u>Shamanic Plant Medicine - San Pedro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260439-9781101220054-the-haunting-of-the-presidents/"><u>The Haunting of the Presidents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2596132-9781785353413-the-human-experience-is-the-dance-of-heaven-and-earth/"><u>The Human Experience Is The Dance Of Heaven And Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2603844-9781785352614-ultimum-mysterium/"><u>Ultimum Mysterium | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

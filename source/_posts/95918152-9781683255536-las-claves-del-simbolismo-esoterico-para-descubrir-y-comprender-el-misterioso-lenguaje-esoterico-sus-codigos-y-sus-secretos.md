@@ -1,7 +1,7 @@
 ---
 title: Las claves del simbolismo esotérico. Para descubrir y comprender el misterioso lenguaje esotérico, sus códigos y sus secretos | Free Book
-date: 2024-10-22T23:13:18.969Z
-updated: 2024-10-27T03:07:46.587Z
+date: 2024-11-22T16:04:00.059Z
+updated: 2024-11-27T19:35:05.657Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e6bfea4b5a1ff20c267e701991a51993214a7cd7fdf59ca2b591c62725ebb8e.jpg
@@ -185,3 +185,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e6bfea4b5a1ff20c267e701991a519
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2211822-9780007513260-20-minutes-to-master-wicca/"><u>20 MINUTES TO MASTER … WICCA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211991-9780007509300-derek-acorahs-ghost-towns/"><u>Derek Acorah’s Ghost Towns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211826-9780007498260-step-by-step-tarot/"><u>Step by Step Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211871-9780007502097-the-magic-of-labyrinths/"><u>The Magic of Labyrinths | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

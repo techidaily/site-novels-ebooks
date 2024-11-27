@@ -1,7 +1,7 @@
 ---
 title: Life Is Eternal Newness | Free Book
-date: 2024-11-13T22:24:46.598Z
-updated: 2024-11-17T18:51:01.650Z
+date: 2024-11-26T18:49:55.273Z
+updated: 2024-11-27T17:23:58.932Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/401eadd4a6682fc0a19d06409c8fcef884a5bbafed8e152b63b0fa647d872b6f.jpg
@@ -139,10 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/401eadd4a6682fc0a19d06409c8fcef
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210726725-9781250879578-encounters/"><u>Encounters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210726699-9781250897855-the-book-of-hermetica/"><u>The Book of Hermetica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210726689-9781250833808-the-book-of-innocence-a-channeled-text/"><u>The Book of Innocence: A Channeled Text | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210725083-9781398472914-the-mirror-of-meditations/"><u>The Mirror of Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210725760-9798885406659-where-you-go-i-go/"><u>WHERE YOU GO, I GO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/267091-9780767927154-apocalypse-2012/"><u>Apocalypse 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671528-9780752481531-haunted-peterborough/"><u>Haunted Peterborough | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670449-9781515409717-mystic-christianity/"><u>Mystic Christianity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670460-9781515409953-natural-law-in-the-spiritual-world/"><u>Natural Law in the Spiritual World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670458-9781515409885-new-lands/"><u>New Lands | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

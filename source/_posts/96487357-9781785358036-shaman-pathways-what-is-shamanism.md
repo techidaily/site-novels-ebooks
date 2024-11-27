@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-11-14T23:25:29.744Z
-updated: 2024-11-17T18:49:41.742Z
+date: 2024-11-20T19:46:07.586Z
+updated: 2024-11-27T22:21:11.633Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,13 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210929655-9781803811413-finding-your-voice/"><u>Finding Your Voice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210930172-9780717179152-michael-murphys-book-of-dreams/"><u>Michael Murphy's Book of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210930108-9780717191802-mind-full/"><u>Mind Full | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210929624-9781839750458-playing-with-fire-tales-of-duality/"><u>Playing With Fire (Tales of Duality) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210929622-9781839750694-strange-sightings-and-mysterious-creatures-in-the-new-forest-and-beyond/"><u>Strange Sightings and Mysterious Creatures in the New Forest and Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210929634-9781839750571-testament-to-a-new-dawn/"><u>Testament to a New Dawn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210930166-9780717181230-the-source/"><u>The Source | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210929873-9780717190416-this-is-it/"><u>This Is It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95777856-9781449446338-100-hugs/"><u>100 Hugs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774504-9781608684960-expect-the-unexpected/"><u>Expect the Unexpected | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95776658-9788121252263-mind-and-ideology/"><u>Mind And Ideology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95777808-9781493027996-spooky-michigan-2nd-ed/"><u>Spooky Michigan (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95775814-9781946764010-the-nest-in-the-stream/"><u>The Nest in the Stream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774685-9781937673857-the-new-diplomatic-strategies-of-sir-winston-churchill/"><u>The New Diplomatic Strategies of Sir Winston Churchill | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

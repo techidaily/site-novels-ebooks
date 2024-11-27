@@ -1,7 +1,7 @@
 ---
 title: Secrets of Chinese Divination | Free Book
-date: 2024-10-23T03:30:27.630Z
-updated: 2024-10-27T05:14:08.414Z
+date: 2024-11-22T22:54:31.992Z
+updated: 2024-11-27T21:05:57.500Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ae2f9642858582eb0331ba3762a834edc7adef842d3ee9ef6fde9e88703123c.jpg
@@ -159,3 +159,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ae2f9642858582eb0331ba3762a834
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211400637-9798894581354-dating/"><u>Dating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400523-9798330266081-dreamers-doers/"><u>Dreamers & Doers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400569-9798330238484-fuel-minds-phase-7/"><u>Fuel Minds: Phase 7 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211401434-9781786851031-live-better/"><u>Live Better | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403675-9781396326332-max-heindels-letters-to-students/"><u>Max Heindel's Letters to Students | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211402844-9783989734258-the-case-against-spiritualism/"><u>The Case Against Spiritualism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403202--the-golden-grimoire/"><u>The Golden Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400630-9798330268825-the-mindful-revolution/"><u>The Mindful Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400515-9798987071724-when-spirits-speak/"><u>When Spirits Speak | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2024-11-16T02:29:53.758Z
-updated: 2024-11-18T02:28:56.224Z
+date: 2024-11-24T20:19:16.401Z
+updated: 2024-11-27T19:02:28.108Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,9 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210758348-9781088093283-count-the-cost/"><u>COUNT THE COST | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210757160-9785702158679-guru/"><u>Guru | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210757190-9781956368482-in-search-of-simple/"><u>In Search of Simple | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210758021-9781685709693-spiritual-renewal/"><u>Spiritual Renewal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401379-9780446548960-messages-from-the-masters/"><u>Messages from the Masters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401487-9780446554053-second-sight/"><u>Second Sight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401523-9780446550840-soul-survivor/"><u>Soul Survivor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/390919-9781775564799-think-and-grow-rich/"><u>Think and Grow Rich | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

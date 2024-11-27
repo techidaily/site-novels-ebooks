@@ -1,7 +1,7 @@
 ---
 title: Energy Medicine for Animals (2nd ed.) | Free Book
-date: 2024-10-21T17:44:31.457Z
-updated: 2024-10-27T01:54:15.710Z
+date: 2024-11-26T17:52:16.035Z
+updated: 2024-11-27T20:20:27.957Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44a217a6374a8a74798aeac39dc668e407ffdb374f233e77d58f94ef7749069b.jpg
@@ -202,3 +202,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44a217a6374a8a74798aeac39dc668e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239527-9781633413290-blackthorns-book-of-sacred-plant-magic/"><u>Blackthorn's Book of Sacred Plant Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239531-9781612835068-fairy-lore/"><u>Fairy Lore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239534-9781612835006-heavenly-alliance/"><u>Heavenly Alliance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239530--mexican-magic/"><u>Mexican Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239533--palmistry/"><u>Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239532--queering-the-runes/"><u>Queering the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239528--the-forbidden-knowledge-of-the-book-of-enoch/"><u>The Forbidden Knowledge of the Book of Enoch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

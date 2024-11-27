@@ -1,7 +1,7 @@
 ---
 title: The Book of Pendulum Healing | Free Book
-date: 2024-10-19T17:26:02.123Z
-updated: 2024-10-26T19:18:33.142Z
+date: 2024-11-23T17:48:39.185Z
+updated: 2024-11-27T18:30:19.853Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5382fdfd3a7f4373c13ee9bf4f5caa90413e1fd724b2c02dfd67ebca9de9e4ab.jpg
@@ -201,3 +201,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5382fdfd3a7f4373c13ee9bf4f5caa9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211236668-9781777690212-aura/"><u>Aura | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236760-9798869158161-lirios-de-esperanza/"><u>Lirios de Esperanza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236829-9798890914446-soul-licensed/"><u>Soul Licensed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236870-9783892017677-the-free-spirit-god-in-us/"><u>The Free Spirit - God in Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236815-9781989840665-women-of-the-hebrew-bible/"><u>Women of the Hebrew Bible | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

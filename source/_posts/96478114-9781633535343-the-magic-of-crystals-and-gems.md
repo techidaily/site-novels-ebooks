@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2024-11-15T22:32:44.983Z
-updated: 2024-11-18T00:09:29.152Z
+date: 2024-11-22T20:39:48.508Z
+updated: 2024-11-27T21:59:16.797Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,10 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210926308-9781903353448-dialogues/"><u>Dialogues | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926307-9781903353646-essential-skills-for-the-counseling-astrologer/"><u>Essential Skills for the Counseling Astrologer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926304-9781903353455-horoscope-snapshots/"><u>Horoscope Snapshots | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926309-9781903353363-the-family-legacy/"><u>The Family Legacy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926306-9781903353264-the-twelve-houses/"><u>The Twelve Houses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769593-9781786781147-impossible-truths/"><u>Impossible Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769607-9781623171933-jump-girl/"><u>Jump Girl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95767853-9781493028009-spooky-southwest-2nd-ed/"><u>Spooky Southwest (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95768392-9781515415756-the-law/"><u>The Law | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95768393-9781515415749-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95768845-9781507205389-the-modern-witchcraft-guide-to-the-wheel-of-the-year/"><u>The Modern Witchcraft Guide to the Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769590-9781786781031-the-practical-guide-to-crystal-healing/"><u>The Practical Guide to Crystal Healing | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

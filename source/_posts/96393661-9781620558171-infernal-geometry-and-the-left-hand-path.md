@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2024-11-13T16:50:16.665Z
-updated: 2024-11-17T20:52:42.899Z
+date: 2024-11-22T17:10:03.312Z
+updated: 2024-11-27T17:58:29.863Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,11 +203,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211082733-9781647395667-holistic-wellness/"><u>Holistic Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211082522-9781623154981-meditation-now/"><u>Meditation Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211082774-9798886503845-protection-spells-for-new-witches/"><u>Protection Spells for New Witches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211082504-9781638783206-shadow-work-journal-and-guide-for-beginners/"><u>Shadow Work Journal and Guide for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211082620-9781646112050-shamanism/"><u>Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211082696-9781647394790-the-mindfulness-workbook-for-depression/"><u>The Mindfulness Workbook for Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841433-9781683253822-el-aura-energia-vital-luminosa/"><u>El Aura. Energía vital luminosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841425-9781683253747-el-extraordinario-mundo-de-los-fantasmas/"><u>El extraordinario mundo de los fantasmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841424-9781683253730-el-gran-libro-ilustrado-de-los-suenos/"><u>El gran libro ilustrado de los sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841442-9781683253914-el-jardin-feng-shui/"><u>El jardin Feng shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841435-9781683253846-el-tarot-egipcio/"><u>El tarot egipcio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841434-9781683253839-feng-shui-y-el-poder-de-la-piramide/"><u>Feng Shui y El Poder de La Piramide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841436-9781683253853-las-claves-del-esoterismo/"><u>Las Claves del Esoterismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841427-9781683253761-los-test-psicologicos-de-aptitud-y-personalidad/"><u>Los test psicologicos de aptitud y personalidad | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

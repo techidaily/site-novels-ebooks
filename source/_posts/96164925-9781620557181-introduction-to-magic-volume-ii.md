@@ -1,7 +1,7 @@
 ---
 title: Introduction to Magic, Volume II | Free Book
-date: 2024-10-24T23:13:51.982Z
-updated: 2024-10-27T05:25:43.540Z
+date: 2024-11-26T19:37:26.189Z
+updated: 2024-11-27T21:58:14.282Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff1539f111f1f78ca980a174eac0be2958eccf6dbd68039883cd70fd5f601dc7.jpg
@@ -209,3 +209,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff1539f111f1f78ca980a174eac0be2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211314586-9781416594161-even-more-notes-from-the-universe/"><u>Even More Notes From the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314616-9781507210987-tarot-for-self-care/"><u>Tarot for Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314670-9781440501692-the-everything-vampire-book/"><u>The Everything Vampire Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314669-9781451612622-the-miracle-of-water/"><u>The Miracle of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314540-9781451669060-water-crystal-healing/"><u>Water Crystal Healing | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

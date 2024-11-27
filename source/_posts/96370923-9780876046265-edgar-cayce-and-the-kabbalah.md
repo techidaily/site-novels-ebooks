@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce and the Kabbalah | Free Book
-date: 2024-11-17T00:38:16.157Z
-updated: 2024-11-17T20:36:30.409Z
+date: 2024-11-20T16:14:28.249Z
+updated: 2024-11-27T22:34:39.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b212686194f65e619964bbbc63e450c7505b39c.jpg
@@ -146,13 +146,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b21268
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211141803-9781644117491-celtic-tree-alphabets-2nd-ed/"><u>Celtic Tree Alphabets (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141802-9781644117439-encounters-with-mermaids-2nd-ed/"><u>Encounters with Mermaids (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141805-9781644117996-psychedelics-and-the-coming-singularity/"><u>Psychedelics and the Coming Singularity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141753-9781591435211-rediscovering-turtle-island/"><u>Rediscovering Turtle Island | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141815-9781644119105-song-of-the-dark-man/"><u>Song of the Dark Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141752--the-geoengineered-transhuman-2nd-ed/"><u>The Geoengineered Transhuman (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141754-9781591435259-the-secret-life-of-mother-mary/"><u>The Secret Life of Mother Mary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141806-9781644118023-the-way-of-imagination/"><u>The Way of Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935414-9781844098392-become-an-earth-angel/"><u>Become an Earth Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935416-9781844097722-healing-with-angels-for-personal-transformation/"><u>Healing with Angels for Personal Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935413-9781844093762-healing-with-source/"><u>Healing with Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935411-9781844097951-heaven-therapy/"><u>Heaven Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935410-9781844099634-spiritual-hunger/"><u>Spiritual Hunger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935412-9781844093786-the-hearts-note/"><u>The Heart's Note | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

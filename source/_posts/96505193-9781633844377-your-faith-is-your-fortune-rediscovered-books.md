@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2024-11-14T03:32:21.418Z
-updated: 2024-11-17T23:51:45.363Z
+date: 2024-11-25T19:26:23.959Z
+updated: 2024-11-27T18:15:23.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,11 +144,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210797597-9788411482950-arcana-mundi/"><u>Arcana Mundi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210796592-9780008603632-black-women-always-conversations-on-life-culture-and-creativity/"><u>Black Women Always: Conversations on life, culture and creativity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210798895-9781954641259-quiet-voice-awesome-power/"><u>Quiet Voice, Awesome Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210795740-9781507221556-the-modern-witchcraft-introductory-boxed-set/"><u>The Modern Witchcraft Introductory Boxed Set | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210798957-9798886442168-the-spiritual-self-assessment-interview/"><u>The Spiritual Self Assessment Interview | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210798960-9798886447132-when-life-throws-you-lemons/"><u>When Life Throws you Lemons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663609-9781583943526-feng-shui-made-easy-revised-edition/"><u>Feng Shui Made Easy, Revised Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664207-9781583942888-psychic-psychology/"><u>Psychic Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663607-9781583943311-soul-shift/"><u>Soul Shift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664203-9781583942826-the-aaronquo-dialogues/"><u>The Aaron/Q'uo Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664208-9781583942895-the-eight-crystal-alliances/"><u>The Eight Crystal Alliances | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663582-9781583943441-the-four-global-truths/"><u>The Four Global Truths | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

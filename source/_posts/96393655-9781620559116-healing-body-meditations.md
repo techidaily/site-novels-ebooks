@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2024-11-16T01:00:34.662Z
-updated: 2024-11-17T20:17:41.605Z
+date: 2024-11-25T21:13:51.474Z
+updated: 2024-11-27T22:44:20.446Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -173,14 +173,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211066410-9789359043494-from-india-to-the-planet-mars/"><u>From India To The Planet Mars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066425-9789359043555-ghosts-in-solid-form/"><u>Ghosts in Solid Form | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066472-9789359043272-magic-and-mystery-a-popular-history/"><u>Magic And Mystery A Popular History | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066407-9789359043210-other-tongues-other-flesh/"><u>Other Tongues, Other Flesh | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066455-9789359043517-the-candle-of-vision/"><u>The Candle of Vision | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066411-9789359043838-the-human-atmosphere/"><u>The Human Atmosphere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066466-9788119007295-the-law-and-other-essays-on-manifestation/"><u>The Law and Other Essays on Manifestation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066413-9789359043593-the-planet-mars-and-its-inhabitants/"><u>The Planet Mars And Its Inhabitants | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066438-9789359043715-wisdom-of-the-ages-revelations-from-zertoulem-the-prophet-of-tlaskanata/"><u>Wisdom of The Ages Revelations From Zertoulem The Prophet of Tlaskanata | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95827921-9781547508471-assim-acima-como-abaixo-a-minha-vida-como-um-adepto-uma-autobiografia-por-seila-orienta/"><u>Assim Acima, Como Abaixo. A Minha Vida Como Um Adepto. Uma Autobiografia por Seila Orienta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828505-9781608684946-big-love/"><u>Big Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95829048-9781547500482-der-traumzustand-eine-verschworungstheorie/"><u>Der Traumzustand - Eine Verschwörungstheorie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828523-9781681652924-el-despertar-de-la-conciencia/"><u>El despertar de la conciencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828176-9781547507542-el-primer-arcano-menor/"><u>El Primer Arcano Menor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95824000-9780892546671-geomancy/"><u>Geomancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95829402-9781944529185-man-plant-communcation/"><u>Man-Plant Communcation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828927-9780980502244-moonbeams-of-mahamudra/"><u>Moonbeams of Mahamudra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95825155-9780007484096-the-dream-dictionary-from-a-to-z-revised-edition/"><u>The Dream Dictionary from A to Z [Revised edition] | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

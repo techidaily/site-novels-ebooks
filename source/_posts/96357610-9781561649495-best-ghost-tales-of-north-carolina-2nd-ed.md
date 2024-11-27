@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina (2nd ed.) | Free Book
-date: 2024-11-10T20:31:39.791Z
-updated: 2024-11-17T17:44:02.764Z
+date: 2024-11-23T21:30:41.465Z
+updated: 2024-11-27T19:57:26.824Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951cc0ca1ce8cce45e75434e981ae3e320eec.jpg
@@ -156,14 +156,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211191287-9781782509219-carmina-gadelica/"><u>Carmina Gadelica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211190601-9798891301313-finding-my-joy/"><u>Finding My Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211189217-9781439678985-ghosts-and-legends-of-lafayette-and-louisville/"><u>Ghosts and Legends of Lafayette and Louisville | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211189850-9798886740103-reading-tarot/"><u>Reading Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211189849-9798886740080-reading-tea-leaves/"><u>Reading Tea Leaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211191339-9781454953852-social-media-spellbook/"><u>Social Media Spellbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211190891-9780811749688-the-big-book-of-new-jersey-ghost-stories/"><u>The Big Book of New Jersey Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211191529-9789948777625-transformative-wellness/"><u>Transformative Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211189274-9781800653535-walking-with-the-seasons/"><u>Walking with the Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96237050-9781785357305-365-blessings-to-heal-myself-and-the-world/"><u>365 Blessings to Heal Myself and the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96237054-9781785357770-a-walk-on-the-wild-side/"><u>A Walk On The Wild Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96225069-9782824648996-experiences-de-lapres-vie/"><u>Expériences de l'après-vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96237052-9781785357367-reiki-insights/"><u>Reiki Insights | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

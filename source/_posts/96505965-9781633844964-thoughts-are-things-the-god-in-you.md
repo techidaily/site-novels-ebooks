@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-11-14T22:18:18.432Z
-updated: 2024-11-17T16:11:06.896Z
+date: 2024-11-26T17:23:54.559Z
+updated: 2024-11-27T19:46:59.601Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,9 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761791-9781604073294-meditation-for-the-love-of-it/"><u>Meditation for the Love of It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761786-9781683648628-opening-to-darkness/"><u>Opening to Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761795-9781591798590-the-mystery-of-2012/"><u>The Mystery of 2012 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761790-9781649631381-the-three-conditions/"><u>The Three Conditions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/449506-9781776510412-fantasia-of-the-unconscious/"><u>Fantasia of the Unconscious | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/448099-9780307569899-out-of-darkness-into-the-light/"><u>Out of Darkness into the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/448203-9780307569479-the-edgar-cayce-primer/"><u>The Edgar Cayce Primer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/448144-9780307420688-the-greatest-secret-in-the-world/"><u>The Greatest Secret in the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/449517-9781776510368-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

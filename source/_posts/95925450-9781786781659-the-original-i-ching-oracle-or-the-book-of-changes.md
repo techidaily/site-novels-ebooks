@@ -1,7 +1,7 @@
 ---
 title: The Original I Ching Oracle or The Book of Changes | Free Book
-date: 2024-10-26T05:36:23.938Z
-updated: 2024-10-26T23:00:59.620Z
+date: 2024-11-24T23:07:20.133Z
+updated: 2024-11-27T21:49:48.679Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfb07dfc6d3ab19291a3959f7766591e93bdc2105de72ff4ef40e09ae361f9e2.jpg
@@ -166,3 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfb07dfc6d3ab19291a3959f7766591
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2262156-9781501120220-abrete-a-lo-inesperado-outrageous-openness-spanish-edition/"><u>Ábrete a lo inesperado (Outrageous Openness Spanish Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2260834-9781623170462-mushroom-essences/"><u>Mushroom Essences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2260799-9780804179980-quantum-healing-revised-and-updated/"><u>Quantum Healing (Revised and Updated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2262112-9781501135545-the-37th-parallel/"><u>The 37th Parallel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2262148-9781501123542-the-e-word/"><u>The E-Word | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

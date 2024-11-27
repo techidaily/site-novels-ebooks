@@ -1,7 +1,7 @@
 ---
 title: In Case of Spiritual Emergency | Free Book
-date: 2024-10-22T00:59:43.558Z
-updated: 2024-10-26T20:13:03.374Z
+date: 2024-11-26T17:59:51.768Z
+updated: 2024-11-27T19:22:10.658Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51b0cca2ace52b17dc7ec5faf7d5daa1445ccf78dde37aad4c34c8b7d6dba3f8.jpg
@@ -163,3 +163,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51b0cca2ace52b17dc7ec5faf7d5daa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211472629-9781637776421-born-again-to-serve-with-love/"><u>Born Again to Serve with Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472569-9798330454860-el-exilio/"><u>El Exilio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211473257--flamingo-estate-the-guide-to-becoming-alive/"><u>Flamingo Estate: The Guide to Becoming Alive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472963-9781964959139-melchizedek-frequencies/"><u>Melchizedek Frequencies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472925-9798893305401-recovery-happens-through-christ-my-story-of-abuse-alcoholism-and-adultery/"><u>Recovery Happens Through Christ (My Story of Abuse, Alcoholism, and Adultery) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472921-9798330457786-shadows-of-a-secret/"><u>Shadows of a Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472983-9781397665225-the-flying-saucers-are-real/"><u>The Flying Saucers Are Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472977-9781951879198-the-spiritual-design-wave-4/"><u>The Spiritual Design Wave 4 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

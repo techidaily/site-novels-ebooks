@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2024-11-16T16:14:45.591Z
-updated: 2024-11-18T00:46:22.675Z
+date: 2024-11-20T16:20:49.649Z
+updated: 2024-11-27T22:23:12.713Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,12 +142,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210768067-9781646998777-el-extraordinario-mundo-de-lo-paranormal/"><u>El extraordinario mundo de lo paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768068-9781646998425-el-gran-libro-del-pranayama/"><u>El gran libro del Pranayama | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768070-9781646998432-el-gran-libro-del-qi-gong/"><u>El gran libro del Qi Gong | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768062-9781646998739-el-poder-magico-de-las-velas/"><u>El poder mágico de las velas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768112-9781646999002-el-sendero-del-druida/"><u>El sendero del Druida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768063-9781646998685-interpretar-el-tarot/"><u>Interpretar el tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768065-9781646998388-la-kundalini/"><u>La Kundalini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/539728-9781101434581-chords-of-strength/"><u>Chords of Strength | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/540207-9781101433034-faith-and-will/"><u>Faith and Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/539693-9781101188309-i-am-the-word/"><u>I Am the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/539818--meditation/"><u>Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/539576-9780446575959-the-twelfth-insight/"><u>The Twelfth Insight | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

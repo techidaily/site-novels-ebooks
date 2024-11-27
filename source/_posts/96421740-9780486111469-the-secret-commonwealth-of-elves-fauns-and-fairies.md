@@ -1,7 +1,7 @@
 ---
 title: The Secret Commonwealth of Elves, Fauns and Fairies | Free Book
-date: 2024-11-15T19:20:39.406Z
-updated: 2024-11-17T17:16:36.473Z
+date: 2024-11-25T17:25:47.241Z
+updated: 2024-11-27T20:23:42.732Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98003b2b3dc248ebba8af5ed8092e4b1dc0.jpg
@@ -168,14 +168,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211015377-9781633413368-bradys-book-of-fixed-stars/"><u>Brady's Book of Fixed Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015378-9781633413375-keywords-for-astrology/"><u>Keywords for Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015371-9781612834894-nothing-can-stop-you/"><u>Nothing Can Stop You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015374-9781612834917-secrets-of-greek-mysticism/"><u>Secrets of Greek Mysticism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015370-9781612834955-tarot/"><u>Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015379-9781633413269-the-way-of-the-will/"><u>The Way of the Will | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015376-9781612834948-totem-animals/"><u>Totem Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015380-9781633413399-upside-down-tarot/"><u>Upside Down Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015381-9781633413276-year-of-the-dark-goddess/"><u>Year of the Dark Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783119-9781620552070-el-calendario-maya-y-la-transformacion-de-la-consciencia/"><u>El Calendario Maya y la Transformación de la Consciencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783123-9781620552117-el-dominio-de-la-conciencia/"><u>El Dominio de la Conciencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783116-9781620552100-el-mundo-es-como-uno-lo-suena/"><u>El mundo es como uno lo sueña | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783126-9781620555408-las-frecuencias-de-los-chakras/"><u>Las frecuencias de los chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783124-9781594776694-las-practicas-sexuales-del-quodoushka/"><u>Las prácticas sexuales del Quodoushka | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

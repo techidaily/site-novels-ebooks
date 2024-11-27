@@ -1,7 +1,7 @@
 ---
 title: Weave the Heart of the Universe into Your Life | Free Book
-date: 2024-10-22T22:09:29.736Z
-updated: 2024-10-26T18:19:08.655Z
+date: 2024-11-24T22:56:04.156Z
+updated: 2024-11-27T21:15:14.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/57e3df5bdf1fe719e2b57a474224287e42572eb764889d3c522ca34c61aabbb6.jpg
@@ -166,3 +166,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/57e3df5bdf1fe719e2b57a474224287
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211383076-9781957811109-davidji/"><u>Davidji | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383088-9781957811918-discourses-volume-1-2013-2014/"><u>Discourses Volume 1, 2013-2014 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383052-9781957811994-discourses-volume-2-2015/"><u>Discourses Volume 2, 2015 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383077-9781957811024-discourses-volume-3-2016/"><u>Discourses Volume 3, 2016 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383053-9781957811062-discourses-volume-5-2018/"><u>Discourses Volume 5, 2018 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383051-9781957811086-discourses-volume-6-2019/"><u>Discourses Volume 6, 2019 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383101-9781957811147-notes-to-sadhakas/"><u>Notes to Sadhakas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383113-9798330221707-steigende-schlange/"><u>Steigende Schlange | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

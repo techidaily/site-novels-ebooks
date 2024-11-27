@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-11-10T16:58:47.268Z
-updated: 2024-11-17T17:24:02.494Z
+date: 2024-11-20T20:26:37.646Z
+updated: 2024-11-27T19:15:08.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,14 +192,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210884477-9781646042777-herbal-tea-magic-for-the-modern-witch/"><u>Herbal Tea Magic for the Modern Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210885704-9781088129463-shawana-a-memoir/"><u>Shawana, A Memoir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210884541-9781612437712-the-healing-power-of-smudging/"><u>The Healing Power of Smudging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210884593-9781646043446-the-healing-power-of-the-pineal-gland/"><u>The Healing Power of the Pineal Gland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210884577-9781646042210-the-little-book-of-rootwork/"><u>The Little Book of Rootwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210883116-9780834845305-the-luminous-self/"><u>The Luminous Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210883306-9781837831593-the-lunar-year/"><u>The Lunar Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210884475-9781646043255-the-modern-art-of-brujeria/"><u>The Modern Art of Brujería | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210884600-9781646043231-the-reality-shifting-handbook/"><u>The Reality Shifting Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689788-9781440536496-love-astrology-aquarius/"><u>Love Astrology: Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689790-9781440536472-love-astrology-capricorn/"><u>Love Astrology: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689795-9781440536410-love-astrology-libra/"><u>Love Astrology: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689785-9781440536519-love-astrology-pisces/"><u>Love Astrology: Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689791-9781440536458-love-astrology-sagittarius/"><u>Love Astrology: Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689793-9781440536434-love-astrology-scorpio/"><u>Love Astrology: Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689796-9781440536397-love-astrology-virgo/"><u>Love Astrology: Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95692545-9781409167440-mindful-parenting/"><u>Mindful Parenting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95692417-9781101993446-the-cosmic-power-within-you/"><u>The Cosmic Power Within You | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

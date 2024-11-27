@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2024-11-15T20:22:53.960Z
-updated: 2024-11-18T02:57:13.358Z
+date: 2024-11-24T20:01:23.383Z
+updated: 2024-11-27T21:59:54.470Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,9 +181,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210751208-9798987551219-a-secret-gathering/"><u>A Secret Gathering | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210751128-9781684988426-diversionary/"><u>Diversionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210751388-9781638447504-more-tales-of-tails/"><u>More Tales Of Tails | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210751235-9780991510276-the-connoisseur-of-time-an-invitation-to-presence/"><u>The Connoisseur of Time: An Invitation to Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339947-9780743253710-astrostyle/"><u>Astrostyle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339707-9780307414755-christmas-conversation-piece/"><u>Christmas Conversation Piece | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/334057--dearly-departed/"><u>Dearly Departed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339630-9780307415202-everyday-karma/"><u>Everyday Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339623-9780307415417-have-you-ever/"><u>Have You Ever... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339612-9780307415615-if-volume-1/"><u>If..., Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339615-9780307415646-if-volume-4/"><u>If..., Volume 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339580-9780307415707-intuitive-astrology/"><u>Intuitive Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339906-9781416568032-the-circles/"><u>The Circles | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

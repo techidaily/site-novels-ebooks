@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry for Artists, Dreamers, and Philosophers | Free Book
-date: 2024-10-21T04:20:11.482Z
-updated: 2024-10-26T21:52:02.396Z
+date: 2024-11-23T17:04:33.332Z
+updated: 2024-11-27T23:22:38.861Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aedbe27e147a75b560803579a593c2d0e6c61dd19093619f46cda7f2b6a60f3e.jpg
@@ -192,3 +192,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aedbe27e147a75b560803579a593c2d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2581654-9780008205386-aquarius-2017-your-personal-horoscope/"><u>Aquarius 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581653-9780008205379-capricorn-2017-your-personal-horoscope/"><u>Capricorn 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581656-9780008205416-the-ox-in-2017-your-chinese-horoscope/"><u>The Ox in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581655-9780008205409-the-rat-in-2017-your-chinese-horoscope/"><u>The Rat in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581657-9780008205423-the-tiger-in-2017-your-chinese-horoscope/"><u>The Tiger in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

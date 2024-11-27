@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2024-11-16T00:26:40.562Z
-updated: 2024-11-17T16:14:25.147Z
+date: 2024-11-26T22:49:58.191Z
+updated: 2024-11-27T18:51:27.845Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,13 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210966398-9781088235881-el-derecho-de-ser-feliz/"><u>El Derecho de Ser Feliz | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966387-9781088236185-el-retorno/"><u>El Retorno | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966361-9781088236666-fuerza-para-recomenzar/"><u>Fuerza para Recomenzar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966359-9781088236826-la-certeza-de-la-victoria/"><u>La Certeza de la Victoria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966360-9781088232675-los-luciferianos/"><u>Los Luciferianos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966399-9781805411161-magical-thoughts-and-reflections/"><u>Magical Thoughts and Reflections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966362-9781088233108-narrativas-ocultas/"><u>Narrativas Ocultas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966388-9781088125724-second-chance/"><u>Second Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782494-9781591439301-alchemical-healing/"><u>Alchemical Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782490-9781591439127-divine-encounters/"><u>Divine Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782488-9781591437659-dna-of-the-gods/"><u>DNA of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782489-9781591438441-don-juan-and-the-art-of-sexual-energy/"><u>Don Juan and the Art of Sexual Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782497-9781591432142-sacred-plant-initiations/"><u>Sacred Plant Initiations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782493-9781591437925-sacred-retreat/"><u>Sacred Retreat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782496-9781591439141-the-cosmic-code-book-vi/"><u>The Cosmic Code (Book VI) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782495-9781591439417-wisdom-of-the-plant-devas/"><u>Wisdom of the Plant Devas | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Nepalese Shamanic Path | Free Book
-date: 2024-10-24T23:30:08.466Z
-updated: 2024-10-26T19:49:57.443Z
+date: 2024-11-22T21:57:43.777Z
+updated: 2024-11-27T16:36:26.868Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0acb1401e28729e1cb6f4fdf74845fba2496dfe3b8646b63f3327e604c7c0f71.jpg
@@ -205,3 +205,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0acb1401e28729e1cb6f4fdf74845fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211316847-9781923009530-an-a-z-of-animal-symbolism/"><u>An A-Z of Animal Symbolism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316721-9781611250527-ayahuasca-rituals-potions-and-visionary-art-from-the-amazon/"><u>Ayahuasca: Rituals, Potions and Visionary Art from the Amazon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211317028-9798869311986-celestial-cannabis/"><u>Celestial Cannabis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316703-9781611250329-living-beyond-the-five-senses/"><u>Living Beyond the Five Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211317486-9781777911584-manifestation/"><u>Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316694-9781611250503-the-god-molecule/"><u>The God Molecule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316704-9781611250282-the-power-of-i-am/"><u>The Power Of I Am | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316711-9781611250473-the-toad-of-dawn/"><u>The Toad of Dawn | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

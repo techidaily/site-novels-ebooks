@@ -1,7 +1,7 @@
 ---
 title: The Witch's Book of Self-Care | Free Book
-date: 2024-10-21T16:47:27.892Z
-updated: 2024-10-26T18:10:06.179Z
+date: 2024-11-22T21:06:02.358Z
+updated: 2024-11-27T16:51:19.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845d1189e92d94dd3cc4f8c581dc5b4832d37b81859fe8985ae3eedab435fce9.jpg
@@ -176,3 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845d1189e92d94dd3cc4f8c581dc5b4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211246154-9781916812192-atoms-of-delight/"><u>Atoms of Delight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246363-9798869214607-codigo-rojo/"><u>Codigo Rojo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246319-9798989581719-fortunes-inkwell/"><u>Fortune's Inkwell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246135-9798891300736-her-assignment-my-identity-our-curse/"><u>Her Assignment, My Identity, Our Curse, | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246255-9798987577844-opening-the-door-to-enlightenment/"><u>Opening the Door to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246089-9781739089818-silent/"><u>Silent | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

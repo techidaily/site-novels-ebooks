@@ -1,7 +1,7 @@
 ---
 title: Military Encounters with Extraterrestrials | Free Book
-date: 2024-10-25T22:10:09.177Z
-updated: 2024-10-26T23:40:12.076Z
+date: 2024-11-20T16:48:52.592Z
+updated: 2024-11-27T22:32:41.992Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6916b764ec0abfedf1e3a14459c01bdbdf9b60d701d7dd186b2351c58f6209d1.jpg
@@ -187,3 +187,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6916b764ec0abfedf1e3a14459c01bd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211372514-9781923009257-crystal-grids/"><u>Crystal Grids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372561-9781925429725-monsters-and-creatures/"><u>Monsters and Creatures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372512-9781923009233-oracle-card-companion/"><u>Oracle Card Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372513-9781923009240-psychic/"><u>Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372519-9781925017205-spellbound/"><u>Spellbound | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

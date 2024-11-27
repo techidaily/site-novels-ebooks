@@ -1,7 +1,7 @@
 ---
 title: The Six Archetypes of Love | Free Book
-date: 2024-10-19T21:12:50.403Z
-updated: 2024-10-27T02:30:53.870Z
+date: 2024-11-21T16:23:34.401Z
+updated: 2024-11-27T17:18:21.370Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da50de09bd697e244998b525996e47e3432fa1aacf3db7bf10982b841beb05e7.jpg
@@ -143,3 +143,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da50de09bd697e244998b525996e47e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211439120--a-tea-witchs-crystal-brews/"><u>A Tea Witch’s Crystal Brews | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439119--celtic-hedge-witcherya-modern-approach/"><u>Celtic Hedge Witchery—A Modern Approach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439121--entering-hekates-cauldron/"><u>Entering Hekate's Cauldron | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439115--feral-magick/"><u>Feral Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439116--goblinproofing-ones-chicken-coop/"><u>Goblinproofing One's Chicken Coop | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439123--the-poisoned-arrow/"><u>The Poisoned Arrow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439118--this-is-chaos-embracing-the-future-of-magic/"><u>This Is Chaos: Embracing the Future of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439117--witch-blood-rising/"><u>Witch Blood Rising | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

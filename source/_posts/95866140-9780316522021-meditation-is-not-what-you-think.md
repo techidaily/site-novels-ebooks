@@ -1,7 +1,7 @@
 ---
 title: Meditation Is Not What You Think | Free Book
-date: 2024-10-23T20:22:01.311Z
-updated: 2024-10-27T04:00:49.641Z
+date: 2024-11-20T17:20:33.448Z
+updated: 2024-11-27T17:57:47.070Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1050039f48aede2c326522598d9de2cb1c9bd69c80daf0098ba6b2377890a706.jpg
@@ -184,3 +184,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1050039f48aede2c326522598d9de2c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2608950-9780553419627-surviving-death/"><u>Surviving Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2609950-9781856753685-the-little-book-of-inner-peace/"><u>The Little Book of Inner Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260942-9781101210147-visits-from-the-afterlife/"><u>Visits from the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260946-9781101204214-walking-in-the-garden-of-souls/"><u>Walking in the Garden of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260957-9781101203163-whats-missing/"><u>What's Missing? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

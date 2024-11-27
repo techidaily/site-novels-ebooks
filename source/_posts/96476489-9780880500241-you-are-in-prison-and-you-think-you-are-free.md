@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-11-11T16:49:41.674Z
-updated: 2024-11-17T17:09:31.711Z
+date: 2024-11-25T19:26:39.080Z
+updated: 2024-11-27T21:55:23.740Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,13 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210934975-9781782492795-44-ways-to-talk-to-your-angel/"><u>44 Ways to Talk to Your Angel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934981-9781782499183-crystal-reiki-healing/"><u>Crystal Reiki Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934978-9781782499060-empower-your-life-with-sophrology/"><u>Empower Your Life with Sophrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934932-9781782497820-mindfulness-and-grief/"><u>Mindfulness and Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934982-9781782499091-spells-for-peace-of-mind/"><u>Spells for Peace of Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934931-9781908862396-the-crystal-healer/"><u>The Crystal Healer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934901-9781782497806-the-green-wiccan-magical-spell-book/"><u>The Green Wiccan Magical Spell Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934946-9781788793353-understanding-tarot-discover-the-tarot-and-find-out-what-your-cards-really-mean/"><u>Understanding Tarot: Discover the tarot and find out what your cards really mean | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782324-9781591438359-gobekli-tepe-genesis-of-the-gods/"><u>Gobekli Tepe: Genesis of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782323-9781591438526-gods-of-eden/"><u>Gods of Eden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782325-9781591439585-gods-of-the-runes/"><u>Gods of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782319-9781591438052-mysteries-of-the-ancient-past/"><u>Mysteries of the Ancient Past | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782327-9781591438472-power-animal-meditations/"><u>Power Animal Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782326-9781591438670-prayers-and-meditations-of-the-quero-apache/"><u>Prayers and Meditations of the Quero Apache | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782329-9781591437543-the-mysterious-origins-of-hybrid-man/"><u>The Mysterious Origins of Hybrid Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782322-9781591438731-time-and-the-technosphere/"><u>Time and the Technosphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782320-9781591439394-visionary-shamanism/"><u>Visionary Shamanism | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

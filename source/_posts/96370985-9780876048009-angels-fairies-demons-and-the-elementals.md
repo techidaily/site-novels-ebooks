@@ -1,7 +1,7 @@
 ---
 title: Angels, Fairies, Demons, and the Elementals | Free Book
-date: 2024-11-11T00:15:27.108Z
-updated: 2024-11-17T18:58:28.429Z
+date: 2024-11-25T20:31:00.248Z
+updated: 2024-11-27T16:16:07.061Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19f35aee6960aca7159b3a586aa0394fe0e268b21b711c43d0b96de0f8187fc9.jpg
@@ -136,13 +136,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19f35aee6960aca7159b3a586aa0394
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211165210-9798989500406-aliens-are-with-us/"><u>Aliens Are With Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165184-9781736821831-awakened-soul/"><u>Awakened Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165059-9798869027603-bajo-el-cielo-de-bagdad/"><u>Bajo el Cielo de Bagdad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165224-9781961959002-karmic-astrology/"><u>Karmic Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165231-9798868931642-packing-up/"><u>Packing Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165134-9798869029386-the-reincarnation-of-a-queen/"><u>The Reincarnation of a Queen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211164124-9780762487509-the-wheel-of-the-year/"><u>The Wheel of the Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211164059-9781837821303-the-wild-wool-shepherdess/"><u>The Wild Wool Shepherdess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164925-9781620557181-introduction-to-magic-volume-ii/"><u>Introduction to Magic, Volume II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164927-9781620557754-nightside-of-the-runes/"><u>Nightside of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164928-9781591433279-soul-dog/"><u>Soul Dog | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164930-9781591433026-the-egyptian-origins-of-king-david-and-the-temple-of-solomon/"><u>The Egyptian Origins of King David and the Temple of Solomon | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

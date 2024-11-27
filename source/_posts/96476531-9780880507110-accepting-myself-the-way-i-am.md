@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2024-11-11T01:38:20.741Z
-updated: 2024-11-17T17:00:13.935Z
+date: 2024-11-26T21:25:01.104Z
+updated: 2024-11-27T18:54:32.664Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,13 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210926296-9781903353684-astrological-time/"><u>Astrological Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926291-9781903353714-humour-in-the-horoscope/"><u>Humour in the Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926287-9781903353578-planetary-cycles-cinema-trends/"><u>Planetary Cycles & Cinema Trends | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926292-9781903353592-pluto-in-libra-and-scorpio/"><u>Pluto in Libra and Scorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926295-9781903353486-the-astrology-quartet/"><u>The Astrology Quartet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926288-9781903353615-the-planets-and-awakening/"><u>The Planets and Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926294-9781903353585-the-visual-journey-of-venus/"><u>The Visual Journey of Venus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926290-9781903353370-vocation/"><u>Vocation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95760760-9782268091297-astrologie-initiatique-et-pratique/"><u>Astrologie initiatique et pratique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758874-9781501156373-conversations-with-mary/"><u>Conversations with Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95761104-9781612833798-fortune-telling-by-tarot-cards/"><u>Fortune Telling by Tarot Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95760751-9782268091372-le-retour-disrael-et-lesperance-du-monde/"><u>Le Retour d'Israël et l'Espérance du Monde | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95761108-9780892546398-the-8th-seal-its-time-is-now/"><u>The 8th Seal-Its Time is Now! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95759284-9781515415992-the-golden-bough/"><u>The Golden Bough | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758809-9781501165481-transparency/"><u>Transparency | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

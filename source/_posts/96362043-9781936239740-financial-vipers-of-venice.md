@@ -1,7 +1,7 @@
 ---
 title: Financial Vipers of Venice | Free Book
-date: 2024-11-15T18:37:34.877Z
-updated: 2024-11-18T02:54:32.028Z
+date: 2024-11-24T21:08:43.643Z
+updated: 2024-11-27T19:06:05.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf70277606d3f7799e20c490b0b531163059.jpg
@@ -137,14 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211206264-9781684814879-crones-dont-whine/"><u>Crones Don't Whine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211206327-9798887938639-gods-universal-foundation/"><u>God's Universal Foundation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211207003-9780062087133-im-not-dead-im-different/"><u>I'm Not Dead, I'm Different | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211204321--its-all-magic/"><u>It's All Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211203718-9791028528652-lamour-une-aventure-spirituelle/"><u>L'Amour, une aventure spirituelle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211203716-9782017230021-le-guide-moderne-des-mudras/"><u>Le guide moderne des Mudras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211207447-9780062656162-sister-of-darkness/"><u>Sister of Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211202983-9780762487387-the-little-encyclopedia-of-fairies/"><u>The Little Encyclopedia of Fairies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211203575-9781493083992-yellowstone-ghost-stories/"><u>Yellowstone Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261033-9781788172707-chakras-made-easy/"><u>Chakras Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261034-9781788172721-energy-healing-made-easy/"><u>Energy Healing Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96291666-9781401956578-grow-a-new-body/"><u>Grow a New Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261032-9781788172677-reiki-made-easy/"><u>Reiki Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261224-9781493034666-spooky-oregon-2nd-ed/"><u>Spooky Oregon (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261035-9781788172752-tarot-made-easy/"><u>Tarot Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96272949-9781547531349-tu-otro-cuerpo/"><u>Tu otro Cuerpo | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2024-11-11T20:12:33.594Z
-updated: 2024-11-18T03:15:54.626Z
+date: 2024-11-22T17:53:15.177Z
+updated: 2024-11-27T19:57:36.754Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,11 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210799795-9789357270663-a-golden-and-blessed-casket-of-natures-marvels/"><u>A Golden and Blessed Casket of Nature's Marvels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210799099-9798886543872-dear-molly/"><u>Dear Molly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210798986-9781953450357-relation-of-the-mineral-salts-of-the-body-to-the-signs-of-the-zodiac/"><u>Relation of the Mineral Salts of the Body to the Signs of the Zodiac | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210799023-9781647495138-the-keys-to-prosperity-manifestation/"><u>The Keys To Prosperity Manifestation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210799785-9789357274630-the-master-key/"><u>The Master Key | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210799828-9789356567801-the-power-of-concentration/"><u>The Power Of Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664325-9781846946837-aware-in-a-world-asleep/"><u>Aware In A World Asleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664326-9781846946844-benevolent-virus/"><u>Benevolent Virus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664328-9781846946868-every-little-thing-matters/"><u>Every Little Thing Matters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664331-9781846946899-seventy-thousand-veils-the-miracle-of/"><u>Seventy Thousand Veils: The Miracle Of | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664332-9781846946905-shadows-in-the-night-memoirs-of-a-ghost/"><u>Shadows In The Night: Memoirs Of A Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664333-9781846946912-shaman-in-disguise/"><u>Shaman in Disguise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664347-9781846946516-spirit-release/"><u>Spirit Release | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664335-9781846946936-three-dangerous-magi-osho-gurdjieff-cr/"><u>Three Dangerous Magi: Osho Gurdjieff Cr | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664275-9781429983747-worker-in-the-light/"><u>Worker in the Light | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

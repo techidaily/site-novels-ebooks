@@ -1,7 +1,7 @@
 ---
 title: Footprints on the Path (3rd ed.) | Free Book
-date: 2024-10-24T03:42:22.603Z
-updated: 2024-10-27T01:38:34.862Z
+date: 2024-11-21T19:48:54.174Z
+updated: 2024-11-27T22:05:18.987Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85382bd4434a8824b65a7e700981eb5cf44f73be480589d8f709c56d9e21f014.jpg
@@ -166,3 +166,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85382bd4434a8824b65a7e700981eb5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211445919-9781963036053-247-flow/"><u>24/7 Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445799-9798330371075-66-dias-para-cambiar-su-vida/"><u>66 días para cambiar su vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445689-9781839388477-antarctica-shocking-secrets/"><u>Antarctica: Shocking Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446013--be-like-the-wind/"><u>Be Like the Wind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445908-9798330364985-dreaming-big/"><u>Dreaming Big | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446009--pagan-portals-celtic-fairies-in-north-america/"><u>Pagan Portals - Celtic Fairies in North America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445602-9798330365647-sous-les-mains-de-la-misericorde/"><u>Sous les Mains de la Miséricorde | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446011--the-kriya-serpent-yogi/"><u>The Kriya Serpent Yogi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445693-9798330369416-the-mindful-parent/"><u>The Mindful Parent | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

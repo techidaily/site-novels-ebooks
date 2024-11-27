@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2024-11-11T02:17:59.322Z
-updated: 2024-11-17T16:41:54.619Z
+date: 2024-11-25T22:24:12.620Z
+updated: 2024-11-27T21:30:29.189Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,13 +184,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211099507-9781803413495-by-no-means-equal/"><u>By No Means Equal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211099496-9781615195367-in-tune/"><u>In Tune | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211099228-9781685269609-mary-dear-mary-whats-growing-in-your-garden/"><u>Mary, Dear Mary (What's Growing in Your Garden?) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211099466-9781615192595-mindfulness-is-better-than-chocolate/"><u>Mindfulness Is Better Than Chocolate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211099372-9798887315386-my-not-so-christian-walk-with-the-holy-spirit/"><u>My NOT-SO-CHRISTIAN Walk with The Holy Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211099513-9781785359347-pagan-portals-rounding-the-wheel-of-the-year/"><u>Pagan Portals - Rounding the Wheel of the Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211099512-9781803413105-the-10-principles-of-the-feminine/"><u>The 10 Principles of the Feminine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211099474-9781615192571-the-foundations-of-mindfulness/"><u>The Foundations of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95846967-9781507205303-find-your-goddess/"><u>Find Your Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95845201-9781439658239-haunted-bachelors-grove/"><u>Haunted Bachelors Grove | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842534-9781788286527-hauntings/"><u>Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95847344-9781507205792-my-pocket-mantras/"><u>My Pocket Mantras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842530-9781788284523-the-complete-book-of-dreams/"><u>The Complete Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842751-9781881098447-the-witches-almanac-issue-37-spring-2018-to-2019/"><u>The Witches' Almanac: Issue 37, Spring 2018 to 2019 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95847018-9781501176906-unmedicated/"><u>Unmedicated | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

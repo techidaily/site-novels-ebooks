@@ -1,7 +1,7 @@
 ---
 title: A Complete Book of Reiki Healing | Free Book
-date: 2024-11-11T17:52:12.704Z
-updated: 2024-11-18T02:58:53.247Z
+date: 2024-11-20T20:01:29.112Z
+updated: 2024-11-27T21:09:04.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b7d87f2f8a05264db45a314eb9ae845e59.jpg
@@ -138,11 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210851416-9781837990931-rituals-for-every-day/"><u>Rituals for Every Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851414-9781837990955-self-care-for-every-day/"><u>Self-Care for Every Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851424-9781800079786-spirituality-for-every-day/"><u>Spirituality for Every Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851417-9781800079632-the-little-book-for-crystal-lovers/"><u>The Little Book for Crystal Lovers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851420-9781800079052-the-little-book-of-witchcraft/"><u>The Little Book of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851423-9781800077850-the-little-book-of-zen/"><u>The Little Book of Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/863351-9780807010433-dreaming-the-dark/"><u>Dreaming the Dark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/861374-9781439121849-journey-to-ixtlan/"><u>Journey To Ixtlan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/860810-9781846949715-meditation-and-imagination/"><u>Meditation and Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/860812-9781846947186-numerology-made-easy/"><u>Numerology Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/860974-9781583945766-perdurabo-revised-and-expanded-edition/"><u>Perdurabo, Revised and Expanded Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/860814-9781846948206-something-to-bear-in-mind/"><u>Something to Bear in Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/861293-9781101578094-the-science-of-mind-collection/"><u>The Science of Mind Collection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/860815-9781846948060-traditional-witchcraft-for-urban-living/"><u>Traditional Witchcraft for Urban Living | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

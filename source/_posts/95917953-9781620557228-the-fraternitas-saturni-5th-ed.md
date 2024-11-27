@@ -1,7 +1,7 @@
 ---
 title: The Fraternitas Saturni (5th ed.) | Free Book
-date: 2024-10-26T03:46:59.253Z
-updated: 2024-10-26T23:59:25.465Z
+date: 2024-11-23T16:13:59.249Z
+updated: 2024-11-27T21:27:22.583Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a53b742fee441b2b14ba8b8a640b64e97430736ec755fd4db092fe74eecf6590.jpg
@@ -202,3 +202,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a53b742fee441b2b14ba8b8a640b64e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2581665-9780008205508-the-dog-in-2017-your-chinese-horoscope/"><u>The Dog in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581659-9780008205447-the-dragon-in-2017-your-chinese-horoscope/"><u>The Dragon in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581662-9780008205478-the-goat-in-2017-your-chinese-horoscope/"><u>The Goat in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581661-9780008205461-the-horse-in-2017-your-chinese-horoscope/"><u>The Horse in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581663-9780008205485-the-monkey-in-2017-your-chinese-horoscope/"><u>The Monkey in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581658-9780008205430-the-rabbit-in-2017-your-chinese-horoscope/"><u>The Rabbit in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581664-9780008205492-the-rooster-in-2017-your-chinese-horoscope/"><u>The Rooster in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581660-9780008205454-the-snake-in-2017-your-chinese-horoscope/"><u>The Snake in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

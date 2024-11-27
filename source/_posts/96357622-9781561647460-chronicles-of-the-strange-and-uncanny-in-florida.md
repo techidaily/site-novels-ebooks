@@ -1,7 +1,7 @@
 ---
 title: Chronicles of the Strange and Uncanny in Florida | Free Book
-date: 2024-11-15T01:43:25.489Z
-updated: 2024-11-18T02:02:39.560Z
+date: 2024-11-25T21:26:51.804Z
+updated: 2024-11-27T17:14:59.988Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce015e0475ce278eec2f74db690fa7d3ca82.jpg
@@ -138,11 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211191677-9789948040859-alayorfyda-balaarby-altb-alhndy/"><u>(الأيورفيدا بالعربي (الطب الهندي | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211191747-9781785359545-kitchen-witchcraft-the-element-of-water/"><u>Kitchen Witchcraft: The Element of Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211191754-9781803412948-our-eternal-existence/"><u>Our Eternal Existence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211192921-9780811742153-the-big-book-of-maryland-ghost-stories/"><u>The Big Book of Maryland Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211192922-9780811742160-the-big-book-of-virginia-ghost-stories/"><u>The Big Book of Virginia Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211191617-9781528961400-the-dragonheart-workbook/"><u>The Dragonheart Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96260999-9781788172684-astrology-made-easy/"><u>Astrology Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261007-9781788172783-connecting-with-the-fairies-made-easy/"><u>Connecting with the Fairies Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96260047-9780740787911-dream-it-dare-it-do-it/"><u>Dream It, Dare It, Do It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261000-9781788172738-feng-shui-made-easy/"><u>Feng Shui Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96237457-9781846014567-journey-into-mindfulness/"><u>Journey into Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96260778-9782268100234-la-maitrise-parfaite/"><u>La Maîtrise parfaite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261001-9781788172806-tantra-made-easy/"><u>Tantra Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96237056-9781785358050-the-fall-2nd-ed/"><u>The Fall (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96260998-9781788172257-witchery/"><u>Witchery | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

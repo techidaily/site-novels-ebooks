@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-11-14T16:43:53.607Z
-updated: 2024-11-17T16:07:08.322Z
+date: 2024-11-20T17:38:12.779Z
+updated: 2024-11-27T20:19:03.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,14 +264,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210835029-9781087951928-8-steps-from-freedom/"><u>8 Steps From Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210834466-9781088032497-astrologi-pada-kartu-tarot/"><u>Astrologi pada Kartu Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210833331-9798350500080-at-your-command/"><u>At Your Command | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210835005-9781761038761-chakras/"><u>Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210835457-9798888450413-goodbye-hello/"><u>Goodbye Hello | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210834493-9781959682981-issue-driven-life/"><u>Issue Driven Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210834482-9781733235730-phit-for-life/"><u>PHIT for LIFE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210834550-9783988313157-psychic-abilities-guide/"><u>PSYCHIC ABILITIES GUIDE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210833328-9798350500103-the-magic-story/"><u>The Magic Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769174-9781780990743-a-technique-for-meditation/"><u>A Technique for Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/762647-9781936296279-anatomyzing-divinity/"><u>Anatomyzing Divinity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769163-9781780990668-how-to-cheer-up-a-capricorn/"><u>How to Cheer Up a Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/764737-9781429964692-pictures-from-the-heart/"><u>Pictures from the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769169-9781780990729-practicing-a-course-in-miracles/"><u>Practicing a Course in Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769165-9781780990682-the-law-of-attraction/"><u>The Law of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769170-9781780990736-the-protein-myth/"><u>The Protein Myth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/767414-9781446491515-the-quest-of-the-overself/"><u>The Quest Of The Overself | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

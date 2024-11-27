@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2024-11-14T03:39:09.753Z
-updated: 2024-11-18T00:51:32.143Z
+date: 2024-11-21T18:41:53.411Z
+updated: 2024-11-27T22:42:50.204Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,11 +151,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211013581-9781644119181-astrology-of-the-shadow-self/"><u>Astrology of the Shadow Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013582-9781644119228-coma-and-near-death-experience/"><u>Coma and Near-Death Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013579-9781644118917-healing-wisdom-from-the-afterlife/"><u>Healing Wisdom from the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013584-9781644119419-lessons-from-the-afterlife/"><u>Lessons from the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013573-9781644117354-occult-germany/"><u>Occult Germany | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013578-9781644118634-the-occult-sylvia-plath/"><u>The Occult Sylvia Plath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783072-9781594777011-from-the-bodies-of-the-gods/"><u>From the Bodies of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783067-9781620553930-frontiers-of-psychedelic-consciousness/"><u>Frontiers of Psychedelic Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783074-9781594776281-sacred-mushroom-of-visions-teonanacatl/"><u>Sacred Mushroom of Visions: Teonanácatl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783076-9781594778889-the-acid-diaries/"><u>The Acid Diaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783069-9781594779503-the-basic-code-of-the-universe/"><u>The Basic Code of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783068-9781594778759-the-biology-of-transcendence-2nd-ed/"><u>The Biology of Transcendence (2nd ed.) | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2024-11-10T21:35:37.495Z
-updated: 2024-11-17T23:35:41.846Z
+date: 2024-11-23T21:51:45.275Z
+updated: 2024-11-27T23:08:03.886Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,12 +158,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762111-9781787838574-calm-af/"><u>Calm AF | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762115-9781787839144-lifes-a-journey-not-a-destination/"><u>Life's a Journey, Not a Destination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762091-9781800073531-the-art-of-simple-living/"><u>The Art of Simple Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762067-9781800073265-the-secret-to-happiness/"><u>The Secret to Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762104-9781800072541-the-secrets-of-fortune-telling/"><u>The Secrets of Fortune Telling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762109-9781800072572-the-secrets-of-spiritual-healing/"><u>The Secrets of Spiritual Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762075-9781800073296-you-can-totally-do-this/"><u>You Can Totally Do This | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475339-9781458711304-breathe-you-are-alive/"><u>Breathe, You Are Alive! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475333-9781458711441-happiness/"><u>Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/472965-9781101173824-magic-power-of-white-witchcraft/"><u>Magic Power of White Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/472974-9781101173831-secrets-of-the-i-ching/"><u>Secrets of the I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/473389-9781101173640-the-amazing-laws-of-cosmic-mind-power/"><u>The Amazing Laws of Cosmic Mind Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/471698-9781402228612-the-ghost-chronicles/"><u>The Ghost Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475330-9781458711311-the-world-we-have/"><u>The World We Have | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

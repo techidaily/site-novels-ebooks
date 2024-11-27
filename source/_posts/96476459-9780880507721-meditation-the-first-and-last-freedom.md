@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2024-11-13T21:03:28.749Z
-updated: 2024-11-18T01:30:25.791Z
+date: 2024-11-25T18:20:55.733Z
+updated: 2024-11-27T21:31:00.895Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,10 +175,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932933-9781855844667-concerning-the-affinity-of-the-living-and-the-dead/"><u>Concerning The Affinity of The Living And The Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932934-9781855843103-manifestations-of-karma/"><u>Manifestations of Karma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932938-9781912992133-nature-spirits-and-what-they-say/"><u>Nature Spirits and What They Say | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932939-9781855842809-strengthening-the-will/"><u>Strengthening the Will | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932941-9781855844308-transforming-the-soul-volume-1/"><u>Transforming The Soul: Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782202-9781620553756-dictionary-of-ancient-magic-words-and-spells/"><u>Dictionary of Ancient Magic Words and Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782197-9781594779565-psychomagic/"><u>Psychomagic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782200-9781620551882-the-book-of-grimoires/"><u>The Book of Grimoires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782205-9781594778865-the-complete-i-ching-10th-anniversary-edition-2nd-ed/"><u>The Complete I Ching — 10th Anniversary Edition (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782198-9781620556009-the-complete-king-arthur/"><u>The Complete King Arthur | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

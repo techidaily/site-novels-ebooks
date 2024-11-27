@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-11-13T20:34:59.653Z
-updated: 2024-11-17T17:04:13.840Z
+date: 2024-11-22T16:06:44.219Z
+updated: 2024-11-27T18:24:26.235Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,11 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210711823-9781454942856-a-little-bit-of-lucid-dreaming/"><u>A Little Bit of Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711864-9781618373076-cosmopolitan-love-potions/"><u>Cosmopolitan Love Potions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210712315-9798986048345-lsd/"><u>LSD | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210712201-9781788179379-the-golden-future/"><u>The Golden Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711810-9781454936053-the-witchs-way/"><u>The Witch's Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210712314-9781640035256-when-your-mind-steals-your-souls-reward/"><u>When Your Mind Steals Your Soul's Reward | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647189-9780750959896-ghostly-cumbria/"><u>Ghostly Cumbria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647084-9780750951500-haunted-high-wycombe/"><u>Haunted High Wycombe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647613-9780750954389-haunted-plymouth/"><u>Haunted Plymouth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647085-9780750951517-haunted-st-albans/"><u>Haunted St Albans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647645-9780750956444-haunted-stirling/"><u>Haunted Stirling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647138-9780750952774-shadows-on-the-water/"><u>Shadows on the Water | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

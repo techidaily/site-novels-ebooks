@@ -1,7 +1,7 @@
 ---
 title: Flight into Freedom and Beyond (2nd ed.) | Free Book
-date: 2024-10-21T21:05:54.480Z
-updated: 2024-10-26T20:45:05.569Z
+date: 2024-11-22T17:27:50.443Z
+updated: 2024-11-27T18:58:09.146Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c6f6067497645765526134b008bc262f6050348b9e0e1bcecbc6f8eeb1d3553.jpg
@@ -148,3 +148,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c6f6067497645765526134b008bc26
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211455009-9781961959262-an-introduction-to-the-study-of-the-tarot/"><u>An Introduction to the Study of The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454958-9798218498870-listening-circles-seeding-life/"><u>Listening Circles, Seeding Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454815-9781528799331-magic-white-and-black-or-the-science-of-finate-and-infinate-life-containing-practical-hints-for-students-of-occultism/"><u>Magic, White and Black; Or, The Science of Finate and Infinate Life, Containing Practical Hints for Students of Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454987-9788412856378-matrice-je-zakladem-duse/"><u>Matrice je základem duše | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454959-9798218497255-the-trigger-warnings-of-caramelized-butterflies/"><u>the trigger warnings of caramelized butterflies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454860-9781685748937-therapeutic-tarot/"><u>Therapeutic TAROT | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

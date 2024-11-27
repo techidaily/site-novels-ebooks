@@ -1,7 +1,7 @@
 ---
 title: "MYSTERY-MAYHEM:CHRONICLE USA | Free Book"
-date: 2024-11-12T22:32:31.009Z
-updated: 2024-11-17T17:38:36.098Z
+date: 2024-11-25T22:16:53.272Z
+updated: 2024-11-27T16:25:46.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b629334482a128390c36ad4018a228f91e165a.jpg
@@ -134,11 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b6293
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932843-9781855844940-anthroposophic-medicine-for-all-the-family/"><u>Anthroposophic Medicine for all the Family | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932836-9781855843721-from-sunspots-to-strawberries/"><u>From Sunspots to Strawberries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932837-9781855844933-heart-thinking/"><u>Heart Thinking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932833-9781912230327-jerusalem/"><u>Jerusalem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932842-9781855843059-spiritual-ecology/"><u>Spiritual Ecology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932832-9781912230686-the-spiritual-foundations-of-beekeeping/"><u>The Spiritual Foundations of Beekeeping | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782150-9781594778797-the-brother-of-jesus-and-the-lost-teachings-of-christianity/"><u>The Brother of Jesus and the Lost Teachings of Christianity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782154-9781594775239-the-celestial-key-to-the-vedas/"><u>The Celestial Key to the Vedas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782151-9781620556610-the-cosmic-hologram/"><u>The Cosmic Hologram | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782149-9781594778896-the-cosmological-origins-of-myth-and-symbol/"><u>The Cosmological Origins of Myth and Symbol | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782144-9781620557327-the-intelligence-of-the-cosmos/"><u>The Intelligence of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782153-9781620556375-the-lost-art-of-resurrection-2nd-ed/"><u>The Lost Art of Resurrection (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782146-9781620550717-the-warrior-is-silent/"><u>The Warrior Is Silent | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

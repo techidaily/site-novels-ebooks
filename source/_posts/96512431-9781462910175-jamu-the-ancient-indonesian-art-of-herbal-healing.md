@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-11-16T21:32:54.697Z
-updated: 2024-11-18T02:41:44.777Z
+date: 2024-11-20T17:42:22.252Z
+updated: 2024-11-27T17:54:20.524Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,14 +175,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210748867-9782017186779-dialogue-avec-tes-guides/"><u>Dialogue avec tes guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748789-9781797211930-everyday-radiance/"><u>Everyday Radiance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210749196-9781841815428-find-your-power-manifest/"><u>Find Your Power: Manifest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210749194-9781841815374-find-your-power-numerology/"><u>Find Your Power: Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748313-9780990625995-in-the-garden-of-remembrance/"><u>In the Garden of Remembrance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748886-9782019469658-le-guide-complet-de-la-numerologie/"><u>Le guide complet de la numérologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748792-9781797218564-pocket-nature-series-sunset-seeking/"><u>Pocket Nature Series: Sunset Seeking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748123-9780593690291-shadow-work-journal-for-self-love/"><u>Shadow Work Journal for Self-Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748895-9782017186700-tarot-et-autres-arts-divinatoires/"><u>Tarot et autres arts divinatoires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/327456-9780316032797-after-the-fire/"><u>After the Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/328792-9780976397274-dancing-with-the-aardvark/"><u>Dancing with the Aardvark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/321725-9781416539780-discover-your-inner-wisdom/"><u>Discover Your Inner Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/320686-9780977055500-how-to-get-anything-you-want/"><u>How to Get Anything You Want | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/326240-9781416588061-miraculous-health/"><u>Miraculous Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/328774-9780973094909-the-art-of-living-in-your-green-zone/"><u>The Art of Living in Your Green Zone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/328768-9780973094930-the-art-of-loving-in-your-green-zone/"><u>The Art of Loving in Your Green Zone | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

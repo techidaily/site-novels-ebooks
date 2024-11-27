@@ -1,7 +1,7 @@
 ---
 title: The Elements of Spellcrafting | Free Book
-date: 2024-10-22T05:43:10.468Z
-updated: 2024-10-26T20:12:21.277Z
+date: 2024-11-20T16:50:50.739Z
+updated: 2024-11-27T17:44:13.323Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb56e2c769b6b1dfd5147ace0724e035506a050a1f6d0b04527d76f25098d58f.jpg
@@ -185,3 +185,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb56e2c769b6b1dfd5147ace0724e03
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211412797-9781778310621-escape-nightmares/"><u>Escape Nightmares | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211411758-9781910027622-ghosts-of-war/"><u>Ghosts of War | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412317-9782385640668-le-mini-guide-ultime-des-signes-et-synchronicites/"><u>Le Mini-guide ultime des signes et synchronicités | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211410366-9780875169545-the-art-of-radical-self-love/"><u>The Art of Radical Self-Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211411480-9781961757400-the-power-and-impact-of-courageous-changemakers/"><u>The Power and Impact of Courageous Changemakers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

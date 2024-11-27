@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2024-11-14T23:40:28.297Z
-updated: 2024-11-17T16:25:05.104Z
+date: 2024-11-20T17:54:44.416Z
+updated: 2024-11-27T20:03:03.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,12 +161,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211026079-9798886167740-count-time/"><u>Count Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030487-9781648483059-heal-your-past-to-manifest-your-future/"><u>Heal Your Past to Manifest Your Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030554-9782017229728-le-livre-compagnon-by-lulumineuse/"><u>Le livre-compagnon by Lulumineuse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211019420-9781837820528-sensual/"><u>Sensual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030822-9781734989885-the-essence-of-herbs/"><u>The Essence of Herbs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030553-9782017229742-toi-aussi-tu-as-un-don/"><u>Toi aussi tu as un don | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030876-9781088264089-witchcraft-therapy/"><u>Witchcraft Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95793115-9781101993750-fear-less/"><u>Fear Less | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95794192-9781493027972-spooky-new-england-2nd-ed/"><u>Spooky New England (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95794193-9781493027989-spooky-new-jersey-2nd-ed/"><u>Spooky New Jersey (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95792943-9781449470456-you-will-go-far/"><u>You Will Go Far | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95793949-9786171230545-rokovye-prorochestva-i-znaki-sudby-rokovye-prorochestva-i-znaki-sudby/"><u>Роковые пророчества и знаки судьбы (Rokovye prorochestva i znaki sud'by) | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

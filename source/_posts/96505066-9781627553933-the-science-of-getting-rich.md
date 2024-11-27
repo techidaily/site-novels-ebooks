@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-11-13T16:37:55.585Z
-updated: 2024-11-17T19:11:39.200Z
+date: 2024-11-21T23:21:44.863Z
+updated: 2024-11-27T20:28:24.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,12 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210780573-9781803411613-beyond-sustainability/"><u>Beyond Sustainability | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780143-9781633413160-healing-pluto-problems/"><u>Healing Pluto Problems | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780572-9781803412214-letting-glow/"><u>Letting Glow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780147-9781950253463-the-cauldron-and-the-drum/"><u>The Cauldron and the Drum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780145-9781633413221-the-edge-of-reality/"><u>The Edge of Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780149-9781950253401-the-shamans-path-to-freedom/"><u>The Shaman's Path to Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780141-9781633413184-wanderers-tarot-guidebook/"><u>Wanderer's Tarot Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/653730-9781429914123-haunted-heritage/"><u>Haunted Heritage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/653625-9781429977432-innocence-knowledge-and-wonder/"><u>Innocence, Knowledge, and Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/652271-9781101515334-meditation/"><u>Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/654198-9781429960267-power-politics-and-change/"><u>Power, Politics, and Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/653371-9780776617206-the-other-deeper-you/"><u>The Other Deeper You | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

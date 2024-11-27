@@ -1,7 +1,7 @@
 ---
 title: Consciousness Dialogues | Free Book
-date: 2024-10-20T19:49:42.056Z
-updated: 2024-10-26T19:12:47.919Z
+date: 2024-11-21T16:15:27.713Z
+updated: 2024-11-27T20:47:11.409Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/27feecee0a88ecaafdd7ff473795a5ad8298f1d5f90958021dfb3a3796e34cd3.jpg
@@ -174,3 +174,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/27feecee0a88ecaafdd7ff473795a5a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/260638-9781101218945-phenomenon/"><u>Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260660-9781101210321-prophecy/"><u>Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260769-9781101209738-sylvia-brownes-book-of-dreams/"><u>Sylvia Browne's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260773-9781101217313-taming-the-tiger-within/"><u>Taming the Tiger Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260865-9781101210550-the-new-american-dream-dictionary/"><u>The New American Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260889-9781101204238-the-science-of-vampires/"><u>The Science of Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2604998-9781250130617-yoga/"><u>Yoga | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

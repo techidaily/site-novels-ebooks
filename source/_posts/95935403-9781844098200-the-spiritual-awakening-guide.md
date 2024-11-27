@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Awakening Guide | Free Book
-date: 2024-10-24T03:13:05.014Z
-updated: 2024-10-26T20:36:58.494Z
+date: 2024-11-22T23:12:28.980Z
+updated: 2024-11-27T19:23:56.030Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd308d9cf61121ba22bbdc53c91a4a897339d0a2b707935e93deadc223479eb6.jpg
@@ -180,3 +180,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd308d9cf61121ba22bbdc53c91a4a8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211435718-9798330330973-a-good-fight-of-faith/"><u>A Good Fight of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436143-9780990363156-calamitys-compass/"><u>Calamity's Compass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436288-9781800653931-crystals-for-everyday-living/"><u>Crystals for Everyday Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435707-9788412856330-die-wahl-der-seele-teil-1/"><u>Die Wahl der Seele. Teil 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435708-9788412856354-die-wahl-der-seele-teil-2/"><u>Die Wahl der Seele. Teil 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435748-9798893910254-know-his-word-bible-study/"><u>Know His Word Bible Study | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436055-9798330284610-pearls-on-a-string/"><u>Pearls On A String | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436114-9781396325656-the-rosicrucian-mysteries/"><u>The Rosicrucian Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436107-9781958997987-walking-on-water/"><u>Walking on Water | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

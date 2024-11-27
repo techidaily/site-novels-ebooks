@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2024-11-13T21:21:33.269Z
-updated: 2024-11-17T22:54:40.906Z
+date: 2024-11-24T18:19:47.932Z
+updated: 2024-11-27T21:25:21.254Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,9 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210966188-9781088228517-el-faraon-mernephtah/"><u>EL FARAÓN MERNEPHTAH | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966171-9781088207796-el-proceso/"><u>El Proceso | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966189-9781088228791-episodio-en-la-vida-de-tiberius/"><u>Episodio en la Vida de Tiberius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966193-9781088229200-la-leyenda-del-castillo-de-montignoso/"><u>La Leyenda del Castillo de Montignoso | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782474-9781591432661-atlantis-in-the-caribbean-3rd-ed/"><u>Atlantis in the Caribbean (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782475-9781591438250-bird-medicine/"><u>Bird Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782467-9781591439912-forbidden-religion/"><u>Forbidden Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782466-9781591438922-forgotten-worlds/"><u>Forgotten Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782468-9781591439516-journeys-to-the-mythical-past-2nd-ed/"><u>Journeys to the Mythical Past (2nd ed.) | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

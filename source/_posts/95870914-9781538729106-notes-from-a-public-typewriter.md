@@ -1,7 +1,7 @@
 ---
 title: Notes from a Public Typewriter | Free Book
-date: 2024-10-25T05:57:37.549Z
-updated: 2024-10-27T02:41:11.817Z
+date: 2024-11-25T23:06:30.997Z
+updated: 2024-11-27T16:13:59.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92d3d1c681c52b1923ba8bd7e27934f143768e47548ae059b6b837ba0c02f2a8.jpg
@@ -174,3 +174,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92d3d1c681c52b1923ba8bd7e27934f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2622914-9781936740055-apocalypse-not/"><u>Apocalypse Not | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622924-9781573445658-change-your-life/"><u>Change Your Life! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622899-9781632280121-get-well-wishes/"><u>Get Well Wishes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622889-9781936740284-the-art-of-living-joyfully/"><u>The Art of Living Joyfully | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

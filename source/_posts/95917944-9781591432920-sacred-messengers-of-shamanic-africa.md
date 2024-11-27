@@ -1,7 +1,7 @@
 ---
 title: Sacred Messengers of Shamanic Africa | Free Book
-date: 2024-10-22T21:26:13.762Z
-updated: 2024-10-26T22:15:56.923Z
+date: 2024-11-25T17:26:34.753Z
+updated: 2024-11-27T20:39:18.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb79f11c207025b76ed7cc60ea46d55439aac3f17670ef038172dd931d51139e.jpg
@@ -202,3 +202,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb79f11c207025b76ed7cc60ea46d55
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2545161-9781626258006-already-awake/"><u>Already Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2545365-9781626256316-blessed-disillusionment/"><u>Blessed Disillusionment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2546455-9781783660001-consult-the-oracle/"><u>Consult the Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2545093-9781785352553-dying-to-be-free/"><u>Dying to Be Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2545092-9781785352997-enso-morning/"><u>Enso Morning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2549805-9781134933471-qualitative-research-on-illness-wellbeing-and-self-growth/"><u>Qualitative Research on Illness, Wellbeing and Self-Growth | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-11-12T01:59:56.091Z
-updated: 2024-11-17T23:07:27.783Z
+date: 2024-11-25T21:45:52.780Z
+updated: 2024-11-27T16:13:09.678Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,11 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210714875-9781528798495-a-course-of-advanced-lessons-in-clairvoyance-and-occult-power/"><u>A Course of Advanced Lessons in Clairvoyance and Occult Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210713619-9781739165321-a-gentle-goodbye-with-cinnamon-the-rabbit/"><u>A Gentle Goodbye with Cinnamon the Rabbit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210714897-9798822908178-everything-i-learned-about-prostate-cancer-began-at-sixty-five/"><u>Everything I Learned about Prostate Cancer Began at Sixty-Five | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210714746-9780984511990-river-of-angels/"><u>River of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210713689-9798885409599-stress-less-and-soar-more/"><u>Stress Less and Soar More | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210713688-9798885408721-the-birthing-of-a-prophet/"><u>The Birthing of a Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2653608-9780752492261-haunted-lambeth/"><u>Haunted Lambeth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2653579-9780752481616-haunted-southend/"><u>Haunted Southend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2653532-9780997458411-let-go-courageously-and-live-with-love/"><u>Let Go Courageously and Live with Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2652781-9781786780317-lucid-living/"><u>Lucid Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2654455-9781683255642-quiromancia-guia-practica-para-leer-la-mano/"><u>Quiromancia. Guía práctica para leer la mano | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

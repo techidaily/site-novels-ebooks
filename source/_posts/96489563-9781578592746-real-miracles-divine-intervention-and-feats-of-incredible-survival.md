@@ -1,7 +1,7 @@
 ---
 title: Real Miracles, Divine Intervention, and Feats of Incredible Survival | Free Book
-date: 2024-11-12T16:31:30.022Z
-updated: 2024-11-18T03:31:27.705Z
+date: 2024-11-24T19:47:07.813Z
+updated: 2024-11-27T22:00:16.179Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57ea7dfd2cda2089bb353ab39f65ecb5d50.jpg
@@ -203,12 +203,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932754-9781912230648-if-the-organs-could-speak/"><u>If the Organs Could Speak | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932751-9781912992454-mastering-life/"><u>Mastering Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932749-9781912230518-spiritual-translocation/"><u>Spiritual Translocation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932744-9781855842687-the-philosophy-of-freedom/"><u>The Philosophy of Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932741-9781855844865-the-rose-cross-meditation/"><u>The Rose Cross Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932752-9781912230525-the-twilight-and-resurrection-of-humanity/"><u>The Twilight and Resurrection of Humanity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932743-9781855844988-the-world-of-bees/"><u>The World of Bees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782065-9781594775086-a-lapidary-of-sacred-stones/"><u>A Lapidary of Sacred Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782063-9781620555965-sheela-na-gig/"><u>Sheela na gig | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782075-9781620554326-siberian-shamanism/"><u>Siberian Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782074-9781620550588-sir-gawain/"><u>Sir Gawain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782071-9781620551110-the-great-goddess/"><u>The Great Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782069-9781594779442-the-light-of-sex/"><u>The Light of Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782072-9781594775666-the-numerology-of-the-i-ching/"><u>The Numerology of the I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782067-9781594776847-the-secret-history-of-vampires/"><u>The Secret History of Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782064-9781594779213-the-secret-legacy-of-jesus/"><u>The Secret Legacy of Jesus | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

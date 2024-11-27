@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-11-11T02:38:47.818Z
-updated: 2024-11-17T20:19:42.007Z
+date: 2024-11-21T16:53:52.244Z
+updated: 2024-11-27T23:07:14.704Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,11 +192,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210830774-9798986857060-removing-the-fragments/"><u>Removing The Fragments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210832327-9781916529007-stones-in-my-bones/"><u>Stones In My Bones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210830431-9798886162875-the-end-of-forever/"><u>The End of Forever | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210830429-9798885405089-the-neurolinguistic-programming-in-the-holy-quran/"><u>The Neurolinguistic Programming in the Holy Quran | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210831668-9798888325896-the-widow-under-his-wing/"><u>The Widow Under His Wing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210832562-9781632175205-wild-medicine/"><u>Wild Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/746168-9781846948640-365-days-of-wisdom/"><u>365 Days of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/747122-9781101552728-el-poder-de-tu-cumpleanos-the-power-of-your-birthday/"><u>El poder de tu cumpleaños (The Power of Your Birthday) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/746987-9781101562673-george-andersons-lessons-from-the-light/"><u>George Anderson's Lessons from the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/745890-9781439191095-in-her-power/"><u>In Her Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/752418-9781780990620-powers-of-the-sixth-sense/"><u>Powers of the Sixth Sense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/746169-9781780990583-the-hidden-secrets-of-a-modern-seer/"><u>The Hidden Secrets of a Modern Seer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/747264-9781101561119-the-things-you-would-have-said/"><u>The Things You Would Have Said | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

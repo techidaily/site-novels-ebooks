@@ -1,7 +1,7 @@
 ---
 title: Sabiduría celta. El libro para quienes deseen ahondar en las enseñanzas espirituales que subyacen en las leyendas de la sabiduría celta | Free Book
-date: 2024-10-20T05:38:32.196Z
-updated: 2024-10-26T17:01:19.392Z
+date: 2024-11-22T17:32:08.071Z
+updated: 2024-11-27T19:00:25.543Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/447d55169d406aa35f2505c0bb94d6c941bd07abe0b75f08550e765242434c79.jpg
@@ -171,3 +171,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/447d55169d406aa35f2505c0bb94d6c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2212470-9780007536979-the-dragon-in-2014-your-chinese-horoscope/"><u>The Dragon in 2014: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212473-9780007537006-the-goat-in-2014-your-chinese-horoscope/"><u>The Goat in 2014: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212472-9780007536993-the-horse-in-2014-your-chinese-horoscope/"><u>The Horse in 2014: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212474-9780007537013-the-monkey-in-2014-your-chinese-horoscope/"><u>The Monkey in 2014: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212469-9780007536962-the-rabbit-in-2014-your-chinese-horoscope/"><u>The Rabbit in 2014: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212471-9780007536986-the-snake-in-2014-your-chinese-horoscope/"><u>The Snake in 2014: Your Chinese Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

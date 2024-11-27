@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2024-11-13T23:02:21.708Z
-updated: 2024-11-17T21:41:34.166Z
+date: 2024-11-25T23:20:49.539Z
+updated: 2024-11-27T19:45:22.939Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,14 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210974367-9781088249062-cautivos-y-libertos/"><u>Cautivos y Libertos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974369-9781088249536-detestable-no-soy-adolescente/"><u>Detestable, no. ¡Soy adolescente! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974366-9781088249413-el-cielo-puede-esperar/"><u>El Cielo Puede Esperar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974363-9781088251140-el-esclavo-de-africa-a-la-senzala/"><u>El Esclavo De África a la Senzala | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974359-9781088250419-el-talisman-maldito/"><u>El Talismán Maldito | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974353-9798889453161-empath-awakening-of-the-soul/"><u>Empath: Awakening of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974368-9781088251447-hijo-adoptivo/"><u>Hijo Adoptivo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974370-9781088251850-la-gruta-de-las-orquideas/"><u>LA GRUTA DE LAS ORQUÍDEAS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974364-9781088251928-la-intrusa/"><u>La Intrusa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782755-9781594775147-basic-practices-of-the-universal-healing-tao/"><u>Basic Practices of the Universal Healing Tao | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782759-9781620552056-the-metaphysical-world-of-isaac-newton/"><u>The Metaphysical World of Isaac Newton | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782757-9781594777882-the-secret-teachings-of-the-tao-te-ching/"><u>The Secret Teachings of the Tao Te Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782758-9781594778612-the-secrets-of-afro-cuban-divination/"><u>The Secrets of Afro-Cuban Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782760-9781594778391-wisdom-chi-kung/"><u>Wisdom Chi Kung | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Animal Totems and the Gemstone Kingdom | Free Book
-date: 2024-10-24T03:28:43.765Z
-updated: 2024-10-26T23:11:53.074Z
+date: 2024-11-24T21:12:15.009Z
+updated: 2024-11-27T19:51:22.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0421521aafe3e77ffbb27532ce149c12644c0eb20b1768dcc7627a352b7eb7fb.jpg
@@ -198,3 +198,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0421521aafe3e77ffbb27532ce149c1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211392600-9798330254378-insights/"><u>Insights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392539-9781916529182-sensual-soul-shine/"><u>Sensual Soul Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392447-9798822947177-the-alien-gods-10-commandments/"><u>The Alien Gods: 10 Commandments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392552-9798869378422-the-future-of-man/"><u>The Future of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211393878-9781507301685-the-healthy-witch/"><u>The Healthy Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211393424-9781466834835-the-mothman-prophecies/"><u>The Mothman Prophecies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2024-11-13T20:19:29.650Z
-updated: 2024-11-17T16:29:53.851Z
+date: 2024-11-21T17:21:15.272Z
+updated: 2024-11-27T18:18:06.727Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -139,11 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211133073-9780975864968-avoiding-the-cosmic-2x4/"><u>Avoiding The Cosmic 2x4 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133034-9781960466112-divine-creation-2nd-ed/"><u>Divine Creation (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133080-9798868942860-el-proximo-paso/"><u>El Próximo Paso | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133147-9781591811411-roadsigns/"><u>Roadsigns | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133076-9781960466136-the-aquarius-age/"><u>The Aquarius Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133035-9781910559895-the-kitchen-witch-companion/"><u>The Kitchen Witch Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935367-9781844099597-crystal-healing-for-animals/"><u>Crystal Healing for Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935366-9781844099122-gratitude-and-beyond/"><u>Gratitude and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935372-9781844098019-the-bicycle-effect/"><u>The Bicycle Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935369-9781844097715-the-fearless-path/"><u>The Fearless Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935368-9781844099542-the-findhorn-garden-story/"><u>The Findhorn Garden Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935374-9781844098132-the-missing-element/"><u>The Missing Element | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935364-9781844093908-the-path-of-synchronicity/"><u>The Path of Synchronicity | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

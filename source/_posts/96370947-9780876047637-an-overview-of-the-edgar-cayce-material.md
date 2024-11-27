@@ -1,7 +1,7 @@
 ---
 title: An Overview of the Edgar Cayce Material | Free Book
-date: 2024-11-11T18:59:47.360Z
-updated: 2024-11-18T00:02:15.455Z
+date: 2024-11-21T16:04:00.591Z
+updated: 2024-11-27T19:53:18.684Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa86584d7ab55c0c2edc64b865697096a39f.jpg
@@ -139,14 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211147006-9780645997118-a-proof-on-star-signs/"><u>A Proof On Star Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211147750-9780762487707-an-introduction-to-magic/"><u>An Introduction to Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211146990-9781777279660-astrology/"><u>Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211146995-9780645990508-decoding-extra-terrestrial-intelligence/"><u>DECODING EXTRA-TERRESTRIAL INTELLIGENCE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211147270-9781985900981-haint-country/"><u>Haint Country | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211147793-9781915089977-interpreting-dreams/"><u>Interpreting Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211147989-9781945783319-simply-put/"><u>Simply Put | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211147057-9781998754380-writing-herstory/"><u>Writing HERstory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211147884-9798888518731-years-of-tears/"><u>Years of Tears | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955293-9780008301910-aries-2019-your-personal-horoscope/"><u>Aries 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95950843--be-here/"><u>Be Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955296-9780008301941-cancer-2019-your-personal-horoscope/"><u>Cancer 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955295-9780008301934-gemini-2019-your-personal-horoscope/"><u>Gemini 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955297-9780008301958-leo-2019-your-personal-horoscope/"><u>Leo 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955294-9780008301927-taurus-2019-your-personal-horoscope/"><u>Taurus 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95950870-9781856753470-the-book-of-chakra-healing/"><u>The Book of Chakra Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948906-9781785354601-witchcraftinto-the-wilds/"><u>Witchcraft…Into the Wilds | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

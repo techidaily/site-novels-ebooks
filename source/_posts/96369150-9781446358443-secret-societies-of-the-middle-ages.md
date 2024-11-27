@@ -1,7 +1,7 @@
 ---
 title: Secret Societies of the Middle Ages | Free Book
-date: 2024-11-01T18:24:27.900Z
-updated: 2024-11-07T18:24:33.629Z
+date: 2024-11-25T21:35:53.301Z
+updated: 2024-11-27T18:00:27.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b775347a9552b96b09b72b89bf9a5e980fd2777.jpg
@@ -157,10 +157,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b77534
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209838583-9780991133017-a-brave-true-story/"><u>A Brave, True Story | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838440-9780990393214-it-is-i-amadeus/"><u>It Is I, Amadeus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838397-9780991506811-listen-up-the-other-side-is-talking/"><u>Listen Up! the Other Side Is Talking. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838434-9780993790416-the-purpose-your-souls-emotional-journey/"><u>The Purpose: Your Soul's Emotional Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838509-9780989828918-zen-of-technology-stress-free-email/"><u>Zen of Technology - Stress-Free Email | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316908-9781401931148-along-the-path-to-enlightenment/"><u>Along the Path to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316911-9781401932589-nothing-is-too-good-to-be-true/"><u>Nothing Is Too Good to Be True | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316897-9781401930219-soul-coaching/"><u>Soul Coaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316904-9781401930875-what-if/"><u>What If? | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

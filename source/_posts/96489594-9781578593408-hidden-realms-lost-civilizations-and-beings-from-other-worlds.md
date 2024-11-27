@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-11-11T17:14:33.355Z
-updated: 2024-11-18T00:40:21.621Z
+date: 2024-11-25T19:32:26.312Z
+updated: 2024-11-27T17:58:49.696Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,11 +227,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210875406-9789358561319-musings-on-this-world-and-that-ideas-amp-jellyfish/"><u>Musings On This World And That Ideas &amp; Jellyfish | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210875890-9780711290808-self-love-crystals/"><u>Self-Love Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210876895-9781452173542-the-astrological-grimoire/"><u>The Astrological Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210875883-9780760387184-therapy-chickens/"><u>Therapy Chickens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210876749-9780762483044-this-is-your-bravery-test/"><u>This Is Your Bravery Test | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210875637-9781608688845-three-minutes-a-day/"><u>Three Minutes a Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95570770-9781459739215-alien-abductions-and-ufo-sightings-5-book-bundle/"><u>Alien Abductions and UFO Sightings 5-Book Bundle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95570870-9781780998985-pagan-portals-the-urban-ovate/"><u>Pagan Portals - The Urban Ovate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95568216-9781784504373-the-art-of-being-human/"><u>The Art of Being Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95570872-9781785354854-the-morning-muse/"><u>The Morning Muse | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

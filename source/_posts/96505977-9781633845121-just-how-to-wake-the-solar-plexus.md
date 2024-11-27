@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-11-11T23:46:03.948Z
-updated: 2024-11-17T22:15:29.479Z
+date: 2024-11-20T17:16:20.016Z
+updated: 2024-11-27T18:04:32.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,10 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761801-9781591798743-distant-healing/"><u>Distant Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761816-9781604077513-intuitive-self-healing/"><u>Intuitive Self-Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761806-9781591798194-shamanic-journeying/"><u>Shamanic Journeying | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761797-9781591798316-shamans-of-the-world/"><u>Shamans of the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761814-9781591798453-your-deepest-intent/"><u>Your Deepest Intent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/458086-9780307573735-a-path-with-heart/"><u>A Path with Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/458077-9780307574329-barefoot-on-holy-ground/"><u>Barefoot on Holy Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/454959-9781101144961-feng-shui-for-success/"><u>Feng Shui for Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/458001-9780307427564-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/451661-9781101136249-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/458076-9780307574343-where-two-worlds-touch-spiritual-rites-of-passage/"><u>Where Two Worlds Touch: Spiritual Rites of Passage | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

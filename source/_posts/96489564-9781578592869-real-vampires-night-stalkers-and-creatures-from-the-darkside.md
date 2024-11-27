@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-11-15T21:55:44.192Z
-updated: 2024-11-18T03:10:26.283Z
+date: 2024-11-24T18:51:55.699Z
+updated: 2024-11-27T19:05:15.576Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,12 +213,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932756-9781906999704-anthroposophy/"><u>Anthroposophy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932761-9781855843745-from-limestone-to-lucifer/"><u>From Limestone to Lucifer... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932764-9781855844995-the-east-in-the-light-of-the-west/"><u>The East in the Light of the West | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932755-9781912992300-the-enchanted-garden/"><u>The Enchanted Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932757-9781855843509-the-heart-of-peace/"><u>The Heart of Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932762-9781912230655-the-illustrated-calendar-of-the-soul/"><u>The Illustrated Calendar of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932767-9781905570997-transforming-demons/"><u>Transforming Demons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782078-9781620551547-carnal-alchemy/"><u>Carnal Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782077-9781594775093-infinite-energy-technologies/"><u>Infinite Energy Technologies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782076-9781620550618-the-strong-eye-of-shamanism/"><u>The Strong Eye of Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782080-9781594777042-the-struggle-for-your-mind/"><u>The Struggle for Your Mind | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

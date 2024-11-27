@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on Vibrations | Free Book
-date: 2024-11-10T16:20:05.608Z
-updated: 2024-11-17T16:55:11.879Z
+date: 2024-11-23T19:21:45.281Z
+updated: 2024-11-27T23:20:16.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc5535059efc28d07ed5501f222c0f4085ec0eb6.jpg
@@ -134,13 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc55350
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211146846-9781638448662-bunsology-body/"><u>Bunsology Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211146862-9798889436867-discovering-me-365/"><u>Discovering Me 365 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211146985-9789395460422-eternal-youth/"><u>Eternal Youth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145837-9798887638928-from-the-other-side-of-the-couch/"><u>From The Other Side Of The Couch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145888-9798885832472-handcrafted-soulutions/"><u>HandCrafted Soul'utions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145924-9798218255534-living-a-spiritual-life-in-a-material-world/"><u>Living a Spiritual Life in a Material World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211146170-9781958481271-slaying-tampa-bay/"><u>Slaying Tampa Bay | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145920-9798889267539-yin-yang/"><u>Yin Yang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95947345-9781623173012-changed-in-a-flash/"><u>Changed in a Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95946814-9781925515664-confucius/"><u>Confucius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948899-9781785355981-divining-with-animal-guides/"><u>Divining with Animal Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948900-9781785356636-earth-astrologys-missing-planet/"><u>Earth: Astrology's Missing Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948905-9781782798439-spiritual-beings-or-economic-tools/"><u>Spiritual Beings or Economic Tools | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95946815-9781925515961-the-book-of-eternity/"><u>The Book of Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95947320-9781786781741-the-premonition-code/"><u>The Premonition Code | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

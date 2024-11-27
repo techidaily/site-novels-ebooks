@@ -1,7 +1,7 @@
 ---
 title: What All the World’s A-Seeking | Free Book
-date: 2024-11-10T22:50:19.202Z
-updated: 2024-11-17T23:52:35.211Z
+date: 2024-11-21T19:01:03.011Z
+updated: 2024-11-27T16:25:45.967Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555bfdcc6a7f54df9f81071349024c853465d.jpg
@@ -138,12 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762239-9781786857361-calm/"><u>Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762238-9781786857392-happiness/"><u>Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762205-9781786858856-how-to-relax/"><u>How to Relax | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762230-9781786857422-inspiration/"><u>Inspiration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762201-9781786858887-slow/"><u>Slow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762207-9781786859334-the-little-book-of-the-zodiac/"><u>The Little Book of the Zodiac | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762234-9781786857453-wisdom/"><u>Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/492659-9781439187937-entangled-minds/"><u>Entangled Minds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/488426-9780759525474-gay-astrology/"><u>Gay Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/488427-9780759525481-get-psychic/"><u>Get Psychic! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/488387-9780446569675-god-never-blinks/"><u>God Never Blinks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/492730-9781439188743-how-to-hunt-ghosts/"><u>How to Hunt Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/492962-9781439123850-leaving-the-body/"><u>Leaving the Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/488432-9780759526945-love-secrets-of-the-signs/"><u>Love Secrets of the Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/492815-9781439124208-spiritual-astrology/"><u>Spiritual Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/492753-9781439116821-the-gifts-of-change/"><u>The Gifts Of Change | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

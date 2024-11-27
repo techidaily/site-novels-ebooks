@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories and Legends of Prince Edward Island (2nd ed.) | Free Book
-date: 2024-10-20T16:07:58.030Z
-updated: 2024-10-26T23:39:00.966Z
+date: 2024-11-21T22:59:47.868Z
+updated: 2024-11-27T20:37:13.274Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf7e860da7a43d1e0258b6c9dfe017aa63494a825dc81a523a08fad48fe85c70.jpg
@@ -159,3 +159,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf7e860da7a43d1e0258b6c9dfe017a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2255860-9781785350795-blissfully-dead/"><u>Blissfully Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2251467-9780748110285-journeys-through-time/"><u>Journeys Through Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2255866-9781785350870-mindfulness-and-madness/"><u>Mindfulness and Madness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2254586-9781476621807-parapsychology-philosophy-and-the-mind/"><u>Parapsychology, Philosophy and the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2257723-9781608683703-secular-meditation/"><u>Secular Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2255868-9781785350276-the-heart-of-life/"><u>The Heart of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2255869-9781785350399-the-logic-of-enlightenment/"><u>The Logic of Enlightenment | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

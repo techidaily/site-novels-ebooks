@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-11-12T16:41:06.654Z
-updated: 2024-11-18T00:43:11.946Z
+date: 2024-11-26T16:09:03.618Z
+updated: 2024-11-27T18:18:18.552Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,10 +176,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210717353-9781685264413-a-case-for-faith-sharing-ancient-secrets-for-longer-life-health-and-happiness/"><u>A Case for Faith Sharing Ancient Secrets for Longer Life, Health and Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717477-9798885404365-betrayed-into-purpose/"><u>Betrayed into Purpose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717284-9781739218713-connecting-to-source-a-path-to-self-discovery-through-verse/"><u>Connecting to Source - A path to self-discovery through verse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717348-9780876128114-manifesting-divine-consciousness-in-daily-life/"><u>Manifesting Divine Consciousness in Daily Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717349-9780876127889-only-love/"><u>Only Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/266709-9780307419958-boundless-energy/"><u>Boundless Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2667973-9781501158698-golden/"><u>Golden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2669773-9781780993355-the-divine-human/"><u>The Divine Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/266711-9780307381606-the-power-of-purpose/"><u>The Power of Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2668037-9780007388394-understanding-dreams-what-they-are-and-how-to-interpret-them/"><u>Understanding Dreams: What they are and how to interpret them | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

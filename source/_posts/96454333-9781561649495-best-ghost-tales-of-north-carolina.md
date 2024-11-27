@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2024-11-16T00:56:12.761Z
-updated: 2024-11-17T19:33:09.227Z
+date: 2024-11-24T22:48:37.609Z
+updated: 2024-11-27T16:06:50.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,14 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211058387-9781960748676-astrologie/"><u>Astrologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211053739-9780760388822-indian-spirituality/"><u>Indian Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211053453-9781662495168-manual-de-tecnicas-para-la-construccion-personal/"><u>MANUAL DE TÉCNICAS PARA LA CONSTRUCCIÓN PERSONAL | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211053730-9780760388846-norse-mysticism/"><u>Norse Mysticism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211054237-9781841815756-past-life-astrology/"><u>Past Life Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058507-9781916775145-the-republic-of-the-soul/"><u>The Republic of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058512-9781916775114-the-republic-of-the-soul/"><u>The Republic of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058575-9783988314888-third-eye-awakening/"><u>THIRD EYE AWAKENING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058517-9798885832243-who-told-you-that/"><u>Who Told You That? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812447-9781616406387-a-souls-journey/"><u>A Soul's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812579-9781944529222-apparitions-hauntings-and-poltergeists/"><u>Apparitions, Hauntings, and Poltergeists | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812551-9781507152256-astrologia-preditiva-estudo-dos-acontecimentos/"><u>Astrologia preditiva - Estudo dos acontecimentos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812433-9781507151204-come-meditare-le-migliori-8-meditazioni-per-ridurre-lo-stress/"><u>Come meditare: Le migliori 8 meditazioni per ridurre lo stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812999-9781944529284-psychic-research-and-modern-physics/"><u>Psychic Research and Modern Physics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812617-9781616409630-the-supermarket-sorceress/"><u>The Supermarket Sorceress | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

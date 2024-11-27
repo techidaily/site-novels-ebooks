@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-11-15T22:20:34.215Z
-updated: 2024-11-17T20:24:37.698Z
+date: 2024-11-24T19:31:31.140Z
+updated: 2024-11-27T22:16:54.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,14 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932917-9781855844780-christ-and-the-human-soul/"><u>Christ and the Human Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932907-9781912230594-dementia/"><u>Dementia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932900-9781855844223-from-mammoths-to-mediums/"><u>From Mammoths to Mediums... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932901-9781855844346-mystery-of-the-universe/"><u>Mystery of the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932920-9781855842915-on-epidemics/"><u>On Epidemics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932908-9781855842830-rosicrucian-wisdom/"><u>Rosicrucian Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932903-9781855843011-secret-brotherhoods/"><u>Secret Brotherhoods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932897-9781855843257-the-goddess/"><u>The Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932906-9781855842953-theosophy/"><u>Theosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782177-9781594778575-atlantis-and-the-cycles-of-time/"><u>Atlantis and the Cycles of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782186-9781594779909-science-and-the-akashic-field-2nd-ed/"><u>Science and the Akashic Field (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782185-9781594776519-science-and-the-reenchantment-of-the-cosmos/"><u>Science and the Reenchantment of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782184-9781594777851-shakti/"><u>Shakti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782180-9781594776830-the-return-of-the-dead/"><u>The Return of the Dead | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2024-11-11T19:59:13.750Z
-updated: 2024-11-18T00:45:25.922Z
+date: 2024-11-26T18:31:33.212Z
+updated: 2024-11-27T20:09:01.189Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,9 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211013603-9798888500835-dragons-and-serpents/"><u>Dragons and Serpents | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013600-9798888500323-healing-through-sound/"><u>Healing through Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013585-9781644119457-seidr-magic/"><u>Seiðr Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013601-9798888500347-the-way-of-the-wild-soul-woman-2nd-ed/"><u>The Way of the Wild Soul Woman (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783080-9781594777974-entheogens-and-the-future-of-religion-2nd-ed/"><u>Entheogens and the Future of Religion (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783083-9781620556900-overtones-and-undercurrents/"><u>Overtones and Undercurrents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783081-9781620552636-the-ayahuasca-experience-3rd-ed/"><u>The Ayahuasca Experience (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783078-9781594775024-the-psychedelic-future-of-the-mind/"><u>The Psychedelic Future of the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783079-9781620555033-the-psychedelic-gospels/"><u>The Psychedelic Gospels | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

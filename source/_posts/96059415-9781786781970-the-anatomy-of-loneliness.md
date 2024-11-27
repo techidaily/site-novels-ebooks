@@ -1,7 +1,7 @@
 ---
 title: The Anatomy of Loneliness | Free Book
-date: 2024-10-24T19:22:11.136Z
-updated: 2024-10-26T23:56:42.665Z
+date: 2024-11-23T22:08:32.249Z
+updated: 2024-11-27T17:36:12.668Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44d980686768832e3b0e81491e2b10af7f1405423cea335c18348cfe758a7f02.jpg
@@ -199,3 +199,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44d980686768832e3b0e81491e2b10a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211261007-9781775392729-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211260571-9781501156991-the-mind-illuminated/"><u>The Mind Illuminated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211260568-9781439187807-the-seventh-sense/"><u>The Seventh Sense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211260936-9798987586037-the-weighted-feather-vol-2/"><u>The Weighted Feather Vol. 2 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

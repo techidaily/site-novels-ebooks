@@ -1,7 +1,7 @@
 ---
 title: 2038 The Great Pyramid Timeline Prophecy | Free Book
-date: 2024-11-12T03:12:18.860Z
-updated: 2024-11-18T03:19:45.344Z
+date: 2024-11-21T19:00:35.306Z
+updated: 2024-11-27T17:28:24.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1eb900475374970b6dbc69b5f89cf7563d3.jpg
@@ -137,13 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211145207-9781804530184-aries/"><u>Aries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145209-9781804530511-big-witch-energy/"><u>Big Witch Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145211-9780349438795-black-magic/"><u>Black Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145205-9781804530337-cancer/"><u>Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145199-9781804530320-gemini/"><u>Gemini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145213-9781801292733-heaven-sent/"><u>Heaven Sent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145203-9781804530344-leo/"><u>Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145201-9781804530191-taurus/"><u>Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937546-9781844097609-being-present/"><u>Being Present | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937552-9781844097654-cant-see-the-wood-for-the-trees/"><u>Can't See the Wood for the Trees? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937551-9781844097562-dreams-that-can-save-your-life/"><u>Dreams That Can Save Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937553-9781844097616-plants-that-speak-souls-that-sing/"><u>Plants That Speak, Souls That Sing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937550-9781844097555-the-power-of-the-infinity-symbol/"><u>The Power of the Infinity Symbol | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2024-11-16T22:37:27.810Z
-updated: 2024-11-18T01:30:37.929Z
+date: 2024-11-23T18:52:45.215Z
+updated: 2024-11-27T19:13:24.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,12 +167,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932970-9781855842700-an-introduction-to-anthroposophy/"><u>An Introduction to Anthroposophy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932974-9781855843479-anthroposophy-a-z/"><u>Anthroposophy A-Z | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932972-9781855844568-life-between-death-and-rebirth/"><u>Life Between Death and Rebirth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932969-9781912992126-nature-spirits-of-the-trees/"><u>Nature Spirits of the Trees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932965-9781855843240-the-foundation-stone-meditation/"><u>The Foundation Stone Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932966-9781912230709-the-wisdom-of-teeth/"><u>The Wisdom of Teeth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932967-9781855844452-the-world-of-the-senses/"><u>The World of the Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782240-9781620554951-five-meditations-on-death/"><u>Five Meditations on Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782236-9781594776717-original-wisdom/"><u>Original Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782233-9781620551905-overthrowing-the-old-gods/"><u>Overthrowing the Old Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782241-9781594779510-sanctuary-of-the-divine-presence/"><u>Sanctuary of the Divine Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782237-9781620550649-temple-of-the-cosmos/"><u>Temple of the Cosmos | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

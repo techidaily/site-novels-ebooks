@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-11-16T01:09:26.512Z
-updated: 2024-11-18T03:16:08.553Z
+date: 2024-11-26T21:45:37.545Z
+updated: 2024-11-27T17:28:16.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,9 +236,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210867840-9781622034239-7-treasures-of-awakening/"><u>7 Treasures of Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210867842-9781622035403-awakening-to-kali/"><u>Awakening to Kali | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210867843-9781622039760-beginning-your-love-revolution/"><u>Beginning Your Love Revolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210867670-9781638298304-brain-shift/"><u>Brain Shift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544023-9780834823044-a-theory-of-everything/"><u>A Theory of Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544070-9780834823600-chi/"><u>Chi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544074-9780834823730-the-complete-book-of-chinese-health-and-healing/"><u>The Complete Book of Chinese Health and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95543954-9780834822177-the-essential-ken-wilber/"><u>The Essential Ken Wilber | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95543958-9780834822221-the-eye-of-spirit/"><u>The Eye of Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544152-9780834824676-the-light-of-discovery/"><u>The Light of Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544014-9780834822931-the-simple-feeling-of-being/"><u>The Simple Feeling of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544215--the-unfolding-now/"><u>The Unfolding Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544227-9780834825703-womens-qigong-for-health-and-longevity/"><u>Women's Qigong for Health and Longevity | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Sacred Stones | Free Book
-date: 2024-11-12T19:09:42.813Z
-updated: 2024-11-17T18:45:09.649Z
+date: 2024-11-20T20:02:28.204Z
+updated: 2024-11-27T23:09:50.652Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c2342d3f9628aa1746820b2356f8531168276.jpg
@@ -138,9 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c234
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211152150-9781739495657-5th-dimensional-earth/"><u>5th Dimensional Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211153853-9798890434234-the-the-tragedies-and-triumphs-in-an-alcoholics-family/"><u>The The Tragedies and Triumphs in an Alcoholic’s Family | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211152068-9798868978692-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211152070-9798868978739-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031412-9781925712353-happiness-plan/"><u>Happiness Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028126-9781620558010-psychedelic-mystery-traditions/"><u>Psychedelic Mystery Traditions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028585-9780835621687-the-chakras-and-the-human-energy-fields/"><u>The Chakras and the Human Energy Fields | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028586-9780835621878-the-inner-life/"><u>The Inner Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028583-9780835621922-the-seven-rays/"><u>The Seven Rays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028584-9780835621564-thoughts-for-aspirants/"><u>Thoughts for Aspirants | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

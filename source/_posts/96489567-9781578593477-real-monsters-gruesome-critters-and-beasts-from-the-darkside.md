@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-11-13T03:21:24.900Z
-updated: 2024-11-17T17:29:14.691Z
+date: 2024-11-26T19:06:02.739Z
+updated: 2024-11-27T21:38:24.867Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,10 +262,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932799-9781855846210-daily-contemplations/"><u>Daily Contemplations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932797-9781855842892-how-to-cure-nervousness/"><u>How to Cure Nervousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932796-9781855844278-karmic-relationships-volume-7/"><u>Karmic Relationships: Volume 7 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932793-9781855842885-the-four-temperaments/"><u>The Four Temperaments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932791-9781912230693-the-tree-of-life-and-the-holy-grail/"><u>The Tree of Life and the Holy Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782096-9781620554005-demons-and-spirits-of-the-land/"><u>Demons and Spirits of the Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782090-9781620551561-eyes-wide-open/"><u>Eyes Wide Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782093-9781594777264-kabbalistic-teachings-of-the-female-prophets/"><u>Kabbalistic Teachings of the Female Prophets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782089-9781594776342-layayoga/"><u>Layayoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782102-9781620550564-the-shamans-doorway/"><u>The Shaman's Doorway | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782095-9781594777387-the-spiritual-science-of-the-stars/"><u>The Spiritual Science of the Stars | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

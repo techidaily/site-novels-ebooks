@@ -1,7 +1,7 @@
 ---
 title: Discovering Your Past Lives | Free Book
-date: 2024-10-23T18:40:19.183Z
-updated: 2024-10-26T22:16:54.024Z
+date: 2024-11-20T22:08:20.820Z
+updated: 2024-11-27T19:41:32.684Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c9fb6e12889555ec7719c8deff8e04ce10af72cadf854631b19fdd558c044fb.jpg
@@ -145,3 +145,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c9fb6e12889555ec7719c8deff8e04
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211434956-9781648414688-cooking-with-magic-mushrooms/"><u>Cooking with Magic Mushrooms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434152-9781507303801-land-healing/"><u>Land Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434118-9781507303788-new-directions-in-tarot/"><u>New Directions in Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433934-9781803410272-pagan-portals-sulis/"><u>Pagan Portals - Sulis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433936-9781803415260-paranormal-perspectives-a-jungian-understanding-of-transcendent-experiences/"><u>Paranormal Perspectives: A Jungian Understanding of Transcendent Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434022-9781507303771-plus-one/"><u>Plus One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434032-9781507303795-soul/"><u>Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434136-9781507303818-the-magick-of-lenormand-card-reading/"><u>The Magick of Lenormand Card Reading | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

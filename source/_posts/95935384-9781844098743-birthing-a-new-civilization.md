@@ -1,7 +1,7 @@
 ---
 title: Birthing A New Civilization | Free Book
-date: 2024-10-25T20:59:57.838Z
-updated: 2024-10-26T20:22:41.444Z
+date: 2024-11-20T20:20:12.240Z
+updated: 2024-11-27T21:04:34.349Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a114922bcfd26c844e3f4fc5d7f4f2f2518ec4a6e18ef0c56c27ac0a4bca98e.jpg
@@ -171,3 +171,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a114922bcfd26c844e3f4fc5d7f4f2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211422698-9781800796768-death-in-the-21st-century/"><u>Death in the 21st Century | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422699-9781800796751-death-in-the-21st-century/"><u>Death in the 21st Century | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422783-9788090922037-parallel-worlds/"><u>Parallel Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422727-9781068860256-the-messiah/"><u>THE MESSIAH | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

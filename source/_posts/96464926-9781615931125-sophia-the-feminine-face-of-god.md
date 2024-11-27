@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2024-11-14T19:27:27.718Z
-updated: 2024-11-18T02:12:50.033Z
+date: 2024-11-20T19:04:34.554Z
+updated: 2024-11-27T22:16:08.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,11 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210969974-9781088229774-el-evangelio-de-los-humildes/"><u>El Evangelio de los Humildes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210969977-9781088229828-mediumnidad-sin-lagrimas/"><u>Mediumnidad sin Lágrimas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210969963-9781088229859-renunciando-por-amor/"><u>Renunciando por Amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210969992-9781088233061-revival-of-hope/"><u>Revival Of Hope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210969990-9781088232163-the-force-of-kidness/"><u>The Force of Kidness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210969986-9781088240335-turns-of-life/"><u>Turns Of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782537-9781591432180-beowulfs-ecstatic-trance-magic/"><u>Beowulf's Ecstatic Trance Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782542-9781591438014-confessions-of-a-rebel-angel/"><u>Confessions of a Rebel Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782539-9781591439271-coyote-wisdom/"><u>Coyote Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782547-9781591439400-invoking-the-scribes-of-ancient-egypt/"><u>Invoking the Scribes of Ancient Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782544-9781591439936-the-temples-of-light/"><u>The Temples of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782541-9781591437574-the-three-ages-of-atlantis/"><u>The Three Ages of Atlantis | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

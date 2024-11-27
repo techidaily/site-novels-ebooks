@@ -1,7 +1,7 @@
 ---
 title: Doenças Psicossomáticas | Free Book
-date: 2024-10-21T00:07:34.109Z
-updated: 2024-10-26T23:49:14.033Z
+date: 2024-11-20T18:15:22.841Z
+updated: 2024-11-27T18:19:30.806Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb5c264619a9e1b61dadfa911f71f98f40023f99a51f5ca339f4f88cff5c91d0.jpg
@@ -139,3 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb5c264619a9e1b61dadfa911f71f98
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2510371-9781101983492-magic-in-islam/"><u>Magic In Islam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2510377-9781101983553-the-miracle-power-of-your-mind/"><u>The Miracle Power of Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2510368-9781101992586-the-secret-doctrine/"><u>The Secret Doctrine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2510172-9781101983560-the-super-natural/"><u>The Super Natural | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

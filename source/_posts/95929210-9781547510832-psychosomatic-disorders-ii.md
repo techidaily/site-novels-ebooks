@@ -1,7 +1,7 @@
 ---
 title: Psychosomatic Disorders II | Free Book
-date: 2024-10-22T05:23:47.251Z
-updated: 2024-10-27T01:58:41.286Z
+date: 2024-11-24T19:10:59.485Z
+updated: 2024-11-27T16:58:14.421Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7be11bf8d14854ddafc391e3e2e15f069aca18b8ba2b2d0905c2c6685b8776d4.jpg
@@ -139,3 +139,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7be11bf8d14854ddafc391e3e2e15f0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2269957-9781617031458-ghosts-along-the-mississippi-river/"><u>Ghosts along the Mississippi River | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2264773-9781614292166-kindfulness/"><u>Kindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/231044-9781420909609-mysticism/"><u>Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/234291-9781135636258-optimal-human-being/"><u>Optimal Human Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/231045-9781420909616-practical-mysticism/"><u>Practical Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/238198-9780307341860-the-book-of-understanding/"><u>The Book of Understanding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2264813-9781471152467-the-ten-secrets-of-heaven/"><u>The Ten Secrets of Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2268207-9781780289557-what-is-a-near-death-experience/"><u>What Is a Near-Death Experience? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2268206-9781780289540-what-is-sound-healing/"><u>What Is Sound Healing? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

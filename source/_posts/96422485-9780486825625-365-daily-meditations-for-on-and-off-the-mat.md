@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-11-11T17:13:12.284Z
-updated: 2024-11-17T23:16:02.568Z
+date: 2024-11-23T21:23:23.718Z
+updated: 2024-11-27T22:26:26.408Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,14 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211031017-9781961827011-case-files-of-the-rocky-mountain-paranormal-research-society-volume-1/"><u>Case Files of the Rocky Mountain Paranormal Research Society Volume 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030908-9781960093790-the-djinns-gin/"><u>The Djinn's Gin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030940-9780997282573-the-essence-of-sound/"><u>The Essence of Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211031080-9798989009763-the-pillars-of-gynarchy/"><u>The Pillars of Gynarchy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030906-9781734989861-the-way-of-the-grace-filled-heart/"><u>The Way of the Grace-filled Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030911-9780997282511-the-way-of-the-simple-soul/"><u>The Way of the Simple Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211031031-9798987004920-to-boob-or-not-to-boob/"><u>TO BOOB, OR NOT TO BOOB | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030963-9781088251874-trust-the-signs/"><u>Trust the Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211031121-9781088267233-venciendo-el-pasado/"><u>Venciendo el Pasado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95795254-9781780995120-find-and-follow-your-inner-compass/"><u>Find and Follow Your Inner Compass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95801732-9781912023424-five-minutes-in-the-morning/"><u>Five Minutes in the Morning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95796401-9780762463565-lunar-abundance/"><u>Lunar Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95795255-9781785355745-pagan-portals-the-crane-bag/"><u>Pagan Portals: The Crane Bag | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95798447-9781351912839-parapsychology/"><u>Parapsychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95801744-9781912023257-walking-in-the-rain/"><u>Walking in the Rain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95801743-9781912023240-washing-up-is-good-for-you/"><u>Washing up is Good for you | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

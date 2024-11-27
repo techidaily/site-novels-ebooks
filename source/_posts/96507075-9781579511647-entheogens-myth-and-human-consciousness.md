@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-11-11T02:17:52.771Z
-updated: 2024-11-18T02:29:19.218Z
+date: 2024-11-22T22:04:32.688Z
+updated: 2024-11-27T16:18:24.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,10 +246,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210771674-9781646639595-face-lift/"><u>Face-Lift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210771514-9781636980393-the-7-initiatory-fires-of-modern-manhood/"><u>The 7 Initiatory Fires of Modern Manhood | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770774-9781636920030-the-good-the-bad-and-the-ugly/"><u>The Good, the Bad, and the Ugly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770767-9781684988389-the-second-life/"><u>The Second Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210771159-9798218148201-who-am-i/"><u>Who Am I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/601386-9780307777331-ask-your-angels/"><u>Ask Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/599110-9781451629019-cell-level-healing/"><u>Cell-Level Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/599103-9781451634983-curese-naturaltmente/"><u>Curese Naturaltmente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/604516-9781101478165-its-up-to-you/"><u>It's Up to You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/606579-9781409005957-mind-and-movement/"><u>Mind And Movement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/606580-9781409005995-the-instant-dream-book/"><u>The Instant Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/599113-9781439181867-the-power/"><u>The Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/604517-9781101478196-think-your-troubles-away/"><u>Think Your Troubles Away | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

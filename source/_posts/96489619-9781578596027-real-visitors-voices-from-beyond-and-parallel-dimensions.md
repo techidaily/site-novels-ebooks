@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2024-11-13T16:36:38.408Z
-updated: 2024-11-17T18:42:18.274Z
+date: 2024-11-21T16:03:05.466Z
+updated: 2024-11-27T17:44:13.728Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,10 +254,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210877363-9781633411579-enochian-vision-magick/"><u>Enochian Vision Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210877364-9781934708590-hidden-wisdom/"><u>Hidden Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210877362-9781633411173-magickal-astrology/"><u>Magickal Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210877359-9781633411524-the-cia-ufo-papers/"><u>The CIA UFO Papers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210877361-9781633411616-the-practice-of-enochian-magick/"><u>The Practice of Enochian Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687310-9781440532641-5-minute-mindfulness/"><u>5-Minute Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95686756-9781440560675-love-craft/"><u>Love Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687153-9781440519444-moon-spells/"><u>Moon Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687184-9781440580031-the-modern-guide-to-witchcraft/"><u>The Modern Guide to Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95686860-9781507203644-the-modern-witchcraft-book-of-love-spells/"><u>The Modern Witchcraft Book of Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95685636-9781507202647-the-modern-witchcraft-book-of-tarot/"><u>The Modern Witchcraft Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687136-9781440541810-the-secret-power-of-you/"><u>The Secret Power of You | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

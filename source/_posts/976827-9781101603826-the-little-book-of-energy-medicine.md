@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2024-11-15T01:18:02.363Z
-updated: 2024-11-17T17:15:57.784Z
+date: 2024-11-26T21:04:00.984Z
+updated: 2024-11-27T18:42:16.275Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,10 +192,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210755281-9791028523992-les-4-secrets-de-labondance/"><u>Les 4 secrets de l'abondance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755283-9791028525194-les-mysteres-disis-la-voie-initiatique-de-la-grande-deesse/"><u>Les Mystères d'Isis : La voie initiatique de la Grande Déesse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755252-9791028526504-les-secrets-de-la-shakti/"><u>Les Secrets de la Shakti | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755271-9791028525484-les-signes-de-ta-presence/"><u>Les signes de ta présence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755231-9791028523701-mon-eveil-galactique/"><u>Mon éveil galactique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/347591-9781101215975-as-a-man-thinketh/"><u>As a Man Thinketh | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/347641-9781440632556-in-tune-with-the-infinite/"><u>In Tune with the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/345353-9780816662395-mind-matter-and-method/"><u>Mind, Matter, and Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/347699-9781440634383-prosperity/"><u>Prosperity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/347703-9781440634604-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/345808-9780307452344-reinventing-the-body-resurrecting-the-soul/"><u>Reinventing the Body, Resurrecting the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/347480-9781416584285-undiscovered/"><u>Undiscovered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/345048-9781416560401-wishing/"><u>Wishing | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

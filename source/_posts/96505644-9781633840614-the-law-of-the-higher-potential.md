@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2024-11-16T22:38:53.853Z
-updated: 2024-11-17T23:51:10.810Z
+date: 2024-11-21T18:07:26.055Z
+updated: 2024-11-27T21:49:43.773Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,12 +135,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210816443-9781644116661-alphabets-and-the-mystery-traditions/"><u>Alphabets and the Mystery Traditions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816441-9781644116487-fortuna/"><u>Fortuna | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816437-9781591434627-giza-the-tesla-connection/"><u>Giza: The Tesla Connection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816447-9781644118047-living-wands-of-the-druids/"><u>Living Wands of the Druids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816448-9781644118306-pleiadian-soul-healing/"><u>Pleiadian Soul Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816442-9781644116548-sacred-geometry-in-ancient-goddess-cultures/"><u>Sacred Geometry in Ancient Goddess Cultures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816445-9781644117453-the-hermetic-tree-of-life/"><u>The Hermetic Tree of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/684874-9781446458549-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/684899-9781446445891-druid-mysteries/"><u>Druid Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/689158-9781409022268-let-your-life-flow/"><u>Let Your Life Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/685381-9781101526002-the-complete-idiots-guide-to-discovering-your-past-lives-2nd-edition/"><u>The Complete Idiot's Guide to Discovering Your Past Lives, 2nd Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/684940-9781101515365-transcendence/"><u>Transcendence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/684877-9781446445877-turn-around/"><u>Turn-Around | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

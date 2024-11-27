@@ -1,7 +1,7 @@
 ---
 title: Dreams of the Reiki Shaman | Free Book
-date: 2024-10-25T21:07:06.914Z
-updated: 2024-10-26T19:00:13.137Z
+date: 2024-11-26T21:34:23.076Z
+updated: 2024-11-27T20:24:20.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/79c8d03e82799eae2381f0d5f164e207f3ab5be599449523a3deb17655856898.jpg
@@ -169,3 +169,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/79c8d03e82799eae2381f0d5f164e20
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2173153-9781848588509-crop-circles/"><u>Crop Circles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173157-9781848587021-nostradamus-other-prophets-and-seers/"><u>Nostradamus & Other Prophets and Seers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173150-9781848587885-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173151-9781848587892-roswell/"><u>Roswell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173154-9781848587182-ufos-a-history-of-alien-activity-from-sightings-to-abductions-to-global-threat/"><u>UFOs: A History of Alien Activity from Sightings to Abductions to Global Threat | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2024-11-14T18:09:51.977Z
-updated: 2024-11-18T03:13:30.108Z
+date: 2024-11-26T18:41:08.750Z
+updated: 2024-11-27T16:38:05.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,12 +160,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210777064-9798886850819-god-can-use-you/"><u>God Can Use You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210777063-9798886168969-having-faith-is-fun/"><u>Having Faith Is Fun | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210777228-9798889130239-inner-peace-discover-the-power-of-mindfulness-and-emotional-mastery-to-cultivate-a-life-of-inner-peace-and-happiness/"><u>Inner Peace: Discover the Power of Mindfulness and Emotional Mastery to Cultivate a Life of Inner Peace and Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210776979-9798218161729-memories-of-eternity-life-death-love-then-what-2nd-edition-2nd-ed/"><u>Memories of Eternity Life. Death. Love, then what? (2nd Edition) (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210777182-9780473672362-miracle-in-the-dark/"><u>Miracle in the Dark | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210777114-9780646870540-open/"><u>Open | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210777144-9798987341841-the-guidance-groove/"><u>The Guidance Groove | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620470-9780307780928-a-better-way-to-live/"><u>A Better Way to Live | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/623597-9780307784759-greatest-mystery-in-the-world/"><u>Greatest Mystery in the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/624346-9780895564849-life-in-the-labyrinth-2nd-ed/"><u>Life in the Labyrinth (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/623749-9781451613001-natural-abundance/"><u>Natural Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620563-9780307779441-the-complete-guide-to-the-tarot/"><u>The Complete Guide to the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/632153-9781429919838-what-on-earth-have-i-done/"><u>What On Earth Have I Done? | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

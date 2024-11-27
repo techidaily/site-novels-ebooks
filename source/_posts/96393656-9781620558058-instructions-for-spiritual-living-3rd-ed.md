@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2024-11-15T02:43:36.358Z
-updated: 2024-11-17T19:35:23.203Z
+date: 2024-11-21T16:39:13.036Z
+updated: 2024-11-27T18:33:29.547Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -193,10 +193,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211066479-9789358054187-advanced-course-in-yogi-philosophy-and-oriental-occultism/"><u>Advanced Course in Yogi Philosophy and Oriental Occultism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211074794-9781449442545-be-a-light-unto-yourself/"><u>Be a Light Unto Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211074509-9781841815725-the-little-book-of-inner-peace/"><u>The Little Book of Inner Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211073804-9781579511401-the-politics-of-self-determination/"><u>The Politics of Self-Determination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211074511-9781841815732-you-are-my-sun-and-my-moon-and-all-my-stars/"><u>You are My Sun and My Moon and All My Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95829424-9781944529291-consciousess-and-quantum-theory/"><u>Consciousess and Quantum Theory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95830277-9781616405755-flying-saucers-over-the-white-house/"><u>Flying Saucers over the White House | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95829423-9781507150351-kombinationen-der-tarockkarten-zwischen-grossen-und-kleinen-arkana/"><u>Kombinationen der Tarockkarten zwischen großen und kleinen Arkana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95829874-9781944529314-myth-consciousness-and-psychic-research/"><u>Myth, Consciousness, and Psychic Research | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95829741-9781944529260-psychic-research-in-the-soviet-union/"><u>Psychic Research in the Soviet Union | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95830101-9781944529130-psychokinesis/"><u>Psychokinesis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95830361-9781616409159-wallace-d-wattles-trilogy/"><u>Wallace D. Wattles Trilogy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95833130-9781449487508-you-are-amazing/"><u>You Are Amazing | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

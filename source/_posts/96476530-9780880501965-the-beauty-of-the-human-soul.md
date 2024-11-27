@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-11-11T00:59:13.746Z
-updated: 2024-11-18T03:22:16.058Z
+date: 2024-11-22T20:56:21.516Z
+updated: 2024-11-27T20:11:31.397Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,12 +183,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210925795-9780639939537-acta-non-verba/"><u>Acta Non Verba | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210922806-9781803814254-destiny-blockers/"><u>Destiny Blockers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210925076-9781920707385-embrace-your-elegant-power/"><u>Embrace Your Elegant Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926285-9781903353554-from-the-moment-we-met/"><u>From The Moment We Met | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210925708-9780639992891-life-simplified/"><u>Life Simplified | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926283-9781903353639-the-astrology-of-the-self/"><u>The Astrology of the Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210925914-9780639992983-train-naked/"><u>Train Naked | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758766-9781501171796-la-magia-del-lerego/"><u>La Magia del LEREGO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758294-9780834841024-mindfulness-on-the-go/"><u>Mindfulness on the Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758671-9781507205020-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758425-9781841814803-the-encyclopedia-of-crystals-new-edition/"><u>The Encyclopedia of Crystals, New Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758691-9781507204726-the-green-witch/"><u>The Green Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95756414-9781250138071-the-wisdom-of-sundays/"><u>The Wisdom of Sundays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758312-9781101992302-thriving-through-uncertainty/"><u>Thriving Through Uncertainty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758668-9781507205082-unlightenment/"><u>Unlightenment | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-11-13T03:12:54.514Z
-updated: 2024-11-18T01:03:57.720Z
+date: 2024-11-22T20:13:25.177Z
+updated: 2024-11-27T17:36:53.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,9 +162,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210970674-9781803410999-enter-the-journey/"><u>Enter the Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970676-9781803410036-pagan-portals-freya/"><u>Pagan Portals - Freya | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970673-9781803413372-pause-a-spiritual-power/"><u>Pause - A Spiritual Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970675-9781803412290-spontaneous-contacts-with-the-deceased/"><u>Spontaneous Contacts with the Deceased | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782703-9781594778445-fusion-of-the-five-elements/"><u>Fusion of the Five Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782697-9781620556801-journeys-in-the-kali-yuga/"><u>Journeys in the Kali Yuga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782698-9781594775499-shaman-md/"><u>Shaman, M.D. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782699-9781620550793-the-healing-power-of-gemstones/"><u>The Healing Power of Gemstones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782700-9781594778438-the-inner-smile/"><u>The Inner Smile | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782702-9781594778421-the-inner-structure-of-tai-chi-2nd-ed/"><u>The Inner Structure of Tai Chi (2nd ed.) | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

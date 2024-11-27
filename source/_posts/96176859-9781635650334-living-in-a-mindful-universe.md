@@ -1,7 +1,7 @@
 ---
 title: Living in a Mindful Universe | Free Book
-date: 2024-10-23T21:11:22.276Z
-updated: 2024-10-26T19:29:59.851Z
+date: 2024-11-23T19:02:04.807Z
+updated: 2024-11-27T22:03:35.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a246f029fdcdbdb842026e1306589e9988a652b97a748c78f96969546289910.jpg
@@ -352,3 +352,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a246f029fdcdbdb842026e1306589e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211253637-9798891940222-dream-whispers/"><u>Dream Whispers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253478-9791222482941-embracing-nature/"><u>Embracing Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253422-9798869049797-la-casa-de-los-espiritus-sufridores/"><u>La Casa de los Espíritus Sufridores | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253450-9798869052902-la-granja-del-silencio/"><u>La Granja del Silencio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253282-9781958997567-los-fundamentos/"><u>Los Fundamentos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253533-9798869057990-nothing-is-by-chance/"><u>Nothing is by Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253344-9783911031103-picatrix/"><u>Picatrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253660-9798988340331-the-cognative-fitness-workbook/"><u>The Cognative Fitness Workbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

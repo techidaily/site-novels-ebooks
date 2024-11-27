@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2024-11-11T21:13:07.789Z
-updated: 2024-11-18T01:32:24.070Z
+date: 2024-11-26T16:33:39.052Z
+updated: 2024-11-27T23:14:28.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,12 +178,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210970428-9781916673649-bedtime-stories-for-stressed-out-adults/"><u>Bedtime Stories For Stressed Out Adults | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970413-9781088251652-jumelles/"><u>JUMELLES | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970414-9781088250310-jurema-de-la-selva/"><u>Jurema de la Selva | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970416-9781088250990-recuerdos-que-el-viento-trae/"><u>Recuerdos que el Viento Trae | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970415-9781088251171-secretos-del-alma/"><u>Secretos del Alma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970417-9781088251294-sintiendo-en-la-propia-piel/"><u>Sintiendo en la propia piel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970420-9781088251416-solo-por-amor/"><u>Solo por Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782682-9781594778483-bone-marrow-nei-kung/"><u>Bone Marrow Nei Kung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782689-9781594776656-darkness-visible/"><u>Darkness Visible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782688-9781594778568-decoding-the-enochian-secrets/"><u>Decoding the Enochian Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782683-9781594779459-karsai-nei-tsang/"><u>Karsai Nei Tsang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782684-9781594777899-the-vaastu-workbook/"><u>The Vaastu Workbook | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

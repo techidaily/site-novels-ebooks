@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales on Land and Sea | Free Book
-date: 2024-11-10T21:41:37.126Z
-updated: 2024-11-17T18:09:39.066Z
+date: 2024-11-26T16:21:09.287Z
+updated: 2024-11-27T18:28:31.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84ca67bb8fdd72f5a2d46f84bb32fed98e81.jpg
@@ -134,9 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211211717-9781803414218-astrolations/"><u>Astrolations! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211211608-9798889823827-esoterica-unveiled/"><u>Esoterica Unveiled | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211210806--tarot-for-light-seers/"><u>Tarot for Light Seers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211211623--the-inner-bonding-masterclass/"><u>The Inner Bonding Masterclass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96298863-9781684033416-an-invitation-to-freedom/"><u>An Invitation to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96296137-9780834841697-bodyfulness/"><u>Bodyfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96296526-9780994616685-christ-centred-mindfulness/"><u>Christ-Centred Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96298903-9781608939701-haunted-maine-lighthouses/"><u>Haunted Maine Lighthouses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96301953-9781547536276-in-cammino-con-elijah-la-favola-di-un-viaggio-di-una-vita-e-la-realizzazione-di-unanima/"><u>In Cammino con Elijah, La favola di un viaggio di una vita e la realizzazione di un’Anima. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96296147-9780834841796-the-integral-vision/"><u>The Integral Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96296140-9780834841918-the-stars-within-you/"><u>The Stars Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96300702-9780753552667-time-and-how-to-spend-it/"><u>Time and How to Spend It | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

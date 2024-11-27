@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-11-12T20:04:36.714Z
-updated: 2024-11-18T02:59:44.586Z
+date: 2024-11-24T17:41:45.528Z
+updated: 2024-11-27T20:51:42.837Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac07a38be5866ac3c050132f9f679e6b03a3.jpg
@@ -141,9 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211009199-9789358056471-animal-ghosts-or-animal-hauntings-and-the-hereafter/"><u>Animal Ghosts Or, Animal Hauntings and the Hereafter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211009204-9789358057119-byways-of-ghost-land/"><u>Byways of Ghost-Land | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211009248-9789358056716-ghostly-phenomena/"><u>Ghostly Phenomena | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211009237-9789358056969-the-banshee/"><u>The Banshee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782811-9781620554289-emotion-and-healing-in-the-energy-body/"><u>Emotion and Healing in the Energy Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782905-9781594777844-himalayan-salt-crystal-lamps/"><u>Himalayan Salt Crystal Lamps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782878-9781594776526-qigong-teachings-of-a-taoist-immortal/"><u>Qigong Teachings of a Taoist Immortal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782867-9781594777820-reiki-energy-medicine/"><u>Reiki Energy Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782827-9781620552537-seiki-jutsu/"><u>Seiki Jutsu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782825-9781620550045-self-healing-with-breathwork/"><u>Self-Healing with Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782793-9781620555620-tantric-jesus/"><u>Tantric Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782851-9781620554180-the-spiritual-mysteries-of-blood/"><u>The Spiritual Mysteries of Blood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782884-9781594775253-the-warrior-as-healer/"><u>The Warrior As Healer | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

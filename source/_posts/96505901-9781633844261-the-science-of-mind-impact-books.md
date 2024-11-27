@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-11-11T16:19:22.169Z
-updated: 2024-11-17T19:20:24.401Z
+date: 2024-11-24T23:09:18.339Z
+updated: 2024-11-27T20:56:00.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,13 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761617-9781683644835-freedom-for-all-of-us/"><u>Freedom for All of Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761638-9781683647034-maiden-to-mother/"><u>Maiden to Mother | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761606-9781683644224-rewilding/"><u>Rewilding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761636-9781683646761-star-child/"><u>Star Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761611-9781683644293-stay-woke/"><u>Stay Woke | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761630-9781683646150-the-direct-way/"><u>The Direct Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761631-9781683646631-the-way-of-the-monk/"><u>The Way of the Monk | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761645-9781683647140-trusting-the-gold/"><u>Trusting the Gold | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435873-9781775568476-a-textbook-of-theosophy/"><u>A Textbook of Theosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435872-9781775568490-the-astral-plane/"><u>The Astral Plane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435855-9781775568582-the-basis-of-morality/"><u>The Basis of Morality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435880-9781775568438-the-crest-wave-of-evolution/"><u>The Crest-Wave of Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435883-9781775568414-the-doctrine-and-practice-of-yoga/"><u>The Doctrine and Practice of Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435881-9781775568407-the-secret-of-dreams/"><u>The Secret of Dreams | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

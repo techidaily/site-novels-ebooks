@@ -1,7 +1,7 @@
 ---
 title: शोषित पराजित...पीड़िता से विजेता | Free Book
-date: 2024-10-23T05:17:27.125Z
-updated: 2024-10-26T19:06:57.319Z
+date: 2024-11-24T20:40:20.779Z
+updated: 2024-11-27T22:01:48.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/deecb39386425f0cafb42e5525db994f43e29c0ad5b2fd81e9b31c12c459a6f8.jpg
@@ -142,3 +142,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/deecb39386425f0cafb42e5525db994
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239550--anubisancient-egypts-lord-of-death-and-protection/"><u>Anubis—Ancient Egypt’s Lord of Death and Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239549--how-to-read-and-interpret-a-birth-chart/"><u>How to Read and Interpret a Birth Chart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240210-9782385640446-les-enfants-de-la-lumiere/"><u>Les enfants de la Lumière | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239551--my-good-friend-the-rattlesnake/"><u>My Good Friend the Rattlesnake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239553--soul-growth-astrology/"><u>Soul Growth Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240382-9780998561035-the-human-story/"><u>The Human Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239552-9781950253548-the-shamans-book-of-extraordinary-practices/"><u>The Shaman's Book of Extraordinary Practices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240577-9798985186581-the-west-grand-haunting/"><u>The West Grand Haunting | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

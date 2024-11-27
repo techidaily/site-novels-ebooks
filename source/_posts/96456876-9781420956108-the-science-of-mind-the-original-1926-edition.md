@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-11-14T18:21:40.318Z
-updated: 2024-11-18T00:31:35.559Z
+date: 2024-11-22T20:11:15.084Z
+updated: 2024-11-27T23:21:51.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,14 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210968728-9781088225400-aimless-hearts/"><u>Aimless Hearts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968722-9798988050513-buddha-behind-bars-a-memoir/"><u>Buddha Behind Bars - A Memoir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968712-9781761039348-erwachen-des-dritten-auges/"><u>Erwachen des Dritten Auges | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968714-9781761039409-geistfuhrer/"><u>Geistführer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968745-9781088237458-greta/"><u>Greta | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968727-9781088225646-lessons-that-life-provides/"><u>LESSONS THAT LIFE PROVIDES | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968740-9781088225714-no-rules-to-love/"><u>NO RULES TO LOVE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968744-9781088231494-the-world-i-found/"><u>The World I Found | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968742-9781088232996-toujours-avec-moi/"><u>Toujours avec moi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782518-9781591432845-advanced-shamanism/"><u>Advanced Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782523-9781591438274-entering-the-mind-of-the-tracker/"><u>Entering the Mind of the Tracker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782521-9781591437772-esoteric-egypt/"><u>Esoteric Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782515-9781591439844-grey-aliens-and-the-harvesting-of-souls/"><u>Grey Aliens and the Harvesting of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782517-9781591432326-our-dolphin-ancestors/"><u>Our Dolphin Ancestors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782524-9781591439875-the-8-calendars-of-the-maya/"><u>The 8 Calendars of the Maya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782520-9781591439882-the-purposeful-universe/"><u>The Purposeful Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782519-9781591438700-the-toltec-path-of-recapitulation/"><u>The Toltec Path of Recapitulation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782525-9781591438632-the-tutankhamun-prophecies/"><u>The Tutankhamun Prophecies | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

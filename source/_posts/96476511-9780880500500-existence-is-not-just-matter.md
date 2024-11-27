@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2024-11-15T03:37:56.314Z
-updated: 2024-11-17T21:11:42.618Z
+date: 2024-11-22T21:32:22.225Z
+updated: 2024-11-27T20:11:02.004Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,13 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210965812-9781088224571-el-castillo-de-suenos/"><u>El Castillo de Sueños | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965700-9798887635606-god-and-me/"><u>God and Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965573-9781088220900-spell-jars-for-beginners/"><u>Spell Jars for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965577-9781088221693-spell-jars-for-beginners/"><u>Spell Jars for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965578-9781088221839-spell-jars-for-beginners/"><u>Spell Jars for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965615-9781959290032-time-to-rise-and-shine/"><u>Time to Rise and Shine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965627-9780645881615-walk-in-beauty/"><u>Walk in Beauty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965842-9780645523782-your-body-is-the-portal-to-your-soul/"><u>Your Body Is the Portal to Your Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782423-9781591432524-awakening-of-the-watchers/"><u>Awakening of the Watchers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782422-9781591439134-genesis-revisited/"><u>Genesis Revisited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782426-9781591432906-quantum-dna-healing/"><u>Quantum DNA Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782424-9781591438779-the-chalice-of-magdalene-2nd-ed/"><u>The Chalice of Magdalene (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782427-9781591439646-the-cycle-of-cosmic-catastrophes/"><u>The Cycle of Cosmic Catastrophes | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

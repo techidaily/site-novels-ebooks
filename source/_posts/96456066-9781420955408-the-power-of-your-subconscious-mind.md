@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-11-11T20:28:33.845Z
-updated: 2024-11-17T16:50:29.167Z
+date: 2024-11-22T17:51:24.501Z
+updated: 2024-11-27T20:29:24.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,13 +156,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210966357-9781088239803-coeurs-sans-destin/"><u>COEURS SANS DESTIN | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966352-9781088239964-dans-le-silence-des-passions/"><u>Dans Le Silence Des Passions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966332-9781088235423-el-brillo-de-la-verdad/"><u>El Brillo de la Verdad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966358-9781088233207-el-pretoriano/"><u>El Pretoriano | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966228-9781639036912-gods-will-and-plan-for-your-life/"><u>God's Will and Plan for Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966354-9781088240281-la-certitude-de-la-victoire/"><u>LA CERTITUDE DE LA VICTOIRE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966356-9781088233481-leila-la-hija-de-charles-la-verdadera-historia-de-yvonne-a-pereira/"><u>Leila, la hija de Charles. La verdadera historia de Yvonne A. Pereira | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966327-9781088240359-un-journal-intime-au-fil-du-temps/"><u>UN JOURNAL INTIME AU FIL DU TEMPS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782485-9781591437833-atlantis-and-the-coming-ice-age-2nd-ed/"><u>Atlantis and the Coming Ice Age (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782477-9781591438953-atlantis-beneath-the-ice-2nd-ed/"><u>Atlantis beneath the Ice (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782482-9781591439783-atlantis-in-the-amazon/"><u>Atlantis in the Amazon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782484-9781591438465-don-juan-and-the-power-of-medicine-dreaming-2nd-ed/"><u>Don Juan and the Power of Medicine Dreaming (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782481-9781591437598-shamanic-awakening-2nd-ed/"><u>Shamanic Awakening (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782487-9781591439929-shamanic-breathwork/"><u>Shamanic Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782483-9781591439806-shamanic-egyptian-astrology/"><u>Shamanic Egyptian Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782486-9781591439455-the-return-of-the-rebel-angels/"><u>The Return of the Rebel Angels | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

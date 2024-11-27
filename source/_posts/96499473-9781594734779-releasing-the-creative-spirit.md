@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2024-11-13T18:56:28.409Z
-updated: 2024-11-17T16:00:48.378Z
+date: 2024-11-21T21:28:48.412Z
+updated: 2024-11-27T16:02:24.172Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,14 +182,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210773371-9780645114928-being-a-grown-up/"><u>Being a Grown Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773379-9781649693808-chakras-food-you/"><u>CHAKRA'S FOOD & YOU | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773430-9781685833800-life-simply-a-perspective/"><u>Life: Simply a perspective | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773420-9781649694188-nostradamus-unlocked/"><u>NOSTRADAMUS Unlocked | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773482-9781649698674-the-extraterrestrial-life/"><u>THE EXTRATERRESTRIAL LIFE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773509-9781922439727-the-floating-world/"><u>The Floating World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773538-9781649696526-the-quarry-event/"><u>The Quarry Event | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773452-9781649697189-the-sound-of-the-stone-being-rolled-away/"><u>The sound of the stone being rolled away | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773401-9781649692924-unknown/"><u>Unknown | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/613009-9781429907811-compassion/"><u>Compassion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/616616-9781770704695-ghost-stories-of-newfoundland-and-labrador/"><u>Ghost Stories of Newfoundland and Labrador | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/615383-9781429935258-life-love-laughter/"><u>Life, Love, Laughter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/615437-9781429944663-the-man-who-loved-seagulls/"><u>The Man Who Loved Seagulls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/614572-9781439145449-the-spaceships-of-the-visitors/"><u>The Spaceships of the Visitors | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Libra 2019: Your Personal Horoscope | Free Book"
-date: 2024-10-21T04:02:25.557Z
-updated: 2024-10-27T01:53:54.225Z
+date: 2024-11-26T16:21:33.040Z
+updated: 2024-11-27T22:57:11.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/97ddd76f94afa8471d39b1e669b2a4f99da0d8f55aa3b37c2b9b3e35bcd9f50b.jpg
@@ -162,3 +162,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/97ddd76f94afa8471d39b1e669b2a4f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211359630-9798869397485-embracing-the-elements/"><u>Embracing the Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359591-9798330200085-hexes-and-hauntings/"><u>Hexes and Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359581--mindfulness-and-presence/"><u>Mindfulness and Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359643-9798869397362-the-green-witchs-guide-to-growing-magic-herbalism-for-kitchen-witches-unlock-the-secrets-of-nature-to-enrich-your-culinary-and-magical-practices/"><u>The Green Witch's Guide to Growing Magic: Herbalism for Kitchen Witches - Unlock the Secrets of Nature to Enrich Your Culinary and Magical Practices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359590-9798869375155-the-mystical-connection/"><u>The Mystical Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359602-9798330200290-the-ultimate-book-of-witchcraft-spells/"><u>The Ultimate Book of Witchcraft Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359638-9798869397874-the-ultimate-guide-to-runes/"><u>The Ultimate Guide to Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359636-9798869397607-witches-grimoire-a-comprehensive-collection-of-powerful-spells-for-wicca-practitioners-master-the-art-of-witchcraft-and-spellcasting-enhance-your-magical-skills/"><u>Witches' Grimoire: A Comprehensive Collection of Powerful Spells for Wicca Practitioners - Master the Art of Witchcraft and Spellcasting - Enhance Your Magical Skills | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

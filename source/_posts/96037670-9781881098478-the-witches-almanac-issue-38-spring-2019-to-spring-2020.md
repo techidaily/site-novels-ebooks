@@ -1,7 +1,7 @@
 ---
 title: "The Witches' Almanac: Issue 38, Spring 2019 to Spring 2020 | Free Book"
-date: 2024-10-20T16:19:13.268Z
-updated: 2024-10-26T22:52:57.607Z
+date: 2024-11-26T22:25:23.979Z
+updated: 2024-11-27T19:41:22.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51c4978886973cef8bc378531e6690594eb391684b9cd7e0290c6af6927e6dcb.jpg
@@ -174,3 +174,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51c4978886973cef8bc378531e66905
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211349242-9798988596257-a-manual-for-manifesting-your-dream-life/"><u>A Manual For Manifesting Your Dream Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211349300-9781959453314-at-his-feet/"><u>At His Feet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211348926-9798869360175-el-extrano-caso-de-rose-ramirez/"><u>El Extraño Caso de Rose Ramirez | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211349036-9782826590170-mindfulness-workbook-for-anxiety/"><u>Mindfulness Workbook For Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211349052-9798869362698-one-book-god-is-love/"><u>One Book God is Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211349045-9798869345547-organic-life/"><u>Organic Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211349047-9798869362438-serpiente-ascendente/"><u>Serpiente Ascendente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350503--the-great-architects-of-mars/"><u>The Great Architects of Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211348800-9798869372321-you-are-not-alone/"><u>You are Not Alone | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

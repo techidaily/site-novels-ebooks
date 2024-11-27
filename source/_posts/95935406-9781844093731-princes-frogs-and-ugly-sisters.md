@@ -1,7 +1,7 @@
 ---
 title: Princes, Frogs and Ugly Sisters | Free Book
-date: 2024-10-25T04:44:08.108Z
-updated: 2024-10-27T05:27:34.068Z
+date: 2024-11-24T21:08:29.846Z
+updated: 2024-11-27T20:28:09.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0ec37851c9f70f30f2763a64d1e165e23cecfad093657b9421eb106fc13c348.jpg
@@ -145,3 +145,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0ec37851c9f70f30f2763a64d1e165
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211438855--beyond-ayahuasca/"><u>Beyond Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211438379-9781958997918-ground-in-eternity/"><u>Ground in Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211438562-9781789295818-haunted-world/"><u>Haunted World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211438407-9798218487409-interdimensional-entities/"><u>Interdimensional Entities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439101--tarot-in-other-words/"><u>Tarot in Other Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211437032-9781961493346-the-energy-healers-oracle/"><u>The Energy Healer's Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211437115-9780486854410-tolstoy-in-search-of-truth-and-meaning/"><u>Tolstoy in Search of Truth and Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211437550-9798330330805-why-we-are-supernatural/"><u>Why We Are Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211438428-9781068976803-your-immortal-spirit/"><u>Your Immortal Spirit | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

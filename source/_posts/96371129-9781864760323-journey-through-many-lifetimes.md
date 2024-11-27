@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2024-11-13T00:37:17.780Z
-updated: 2024-11-17T18:46:51.887Z
+date: 2024-11-23T22:13:18.666Z
+updated: 2024-11-27T21:39:30.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -141,11 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211166565-9781950921416-a-collection-of-true-paranormal-police-encounters/"><u>A Collection of True Paranormal Police Encounters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166628-9781837822386-dreams-of-awakening-revised-edition/"><u>Dreams of Awakening (Revised Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211168067-9782017186601-le-grand-livre-de-lastrologie/"><u>Le grand livre de l'astrologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166603--the-little-book-of-gratitude/"><u>The Little Book of Gratitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166602-9781841815817-the-little-book-of-meditation/"><u>The Little Book of Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166571-9781396323119-wisdom-of-the-ages/"><u>Wisdom of the Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96166363-9781547513390-chronobiology-the-biology-of-time/"><u>Chronobiology: the Biology of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96166593-9781547521012-ensueno-una-teoria-de-la-conspiracion/"><u>Ensueño. Una Teoría de la Conspiración | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96171016-9781547527076-fique-rico-jogando-na-lotaria-sistema-de-magia-mental-comprovado/"><u>Fique Rico Jogando na Lotaria. Sistema de Magia Mental Comprovado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96167846-9781449494698-the-book-of-tarot/"><u>The Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96172190-9781507209158-the-witchs-book-of-self-care/"><u>The Witch's Book of Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96170556-9781684030774-when-spirit-leaps/"><u>When Spirit Leaps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96169719-9780824865672-zen-sand/"><u>Zen Sand | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

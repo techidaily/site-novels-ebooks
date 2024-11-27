@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2024-11-14T17:19:42.416Z
-updated: 2024-11-17T16:47:58.255Z
+date: 2024-11-25T17:11:07.255Z
+updated: 2024-11-27T22:07:29.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,14 +205,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211114278-9798987016480-ancient-sky-watchers-mythic-themes/"><u>Ancient Sky Watchers & Mythic Themes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211114283-9798989037520-as-above-so-below-sun-moon-stars/"><u>As Above, So Below Sun, Moon & Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211114131-9798885402774-hidden-treasures-ii/"><u>Hidden Treasures II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211114167-9798822931657-light-truth-power/"><u>Light Truth Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211113763-9782385640156-manifestation-sacree/"><u>Manifestation sacrée | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211114521-9781804131251-paganism-persisting/"><u>Paganism Persisting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211114720-9798868906282-pendulum-healing/"><u>Pendulum Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211114254-9780645912111-shine/"><u>SHINE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211114390-9780994284587-the-book-of-hatma/"><u>The Book of Hatma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917945-9781620556689-dictionary-of-gypsy-mythology/"><u>Dictionary of Gypsy Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95913236-9782268097602-edgar-cayce-guerir-par-la-musique/"><u>Edgar Cayce : guérir par la musique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95910651-9781941394267-for-love-of-the-real/"><u>For Love of the Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95913239-9782268097381-la-premiere-lettre-tome-3/"><u>La Première Lettre, tome 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95916685-9782268097466-la-symbolique-maconnique-devoilee/"><u>La symbolique maçonnique dévoilée | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95913246-9782268097190-les-therapeutes-de-linvisible/"><u>Les thérapeutes de l'invisible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95911335-9781612833958-medicine-wheel-plain-simple/"><u>Medicine Wheel Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917944-9781591432920-sacred-messengers-of-shamanic-africa/"><u>Sacred Messengers of Shamanic Africa | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

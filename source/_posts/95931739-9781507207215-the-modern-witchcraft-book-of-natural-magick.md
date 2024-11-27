@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Book of Natural Magick | Free Book
-date: 2024-10-23T01:16:55.318Z
-updated: 2024-10-27T01:58:06.038Z
+date: 2024-11-24T20:04:42.709Z
+updated: 2024-11-27T23:07:47.801Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/744e4a2af9c32112fc02624b6e57888a0c598218b58c8c9da7c7c80f4dd5f70c.jpg
@@ -181,3 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/744e4a2af9c32112fc02624b6e57888
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2505838-9781626256309-bigger-than-the-sky/"><u>Bigger Than the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2505839-9781626256804-the-book-of-no-one/"><u>The Book of No One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2507089-9781466877115-the-power-of-love/"><u>The Power of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2505842-9781626256996-walking-awake/"><u>Walking Awake | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

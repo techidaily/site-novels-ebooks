@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2024-11-15T19:24:58.979Z
-updated: 2024-11-17T16:17:49.294Z
+date: 2024-11-21T21:53:33.839Z
+updated: 2024-11-27T17:09:07.893Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,9 +249,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761476-9781591798767-emptiness-dancing/"><u>Emptiness Dancing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761479-9781604079456-energy-healing/"><u>Energy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761475-9781604074550-the-bowl-of-light/"><u>The Bowl of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761472-9781604074727-the-path-of-the-yoga-sutras/"><u>The Path of the Yoga Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/409405-9781440685439-a-message-to-garcia/"><u>A Message to Garcia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/411794-9781440696244-empowering-your-life-with-angels/"><u>Empowering Your Life with Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/410847-9781416959298-most-good-least-harm/"><u>Most Good, Least Harm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/412076-9781440695810-the-complete-idiots-guide-to-celtic-wisdom/"><u>The Complete Idiot's Guide to Celtic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/410841-9781439155134-the-power-of-soul/"><u>The Power of Soul | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

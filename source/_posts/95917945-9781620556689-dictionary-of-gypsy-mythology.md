@@ -1,7 +1,7 @@
 ---
 title: Dictionary of Gypsy Mythology | Free Book
-date: 2024-10-23T19:42:43.655Z
-updated: 2024-10-26T19:22:48.287Z
+date: 2024-11-22T22:44:15.016Z
+updated: 2024-11-27T18:35:31.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88641f940f851764b217df29fed73b327d8b9141f7d842eda5223829e641c15e.jpg
@@ -200,3 +200,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88641f940f851764b217df29fed73b3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2550505-9781935209171-being-peace/"><u>Being Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550493-9781780282497-do-it-yourself-numerology/"><u>Do It Yourself Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550499-9781935209027-happiness/"><u>Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550494-9781780282503-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2549965-9781317055938-shamanism-and-violence/"><u>Shamanism and Violence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550401-9780451496010-wake-up-to-the-joy-of-you/"><u>Wake Up to the Joy of You | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

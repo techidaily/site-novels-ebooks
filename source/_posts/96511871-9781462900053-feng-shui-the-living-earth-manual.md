@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2024-11-12T16:13:13.918Z
-updated: 2024-11-17T22:31:56.790Z
+date: 2024-11-26T16:39:50.508Z
+updated: 2024-11-27T22:31:14.767Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,12 +148,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210727679-9781781313404-goodbye-dear-friend/"><u>Goodbye, Dear Friend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210729317-9798987142929-i-gave-up-my-life-to-find-it/"><u>I Gave Up My Life to Find IT | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210729643-9798987263327-loved-by-the-light/"><u>Loved by the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727711-9781782406303-mindful-thoughts-for-walkers/"><u>Mindful Thoughts for Walkers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727708-9781782400295-mindfulness-for-black-dogs-and-blue-days/"><u>Mindfulness for Black Dogs and Blue Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727821-9781803410470-pagan-portals-21st-century-fairy/"><u>Pagan Portals - 21st Century Fairy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210729344-9798886855364-paul-the-doll/"><u>Paul the Doll | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682501-9781515409236-the-ideal-life-and-other-unpublished-addresses/"><u>The Ideal Life and Other Unpublished Addresses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682512-9781515409595-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682515-9781515409557-the-law-of-the-higher-potential/"><u>The Law of the Higher Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682521-9781515409328-the-life-triumphant/"><u>The Life Triumphant | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

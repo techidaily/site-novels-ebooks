@@ -1,7 +1,7 @@
 ---
 title: Power Places and the Master Builders of Antiquity | Free Book
-date: 2024-10-20T03:44:48.130Z
-updated: 2024-10-26T21:33:57.579Z
+date: 2024-11-26T17:48:26.044Z
+updated: 2024-11-27T18:09:22.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1dac0bbddf8d78c59895a8f8084ca2948d7c4d04a6992a00c3e96948012698db.jpg
@@ -183,3 +183,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1dac0bbddf8d78c59895a8f8084ca29
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2550585-9781941529096-how-to-relax/"><u>How to Relax | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550560-9781937006501-moments-of-mindfulness/"><u>Moments of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550779-9781250070074-os-little-guide-to-starting-over/"><u>O's Little Guide to Starting Over | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550558-9781937006488-peace-of-mind/"><u>Peace of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550553-9781937006372-small-bites/"><u>Small Bites | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

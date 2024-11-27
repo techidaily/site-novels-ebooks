@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2024-11-17T03:35:59.255Z
-updated: 2024-11-17T21:14:50.684Z
+date: 2024-11-22T17:52:56.093Z
+updated: 2024-11-27T23:20:27.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,9 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932825-9781855844384-karmic-relationships-volume-2/"><u>Karmic Relationships: Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932830-9781855844261-karmic-relationships-volume-5/"><u>Karmic Relationships: Volume 5 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932831-9781855843172-mystery-knowledge-and-mystery-centres/"><u>Mystery Knowledge and Mystery Centres | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932827-9781912230679-rudolf-steiner/"><u>Rudolf Steiner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782138-9781594777721-the-hermetic-code-in-dna/"><u>The Hermetic Code in DNA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782137-9781594779312-the-invisible-history-of-the-rosicrucians/"><u>The Invisible History of the Rosicrucians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782142-9781594775758-the-jade-emperors-mind-seal-classic-2nd-ed/"><u>The Jade Emperor's Mind Seal Classic (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782135-9781620554166-the-john-michell-reader-2nd-ed/"><u>The John Michell Reader (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782143-9781594779275-the-sacred-center-2nd-ed/"><u>The Sacred Center (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782136-9781594776298-the-sacred-embrace-of-jesus-and-mary/"><u>The Sacred Embrace of Jesus and Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782140-9781594777868-the-sacred-network/"><u>The Sacred Network | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782141-9781594777066-the-sacred-rite-of-magical-love/"><u>The Sacred Rite of Magical Love | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

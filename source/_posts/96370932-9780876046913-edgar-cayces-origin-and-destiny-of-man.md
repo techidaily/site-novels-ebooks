@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Origin and Destiny of Man | Free Book
-date: 2024-11-12T16:45:29.003Z
-updated: 2024-11-17T19:19:15.095Z
+date: 2024-11-22T21:17:30.646Z
+updated: 2024-11-27T17:53:13.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa2c793124908b958b4a5f62931aa531578.jpg
@@ -141,13 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211145113-9781801292221-master-your-mind-and-energy-to-heal-your-body/"><u>Master Your Mind and Energy to Heal Your Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211143092-9791093883526-meditation-bouddhiste/"><u>Méditation Bouddhiste | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211143084-9791093883625-petits-galets-sur-le-chemin/"><u>Petits galets sur le chemin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145175-9781804530412-pisces/"><u>Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145132-9781800693159-the-little-book-of-mantras/"><u>The Little Book of Mantras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211145134-9781800693135-the-little-book-of-numerology/"><u>The Little Book of Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211142959-9781916544031-the-power-of-dreams-an-evolutionary-tool-for-change/"><u>The Power of Dreams - An evolutionary tool for change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211143075-9782360170227-wisdom-in-exile/"><u>Wisdom in Exile | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935433-9781844099009-conscious-food/"><u>Conscious Food | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935431-9781844093090-flight-into-freedom-and-beyond-2nd-ed/"><u>Flight into Freedom and Beyond (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935430-9781844093793-the-keys-to-the-universe/"><u>The Keys to the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935432-9781844097661-the-language-of-the-soul/"><u>The Language of the Soul | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

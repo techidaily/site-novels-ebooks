@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-11-14T17:25:43.024Z
-updated: 2024-11-18T02:19:15.444Z
+date: 2024-11-26T21:18:52.421Z
+updated: 2024-11-27T17:07:54.343Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,13 +130,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210755289-9782017205920-calmer-sa-peine/"><u>Calmer sa peine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755284-9791028523985-creer-une-alliance-avec-vos-animaux-totem/"><u>Créer une alliance avec vos animaux totem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755391-9791028519124-devenez-une-sorciere-cest-malin/"><u>Devenez une sorcière, c'est malin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755364-9791028523855-mon-abecedaire-spirite/"><u>Mon abécédaire spirite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755343-9791028526597-nouveau-karma-nouveau-moi/"><u>Nouveau karma, nouveau moi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755353-9791028523619-secrets-de-pendule/"><u>Secrets de pendule | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755301-9791028521745-sexualite-sacree/"><u>Sexualité sacrée | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755392-9791028521530-vous-aussi-vous-etes-magnetiseur/"><u>Vous aussi, vous êtes magnétiseur ! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/350755-9781440629433-a-matter-of-life-and-death/"><u>A Matter of Life and Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/350314-9781846427671-ageing-disability-and-spirituality/"><u>Ageing, Disability and Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/348273-9781416579458-more-notes-from-the-universe/"><u>More Notes From the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/348282-9781439105528-soul-wisdom/"><u>Soul Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/347751-9781440637407-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/347752-9781440637476-the-law-of-attraction-in-action/"><u>The Law of Attraction in Action | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

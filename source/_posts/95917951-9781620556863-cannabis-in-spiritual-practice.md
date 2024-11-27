@@ -1,7 +1,7 @@
 ---
 title: Cannabis in Spiritual Practice | Free Book
-date: 2024-10-20T04:57:40.534Z
-updated: 2024-10-26T21:30:09.618Z
+date: 2024-11-23T17:36:35.584Z
+updated: 2024-11-27T22:12:29.246Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72e8605b140877138990c01e92f98329729c8bbc53f4b5f2efd5a0d15e8d8048.jpg
@@ -201,3 +201,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72e8605b140877138990c01e92f9832
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2581647-9780008205317-cancer-2017-your-personal-horoscope/"><u>Cancer 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581648-9780008205331-leo-2017-your-personal-horoscope/"><u>Leo 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581650-9780008205348-libra-2017-your-personal-horoscope/"><u>Libra 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581652-9780008205362-sagittarius-2017-your-personal-horoscope/"><u>Sagittarius 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581651-9780008205355-scorpio-2017-your-personal-horoscope/"><u>Scorpio 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581649-9780008205324-virgo-2017-your-personal-horoscope/"><u>Virgo 2017: Your Personal Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

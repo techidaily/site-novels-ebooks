@@ -1,7 +1,7 @@
 ---
 title: Blueprint for Holistic Healing | Free Book
-date: 2024-11-11T21:52:12.078Z
-updated: 2024-11-17T18:34:46.908Z
+date: 2024-11-20T22:38:35.347Z
+updated: 2024-11-27T22:13:03.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0c3fcfbb9f190d1a66c5dd6334d24e3be0.jpg
@@ -139,10 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211163778-9782889702176-communiquer-intuitivement-avec-les-animaux/"><u>Communiquer intuitivement avec les animaux | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211163736-9780645665338-longchenpas-three-cycles-of-natural-freedom/"><u>Longchenpa’s Three Cycles of Natural Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211163495-9798887314976-physics-and-sufi-cosmology/"><u>PHYSICS AND SUFI COSMOLOGY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211163602-9781524894443-squishmallows/"><u>Squishmallows | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211163607-9781524894382-trust-your-timing/"><u>Trust Your Timing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164189-9781401950941-chakradance/"><u>Chakradance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164317-9781608685752-enlightenment-town/"><u>Enlightenment Town | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164193-9781788171748-sacred-oils/"><u>Sacred Oils | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164882-9781472137388-seeing-myself/"><u>Seeing Myself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164185-9781401953942-the-hashimotos-healing-diet/"><u>The Hashimoto's Healing Diet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164924-9781620557938-the-mother-mantra/"><u>The Mother Mantra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164184-9781788171250-this-works/"><u>This Works | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

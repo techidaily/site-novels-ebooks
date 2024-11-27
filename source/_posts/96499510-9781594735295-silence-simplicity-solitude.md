@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2024-11-12T18:20:22.299Z
-updated: 2024-11-18T00:28:42.333Z
+date: 2024-11-24T19:54:50.247Z
+updated: 2024-11-27T16:15:12.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,10 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210773609-9781649691279-energy-reflections/"><u>Energy Reflections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773542-9781649699060-how-to-meditate-handbook/"><u>How to Meditate Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773576-9781925819762-little-meditations/"><u>Little Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773556-9781685833398-men-of-integrity/"><u>MEN OF INTEGRITY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773577-9781925939200-the-light-of-lord/"><u>The Light of Lord | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617406-9780875868189-aliens-and-man/"><u>Aliens and Man? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617031-9781451620979-el-poder/"><u>El Poder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617474-9781849892445-horoscopes-your-future-in-2011/"><u>Horoscopes - Your Future In 2011 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620290-9780307785879-hunab-ku/"><u>Hunab Ku | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/619923-9781101154076-rudolf-steiner/"><u>Rudolf Steiner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617475-9781849892421-tell-your-own-future/"><u>Tell Your Own Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/616639-9781770704565-the-big-book-of-mysteries/"><u>The Big Book of Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/616665-9781770704572-the-big-book-of-ufos/"><u>The Big Book of UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620315-9780307784322-this-is-it/"><u>This Is It | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

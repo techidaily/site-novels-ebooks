@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2024-11-13T21:11:46.324Z
-updated: 2024-11-17T21:52:06.634Z
+date: 2024-11-21T18:06:50.243Z
+updated: 2024-11-27T21:22:26.575Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -142,10 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211135238-9798888326008-a-widows-guide/"><u>A Widow's Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133158-9781591812173-our-secret-territory/"><u>Our Secret Territory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133154-9781591811510-seeds-for-the-soul/"><u>Seeds for the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211135321-9781962290395-the-seventies-again/"><u>The Seventies Again | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211133151-9781591811589-the-shimmering-world/"><u>The Shimmering World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935381-9781844093205-a-little-light-on-the-spiritual-laws/"><u>A Little Light on the Spiritual Laws | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935377-9781844093298-a-new-light-on-ascension/"><u>A New Light on Ascension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935378-9781844093878-the-whale-whisperer/"><u>The Whale Whisperer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935380-9781844092529-write-your-memoir/"><u>Write Your Memoir | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

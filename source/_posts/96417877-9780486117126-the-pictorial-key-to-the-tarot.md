@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2024-11-10T20:17:58.400Z
-updated: 2024-11-18T03:14:42.302Z
+date: 2024-11-21T19:18:01.768Z
+updated: 2024-11-27T16:07:22.277Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,13 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210974497-9782384551750-100-proofs-that-earth-is-not-a-globe/"><u>100 Proofs That Earth Is Not A Globe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974503-9781088248607-amad-a-los-enemigos/"><u>Amad a los Enemigos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211008370-9781782742845-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974395-9798988786320-divine-mystical-truths/"><u>Divine Mystical Truths | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211008406-9781782744016-ghost-sightings/"><u>Ghost Sightings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211008372-9781909160088-i-ching/"><u>I Ching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211009182-9789358056761-some-haunted-houses-of-england-wales/"><u>Some Haunted Houses of England Wales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211002477-9798890039620-the-way-of-the-witch/"><u>The Way of the Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782789-9781620554081-norse-goddess-magic-2nd-ed/"><u>Norse Goddess Magic (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782788-9781594775512-nostradamus-the-lost-manuscript-2nd-ed/"><u>Nostradamus: The Lost Manuscript (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782781-9781620550762-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782785-9781594779411-numerology-for-decoding-behavior/"><u>Numerology for Decoding Behavior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782786-9781594777790-numerology-for-healing/"><u>Numerology for Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782784-9781594777936-obi/"><u>Obí | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782782-9781620550625-tao-and-tai-chi-kung/"><u>Tao and T'ai Chi Kung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782780-9781594777912-taoist-astral-healing/"><u>Taoist Astral Healing | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

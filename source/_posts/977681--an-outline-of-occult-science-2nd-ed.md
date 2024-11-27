@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-11-16T23:44:23.025Z
-updated: 2024-11-17T22:59:35.899Z
+date: 2024-11-26T18:29:38.149Z
+updated: 2024-11-27T22:37:30.363Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,14 +131,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210755575-9791028521158-developpez-vos-facultes-energetiques/"><u>Développez vos facultés énergétiques | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755602-9791028519179-il-nous-faut-tous-un-jour-apprendre-a-mourir/"><u>Il nous faut tous un jour apprendre à mourir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755597-9791028521332-je-decouvre-le-chamanisme-cest-malin/"><u>Je découvre le chamanisme, c'est malin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755751-9791028514136-je-minitie-aux-rituels-de-purification-cest-malin/"><u>Je m'initie aux rituels de purification, c'est malin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755508-9791028508906-la-magie-de-la-priere/"><u>La magie de la prière | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755519-9791028521646-la-vierge-noire-rituels-de-guerison-de-la-grande-deesse/"><u>La Vierge noire : Rituels de guérison de la grande déesse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755578-9791028521172-nouvelle-terre-nouvelle-humanite/"><u>Nouvelle Terre Nouvelle Humanité | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210756421-9781401972714-sacred-vibrations/"><u>Sacred Vibrations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755787-9791028515164-sagesse-des-chakras-au-feminin/"><u>Sagesse des chakras au féminin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/360514-9781440628207-answered-prayers/"><u>Answered Prayers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/357036-9781440626197-the-complete-idiots-guide-to-indigo-children/"><u>The Complete Idiot's Guide to Indigo Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/356964-9781440626234-the-complete-idiots-guide-to-life-after-death/"><u>The Complete Idiot's Guide to Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/360633-9781440650666-the-complete-idiots-guide-to-past-life-regression/"><u>The Complete Idiot's Guide to Past Life Regression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/358443-9781440628689-the-sign-of-the-dove/"><u>The Sign of the Dove | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

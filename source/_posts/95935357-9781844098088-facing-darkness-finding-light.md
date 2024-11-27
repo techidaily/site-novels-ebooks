@@ -1,7 +1,7 @@
 ---
 title: Facing Darkness, Finding Light | Free Book
-date: 2024-10-26T04:49:37.249Z
-updated: 2024-10-26T21:23:27.452Z
+date: 2024-11-26T17:06:02.928Z
+updated: 2024-11-27T20:24:00.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2d926159213b233e2f2bfb78ef78e0273f649a72259871ddc2046f07f606902.jpg
@@ -172,3 +172,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2d926159213b233e2f2bfb78ef78e0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/216615-9781416509998-psychic-living/"><u>Psychic Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/216595-9780743276498-same-soul-many-bodies/"><u>Same Soul, Many Bodies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2147177-9781881098355-the-witches-almanac-issue-35-spring-2016-to-spring-2017/"><u>The Witches' Almanac: Issue 35, Spring 2016 to Spring 2017 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2146711-9781101665435-think-yourself-to-health-wealth-happiness/"><u>Think Yourself to Health, Wealth & Happiness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

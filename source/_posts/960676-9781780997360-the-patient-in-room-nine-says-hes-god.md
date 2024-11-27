@@ -1,7 +1,7 @@
 ---
 title: The Patient in Room Nine Says He's God | Free Book
-date: 2024-10-26T01:47:31.122Z
-updated: 2024-10-27T02:53:35.620Z
+date: 2024-11-25T17:04:15.890Z
+updated: 2024-11-27T18:27:17.284Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e9e213324616d22558c6c0d50271bc786f94f095e1329734a68c3564a6105cc.jpg
@@ -159,3 +159,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e9e213324616d22558c6c0d50271bc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211265774-9781956216158-beads-of-light/"><u>Beads of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211265763-9781917186889-dbt-workbook-for-clinicians-the-dbt-clinicians-guide-to-holistic-healing-integrating-mind-body-and-emotion-2nd-ed/"><u>DBT Workbook For Clinicians-The DBT Clinician's Guide to Holistic Healing, Integrating Mind, Body, and Emotion (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266220-9798887936321-moment-of-the-broken-covenant/"><u>Moment of the Broken Covenant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211265531-9798891120723-one-scarce-man-loosed-in-his-hands/"><u>ONE SCARCE MAN: LOOSED IN HIS HANDS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266219-9798887937755-relax-youre-not-going-to-die-part-2/"><u>Relax. . . You're Not Going to Die Part 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211265814-9798891302464-the-aroma-after-the-rain/"><u>The Aroma After the Rain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211265069-9780062125231-the-twelve-wild-swans/"><u>The Twelve Wild Swans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266125-9798893307573-two-sides-to-every-story/"><u>Two Sides To Every Story | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

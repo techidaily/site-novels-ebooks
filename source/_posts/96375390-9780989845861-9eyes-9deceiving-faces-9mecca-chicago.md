@@ -1,7 +1,7 @@
 ---
 title: "9Eyes 9Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2024-11-12T16:31:23.554Z
-updated: 2024-11-17T21:11:19.490Z
+date: 2024-11-25T20:59:35.069Z
+updated: 2024-11-27T19:48:28.720Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1916589fcdeaeb04308e2aba53c6677cbf523ee96329b3edd900c8897604c9e0.jpg
@@ -140,13 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1916589fcdeaeb04308e2aba53c6677
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211172791--2025-horoscope-your-year-ahead/"><u>2025 Horoscope – Your Year Ahead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211173675-9798890431011-christian-and-chic-the-art-of-living-with-flair-from-the-christian-perspective/"><u>Christian and Chic: The Art of Living with Flair from the Christian Perspective | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211172767-9781401975241-craft-your-own-magic/"><u>Craft Your Own Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211173577-9781835381106-how-to-reprogram-a-childs-mind-through-the-power-of-storytelling/"><u>How to Reprogram a Child's Mind Through The Power Of Storytelling... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211173494-9783892016427-la-tua-vita-nellaldiqua-e-la-tua-vita-nellaldila/"><u>La tua vita nell'aldiquà è la tua vita nell'aldilà | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211173060-9798890432001-questions-of-peace/"><u>Questions Of Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211174525-9781250323910-the-book-of-psychic-self-defense/"><u>The Book of Psychic Self-Defense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211174528--the-healing-power-of-your-subconscious-mind/"><u>The Healing Power of Your Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96179334-9781785356049-aspecting-the-goddess/"><u>Aspecting the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96178906-9781547527069-curso-rapido-sobre-magia-do-caos-a-magia-moderna-que-todos-usam-e-ninguem-conta/"><u>Curso rápido sobre magia do caos. A magia moderna que todos usam e ninguém conta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96178136-9781612834177-fortune-telling-with-playing-cards/"><u>Fortune Telling with Playing Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96179881-9781634242271-liber-420/"><u>Liber 420 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96178142-9780892546770-one-truth-and-one-spirit/"><u>One Truth and One Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96178141-9781633410497-son-of-chicken-qabalah/"><u>Son of Chicken Qabalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96178137-9781633411098-the-big-book-of-runes-and-rune-magic/"><u>The Big Book of Runes and Rune Magic | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

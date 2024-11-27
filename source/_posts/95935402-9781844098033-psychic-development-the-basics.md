@@ -1,7 +1,7 @@
 ---
 title: Psychic Development the Basics | Free Book
-date: 2024-10-25T20:02:46.923Z
-updated: 2024-10-27T05:29:09.341Z
+date: 2024-11-21T16:01:59.246Z
+updated: 2024-11-27T18:14:55.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e77dc2d531e58b8ff4cc3cc38f080b3a0dc4279542d149cea546c2e3c7c5a037.jpg
@@ -141,3 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e77dc2d531e58b8ff4cc3cc38f080b3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211435308-9781068848902-decode-the-deck/"><u>Decode the Deck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435706-9798894650548-our-spiritual-being-above-and-beyond-our-human-condition-spirit-form/"><u>Our Spiritual Being Above and Beyond our Human Condition: Spirit & Form | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435042--pain-free/"><u>Pain Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435582-9798218474614-spell-jars-and-pouches/"><u>Spell Jars and Pouches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435021--truth-demands/"><u>Truth Demands | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

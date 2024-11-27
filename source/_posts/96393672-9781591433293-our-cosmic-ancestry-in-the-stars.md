@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2024-11-10T19:50:48.322Z
-updated: 2024-11-17T16:22:52.841Z
+date: 2024-11-25T23:08:42.121Z
+updated: 2024-11-27T17:11:00.763Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,11 +191,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211110965-9781544537207-all-is-well/"><u>All Is Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211110143-9780645830927-cosmic-magick-astrological-guide-2024/"><u>Cosmic Magick - Astrological Guide - 2024 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211110666-9781837991921-how-to-read-the-universe/"><u>How to Read the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211110670-9781837992171-nature-therapy/"><u>Nature Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211110662-9781837991334-the-little-book-of-crystal-healing/"><u>The Little Book of Crystal Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211111003-9783988315328-yoga-nidra/"><u>YOGA NIDRA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95881463-9781786781550-a-course-in-mastering-alchemy/"><u>A Course in Mastering Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95881524-9781787131965-crystals/"><u>Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95885077-9781459742147-ghosts-of-niagara-on-the-lake-2nd-ed/"><u>Ghosts of Niagara-on-the-Lake (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95887576-9781507194522-quello-che-e-una-scorciatoia-all-altro-mondo/"><u>Quello che É - Una scorciatoia all' Altro Mondo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95882109-9781785355943-the-art-of-freedom/"><u>The Art of Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95884856-9780998688718-the-recognition-sutras/"><u>The Recognition Sutras | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2024-11-11T19:18:14.481Z
-updated: 2024-11-17T19:00:03.243Z
+date: 2024-11-24T16:57:02.712Z
+updated: 2024-11-27T22:10:57.200Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,12 +145,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210968396-9781088225943-apenas-comenzando/"><u>Apenas Comenzando | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968395-9781088227381-encuentros-con-la-verdad/"><u>Encuentros con la Verdad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968394-9781088227428-es-necesario-algo-mas/"><u>Es Necesario algo más | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968397-9781088227466-la-mision-de-cada-uno/"><u>La Misión de Cada Uno | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968704-9781761039430-reiki/"><u>Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968711-9781088227503-siempre-existe-una-razon/"><u>Siempre existe una razón | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968480-9781446312735-the-handmade-grimoire/"><u>The Handmade Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782514-9781591438533-affinity/"><u>Affinity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782513-9781591432722-the-angelic-origins-of-the-soul/"><u>The Angelic Origins of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782512-9781591432302-the-anunnaki-chronicles/"><u>The Anunnaki Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782511-9781591432388-trance-journeys-of-the-hunter-gatherers/"><u>Trance Journeys of the Hunter-Gatherers | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

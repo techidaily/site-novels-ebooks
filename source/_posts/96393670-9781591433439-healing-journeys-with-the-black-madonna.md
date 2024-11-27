@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2024-11-10T17:56:10.488Z
-updated: 2024-11-17T19:38:21.990Z
+date: 2024-11-24T16:03:21.572Z
+updated: 2024-11-27T17:45:00.429Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -212,11 +212,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211107741-9798886441727-a-journey-to-recovery/"><u>A Journey to Recovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107974-9798989184828-say-well/"><u>Say Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107881-9781952491979-spiritual-shortcuts/"><u>Spiritual Shortcuts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107929-9781544544892-system-vs-creator/"><u>System vs. Creator | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107851-9789083267661-the-triangle-of-master-g/"><u>The Triangle of Master G | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107664-9780762482887-women-of-tarot/"><u>Women of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95868942-9782268095646-du-chevalier-dorient-au-chevalier-kadosch/"><u>Du chevalier d'Orient... au chevalier Kadosch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866143-9780316521970-falling-awake/"><u>Falling Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95871155-9781624145209-herbs-and-crystals-diy/"><u>Herbs and Crystals DIY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95870914-9781538729106-notes-from-a-public-typewriter/"><u>Notes from a Public Typewriter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95869683-9781507191101-o-livro-das-afirmacoes/"><u>O Livro das Afirmações | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866482-9780857013477-practical-zen-for-health-wealth-and-mindfulness/"><u>Practical Zen for Health, Wealth and Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866141-9780316522052-the-healing-power-of-mindfulness/"><u>The Healing Power of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95870916-9781846015694-the-little-book-of-mumfulness/"><u>The Little Book of Mumfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95870935-9781912023400-walking-in-the-rain/"><u>Walking in the Rain | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

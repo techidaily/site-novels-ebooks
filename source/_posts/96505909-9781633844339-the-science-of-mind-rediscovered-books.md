@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2024-11-16T01:46:25.049Z
-updated: 2024-11-17T16:37:47.192Z
+date: 2024-11-22T18:54:55.915Z
+updated: 2024-11-27T16:00:57.929Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,11 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761651-9781683647386-healing-collective-trauma/"><u>Healing Collective Trauma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761663-9781683648215-ritual/"><u>Ritual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761670-9781683648833-roar-like-a-goddess/"><u>Roar Like a Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761650-9781683647737-root-and-ritual/"><u>Root and Ritual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761656-9781683647843-the-line/"><u>The Line | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761669-9781683648987-yoga-nidra/"><u>Yoga Nidra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/439116-9780553907261-awakening-joy/"><u>Awakening Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435886-9781775568506-genuine-mediumship/"><u>Genuine Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435894-9781775568544-lessons-in-gnani-yoga/"><u>Lessons in Gnani Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435895-9781775568537-lessons-in-raja-yoga/"><u>Lessons in Raja Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/441212-9781775569329-sacred-books-of-the-east/"><u>Sacred Books of the East | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

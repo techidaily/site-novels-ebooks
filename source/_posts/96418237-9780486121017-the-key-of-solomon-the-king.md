@@ -1,7 +1,7 @@
 ---
 title: The Key of Solomon the King | Free Book
-date: 2024-11-13T17:33:23.719Z
-updated: 2024-11-17T18:27:05.754Z
+date: 2024-11-22T16:55:56.099Z
+updated: 2024-11-27T17:05:25.975Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f40ed1c44b2f30a63607a3bc1a044f438d.jpg
@@ -163,10 +163,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211012170-9781803412481-braco-and-his-silent-gaze/"><u>Braco and His Silent Gaze | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211012167-9781803413334-conjuring-dirt/"><u>Conjuring Dirt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211012175-9781803412504-meeting-the-melissae/"><u>Meeting the Melissae | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211012179-9781803413297-meeting-the-moment-with-kindness/"><u>Meeting the Moment with Kindness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211012211-9781401978082-the-top-ten-things-dead-people-want-to-tell-you/"><u>The Top Ten Things Dead People Want to Tell YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783051-9781620554470-blindspots/"><u>BlindSpots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783041-9781594778728-ecstasy-the-complete-guide/"><u>Ecstasy: The Complete Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783047-9781594777110-krishna-in-the-sky-with-diamonds/"><u>Krishna in the Sky with Diamonds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783044-9781594775062-molecular-consciousness/"><u>Molecular Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783046-9781620551608-peyote-dreams/"><u>Peyote Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783043-9781620550434-phantastica/"><u>Phantastica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783049-9781620551486-shamanic-quest-for-the-spirit-of-salvia/"><u>Shamanic Quest for the Spirit of Salvia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783048-9781594775109-the-heart-mind-matrix/"><u>The Heart-Mind Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783045-9781594779923-tryptamine-palace/"><u>Tryptamine Palace | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

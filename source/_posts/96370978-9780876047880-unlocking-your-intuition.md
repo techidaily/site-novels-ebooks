@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Intuition | Free Book
-date: 2024-11-15T23:30:49.599Z
-updated: 2024-11-18T00:58:09.568Z
+date: 2024-11-22T17:33:35.782Z
+updated: 2024-11-27T16:28:37.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc91bdc663b6f65fa5b3200c18dc7433ba47.jpg
@@ -144,13 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211159410-9780062455406-ancient-aliens/"><u>Ancient Aliens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159636-9781639458035-evolve-love/"><u>Evolve Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159508-9780062092120-fringe-ology/"><u>Fringe-ology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159426-9780062299499-motherpeace/"><u>Motherpeace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159334-9780062403865-siddharthas-brain/"><u>Siddhartha's Brain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159271-9780062976895-spells-for-the-modern-mystic/"><u>Spells for the Modern Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159894-9780062484185-the-close-encounters-man/"><u>The Close Encounters Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159325-9780061747984-the-history-of-last-nights-dream/"><u>The History of Last Night's Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037668-9781633410732-blackthorns-botanical-magic/"><u>Blackthorn's Botanical Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96059414-9781786781925-spiritual-science/"><u>Spiritual Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96059395-9781101993071-strange-frequencies/"><u>Strange Frequencies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96059415-9781786781970-the-anatomy-of-loneliness/"><u>The Anatomy of Loneliness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96039702-9781937866020-the-medical-cannabis-guidebook/"><u>The Medical Cannabis Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037671-9781938289835-the-seven-secrets-to-healthy-happy-relationships/"><u>The Seven Secrets to Healthy, Happy Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037670-9781881098478-the-witches-almanac-issue-38-spring-2019-to-spring-2020/"><u>The Witches' Almanac: Issue 38, Spring 2019 to Spring 2020 | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

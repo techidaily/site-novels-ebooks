@@ -1,7 +1,7 @@
 ---
 title: 20 Difficult Things to Accomplish in this World | Free Book
-date: 2024-11-15T20:46:22.115Z
-updated: 2024-11-18T01:50:48.267Z
+date: 2024-11-24T20:22:04.728Z
+updated: 2024-11-27T20:10:24.566Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/52aa36d5cd7fa9d998b712b75da8a025ac1203a091a99bab8ecedae5682e6a70.jpg
@@ -163,11 +163,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/52aa36d5cd7fa9d998b712b75da8a02
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210964185-9781088222881-al-otro-lado-del-espejo/"><u>Al Otro lado del Espejo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210964258-9798889267164-spiritually-parented/"><u>Spiritually Parented | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210964243-9781088025222-the-larks-horizon/"><u>The Larks Horizon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210964250-9781088206249-witchcraft-therapy/"><u>Witchcraft Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210964281-9781088208250-witchcraft-therapy/"><u>Witchcraft Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210964282-9781088208946-witchcraft-therapy/"><u>Witchcraft Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782403-9781591437536-secrets-of-aboriginal-healing-2nd-ed/"><u>Secrets of Aboriginal Healing (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782401-9781591437758-secrets-of-ancient-america/"><u>Secrets of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782402-9781591439905-secrets-of-antigravity-propulsion/"><u>Secrets of Antigravity Propulsion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782400-9781591439776-shamanism-for-the-age-of-science-2nd-ed/"><u>Shamanism for the Age of Science (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782405-9781591437710-the-lost-city-of-the-exodus/"><u>The Lost City of the Exodus | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

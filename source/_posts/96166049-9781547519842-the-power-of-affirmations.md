@@ -1,7 +1,7 @@
 ---
 title: The Power of Affirmations | Free Book
-date: 2024-10-19T18:24:15.096Z
-updated: 2024-10-27T01:15:52.184Z
+date: 2024-11-22T17:29:28.942Z
+updated: 2024-11-27T16:53:32.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ce7d48d197de67f1d13953b11f748c7c82fe080ac0a8e91fa18c776b0899838.jpg
@@ -144,3 +144,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ce7d48d197de67f1d13953b11f748c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239541--a-witch-alone/"><u>A Witch Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239538-9781612835051-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239537-9781612834900-becoming-baba-yaga/"><u>Becoming Baba Yaga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239539--chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239535--healing-psychedelics/"><u>Healing Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239540-9781938918933-the-witches-almanac-20252026-standard-edition-issue-44/"><u>The Witches' Almanac 2025–2026 Standard Edition Issue 44 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239542-9781633413559-witches/"><u>Witches | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

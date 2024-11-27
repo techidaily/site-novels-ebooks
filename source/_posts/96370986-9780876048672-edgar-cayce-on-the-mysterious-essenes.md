@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Mysterious Essenes | Free Book
-date: 2024-11-15T16:23:22.335Z
-updated: 2024-11-18T03:19:28.650Z
+date: 2024-11-21T20:56:06.886Z
+updated: 2024-11-27T18:42:57.271Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1682a8a7aa5bc6a00a5d4d4f134ff00a15.jpg
@@ -146,11 +146,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211165297-9781925370379-crossing-the-bridge-to-animal-consciousness/"><u>Crossing the Bridge to Animal Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166028-9798989182770-the-bible-30-the-6-commandments-of-the-chosen-life/"><u>The Bible 3.0, The 6 Commandments of the Chosen Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166421-9780760391303-the-crystal-companion/"><u>The Crystal Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165256-9781922954633-the-other-side-of-the-looking-glass/"><u>The Other Side of the Looking Glass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166420-9780760391327-the-wheel-of-the-year-companion/"><u>The Wheel of the Year Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165281-9798985566772-the-willingness-muscle/"><u>The Willingness Muscle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164931-9781591433224-eden-in-the-altai-3rd-ed/"><u>Eden in the Altai (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164934-9781620557693-future-sacred/"><u>Future Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164940-9781620558348-mind-detox-2nd-ed/"><u>Mind Detox (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164932-9781620557570-runic-lore-and-legend-2nd-ed/"><u>Runic Lore and Legend (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164942-9781620557778-searching-for-the-philosophers-stone/"><u>Searching for the Philosophers' Stone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164933-9781620557952-the-nepalese-shamanic-path/"><u>The Nepalese Shamanic Path | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

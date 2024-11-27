@@ -1,7 +1,7 @@
 ---
 title: The Master Key to This Mystical Life of Ours | Free Book
-date: 2024-11-16T03:19:54.112Z
-updated: 2024-11-17T23:46:46.719Z
+date: 2024-11-23T19:45:06.939Z
+updated: 2024-11-27T19:52:28.798Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12a11fbc32da1c1ed23a97823bc395dcab918e24a3cd08b443b32d9ea2f4b073.jpg
@@ -138,13 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12a11fbc32da1c1ed23a97823bc395d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762341-9781783721146-always-look-on-the-bright-side-of-life/"><u>Always Look on the Bright Side of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764668-9798886446012-conquering-through-it-all/"><u>Conquering Through It All | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764591-9782889701308-experimenter-le-voyage-astral/"><u>Expérimenter le voyage astral | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762294-9781783729012-how-to-be-happy/"><u>How to be Happy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762348-9781783729043-how-to-be-mindful/"><u>How to Be Mindful | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762298-9781783728657-the-little-book-of-relaxation/"><u>The Little Book of Relaxation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764781-9781446382325-the-tarot-spreads-yearbook/"><u>The Tarot Spreads Yearbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762569-9780593713877-this-wheel-of-rocks/"><u>This Wheel of Rocks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/503465-9780307755629-letting-everything-become-your-teacher/"><u>Letting Everything Become Your Teacher | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/501899-9780307557834-medicine-for-the-earth/"><u>Medicine for the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/502231-9781776511068-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/510374-9781556439445-the-cracking-tower/"><u>The Cracking Tower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/503425-9780307754868-the-edgar-cayce-handbook-for-creating-your-future/"><u>The Edgar Cayce Handbook for Creating Your Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/501664-9780307490209-the-rising-sign/"><u>The Rising Sign | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

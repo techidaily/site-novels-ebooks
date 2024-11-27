@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-11-15T00:04:39.436Z
-updated: 2024-11-17T23:28:50.102Z
+date: 2024-11-23T21:11:41.323Z
+updated: 2024-11-27T20:05:37.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,10 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210789706-9782889701445-astro-le-livre-du-feu/"><u>Astro : le livre du Feu | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210790284-9780648595014-author-fears-and-how-to-overcome-them/"><u>Author Fears and How to Overcome Them | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780785-9781398488359-eds-odyssey-how-i-met-buddha-and-the-aliens/"><u>Ed’s Odyssey How I Met Buddha and the Aliens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780652-9781649794086-four-seasons-of-your-life/"><u>Four Seasons of Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780577-9781803411460-spirituality-rekindled/"><u>Spirituality Rekindled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/654507-9781429967860-dream-on-it/"><u>Dream on It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/654258-9781429944007-mystics-and-zen-masters/"><u>Mystics and Zen Masters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/655361-9781770707580-the-worlds-most-mysterious-objects/"><u>The World's Most Mysterious Objects | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/654264-9781429944076-thoughts-in-solitude/"><u>Thoughts In Solitude | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

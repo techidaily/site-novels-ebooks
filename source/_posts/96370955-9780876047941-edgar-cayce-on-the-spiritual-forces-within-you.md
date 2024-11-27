@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Spiritual Forces Within You | Free Book
-date: 2024-11-16T23:30:35.235Z
-updated: 2024-11-17T17:10:30.645Z
+date: 2024-11-22T21:11:23.877Z
+updated: 2024-11-27T19:35:05.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470b857f14ac64c99772e37190174dfb5c38.jpg
@@ -144,13 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211150231-9780008667634-aquarius-2025-your-personal-horoscope/"><u>Aquarius 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150230-9780008667627-capricorn-2025-your-personal-horoscope/"><u>Capricorn 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211151014--crystals-love/"><u>Crystals & Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150623-9781958711842-eloveate/"><u>Eloveate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150232-9780008667641-pisces-2025-your-personal-horoscope/"><u>Pisces 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150662-9781958405826-re-write-your-life-ii/"><u>Re-Write Your Life II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150228-9780008667603-scorpio-2025-your-personal-horoscope/"><u>Scorpio 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150461-9781977269584-the-bible-of-the-pure-soul-and-mind/"><u>The Bible of the Pure Soul and Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028110-9781591433255-military-encounters-with-extraterrestrials/"><u>Military Encounters with Extraterrestrials | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028119-9781591433101-pleiadian-earth-energy-astrology/"><u>Pleiadian Earth Energy Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028111-9781591433040-reign-of-the-anunnaki/"><u>Reign of the Anunnaki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028114-9781620557266-rune-might-3rd-ed/"><u>Rune Might (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028118-9781620557716-runic-book-of-days/"><u>Runic Book of Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028115-9781620557679-the-miracle-club/"><u>The Miracle Club | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028113-9781620557914-the-mirror-of-magic-6th-ed/"><u>The Mirror of Magic (6th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028112-9781620557730-the-real-witches-of-new-england/"><u>The Real Witches of New England | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028116-9781620557129-the-spiritual-meaning-of-the-sixties/"><u>The Spiritual Meaning of the Sixties | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

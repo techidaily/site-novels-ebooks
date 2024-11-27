@@ -1,7 +1,7 @@
 ---
 title: The Healing Crystals First Aid Manual | Free Book
-date: 2024-10-24T01:07:41.714Z
-updated: 2024-10-27T05:19:02.012Z
+date: 2024-11-23T19:03:58.111Z
+updated: 2024-11-27T20:49:25.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72b9d90114b95739ff6703061e7f187a9c45c7c38a5650824a4429a90153fd6b.jpg
@@ -139,3 +139,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72b9d90114b95739ff6703061e7f187
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211456557--a-journey-of-thoughts/"><u>A Journey of Thoughts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456628-9798890419323-dr-pattis-dynamic-healing/"><u>Dr. Patti's Dynamic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456158-9781961347984-illuminating-human-design/"><u>Illuminating Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455886-9782017230335-les-17-cles-du-succes/"><u>Les 17 clés du succès | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455878-9782017289883-les-72-vibrations-divines/"><u>Les 72 vibrations divines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456435--manifesting/"><u>Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456039-9781837994632-my-shadow-work-workbook/"><u>My Shadow Work Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456155-9781961347960-reflector-reframe/"><u>Reflector Reframe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456043-9781837992324-stories-of-the-occult/"><u>Stories of the Occult | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

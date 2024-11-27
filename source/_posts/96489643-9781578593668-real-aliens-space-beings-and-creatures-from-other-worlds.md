@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-11-12T18:11:43.779Z
-updated: 2024-11-18T00:58:31.883Z
+date: 2024-11-22T19:47:14.674Z
+updated: 2024-11-27T22:05:58.431Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,13 +262,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210822908-9781088118030-four-citadels-the-key-of-twelve/"><u>FOUR CITADELS & THE KEY OF TWELVE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210824190-9783988312815-hoodoo-for-beginners/"><u>HOODOO FOR BEGINNERS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210823607-9781394208609-knowledge-and-ideation/"><u>Knowledge and Ideation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210823529-9783988263049-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-rites-and-ist-mysteries/"><u>The History of Magic Including a Clear and Precise Exposition of its Rites and ist Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210823670-9781399807371-the-knight-waite-tarot-guidebook/"><u>The Knight-Waite Tarot Guidebook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210822443-9798886857399-what-are-your-hands-doing/"><u>What Are Your Hands Doing? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210822954-9781960466051-budushee/"><u>Будущее | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210824571-9781685680398-zakon-uspeha/"><u>Закон успеха | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/732013-9780345534019-buffalo-woman-comes-singing/"><u>Buffalo Woman Comes Singing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731686-9781846949975-developing-consciousness/"><u>Developing Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/740202-9781145214538-dream-psychology/"><u>Dream Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/737227-9780761854586-get-goodness/"><u>Get Goodness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731693-9781780990149-living-an-extraordinary-life-in-an-ordinary-reality/"><u>Living an Extraordinary Life in an Ordinary Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731697-9781780990026-now/"><u>Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731704-9781780990064-reading-between-the-lines/"><u>Reading Between The Lines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731685-9781846949968-the-daughters-of-danu/"><u>The Daughters of Danu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731687-9781846949999-the-high-heeled-guide-to-spiritual-living/"><u>The High Heeled Guide to Spiritual Living | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

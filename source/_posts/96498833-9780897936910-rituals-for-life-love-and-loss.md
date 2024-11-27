@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-11-16T00:19:13.321Z
-updated: 2024-11-17T23:48:07.754Z
+date: 2024-11-23T20:47:36.494Z
+updated: 2024-11-27T16:35:34.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,13 +179,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210850025-9781446359211-jungian-spirituality/"><u>Jungian Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850015-9781446358443-secret-societies-of-the-middle-ages/"><u>Secret Societies of the Middle Ages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850012-9781446358481-telepathy/"><u>Telepathy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850553-9798886859300-the-arrow-of-a-second-chance/"><u>The Arrow of a Second Chance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850094-9781504085694-the-sorcerers-handbook/"><u>The Sorcerer's Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850963-9781398831957-the-wiccan-guide-to-self-care/"><u>The Wiccan Guide to Self-care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850016-9781446358542-tree-lore/"><u>Tree Lore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850024-9781446359198-your-dark-side/"><u>Your Dark Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/847452-9781780990293-druidry-and-meditation/"><u>Druidry and Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/847453-9781846948664-extinction/"><u>Extinction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/847456-9781846947261-planet-as-self/"><u>Planet as Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/849071-9781101580349-swedenborg/"><u>Swedenborg | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/843565-9781780574387-the-ghost-that-haunted-itself/"><u>The Ghost That Haunted Itself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/850863-9781101588864-the-prophecies/"><u>The Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/845805-9780316224017-the-science-of-avatar/"><u>The Science of Avatar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/847460-9781846948053-traditional-witchcraft-for-the-seashore/"><u>Traditional Witchcraft for the Seashore | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

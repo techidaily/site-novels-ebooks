@@ -1,7 +1,7 @@
 ---
 title: Conversaciones con María (Conversations with Mary Spanish edition) | Free Book
-date: 2024-10-20T05:51:51.265Z
-updated: 2024-10-26T18:45:21.726Z
+date: 2024-11-21T17:25:15.573Z
+updated: 2024-11-27T17:48:11.791Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ddab745f6ae3b9857ce1e49f1a5a96759f00b9eb988d08a09bfe6b274c0c4c5.jpg
@@ -188,3 +188,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ddab745f6ae3b9857ce1e49f1a5a96
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211246673-9781634244251-battlespace-of-mind/"><u>BattleSpace of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246448-9798869193292-conversations-with-blanchie/"><u>Conversations with Blanchie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246505-9781910559871-crow-moon/"><u>Crow Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246532-9781476758596-hero/"><u>Hero | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246376-9798869211330-unwavering-focus-journey-to-excellence-through-philippians-3/"><u>Unwavering Focus: Journey to Excellence through Philippians 3 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

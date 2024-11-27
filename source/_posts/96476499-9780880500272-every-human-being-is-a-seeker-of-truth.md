@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2024-11-11T23:17:18.324Z
-updated: 2024-11-17T22:52:11.931Z
+date: 2024-11-23T21:49:02.637Z
+updated: 2024-11-27T17:09:02.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,11 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210941343-9781847175052-a-bewitched-land/"><u>A Bewitched Land | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210942104-9780995497870-bodyology/"><u>Bodyology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210941968-9781913962036-el-cielo-vs-la-reencarnacion-la-historieta/"><u>El Cielo Vs La Reencarnación La Historieta | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210941914-9781912262694-life-after-death-beyond-doubt/"><u>Life After Death Beyond Doubt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210942140-9781913568016-my-journey-to-zen/"><u>My Journey To Zen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210941925-9781912850839-the-spirit-of-life/"><u>The Spirit of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782374-9781591432241-lessons-from-the-twelve-archangels/"><u>Lessons from the Twelve Archangels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782372-9781591431879-the-secret-chamber-of-osiris/"><u>The Secret Chamber of Osiris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782370-9781591439592-the-secret-history-of-extraterrestrials/"><u>The Secret History of Extraterrestrials | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782373-9781591437680-the-soul-of-ancient-egypt/"><u>The Soul of Ancient Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782367-9781591432609-wars-of-the-anunnaki/"><u>Wars of the Anunnaki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782371-9781591437840-way-of-the-bushman/"><u>Way of the Bushman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782375-9781591439691-wheel-of-initiation/"><u>Wheel of Initiation | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

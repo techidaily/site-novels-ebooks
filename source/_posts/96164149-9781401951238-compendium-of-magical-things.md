@@ -1,7 +1,7 @@
 ---
 title: Compendium of Magical Things | Free Book
-date: 2024-10-22T21:11:19.540Z
-updated: 2024-10-26T16:47:02.375Z
+date: 2024-11-25T21:24:51.435Z
+updated: 2024-11-27T22:57:23.433Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb65e90cfed8991ee31a7625e16922d36754d9eb59d182a21917a924243a1fc6.jpg
@@ -242,3 +242,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb65e90cfed8991ee31a7625e16922d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211279181-9781667471167-dall-altro-lato-della-luna/"><u>Dall' altro lato della luna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211279185-9781667471075-gor-framlingar-till-vanner/"><u>Gör främlingar till vänner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211278204-9781667470627-la-therapie-de-lame/"><u>La Thérapie de l'Âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211278201-9781667470467-por-que-o-divorcio-e-obrigatorio/"><u>Por que o divórcio é obrigatório | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211279048-9781399071840-witches-and-witch-hunts-through-the-ages/"><u>Witches and Witch Hunts Through the Ages | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

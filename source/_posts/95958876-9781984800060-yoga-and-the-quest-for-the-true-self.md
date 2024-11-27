@@ -1,7 +1,7 @@
 ---
 title: Yoga and the Quest for the True Self | Free Book
-date: 2024-10-21T05:39:41.584Z
-updated: 2024-10-27T01:14:37.086Z
+date: 2024-11-22T20:26:22.320Z
+updated: 2024-11-27T22:12:38.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/29ac3ec480f5be8ccc8e37e630bcf4b9dd0dae0593d80d1888f4228b1740489f.jpg
@@ -206,3 +206,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/29ac3ec480f5be8ccc8e37e630bcf4b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211364496-9798330205448-5-histoires-vraies-et-transformatrices-sur-la-visite-au-paradis-en-enfer-et-dans-le-royaume/"><u>5 histoires vraies et transformatrices sur la visite au paradis, en enfer et dans le royaume | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364503-9798330205646-5-historias-transformadoras-da-vida-real-sobre-a-visitacao-ao-ceu-ao-inferno-e-ao-reino-das/"><u>5 histórias transformadoras da vida real sobre a visitação ao céu, ao inferno e ao reino das.. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364499-9798330205707-5-transformiruyushih-istorij-iz-realnoj-zhizni-o-poseshenii-raya-ada-i-temnogo-carstva/"><u>5 трансформирующих историй из реальной жизни о посещении рая , ада и темного царства | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364498-9798330205752-5/"><u>天国、地獄 , 闇の王国を訪れた5つの人生を変える真実の物語 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364790-9791223034231-mindful-mind-reading/"><u>Mindful Mind Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364635-9781732769564-the-keys-to-the-kingdom-and-the-second-war-in-heaven/"><u>The Keys to the Kingdom, and the Second War in Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364509-9798330200931-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

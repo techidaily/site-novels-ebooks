@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2024-11-15T18:04:04.267Z
-updated: 2024-11-17T19:37:55.580Z
+date: 2024-11-25T20:55:50.435Z
+updated: 2024-11-27T20:03:45.868Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,10 +170,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932816-9781855842861-an-exercise-for-karmic-insight/"><u>An Exercise for Karmic Insight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932818-9781855842878-the-dead-are-with-us/"><u>The Dead Are With Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932814-9781855843158-the-evolution-of-consciousness/"><u>The Evolution of Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932817-9781912230792-the-temple-and-the-grail/"><u>The Temple and the Grail | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932815-9781855843608-verses-and-meditations/"><u>Verses and Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782134-9781620553954-awakening-higher-consciousness/"><u>Awakening Higher Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782133-9781594779893-quantum-shift-in-the-global-brain/"><u>Quantum Shift in the Global Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782132-9781594779541-the-crazy-wisdom-of-ganesh-baba/"><u>The Crazy Wisdom of Ganesh Baba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782127-9781594776427-the-cry-of-the-huna/"><u>The Cry of the Huna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782126-9781594777578-twelve-tribe-nations-3rd-ed/"><u>Twelve-Tribe Nations (3rd ed.) | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

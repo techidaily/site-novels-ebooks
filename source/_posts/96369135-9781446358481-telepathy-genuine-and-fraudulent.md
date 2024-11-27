@@ -1,7 +1,7 @@
 ---
 title: "Telepathy: Genuine and Fraudulent | Free Book"
-date: 2024-11-13T03:21:13.746Z
-updated: 2024-11-17T18:44:01.663Z
+date: 2024-11-23T16:13:55.850Z
+updated: 2024-11-27T20:06:10.921Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391dc86b2fcd9a349461b60713368b976b43.jpg
@@ -150,14 +150,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211236362-9798886151879-a-sacred-way-to-gain-freedom-from-multi-generational-curses/"><u>A Sacred Way to Gain Freedom from Multi-Generational Curses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236168-9781738282319-echoes-of-krishna/"><u>Echoes of Krishna | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236222-9781998101689-effective-communication-in-relationships-marriage/"><u>Effective Communication In Relationships & Marriage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236159-9781739692339-egoist-effect/"><u>Egoist Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236234-9798869140395-habla-miguel/"><u>Habla Miguel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236379-9781396324833-in-days-to-come/"><u>In Days to Come | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236380-9789358814279-the-art-of-letting-go/"><u>The Art of Letting Go | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236418-9798989828623-the-art-of-mindkeeping/"><u>The Art of Mindkeeping | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236376-9781778921049-aaatmad-bh-nfs-zibatrin-lbasi-kh-mitoni-bposhi/"><u>اعتماد به نفس زیباترین لباسی که میتونی بپوشی | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316886-9781401929664-a-stream-of-dreams/"><u>A Stream of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316863-9781848506053-movement-medicine/"><u>Movement Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316884-9781401921255-past-lives-present-miracles/"><u>Past Lives, Present Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316877-9781848505766-past-reality-integration/"><u>Past Reality Integration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316881-9781401922627-the-indigo-children/"><u>The Indigo Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316887-9781401926151-the-priest-and-the-medium/"><u>The Priest and the Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316869-9781401920548-your-immortal-reality/"><u>Your Immortal Reality | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Egyptian Origins of King David and the Temple of Solomon | Free Book
-date: 2024-10-21T19:53:20.031Z
-updated: 2024-10-26T22:59:03.881Z
+date: 2024-11-23T20:33:16.583Z
+updated: 2024-11-27T20:26:37.878Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ecb700f9fb3ddc4e9d743bc8c3011855dd6c79de772971bcef2fad92d862d69e.jpg
@@ -196,3 +196,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ecb700f9fb3ddc4e9d743bc8c301185
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211316033-9781507207833-astrology-for-happiness-and-success/"><u>Astrology for Happiness and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315690-9781440517761-naughty-spells-and-nice-spells/"><u>Naughty Spells and Nice Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316013-9781416558446-notes-from-the-universe/"><u>Notes from the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315778-9781440520938-power-spellcraft-for-life/"><u>Power Spellcraft for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315762-9781605502274-the-everything-love-spells-book/"><u>The Everything Love Spells Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315692-9781451656862-the-secret-life-of-water/"><u>The Secret Life of Water | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

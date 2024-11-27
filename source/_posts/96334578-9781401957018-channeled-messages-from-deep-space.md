@@ -1,7 +1,7 @@
 ---
 title: Channeled Messages from Deep Space | Free Book
-date: 2024-11-15T21:40:57.238Z
-updated: 2024-11-17T22:35:30.069Z
+date: 2024-11-25T17:17:35.106Z
+updated: 2024-11-27T17:29:21.711Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f7b764cbb04d2a03ae69325a1bbdf28490.jpg
@@ -230,14 +230,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211186049-9782017229872-a-lecoute-des-esprits/"><u>À l'écoute des Esprits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211185409-9798869093967-critical-reflection-and-biblical-scholarship/"><u>Critical Reflection and Biblical Scholarship | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211186057-9782017229629-encyclopedie-des-cristaux/"><u>Encyclopédie des cristaux | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211186439-9781914317453-instant-magic-oracle/"><u>Instant Magic Oracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211186059-9782385640491-les-11-codes-quantiques-pour-activer-votre-potentiel/"><u>Les 11 codes quantiques pour activer votre potentiel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211188936-9781493085729-spooky-appalachia/"><u>Spooky Appalachia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211188596-9798887637440-the-cycles-of-creation/"><u>The Cycles of Creation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211188968-9781958655146-the-truth-about-spiritual-phenomena/"><u>The Truth about Spiritual Phenomena | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211184643-9781608688913-untapped-magic/"><u>Untapped Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96204111-9780547527321-green-mountain-ghosts-ghouls-unsolved-mysteries/"><u>Green Mountain Ghosts, Ghouls & Unsolved Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96192730-9781620558577-introduction-to-magic/"><u>Introduction to Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96201136-9781507161692-la-energia-sanadora-del-reiki-un-libro-para-principiantes-para-una-mejor-comprension/"><u>La energía sanadora del Reiki: Un libro para principiantes para una mejor comprensión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96193305-9781612833811-reading-the-runes/"><u>Reading the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96192729-9781620558546-revolt-against-the-modern-world/"><u>Revolt Against the Modern World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96197985-9781633410855-the-book-of-pendulum-healing/"><u>The Book of Pendulum Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96193308-9781684031351-the-heartfulness-way/"><u>The Heartfulness Way | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

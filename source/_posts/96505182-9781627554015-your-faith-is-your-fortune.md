@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2024-11-17T02:45:58.510Z
-updated: 2024-11-18T01:06:04.527Z
+date: 2024-11-25T17:59:19.465Z
+updated: 2024-11-27T20:17:37.654Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,12 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210793337-9798886161731-and-you-shall-be-free/"><u>And You Shall Be Free | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210792711-9781616406240-astrology-and-the-art-of-healing/"><u>Astrology and the Art of Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210794864-9781510778382-emerging-from-darkness/"><u>Emerging from Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210794129-9789355944269-kya-kahati-haim-hatha-ki-rekhaem/"><u>Kya Kahati Haim Hatha Ki Rekhaem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210792915-9781925442076-out-of-this-world/"><u>Out Of This World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210795739-9781507221532-the-modern-witchcraft-natural-magick-boxed-set/"><u>The Modern Witchcraft Natural Magick Boxed Set | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210792117-9780473553609-unwrap-your-dreams/"><u>Unwrap Your Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/662420-9781446459362-intuition-and-beyond/"><u>Intuition And Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/662894-9781583943427-manifesto-for-the-noosphere/"><u>Manifesto for the Noosphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663568-9781583943533-natural-chi-movement/"><u>Natural Chi Movement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/662405-9781446459324-radionics-the-subtle-anatomy-of-man/"><u>Radionics & The Subtle Anatomy Of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/662504-9781583943373-the-book-of-theanna-updated-edition/"><u>The Book of Theanna, Updated Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663151-9781583943434-the-electric-jesus/"><u>The Electric Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/662447-9781780570297-the-jan-de-vries-guide-to-health-and-vitality/"><u>The Jan de Vries Guide to Health and Vitality | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

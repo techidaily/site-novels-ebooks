@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2024-11-15T00:05:20.593Z
-updated: 2024-11-17T16:10:41.294Z
+date: 2024-11-23T19:32:07.954Z
+updated: 2024-11-27T16:56:30.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,13 +133,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210755507-9791028521622-explorez-vos-vies-anterieures/"><u>Explorez vos vies antérieures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755436-9791028521295-femme-pretresse/"><u>Femme prêtresse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755491-9791028521417-la-richesse-est-sacree/"><u>La richesse est sacrée | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755498-9791028521639-numerologie-karmique/"><u>Numérologie karmique | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755409-9791028519094-revolution-lunaire/"><u>Révolution lunaire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755415-9791028517212-secrets-de-guerisseuse/"><u>Secrets de guérisseuse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755459-9791028521271-tout-est-lie/"><u>Tout est lié | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210755493-9791028521400-tout-est-vibration/"><u>Tout est vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/352793-9781101078808-edgar-cayces-esp/"><u>Edgar Cayce's ESP | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/356960-9781440625640-the-complete-idiots-guide-dream-dictionary/"><u>The Complete Idiot's Guide Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/350758-9781440636936-the-evolution-angel/"><u>The Evolution Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/352175-9780345512819-the-love-response/"><u>The Love Response | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/353213-9781741762693-the-wisdom-of-water/"><u>The Wisdom of Water | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

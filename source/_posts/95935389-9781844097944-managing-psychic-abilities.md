@@ -1,7 +1,7 @@
 ---
 title: Managing Psychic Abilities | Free Book
-date: 2024-10-24T03:21:41.545Z
-updated: 2024-10-26T18:44:01.746Z
+date: 2024-11-22T22:36:14.814Z
+updated: 2024-11-27T23:04:24.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb6b3511e9d3a1e85102c0852212d6af24f85d4e9381a88ed1a816909b1c6c57.jpg
@@ -174,3 +174,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb6b3511e9d3a1e85102c0852212d6a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211424088-9781398848221-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424281-9781963851236-room-within-the-heart/"><u>Room Within The Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424266-9781738971336-sounds-necessity/"><u>Sounds Necessity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424274-9798330314409-the-art-of-balance/"><u>THE ART OF BALANCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424250-9781945875762-the-biss-tribe/"><u>The Biss Tribe | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

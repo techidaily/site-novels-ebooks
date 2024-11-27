@@ -1,7 +1,7 @@
 ---
 title: Psychical Research and Survival | Free Book
-date: 2024-11-16T19:34:49.799Z
-updated: 2024-11-17T22:29:37.912Z
+date: 2024-11-24T18:26:37.071Z
+updated: 2024-11-27T18:38:23.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e1773637d63b2cf046deae37eb848ccca9c1991.jpg
@@ -146,10 +146,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e17736
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211213375-9798889603474-angels-my-bedside/"><u>Angels @ My Bedside | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211218270-9781789048612-fairy/"><u>Fairy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211213608-9798350069341-summary-of-dean-koontzs-a-big-little-life/"><u>Summary of Dean Koontz's A Big Little Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211218272-9781803412665-the-mindful-medium-a-practical-guide-to-spirituality/"><u>The Mindful Medium: A Practical Guide to Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211213934-9781801292795-why-our-minds-wander/"><u>Why Our Minds Wander | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311976-9788472459526-antologia/"><u>Antología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311895-9781616406370-astrology-and-your-past-lives/"><u>Astrology and Your Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311891-9781616409692-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311984-9788499883274-el-fin-del-materialismo/"><u>El fin del materialismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311905-9781945934384-how-to-get-what-you-want/"><u>How to Get What You Want | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311965-9780895566140-the-golden-flower/"><u>The Golden Flower | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

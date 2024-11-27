@@ -1,7 +1,7 @@
 ---
 title: Transcendent Wisdom of the Maya | Free Book
-date: 2024-11-11T23:28:41.712Z
-updated: 2024-11-17T18:29:24.974Z
+date: 2024-11-20T19:27:39.576Z
+updated: 2024-11-27T18:43:48.355Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8fe342fd625e873a2ea83a159fafc7d7dd.jpg
@@ -208,11 +208,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2110943-9781910027097-a-universal-guide-to-happiness/"><u>A Universal Guide to Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211098909-9781685176686-body-mind-heart-and-soul/"><u>Body, Mind, Heart and Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211083373-9781608688937-bones-honey/"><u>Bones & Honey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211085312-9781852408497-discover-healing-and-freedom/"><u>Discover Healing and Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211083630-9781401977450-from-imagination-to-reality/"><u>From Imagination to Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211082831-9781633413283-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841706-9781881098454-dame-fortunes-wheel-tarot/"><u>Dame Fortune's Wheel Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842528-9781788284554-discover-meditation-mindfulness/"><u>Discover Meditation & Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841466-9781683254164-entre-en-los-misterios-de-la-numerologia/"><u>Entre en… los misterios de la numerología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842086-9781936012374-humanitys-spiritual-crisis/"><u>Humanity's Spiritual Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841471-9781683254218-mejora-tu-autoestima/"><u>Mejora tu autoestima | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842069-9781888729832-modern-esoteric/"><u>Modern Esoteric | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842529-9781788284547-the-complete-book-of-healing/"><u>The Complete Book of Healing | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

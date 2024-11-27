@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2024-11-13T17:22:44.997Z
-updated: 2024-11-17T20:53:31.040Z
+date: 2024-11-23T21:30:38.967Z
+updated: 2024-11-27T16:36:57.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,10 +167,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210773363-9781925939873-alzheimers-dons-faithful-journey/"><u>ALZHEIMER'S: Don's Faithful Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773353-9781649697332-one-fine-day/"><u>One Fine Day. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773316-9781685830625-shine-bright-sister/"><u>Shine Bright Sister | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773281-9781649695109-the-human-mind/"><u>The Human Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773287-9781685833848-unpacking-my-shit/"><u>Unpacking My Shit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611856-9781770704145-ghost-stories-of-saskatchewan-3/"><u>Ghost Stories of Saskatchewan 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611857-9781770704152-ghosts/"><u>Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/612931-9781429983907-questions-from-earth-answers-from-heaven/"><u>Questions From Earth, Answers From Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611826-9781770703841-secrets-of-the-worlds-undiscovered-treasures/"><u>Secrets of the World's Undiscovered Treasures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611795-9781770703520-the-big-book-of-canadian-ghost-stories/"><u>The Big Book of Canadian Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611862-9781770704206-the-big-book-of-canadian-hauntings/"><u>The Big Book of Canadian Hauntings | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

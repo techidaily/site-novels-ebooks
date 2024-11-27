@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of a Satanist | Free Book
-date: 2024-11-16T02:48:22.031Z
-updated: 2024-11-17T22:21:19.782Z
+date: 2024-11-23T16:43:37.366Z
+updated: 2024-11-27T19:50:40.105Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290f30e1c936b63c2de7854a4594e4b69411.jpg
@@ -160,13 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211210099-9798890438836-a-daily-quest-for-any-year/"><u>A DAILY QUEST FOR ANY YEAR | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211210244-9781998101580-daily-vagus-nerve-exercises-for-self-healing-2-in-1/"><u>Daily Vagus Nerve Exercises For Self-Healing (2 in 1) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211210073-9781098039349-fatherless-yet-fabulous/"><u>Fatherless Yet Fabulous | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211209654-9798350067842-summary-of-alan-cohens-a-course-in-miracles-made-easy/"><u>Summary of Alan Cohen's A Course in Miracles Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211209661-9798350067910-summary-of-chris-bledsoes-ufo-of-god/"><u>Summary of Chris Bledsoe's UFO of GOD | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211209756-9798350068634-summary-of-cliff-tans-feng-shui-modern/"><u>Summary of Cliff Tan's Feng Shui Modern | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211209692-9798350068276-summary-of-queen-afuas-sacred-woman/"><u>Summary of Queen Afua's Sacred Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211209699-9798350068306-summary-of-sophie-bashfords-you-are-a-goddess/"><u>Summary of Sophie Bashford's You Are a Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292649-9781473676640-aquarius/"><u>Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292647-9781473676688-aries/"><u>Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292651-9781473676893-capricorn/"><u>Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292645-9781473676725-gemini/"><u>Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292648-9781473676664-pisces/"><u>Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292646-9781473676701-taurus/"><u>Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292650-9781473676626-virgo/"><u>Virgo | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2024-11-12T19:18:44.697Z
-updated: 2024-11-17T16:00:36.080Z
+date: 2024-11-26T22:51:53.976Z
+updated: 2024-11-27T19:23:11.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,11 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762192-9781787830783-all-you-need-is-less/"><u>All You Need is Less | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762191-9781787830578-let-go/"><u>Let Go | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762197-9781787830486-live-your-best-life/"><u>Live Your Best Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762176-9781787831834-pause/"><u>Pause | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762173-9781787831742-the-little-book-of-spells/"><u>The Little Book of Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762181-9781787831773-the-little-book-of-tarot/"><u>The Little Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484469-9780307555342-conscious-dreaming/"><u>Conscious Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484685-9780307556035-extraordinary-guidance/"><u>Extraordinary Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484580-9780307556608-heal-thy-self/"><u>Heal Thy Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484204-9780307555571-how-to-defend-yourself-against-alien-abduction/"><u>How to Defend Yourself Against Alien Abduction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/480123-9781580911993-the-big-little-book-of-magick/"><u>The Big Little Book of Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/483989-9780307433787-the-feminine-face-of-god/"><u>The Feminine Face of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484156-9780307434524-the-other-90/"><u>The Other 90% | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/485980-9780226642031-the-place-of-enchantment/"><u>The Place of Enchantment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484149-9780307560797-true-balance/"><u>True Balance | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

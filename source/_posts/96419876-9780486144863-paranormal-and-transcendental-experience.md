@@ -1,7 +1,7 @@
 ---
 title: Paranormal and Transcendental Experience | Free Book
-date: 2024-11-16T02:18:17.878Z
-updated: 2024-11-17T20:23:11.913Z
+date: 2024-11-21T16:43:42.777Z
+updated: 2024-11-27T19:49:36.313Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858be456feab2af71507ceb8cba5237ffe9a.jpg
@@ -138,13 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211015281-9780757324796-becoming-psychic/"><u>Becoming Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015363-9781633413023-celtic-goddess-grimoire/"><u>Celtic Goddess Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211014983-9781088249765-el-castillo-de-suenos/"><u>El Castillo de Sueños | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015237-9781958921289-godtalk/"><u>GodTalk | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211014978-9781088250877-la-fuerza-del-destino/"><u>La Fuerza del Destino | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211014982-9781088240496-nobody-belongs-to-anyone/"><u>Nobody Belongs To Anyone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015233-9781958921326-witch/"><u>Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211014975-9781088234631-you-make-tomorrow/"><u>You make tomorrow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783093-9781620556436-into-the-mystic/"><u>Into the Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783085-9781620551400-lsd-and-the-divine-scientist/"><u>LSD and the Divine Scientist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783090-9781620553671-magic-mushroom-explorer/"><u>Magic Mushroom Explorer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783088-9781620554623-teachings-of-the-peyote-shamans/"><u>Teachings of the Peyote Shamans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783100-9781620551424-the-new-science-of-psychedelics/"><u>The New Science of Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783098-9781594778711-the-prophets-way/"><u>The Prophet's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783094-9781594779374-the-psilocybin-solution/"><u>The Psilocybin Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783097-9781594779367-the-psychedelic-explorers-guide/"><u>The Psychedelic Explorer's Guide | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

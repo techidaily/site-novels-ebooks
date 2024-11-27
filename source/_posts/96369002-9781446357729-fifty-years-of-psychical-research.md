@@ -1,7 +1,7 @@
 ---
 title: Fifty Years of Psychical Research | Free Book
-date: 2024-11-11T17:29:50.270Z
-updated: 2024-11-17T18:29:09.889Z
+date: 2024-11-25T20:07:26.650Z
+updated: 2024-11-27T22:12:15.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2163593613e23d23e162d5f4e1237cd05c.jpg
@@ -139,10 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211224350-9781529438963-spells-for-love/"><u>Spells for Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224357-9781529439007-spells-for-prosperity/"><u>Spells for Prosperity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224383-9781529439021-spells-for-self-care/"><u>Spells for Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224389-9780762488360-the-little-encyclopedia-of-enchanted-woodland-creatures/"><u>The Little Encyclopedia of Enchanted Woodland Creatures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224395-9780762488377-the-little-encyclopedia-of-mermaids/"><u>The Little Encyclopedia of Mermaids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316635-9781401946852-e-cubed/"><u>E-Cubed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316637-9781401939663-pocket-guide-to-spirit-animals/"><u>Pocket Guide to Spirit Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316630-9781401945299-the-essential-law-of-attraction-collection/"><u>The Essential Law of Attraction Collection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316636-9781401944674-the-magic-path-of-intuition/"><u>The Magic Path of Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316629-9781401943974-when-everything-changes-change-everything/"><u>When Everything Changes, Change Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316627-9781401947026-your-quantum-breakthrough-code/"><u>Your Quantum Breakthrough Code | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

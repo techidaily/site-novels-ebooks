@@ -1,7 +1,7 @@
 ---
 title: The Healing of Individuals, Families & Nations | Free Book
-date: 2024-10-26T00:25:57.215Z
-updated: 2024-10-26T16:28:54.199Z
+date: 2024-11-24T20:32:43.929Z
+updated: 2024-11-27T18:38:14.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be01d348746f398d15457d5f40836986239e1d86b8df3e5f7f11e3ba93c3d2d.jpg
@@ -155,3 +155,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be01d348746f398d15457d5f408369
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211477907-9781507305683-atlas-of-extraterrestrial-zones/"><u>Atlas of Extraterrestrial Zones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477942-9781667479408-cuando-el-divorcio-es-imprescindible/"><u>Cuando el divorcio es imprescindible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477679-9781964744643-living-with-eternity/"><u>Living with Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477682-9781890679644-stop-thought/"><u>Stop Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2129387--sun-signs/"><u>Sun Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477908-9781507304334-the-magick-of-lenormand/"><u>The Magick of Lenormand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120495-9780892546299-the-tantric-alchemist/"><u>The Tantric Alchemist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120395-9781633410138-walking-among-us/"><u>Walking Among Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120479-9780857012036-white-moon-on-the-mountain-peak/"><u>White Moon on the Mountain Peak | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

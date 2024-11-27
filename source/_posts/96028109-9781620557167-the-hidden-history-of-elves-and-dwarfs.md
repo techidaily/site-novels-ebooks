@@ -1,7 +1,7 @@
 ---
 title: The Hidden History of Elves and Dwarfs | Free Book
-date: 2024-10-24T02:06:19.740Z
-updated: 2024-10-26T18:40:10.248Z
+date: 2024-11-26T21:03:44.556Z
+updated: 2024-11-27T18:56:56.812Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce71ab17c2320b194bca4a94dc1fab0f50d06952cd1b6f4ead408bca925b23e0.jpg
@@ -220,3 +220,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce71ab17c2320b194bca4a94dc1fab0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211372500-9781922786883-awaken-your-psychic-ability-updated-edition/"><u>Awaken your Psychic Ability - updated edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372509-9781923009196-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372499-9781922786807-reclaim-your-dark-goddess/"><u>Reclaim your Dark Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372504-9781923009080-understanding-modern-spirituality/"><u>Understanding Modern Spirituality | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

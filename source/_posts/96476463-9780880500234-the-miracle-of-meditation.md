@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-11-11T19:01:55.339Z
-updated: 2024-11-17T17:10:14.251Z
+date: 2024-11-20T20:36:12.290Z
+updated: 2024-11-27T16:30:17.867Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,9 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210932953-9781855844445-good-and-evil-spirits/"><u>Good and Evil Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932961-9781855844698-human-and-cosmic-thought/"><u>Human and Cosmic Thought | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932959-9781912992393-reincarnation-and-karma-an-introduction/"><u>Reincarnation and Karma, An Introduction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932956-9781855843110-the-fifth-gospel/"><u>The Fifth Gospel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782227-9781594778148-advanced-sex-magic/"><u>Advanced Sex Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782231-9781620553367-esoterism-and-symbol/"><u>Esoterism and Symbol | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782225-9781594776144-hafez-2nd-ed/"><u>Haféz (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782230-9781594777684-masters-of-the-living-energy-3rd-ed/"><u>Masters of the Living Energy (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782232-9781620550410-other-ways-of-knowing/"><u>Other Ways of Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782223-9781594779947-the-akashic-experience/"><u>The Akashic Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782222-9781620556221-traditional-magic-spells-for-protection-and-healing/"><u>Traditional Magic Spells for Protection and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782221-9781594779619-transcending-the-speed-of-light/"><u>Transcending the Speed of Light | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

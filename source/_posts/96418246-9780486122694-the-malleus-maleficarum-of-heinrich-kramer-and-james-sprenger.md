@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2024-11-16T23:11:41.009Z
-updated: 2024-11-17T19:15:48.196Z
+date: 2024-11-22T20:29:43.289Z
+updated: 2024-11-27T17:39:41.753Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,10 +163,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211013504-9781591435075-shamanic-teachings-of-the-condor/"><u>Shamanic Teachings of the Condor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013505-9781591435099-sorcerers-of-stone/"><u>Sorcerers of Stone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013572-9781644116340-the-hoodoo-tarot-workbook/"><u>The Hoodoo Tarot Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013503-9781591434870-the-mystery-of-life-energy/"><u>The Mystery of Life Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211012445-9781841815619-your-crystal-plan/"><u>Your Crystal Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783058-9781594778018-darwins-unfinished-business/"><u>Darwin's Unfinished Business | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783061-9781620551684-dmt-and-the-soul-of-prophecy/"><u>DMT and the Soul of Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783064-9781594779732-dmt-the-spirit-molecule/"><u>DMT: The Spirit Molecule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783054-9781620554906-dreaming-wide-awake/"><u>Dreaming Wide Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783057-9781594777455-drugs-of-the-dreaming/"><u>Drugs of the Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783066-9781620556986-psychedelic-medicine/"><u>Psychedelic Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783062-9781620550496-the-rebirth-of-nature/"><u>The Rebirth of Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783059-9781620551257-the-religion-of-ayahuasca-2nd-ed/"><u>The Religion of Ayahuasca (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783063-9781620554746-the-witches-ointment/"><u>The Witches' Ointment | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

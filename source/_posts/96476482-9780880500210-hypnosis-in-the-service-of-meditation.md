@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-11-10T23:06:40.863Z
-updated: 2024-11-17T16:09:28.536Z
+date: 2024-11-23T17:16:18.888Z
+updated: 2024-11-27T22:36:19.429Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,13 +167,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210934742-9781800651395-a-magical-night-journey/"><u>A Magical Night Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934775-9781782496212-be-your-own-astrologer/"><u>Be Your Own Astrologer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934711-9781800651371-harnessing-the-power-of-signs-symbols/"><u>Harnessing the Power of Signs & Symbols | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934738-9781782499176-magical-self-care-for-everyday-life/"><u>Magical Self-Care for Everyday Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934757-9781782492894-mindful-eating/"><u>Mindful Eating | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934725-9781782499152-moon-wisdom/"><u>Moon Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934765-9781782497790-the-crystal-healer-volume-2/"><u>The Crystal Healer: Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210934781-9781782495222-the-little-pocket-book-of-mindfulness/"><u>The Little Pocket Book of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782286-9781620555262-origins-of-the-sphinx/"><u>Origins of the Sphinx | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782287-9781620550472-primal-awareness/"><u>Primal Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782282-9781620555361-the-finger-and-the-moon/"><u>The Finger and the Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782283-9781594776502-the-magus-of-freemasonry/"><u>The Magus of Freemasonry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782285-9781594776878-the-new-science-and-spirituality-reader/"><u>The New Science and Spirituality Reader | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

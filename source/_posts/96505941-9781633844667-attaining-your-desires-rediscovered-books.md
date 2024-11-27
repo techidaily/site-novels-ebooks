@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-11-10T17:55:54.139Z
-updated: 2024-11-18T03:07:29.504Z
+date: 2024-11-23T23:21:04.516Z
+updated: 2024-11-27T20:04:55.818Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,13 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761750-9781604074567-embrace-release-heal/"><u>Embrace, Release, Heal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761699-9781683640486-living-an-examined-life/"><u>Living an Examined Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761770-9781591798361-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761752-9781591798200-mantra-meditation/"><u>Mantra Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761759-9781683649557-psychedelic-revival/"><u>Psychedelic Revival | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761763-9781622030736-saint-francis-of-assisi/"><u>Saint Francis of Assisi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761760-9781604073348-tibetan-sound-healing/"><u>Tibetan Sound Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761751-9781622034529-walking-in-light/"><u>Walking in Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447115-9781101133255-the-complete-idiots-guide-to-connecting-with-your-angels/"><u>The Complete Idiot's Guide to Connecting with Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447096-9781101126691-the-complete-idiots-guide-to-feng-shui-3rd-edition/"><u>The Complete Idiot's Guide to Feng Shui, 3rd Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/444290-9781442945562-the-history-of-spiritualism/"><u>The History of Spiritualism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447112-9781101108604-the-secret-doctrine/"><u>The Secret Doctrine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447146-9781101127384-the-witchs-magical-handbook/"><u>The Witch's Magical Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/445261-9780974470658-the-yamas-amp-niyamas/"><u>The Yamas &amp; Niyamas | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

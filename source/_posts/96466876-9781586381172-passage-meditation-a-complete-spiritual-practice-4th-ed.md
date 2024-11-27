@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2024-11-16T23:01:50.956Z
-updated: 2024-11-17T22:02:25.183Z
+date: 2024-11-22T17:16:11.753Z
+updated: 2024-11-27T17:16:51.505Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,9 +179,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210970401-9781088252499-heart-impulses/"><u>Heart Impulses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970402-9781088251768-la-force-du-destin/"><u>La Force Du Destin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970411-9781088252734-the-power-of-fate/"><u>The Power Of Fate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970412-9781088252123-twins/"><u>TWINS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782680-9781594779282-drawing-down-the-spirits/"><u>Drawing Down the Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782678-9781594775925-how-to-read-signs-and-omens-in-everyday-life/"><u>How to Read Signs and Omens in Everyday Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782681-9781594779701-matrix-meditations/"><u>Matrix Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782679-9781594778247-womb-wisdom/"><u>Womb Wisdom | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

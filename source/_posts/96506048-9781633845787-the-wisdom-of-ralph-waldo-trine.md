@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Ralph Waldo Trine | Free Book
-date: 2024-11-11T20:54:54.714Z
-updated: 2024-11-18T01:11:41.137Z
+date: 2024-11-21T17:06:33.100Z
+updated: 2024-11-27T20:51:23.443Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399143e33e364df922e51683bcdc0dfe214d.jpg
@@ -146,10 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762244-9781786853875-dont-panic/"><u>Don't Panic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762283-9781786850973-find-calm/"><u>Find Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762277-9781786850881-project-happiness/"><u>Project Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762257-9781786851307-the-little-book-of-astrology/"><u>The Little Book of Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762290-9781783727308-the-little-book-of-comfort/"><u>The Little Book of Comfort | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493041-9781439137161-divine-revelation/"><u>Divine Revelation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/501616-9780307565709-feng-shui-and-health/"><u>Feng Shui and Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493178-9781439136775-secret-life/"><u>Secret Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/499863-9780759521643-the-angels-little-diet-book/"><u>The Angels' Little Diet Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493085-9781439156193-the-generosity-plan/"><u>The Generosity Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493292-9781416575535-the-orb-project/"><u>The Orb Project | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493282-9781439127797-the-threat/"><u>The Threat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493195-9781439155653-the-truth-about-psychics/"><u>The Truth About Psychics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493161-9781439186732-the-wheel-of-time/"><u>The Wheel Of Time | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

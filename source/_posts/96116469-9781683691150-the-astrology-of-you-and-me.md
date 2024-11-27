@@ -1,7 +1,7 @@
 ---
 title: The Astrology of You and Me | Free Book
-date: 2024-10-23T00:08:41.591Z
-updated: 2024-10-27T03:41:13.193Z
+date: 2024-11-23T19:24:00.268Z
+updated: 2024-11-27T16:25:45.083Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/111159a3d7ad351742645e01a99e27bf3bb60c410684df8f4306c86ddf1f3a36.jpg
@@ -190,3 +190,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/111159a3d7ad351742645e01a99e27b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211266852-9798893566994-apples-of-gold-in-settings-of-silver/"><u>Apples of Gold in Settings of Silver | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211268151-9781778237416-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266838-9798869266798-cosmic-cannabis/"><u>Cosmic Cannabis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266843-9798893305333-fifty-words-of-encouragement-just-for-you/"><u>Fifty Words of Encouragement Just For You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211267617-9782017230342-la-sirene-et-le-papillon/"><u>La Sirène et le Papillon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211267982-9798218272180-rise-up-and-heal/"><u>Rise Up and Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211268126-9781958304952-sex-without-regrets/"><u>Sex without Regrets | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

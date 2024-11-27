@@ -1,7 +1,7 @@
 ---
 title: The Medical Cannabis Guidebook | Free Book
-date: 2024-10-23T23:02:30.779Z
-updated: 2024-10-26T20:41:00.144Z
+date: 2024-11-22T23:13:26.274Z
+updated: 2024-11-27T16:59:01.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/294bd2a1b76940a2cd5901ffd00a1b73aab4ce2ac99b007084671226a851979d.jpg
@@ -179,3 +179,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/294bd2a1b76940a2cd5901ffd00a1b7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211350568--alchemical-hermeticism/"><u>Alchemical Hermeticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350567--at-the-borders-of-the-wondrous-and-magical/"><u>At the Borders of the Wondrous and Magical | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350566--my-altered-states/"><u>My Altered States | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350580--psychedelics-and-mental-health-2nd-ed/"><u>Psychedelics and Mental Health (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350564--the-illustrated-field-guide-to-dmt-entities/"><u>The Illustrated Field Guide to DMT Entities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350583--the-radical-path-of-somatic-dharma/"><u>The Radical Path of Somatic Dharma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350582--vipassana-meditation-and-ayahuasca/"><u>Vipassana Meditation and Ayahuasca | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

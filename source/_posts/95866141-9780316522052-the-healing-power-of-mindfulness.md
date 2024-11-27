@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Mindfulness | Free Book
-date: 2024-10-20T05:39:13.783Z
-updated: 2024-10-26T23:00:46.597Z
+date: 2024-11-26T17:48:10.843Z
+updated: 2024-11-27T18:59:03.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40ee497cef74d2f55ebd8ce604d3b9c8012d0a9ecdb8ad0417cc3747dc7aeef8.jpg
@@ -189,3 +189,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40ee497cef74d2f55ebd8ce604d3b9c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2610306-9781459737884-haunted-hospitals/"><u>Haunted Hospitals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2610148-9781250066947-kindness-boomerang/"><u>Kindness Boomerang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2610445-9780007394180-shine-on-visions-of-life/"><u>Shine On: Visions of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612860-9781612833620-tarot-mysteries/"><u>Tarot Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612260-9781623171131-the-genius-of-being/"><u>The Genius of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2610658-9780007374328-the-infinite-mind/"><u>The Infinite Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2609963-9781841814650-the-qigong-bible/"><u>The Qigong Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612029-9780892546305-the-sworn-book-of-honorius/"><u>The Sworn Book of Honorius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612237-9781101905371-unplug/"><u>Unplug | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
