@@ -1,7 +1,7 @@
 ---
 title: The After Death Chronicles | Free Book
-date: 2024-10-25T02:04:10.895Z
-updated: 2024-10-27T04:05:31.531Z
+date: 2024-12-03T01:47:42.906Z
+updated: 2024-12-06T16:32:43.503Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5221ef3372107bbe707f76c18adeaa3cac6396098de4195881e5285038854cf.jpg
@@ -201,3 +201,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5221ef3372107bbe707f76c18adeaa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317730-9781401929534-loyalty-to-your-soul/"><u>Loyalty to Your Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317729-9781401924874-return-to-the-sacred/"><u>Return to the Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317723-9781401921422-sara-book-3/"><u>Sara, Book 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317725-9781401922474-the-amazing-power-of-deliberate-intent/"><u>The Amazing Power of Deliberate Intent | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

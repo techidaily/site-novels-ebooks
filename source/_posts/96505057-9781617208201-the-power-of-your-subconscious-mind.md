@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-11-20T16:08:08.220Z
-updated: 2024-11-27T21:00:49.985Z
+date: 2024-12-02T05:56:28.883Z
+updated: 2024-12-06T18:18:01.118Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,15 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/649776-9780307785510-emmanuels-book/"><u>Emmanuel's Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/649799-9780307717627-four-elements/"><u>Four Elements | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/652226-9781101516980-the-art-of-uncertainty/"><u>The Art of Uncertainty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/650494-9781849892681-the-dream-dictionary/"><u>The Dream Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/649839-9781455504466-the-healing-code/"><u>The Healing Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/649746-9780307785893-wicca/"><u>Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848608-9781681274270-astrology-for-beginners/"><u>Astrology For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847929-9780995217218-best-in-bat-nation/"><u>Best In Bat Nation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847862-9781910559260-dirty-divine/"><u>Dirty & Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848358-9781788085403-goddess-rising/"><u>Goddess Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847939-9781633831865-meditation-for-beginners/"><u>Meditation for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848611-9781681274539-tarot-cards-for-beginners/"><u>Tarot Cards For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847875-9780995627215-the-hound-of-happiness-52-tips-to-feel-good/"><u>The Hound of Happiness - 52 Tips to Feel Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848261-9781911425830-the-little-book-of-big-leverage/"><u>The Little Book of Big Leverage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848453-9781772570953-walking-between-the-worlds-book-ii/"><u>Walking Between the Worlds ─ Book II | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

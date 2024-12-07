@@ -1,7 +1,7 @@
 ---
 title: Alquimia - O Mistério da Pedra Filosofal | Free Book
-date: 2024-10-21T05:06:11.754Z
-updated: 2024-10-26T19:50:56.526Z
+date: 2024-12-01T01:02:53.755Z
+updated: 2024-12-06T17:55:46.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c64e72d1eb22cd1e1b5c8422761c6cc33821c0164564369747fc24e075f5e9b.jpg
@@ -136,3 +136,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c64e72d1eb22cd1e1b5c8422761c6c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317763-9781401932534-mirrors-of-time/"><u>Mirrors of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317757-9781401932831-souls-perfection/"><u>Soul's Perfection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317750-9781401932848-spellbinding/"><u>Spellbinding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317756-9781401932916-the-body-knows-how-to-tune-in-to-your-body-and-improve-your-health/"><u>The Body Knows How to Tune In to Your Body and Improve Your Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317772-9781401942038-the-radical-practice-of-loving-everyone/"><u>The Radical Practice of Loving Everyone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317752-9781401931971-the-secret-of-quantum-living/"><u>The Secret of Quantum Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317758-9781401933364-you-can-have-an-amazing-life-in-just-60-days/"><u>You Can Have An Amazing Life In Just 60 Days! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317775-9781401944940-your-life-after-their-death/"><u>Your Life After Their Death | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

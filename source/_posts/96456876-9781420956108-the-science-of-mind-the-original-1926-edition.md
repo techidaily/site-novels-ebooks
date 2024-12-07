@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-11-22T20:11:15.084Z
-updated: 2024-11-27T23:21:51.663Z
+date: 2024-11-30T23:06:03.438Z
+updated: 2024-12-06T23:12:37.910Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,18 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782518-9781591432845-advanced-shamanism/"><u>Advanced Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782523-9781591438274-entering-the-mind-of-the-tracker/"><u>Entering the Mind of the Tracker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782521-9781591437772-esoteric-egypt/"><u>Esoteric Egypt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782515-9781591439844-grey-aliens-and-the-harvesting-of-souls/"><u>Grey Aliens and the Harvesting of Souls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782517-9781591432326-our-dolphin-ancestors/"><u>Our Dolphin Ancestors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782524-9781591439875-the-8-calendars-of-the-maya/"><u>The 8 Calendars of the Maya | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782520-9781591439882-the-purposeful-universe/"><u>The Purposeful Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782519-9781591438700-the-toltec-path-of-recapitulation/"><u>The Toltec Path of Recapitulation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782525-9781591438632-the-tutankhamun-prophecies/"><u>The Tutankhamun Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210078444-9781800190900-100-ways-to-be-kind/"><u>100 Ways to Be Kind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079622-9780813174518-haunts-of-old-louisville/"><u>Haunts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080322-9780648862116-mystic-at-the-edge/"><u>MYSTIC AT THE EDGE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079477-9780813174488-phantoms-of-old-louisville/"><u>Phantoms of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079829-9780963009685-psychedelic-psychotherapy/"><u>Psychedelic Psychotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080029-9780806541075-shamanism-for-every-day/"><u>Shamanism for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080347-9781734815733-the-antidote/"><u>The Antidote | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079488-9780813137070-the-mystery-chronicles/"><u>The Mystery Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080380-9781948626224-the-shamans-mind/"><u>The Shaman's Mind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Field Guide to the Spirit World | Free Book
-date: 2024-11-23T18:25:08.887Z
-updated: 2024-11-27T19:30:22.147Z
+date: 2024-12-01T17:51:52.685Z
+updated: 2024-12-06T23:56:30.666Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f9627ce9889a5066fd40f398ff9914148716f.jpg
@@ -207,17 +207,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f962
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95876043-9780525504436-infinite-possibility/"><u>Infinite Possibility | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95876019-9781507192597-leveil-spirituel-la-chose-la-plus-dingue/"><u>L'éveil spirituel : La chose la plus dingue | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95875991-9781507192658-leveil-spirituellement-incorrect/"><u>L'éveil spirituellement incorrect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95873579-9781507207253-my-pocket-tai-chi/"><u>My Pocket Tai Chi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95881452-9781786781505-the-gate-of-light/"><u>The Gate of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95876103-9780525619314-the-signs/"><u>The Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95873744-9786171235502-luchshij-vrach-vashe-podsoznanie-luchshij-vrach-vashe-podsoznanie/"><u>Лучший врач - ваше подсознание. (Luchshij vrach - vashe podsoznanie.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95873747-9786171235656-samye-zhutkie-i-misticheskie-mesta-na-planete-i-tajny-ih-zhitelej-samye-zhutkie-i-misticheskie-mesta-na-planete-i-tajny-ih-zhitelej/"><u>Самые жуткие и мистические места на планете и тайны их жителей (Samye zhutkie i misticheskie mesta na planete i tajny ih zhitelej) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210168847-9781838219130-angels-in-our-territory/"><u>ANGELS IN OUR TERRITORY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210169351-9780744041149-intuition/"><u>Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210168549-9781647018047-through-the-eyes-of-nisey/"><u>Through the Eyes of Nisey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210169464-9780834843516-wait/"><u>Wait | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

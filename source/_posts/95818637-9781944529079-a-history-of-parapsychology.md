@@ -1,7 +1,7 @@
 ---
 title: A History of Parapsychology | Free Book
-date: 2024-10-24T20:50:43.680Z
-updated: 2024-10-26T16:32:05.005Z
+date: 2024-12-01T03:04:23.800Z
+updated: 2024-12-07T04:35:31.314Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/92d6a605833d63cec1d95f9fda72a09059ae8872a2296d5b5a10e968a7ca7da9.jpg
@@ -136,3 +136,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/92d6a605833d63cec1d95f9fda72a09
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1058057-9781448175765-astrology-decoded/"><u>Astrology Decoded | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1050238-9781780995588-healing-with-spirit/"><u>Healing with Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1058508-9781780991986-i-am-boundlessness/"><u>I Am Boundlessness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1056931-9781780994741-seeds-of-change/"><u>Seeds of Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1056930-9781780994406-the-astrological-dynamics-of-the-universe/"><u>The Astrological Dynamics of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1058509-9781780992228-why-women-believe-in-god/"><u>Why Women Believe in God | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

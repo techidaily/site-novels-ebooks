@@ -1,7 +1,7 @@
 ---
 title: Myth, Consciousness, and Psychic Research | Free Book
-date: 2024-10-26T02:31:04.565Z
-updated: 2024-10-26T18:31:02.643Z
+date: 2024-12-01T03:40:10.717Z
+updated: 2024-12-07T04:55:14.852Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4952c914f4f7734988f74a75701b8ec4886d4601a25ba737c1b09dab12da53f5.jpg
@@ -132,3 +132,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4952c914f4f7734988f74a75701b8ec
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96422485-9780486825625-365-daily-meditations-for-on-and-off-the-mat/"><u>365 Daily Meditations for On and Off the Mat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440136-9781561646388-ancient-city-hauntings/"><u>Ancient City Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440126-9781561646029-orlandos-historic-haunts/"><u>Orlando's Historic Haunts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96438816-9781908746900-peachey-letters/"><u>Peachey Letters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96422453-9780486823430-the-book-of-ceremonial-magic/"><u>The Book of Ceremonial Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96422276-9780486816272-the-book-of-luck/"><u>The Book of Luck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96437876-9781595588869-the-cushion-in-the-road/"><u>The Cushion in the Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96438705-9781934170311-the-secret-source/"><u>The Secret Source | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

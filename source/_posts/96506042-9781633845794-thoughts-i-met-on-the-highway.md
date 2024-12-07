@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2024-11-26T22:51:53.976Z
-updated: 2024-11-27T19:23:11.211Z
+date: 2024-11-30T23:10:44.089Z
+updated: 2024-12-06T16:59:39.532Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,18 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/484469-9780307555342-conscious-dreaming/"><u>Conscious Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484685-9780307556035-extraordinary-guidance/"><u>Extraordinary Guidance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484580-9780307556608-heal-thy-self/"><u>Heal Thy Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484204-9780307555571-how-to-defend-yourself-against-alien-abduction/"><u>How to Defend Yourself Against Alien Abduction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/480123-9781580911993-the-big-little-book-of-magick/"><u>The Big Little Book of Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/483989-9780307433787-the-feminine-face-of-god/"><u>The Feminine Face of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484156-9780307434524-the-other-90/"><u>The Other 90% | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/485980-9780226642031-the-place-of-enchantment/"><u>The Place of Enchantment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484149-9780307560797-true-balance/"><u>True Balance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209815496-9781789042429-ancient-teachings-for-modern-times/"><u>Ancient Teachings for Modern Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209820540-9781743586518-find-your-sparkle/"><u>Find Your Sparkle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209815494-9781789042177-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209815503-9781789041385-the-energetic-dimension/"><u>The Energetic Dimension | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

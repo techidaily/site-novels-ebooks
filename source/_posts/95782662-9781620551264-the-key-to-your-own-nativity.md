@@ -1,7 +1,7 @@
 ---
 title: The Key to Your Own Nativity | Free Book
-date: 2024-10-23T18:43:43.637Z
-updated: 2024-10-26T20:00:32.143Z
+date: 2024-12-04T00:07:57.020Z
+updated: 2024-12-06T18:48:36.668Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a2ea57b5d479f28a8bcc5f88c9bd12ef1833a8f89c271b87083a44fb373c92a.jpg
@@ -131,3 +131,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a2ea57b5d479f28a8bcc5f88c9bd12
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209552748-9781984825971-a-course-in-meditation/"><u>A Course in Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209552764-9781786782663-danielle-collins-face-yoga/"><u>Danielle Collins' Face Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209552769-9781786782595-splendor-solis/"><u>Splendor Solis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209552745-9781984857033-the-book-of-spells/"><u>The Book of Spells | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

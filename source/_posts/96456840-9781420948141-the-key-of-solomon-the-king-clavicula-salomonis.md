@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2024-11-24T16:57:02.712Z
-updated: 2024-11-27T22:10:57.200Z
+date: 2024-12-03T02:59:37.505Z
+updated: 2024-12-06T20:16:20.631Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,13 +145,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782514-9781591438533-affinity/"><u>Affinity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782513-9781591432722-the-angelic-origins-of-the-soul/"><u>The Angelic Origins of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782512-9781591432302-the-anunnaki-chronicles/"><u>The Anunnaki Chronicles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782511-9781591432388-trance-journeys-of-the-hunter-gatherers/"><u>Trance Journeys of the Hunter-Gatherers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2100754-9780974021676-healing-the-heart-soul/"><u>Healing the Heart & Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210073347-9781682682524-morning-altars-a-7-step-practice-to-nourish-your-spirit-through-nature-art-and-ritual/"><u>Morning Altars: A 7-Step Practice to Nourish Your Spirit through Nature, Art, and Ritual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077697-9781087896472-the-fight-for-my-life/"><u>THE FIGHT FOR MY LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077510-9780999864654-through-the-storm/"><u>Through the Storm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077662-9781945352058-wow-by-junko/"><u>WOW by Junko | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

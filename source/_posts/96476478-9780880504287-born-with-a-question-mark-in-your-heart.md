@@ -1,7 +1,7 @@
 ---
 title: Born With a Question Mark in Your Heart | Free Book
-date: 2024-11-24T20:11:40.193Z
-updated: 2024-11-27T19:07:06.389Z
+date: 2024-12-05T21:16:55.623Z
+updated: 2024-12-06T17:19:18.736Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f885342066bdc3b498e7939ef186e37a9e69.jpg
@@ -171,14 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f88
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782268-9781620554814-encyclopedia-of-norse-and-germanic-folklore-mythology-and-magic/"><u>Encyclopedia of Norse and Germanic Folklore, Mythology, and Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782269-9781620555927-enlightenment-now/"><u>Enlightenment Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782270-9781620554609-sacred-trickery-and-the-way-of-kindness/"><u>Sacred Trickery and the Way of Kindness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782266-9781594775215-soul-talk/"><u>Soul Talk | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782265-9781594777424-the-neanderthal-legacy/"><u>The Neanderthal Legacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210011346-9780316535281-cosmic-health/"><u>Cosmic Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210010457-9781591939184-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210009536-9781626818712-mysteries/"><u>Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210010113-9781952746017-prometheus-rising/"><u>Prometheus Rising | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

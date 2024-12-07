@@ -1,7 +1,7 @@
 ---
 title: The Outer Limits of Edgar Cayce's Power | Free Book
-date: 2024-10-20T02:13:43.618Z
-updated: 2024-10-27T04:49:29.090Z
+date: 2024-11-30T00:31:57.350Z
+updated: 2024-12-06T18:05:25.141Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00c952cee46ac7344279037bbd05276512259f5ae85b2ef5d4b7af69e30fd47b.jpg
@@ -140,3 +140,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00c952cee46ac7344279037bbd05276
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1355752-9781780997957-a-modern-celt/"><u>A Modern Celt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1342639-9781934588864-alien-crash-at-roswell/"><u>Alien Crash at Roswell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1338603-9780985247928-diannas-way/"><u>Dianna's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1355757-9781782791515-how-to-satisfy-a-taurus/"><u>How to Satisfy a Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1342641-9780813143835-kentucky-hauntings/"><u>Kentucky Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1355759-9781782791058-mankinds-last-chance/"><u>Mankind's Last Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1360770-9781466852174-the-healing-mind/"><u>The Healing Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1337380-9780988677319-the-practical-shaman/"><u>The Practical Shaman | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Crystals for Karmic Healing | Free Book
-date: 2024-10-25T04:30:00.016Z
-updated: 2024-10-26T19:13:30.384Z
+date: 2024-12-06T01:14:40.726Z
+updated: 2024-12-06T22:29:27.092Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d113d8c69484555e7753071c1248f4463f93027a153a2a4085e0f4845a3cd973.jpg
@@ -200,3 +200,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d113d8c69484555e7753071c1248f44
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1648027-9781476735498-harness-astrologys-bad-boy/"><u>Harness Astrology's Bad Boy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1648105-9781439128947-healing-the-soul-of-america/"><u>Healing the Soul of America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650259-9781782795117-on-dragonfly-wings/"><u>On Dragonfly Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/164636-9780743488709-the-psychic-in-you/"><u>The Psychic in You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650264-9781780991160-throw-away-your-loincloth/"><u>Throw Away Your Loincloth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1648019-9781476764450-you-cant-make-this-stuff-up/"><u>You Can't Make This Stuff Up | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

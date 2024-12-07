@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2024-11-26T16:39:50.508Z
-updated: 2024-11-27T22:31:14.767Z
+date: 2024-12-05T18:03:09.794Z
+updated: 2024-12-06T19:10:12.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,13 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2682501-9781515409236-the-ideal-life-and-other-unpublished-addresses/"><u>The Ideal Life and Other Unpublished Addresses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2682512-9781515409595-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2682515-9781515409557-the-law-of-the-higher-potential/"><u>The Law of the Higher Potential | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2682521-9781515409328-the-life-triumphant/"><u>The Life Triumphant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667344-9781547580514-liderazgo-mejora-tu-lenguaje-corporal-para-influenciar-a-otros-a-traves-de-comunicacion-poderosa/"><u>Liderazgo: Mejora Tu Lenguaje Corporal Para Influenciar A Otros A Través De Comunicación Poderosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667370-9781547577637-meditacion-activa-tus-chakras-y-reduce-la-ansiedad-y-la-depresion/"><u>Meditación: Activa Tus Chakras Y Reduce La Ansiedad Y La Depresión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667371-9781547576562-meditacion-atencion-plena-para-que-los-principiantes-aumenten-la-confianza-elimine-la-depresion-de-su-vida/"><u>Meditación: Atención Plena Para Que Los Principiantes Aumenten La Confianza (Elimine La Depresión De Su Vida) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667360-9781547576579-meditacion-guia-para-principiantes-para-meditar-y-reducir-estres-logra-la-paz-y-la-espiritualidad/"><u>Meditación: Guía Para Principiantes Para Meditar Y Reducir Estrés (Logra La Paz Y La Espiritualidad) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667349-9781547574551-meditacion-tecnicas-de-meditacion-para-relajarse-y-aliviar-la-ansiedad-meditation/"><u>Meditación: Técnicas De Meditación Para Relajarse Y Aliviar La Ansiedad ( Meditation) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667362-9781547580095-meditacion-tecnicas-para-lograr-la-paz-reducir-el-estres-y-la-depresion/"><u>Meditación: Técnicas Para Lograr La Paz (Reducir El Estrés Y La Depresión) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667644-9781632658166-the-benham-book-of-palmistry-revised/"><u>The Benham Book of Palmistry, Revised | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Apparitions, Hauntings, and Poltergeists | Free Book
-date: 2024-10-22T03:09:21.702Z
-updated: 2024-10-27T04:41:49.410Z
+date: 2024-12-02T22:34:19.064Z
+updated: 2024-12-07T01:56:12.913Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd4399a16f9a9a6f30e2b91a78c3b4abc54b41c43961c9667e13e3783a8f427e.jpg
@@ -133,3 +133,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd4399a16f9a9a6f30e2b91a78c3b4a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126100-9781609256852-tarot-damour/"><u>Tarot D'Amour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126101-9781609254001-tarot-dictionary-and-compendium/"><u>Tarot Dictionary and Compendium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126102-9781609253929-tarot-of-the-spirit/"><u>Tarot of the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126103-9781609256845-tea-cup-reading/"><u>Tea Cup Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126108-9781609255510-the-book-of-splendours/"><u>The Book of Splendours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126099-9781609254346-the-tarot-book/"><u>The Tarot Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

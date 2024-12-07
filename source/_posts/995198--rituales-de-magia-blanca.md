@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-11-22T16:06:44.219Z
-updated: 2024-11-27T18:24:26.235Z
+date: 2024-12-02T04:19:33.337Z
+updated: 2024-12-07T04:43:53.594Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,15 +136,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2647189-9780750959896-ghostly-cumbria/"><u>Ghostly Cumbria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647084-9780750951500-haunted-high-wycombe/"><u>Haunted High Wycombe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647613-9780750954389-haunted-plymouth/"><u>Haunted Plymouth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647085-9780750951517-haunted-st-albans/"><u>Haunted St Albans | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647645-9780750956444-haunted-stirling/"><u>Haunted Stirling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647138-9780750952774-shadows-on-the-water/"><u>Shadows on the Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2096410-9780835631785-a-most-unusual-life/"><u>A Most Unusual Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638214-9781547573219-meditacao-poucos-passos-para-o-sucesso-em-sua-vida/"><u>Meditação : Poucos Passos Para O Sucesso Em Sua Vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638212-9781547573233-meditacao-guia-de-atencao-plena-para-autodisciplina-e-sucesso/"><u>Meditação: Guia De Atenção Plena Para Autodisciplina E Sucesso | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638226-9781547571321-meditacion-guia-para-sanar-el-alma-y-encontrar-la-paz-espiritualidad-para-principiantes/"><u>Meditación: Guía Para Sanar El Alma Y Encontrar La Paz (Espiritualidad Para Principiantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638221-9781547571338-meditacion-tecnicas-para-mejorar-el-sueno-mindfulness-para-principiantes/"><u>Meditación. Técnicas Para Mejorar El Sueño (Mindfulness Para Principiantes). | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

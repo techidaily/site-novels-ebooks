@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-11-20T20:26:37.646Z
-updated: 2024-11-27T19:15:08.554Z
+date: 2024-12-05T23:20:09.089Z
+updated: 2024-12-07T05:56:20.464Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,18 +192,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95689788-9781440536496-love-astrology-aquarius/"><u>Love Astrology: Aquarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95689790-9781440536472-love-astrology-capricorn/"><u>Love Astrology: Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95689795-9781440536410-love-astrology-libra/"><u>Love Astrology: Libra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95689785-9781440536519-love-astrology-pisces/"><u>Love Astrology: Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95689791-9781440536458-love-astrology-sagittarius/"><u>Love Astrology: Sagittarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95689793-9781440536434-love-astrology-scorpio/"><u>Love Astrology: Scorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95689796-9781440536397-love-astrology-virgo/"><u>Love Astrology: Virgo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95692545-9781409167440-mindful-parenting/"><u>Mindful Parenting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95692417-9781101993446-the-cosmic-power-within-you/"><u>The Cosmic Power Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209929612-9781743586747-heavily-meditated/"><u>Heavily Meditated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209929474-9781951775131-imps-imps-and-more-whimps/"><u>Imps, Imps, and More Whimps! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209928850-9781925921878-live-fearlessly/"><u>Live Fearlessly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209928853-9784375653245-the-alchemists-handbook/"><u>The Alchemists Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209931864-9781401959654-the-map-of-consciousness-explained/"><u>The Map of Consciousness Explained | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

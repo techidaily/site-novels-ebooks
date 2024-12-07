@@ -1,7 +1,7 @@
 ---
 title: Más allá de los niños índigo | Free Book
-date: 2024-10-20T22:34:41.677Z
-updated: 2024-10-26T16:23:04.346Z
+date: 2024-11-30T23:34:42.019Z
+updated: 2024-12-07T04:15:05.241Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50489f4d8d10e66342d9c93ffa3c8940750fc96dac274c9fc3f765b2ff63d733.jpg
@@ -193,3 +193,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50489f4d8d10e66342d9c93ffa3c894
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138571989-9780595612765-beyond-techniques-the-2012-shift/"><u>Beyond Techniques: the 2012 Shift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572036-9781462075270-guided-by-spirit/"><u>Guided by Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571838-9780595913855-healthiology-101/"><u>Healthiology 101 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571819-9781450269414-opening-the-windows-within/"><u>Opening the Windows Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571970-9781475923728-ufos/"><u>Ufos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572035-9781449702779-welcome-to-the-fresh-squeezed-life-cafe/"><u>Welcome to the Fresh-Squeezed Life Cafe | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

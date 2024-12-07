@@ -1,7 +1,7 @@
 ---
 title: 2038 The Great Pyramid Timeline Prophecy | Free Book
-date: 2024-11-21T19:00:35.306Z
-updated: 2024-11-27T17:28:24.843Z
+date: 2024-12-05T01:20:43.269Z
+updated: 2024-12-07T02:45:51.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1eb900475374970b6dbc69b5f89cf7563d3.jpg
@@ -137,14 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95937546-9781844097609-being-present/"><u>Being Present | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937552-9781844097654-cant-see-the-wood-for-the-trees/"><u>Can't See the Wood for the Trees? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937551-9781844097562-dreams-that-can-save-your-life/"><u>Dreams That Can Save Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937553-9781844097616-plants-that-speak-souls-that-sing/"><u>Plants That Speak, Souls That Sing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937550-9781844097555-the-power-of-the-infinity-symbol/"><u>The Power of the Infinity Symbol | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210190799-9781777192174-ease-amidst-challenging-times/"><u>EASE Amidst Challenging Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210189705-9781722505479-harnassing-the-miraculous-power-of-a-definite-chief-aim/"><u>Harnassing the Miraculous Power of a Definite Chief Aim | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210189646-9781087937441-how-to-make-money-with-amazon-kdp/"><u>How to Make Money with Amazon KDP | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210190957-9780760369609-in-focus-shamanism/"><u>In Focus Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191028-9781732165830-living-aligned/"><u>Living Aligned | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191361-9789948373414-aorak-khdraaa-lshgr-yabs/"><u>أوراق خضراء لشجر يابس | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191370-9789948348962-fy-drob-alhyaa/"><u>في دروب الحياة | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191340-9789948348825-oiny-smytha-mrym/"><u>وإني سميتها مريم | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: DMT and the Soul of Prophecy | Free Book
-date: 2024-10-24T05:49:24.134Z
-updated: 2024-10-27T02:10:48.501Z
+date: 2024-12-05T22:14:54.858Z
+updated: 2024-12-07T04:29:10.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2847be2f310df1396e2d8378f35e4b57814a8b2d403fde47fb5f7f29f0d23622.jpg
@@ -196,3 +196,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2847be2f310df1396e2d8378f35e4b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138579369-9781617641794-5-pasos-para-superar-los-sufrimientos-de-cada-dia/"><u>5 Pasos Para Superar Los Sufrimientos De Cada Dia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579124-9781462037179-a-new-order-of-the-ages/"><u>A New Order of the Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579324-9781450281379-brave-soul/"><u>Brave Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579309-9781452532936-crystal-healing-2012-and-beyond/"><u>Crystal Healing: 2012 and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579171-9781449718466-diary-of-a-bullied-child/"><u>Diary of a Bullied Child: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579668-9781452533674-spirycal/"><u>Spirycal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579470-9781452540245-the-gift/"><u>The Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579256-9781449732684-what-not-to-say-to-someone-not-expecting/"><u>What Not to Say to Someone Not Expecting | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

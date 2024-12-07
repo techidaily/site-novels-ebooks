@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2024-11-25T23:20:49.539Z
-updated: 2024-11-27T19:45:22.939Z
+date: 2024-11-30T18:28:44.375Z
+updated: 2024-12-06T22:56:09.279Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,14 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782755-9781594775147-basic-practices-of-the-universal-healing-tao/"><u>Basic Practices of the Universal Healing Tao | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782759-9781620552056-the-metaphysical-world-of-isaac-newton/"><u>The Metaphysical World of Isaac Newton | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782757-9781594777882-the-secret-teachings-of-the-tao-te-ching/"><u>The Secret Teachings of the Tao Te Ching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782758-9781594778612-the-secrets-of-afro-cuban-divination/"><u>The Secrets of Afro-Cuban Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782760-9781594778391-wisdom-chi-kung/"><u>Wisdom Chi Kung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107076-9781735059020-awakening-the-soul-of-power/"><u>Awakening the Soul of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107532-9781989838785-bedtime-stories-for-adults-collection-relaxing-sleep-stories-hypnosis-guided-meditations-for-deep-sleep-mindfulness-overcoming-anxiety-panic-attacks-insomnia-st/"><u>Bedtime Stories for Adults Collection Relaxing Sleep Stories, Hypnosis & Guided Meditations for Deep Sleep, Mindfulness, Overcoming Anxiety, Panic Attacks, Insomnia & Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107396-9781473581326-find-your-flow/"><u>Find Your Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107130-9781734719901-from-shy-to-oh-my-the-shy-introverts-guide-to-being-sexy-expressive-and-whole/"><u>From Shy to Oh My! The Shy Introvert's Guide to Being Sexy, Expressive and Whole | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210108711-9788499887074-la-ciencia-y-las-practicas-espirituales/"><u>La ciencia y las prácticas espirituales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107887-9781645319740-personal-quotes-on-my-bipolar-life/"><u>Personal Quotes on My Bipolar Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107456-9780994359339-when-eve-walked/"><u>When Eve Walked | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210108529-9781735471020-you-are-intuitive/"><u>You Are Intuitive | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-11-26T19:22:59.786Z
-updated: 2024-11-27T20:06:29.615Z
+date: 2024-11-30T01:41:46.929Z
+updated: 2024-12-07T00:34:04.947Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,13 +171,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/611786--a-world-of-ufos/"><u>A World of UFOs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/611787-9781770703445-more-true-tales-of-the-paranormal/"><u>More True Tales of the Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/611753-9781770703100-mysteries-and-secrets-of-voodoo-santeria-and-obeah/"><u>Mysteries and Secrets of Voodoo, Santeria, and Obeah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/611720-9781770702776-strange-but-true/"><u>Strange but True | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844336-9780692747643-getting-unstuck/"><u>Getting unSTUCK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844243-9781911159018-life-within-the-entropy-paradigm/"><u>Life Within the Entropy Paradigm: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844642-9780994505224-my-angels-connections/"><u>My Angels Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844547-9781773021225-tormented-by-ghosts/"><u>Tormented By Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844240-9780972749381-your-immortal-self/"><u>Your Immortal Self | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

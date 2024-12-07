@@ -1,7 +1,7 @@
 ---
 title: Sex and the Intelligence of the Heart | Free Book
-date: 2024-10-23T21:41:07.157Z
-updated: 2024-10-26T21:49:56.570Z
+date: 2024-12-02T01:09:55.181Z
+updated: 2024-12-07T06:45:08.522Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d7c81351b6d49c07315d9104218f56fd1bc31fcbf8c6886245f54e63b39d7e7.jpg
@@ -186,3 +186,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d7c81351b6d49c07315d9104218f56
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621324-9781601635884-american-vampires/"><u>American Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621325-9781601635983-the-book-of-transformation/"><u>The Book of Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621318-9781601635198-the-call-of-soul/"><u>The Call of Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621321-9781601635501-the-lightworkers-source/"><u>The Lightworker's Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621319-9781601635587-the-ufo-singularity/"><u>The UFO Singularity | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

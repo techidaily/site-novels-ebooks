@@ -1,7 +1,7 @@
 ---
 title: "The Emergence of Paraphysics: Theoretical Foundations | Free Book"
-date: 2024-10-23T16:19:45.362Z
-updated: 2024-10-26T21:26:57.232Z
+date: 2024-12-01T18:21:10.671Z
+updated: 2024-12-06T23:46:09.323Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/235aa3759d76bb44b4139bd241d544cbe475071fb3b1db0f6e100eea20c71db6.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/235aa3759d76bb44b4139bd241d544c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125649-9781609250409-cosmic-navigator/"><u>Cosmic Navigator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125655-9781609256173-coventry-magic-with-candles-oils-and-herbs/"><u>Coventry Magic with Candles, Oils, and Herbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125656-9781609253394-create-a-world-that-works/"><u>Create a World That Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125658-9781609257590-custodians-of-truth/"><u>Custodians Of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125668-9781609253899-the-development-of-personality/"><u>The Development of Personality | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

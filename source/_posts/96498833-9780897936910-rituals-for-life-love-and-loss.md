@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-11-23T20:47:36.494Z
-updated: 2024-11-27T16:35:34.844Z
+date: 2024-12-03T05:17:04.819Z
+updated: 2024-12-07T01:10:54.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,17 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/847452-9781780990293-druidry-and-meditation/"><u>Druidry and Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/847453-9781846948664-extinction/"><u>Extinction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/847456-9781846947261-planet-as-self/"><u>Planet as Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/849071-9781101580349-swedenborg/"><u>Swedenborg | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/843565-9781780574387-the-ghost-that-haunted-itself/"><u>The Ghost That Haunted Itself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/850863-9781101588864-the-prophecies/"><u>The Prophecies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/845805-9780316224017-the-science-of-avatar/"><u>The Science of Avatar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/847460-9781846948053-traditional-witchcraft-for-the-seashore/"><u>Traditional Witchcraft for the Seashore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209872268-9780996783552-conversations-with-laarkmaa/"><u>Conversations With Laarkmaa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209873043-9780648527213-gateway-to-the-modern-crone/"><u>Gateway to the Modern Crone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209872247-9780648510611-personal-sovereignty/"><u>Personal Sovereignty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209872269-9781950373024-playful-mindfulness/"><u>Playful Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209872274-9780996783569-remembering-who-we-are-2nd-ed/"><u>Remembering Who We Are (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209872593-9781733500715-the-divine-and-master-zhang/"><u>The Divine and Master Zhang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209872970-9780987621719-uriels-gift/"><u>Uriel's Gift | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Foundations of Aikido | Free Book
-date: 2024-10-21T01:37:56.166Z
-updated: 2024-10-26T17:07:48.376Z
+date: 2024-12-05T16:20:10.666Z
+updated: 2024-12-07T01:47:08.842Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/773b09ee0a31c7f9cffa4d3a95eea5842ad6b725fafa32f6c350afe5c8a78e69.jpg
@@ -173,3 +173,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/773b09ee0a31c7f9cffa4d3a95eea58
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209518622-9781620558768-developing-supersensible-perception/"><u>Developing Supersensible Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518621-9781620558478-familiars-in-witchcraft/"><u>Familiars in Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518619-9781620558430-slavic-witchcraft/"><u>Slavic Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518624-9781591433378-the-murder-of-moses-2nd-ed/"><u>The Murder of Moses (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518620-9781620558621-the-sacred-herbs-of-samhain/"><u>The Sacred Herbs of Samhain | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

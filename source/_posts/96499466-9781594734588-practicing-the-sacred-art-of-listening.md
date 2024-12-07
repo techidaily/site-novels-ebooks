@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2024-11-23T21:30:38.967Z
-updated: 2024-11-27T16:36:57.058Z
+date: 2024-11-30T20:18:11.624Z
+updated: 2024-12-06T21:36:56.194Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,15 +167,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/611856-9781770704145-ghost-stories-of-saskatchewan-3/"><u>Ghost Stories of Saskatchewan 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/611857-9781770704152-ghosts/"><u>Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/612931-9781429983907-questions-from-earth-answers-from-heaven/"><u>Questions From Earth, Answers From Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/611826-9781770703841-secrets-of-the-worlds-undiscovered-treasures/"><u>Secrets of the World's Undiscovered Treasures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/611795-9781770703520-the-big-book-of-canadian-ghost-stories/"><u>The Big Book of Canadian Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/611862-9781770704206-the-big-book-of-canadian-hauntings/"><u>The Big Book of Canadian Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844903-9780994565211-7-steps-to-emotional-freedom/"><u>7 Steps to Emotional Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844663-9781782808930-coolected-poems/"><u>COOLECTED POEMS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844909-9781911134145-quareia-the-adept/"><u>Quareia The Adept | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844842-9781945026188-the-gateways/"><u>The Gateways | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

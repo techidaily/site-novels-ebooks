@@ -1,7 +1,7 @@
 ---
 title: Chaos, Creativity, and Cosmic Consciousness (2nd ed.) | Free Book
-date: 2024-10-26T03:15:50.877Z
-updated: 2024-10-27T05:15:56.924Z
+date: 2024-12-05T05:25:34.904Z
+updated: 2024-12-06T19:56:19.521Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2948d69263c87c006acc63e2fc67554a02dbc9bcbbb73472de46e08ebf9f6712.jpg
@@ -183,3 +183,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2948d69263c87c006acc63e2fc67554
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138603396-9781788172271-connecting-with-the-angels-made-easy/"><u>Connecting with the Angels Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138616816-9781614480570-ill-run-with-you/"><u>I'll Run With You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138610327-9781550927061-nature-based-therapy/"><u>Nature-Based Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138604085-9781787133075-star-power/"><u>Star Power | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

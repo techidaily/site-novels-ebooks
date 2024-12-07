@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-11-24T16:38:55.344Z
-updated: 2024-11-27T17:47:04.563Z
+date: 2024-12-04T21:07:24.753Z
+updated: 2024-12-07T05:31:56.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,17 +143,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/460777-9781101143636-buddha-mom/"><u>Buddha Mom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/461984-9781439102718-el-secreto-the-secret/"><u>El Secreto (The Secret) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/462026-9781439121474-infinite-possibilities-10th-anniversary/"><u>Infinite Possibilities (10th Anniversary) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/462123-9781439149751-roll-around-heaven/"><u>Roll Around Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/461867-9781439155394-seeking-spirits/"><u>Seeking Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/460773-9781101149065-the-complete-idiots-guide-numerology-workbook/"><u>The Complete Idiot's Guide Numerology Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/462157-9781439165980-the-intuitive-way/"><u>The Intuitive Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/461956-9781439158166-the-physics-of-miracles/"><u>The Physics of Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209789118-9781507213025-how-to-be-an-astrologer/"><u>How to Be an Astrologer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788882-9781771622349-my-year-of-living-spiritually/"><u>My Year of Living Spiritually | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788955-9781856754347-silence/"><u>Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209789303-9781608686261-the-angel-experiment/"><u>The Angel Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788243-9781401959609-the-five-element-solution/"><u>The Five-Element Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788914-9780486843889-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

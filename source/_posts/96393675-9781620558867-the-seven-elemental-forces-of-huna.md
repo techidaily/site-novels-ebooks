@@ -1,7 +1,7 @@
 ---
 title: The Seven Elemental Forces of Huna | Free Book
-date: 2024-11-20T16:45:24.974Z
-updated: 2024-11-27T19:51:14.073Z
+date: 2024-12-02T04:47:56.028Z
+updated: 2024-12-07T05:52:08.402Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1cf2774f26d28a10672b591c6afd98d9f6.jpg
@@ -183,15 +183,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95888594-9780399562310-alone-time/"><u>Alone Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95893388-9780917849633-encouraging-words/"><u>Encouraging Words . . . | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95888613-9780525558941-how-to-change-your-mind/"><u>How to Change Your Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95893226-9782268098104-la-lampe-de-sagesse/"><u>La Lampe de sagesse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95893712-9780733639852-the-dream-handbook/"><u>The Dream Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95888625-9780525504719-the-road-to-walden/"><u>The Road to Walden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170455-9781631599408-10-minute-moon-rituals/"><u>10-Minute Moon Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170474-9781838219123-angels-and-you/"><u>ANGELS AND YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170098-9781643345376-antidoto-de-dios-para-la-raiz-de-amargura/"><u>Antídoto de Dios Para La Raíz de Amargura | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170099-9781643347110-instantes/"><u>INSTANTES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170457-9780711255265-the-astrology-fix/"><u>The Astrology Fix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170103-9781643345857-what-he-told-me-in-100-days/"><u>What He Told Me in 100 Days | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

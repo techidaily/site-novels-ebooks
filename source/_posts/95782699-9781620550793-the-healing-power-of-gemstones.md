@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Gemstones | Free Book
-date: 2024-10-24T00:52:49.524Z
-updated: 2024-10-26T18:45:44.150Z
+date: 2024-11-30T17:01:02.094Z
+updated: 2024-12-07T03:45:55.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f225d0d0229bd9e024bdf62c1ca8a8bedab256adcb99b891e54e436a8e65d80.jpg
@@ -163,3 +163,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f225d0d0229bd9e024bdf62c1ca8a8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/188432-9781932681659-coelum-terrae-or-the-magicians-heavenly-chaos/"><u>Coelum Terrae or The Magician's Heavenly Chaos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1888010-9781612833309-divine-audacity/"><u>Divine Audacity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1887684-9781452146317-roadmap/"><u>Roadmap | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/188388-9781932681574-rosarium-philosophorum/"><u>Rosarium Philosophorum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1888262-9781782798255-shaman-pathways-following-the-deer-trods/"><u>Shaman Pathways - Following the Deer Trods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1888265-9781782797128-the-journey-to-inner-power/"><u>The Journey to Inner Power | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

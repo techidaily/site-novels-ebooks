@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2024-11-23T21:49:02.637Z
-updated: 2024-11-27T17:09:02.660Z
+date: 2024-11-29T21:53:00.356Z
+updated: 2024-12-07T03:41:11.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,16 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782374-9781591432241-lessons-from-the-twelve-archangels/"><u>Lessons from the Twelve Archangels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782372-9781591431879-the-secret-chamber-of-osiris/"><u>The Secret Chamber of Osiris | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782370-9781591439592-the-secret-history-of-extraterrestrials/"><u>The Secret History of Extraterrestrials | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782373-9781591437680-the-soul-of-ancient-egypt/"><u>The Soul of Ancient Egypt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782367-9781591432609-wars-of-the-anunnaki/"><u>Wars of the Anunnaki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782371-9781591437840-way-of-the-bushman/"><u>Way of the Bushman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782375-9781591439691-wheel-of-initiation/"><u>Wheel of Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210041210-9781734864519-awakening-the-healing-soul/"><u>Awakening the Healing Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210043687-9798615143069-chiron/"><u>Chiron | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210040112-9781885983893-cold-moon/"><u>Cold Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210044108-9781942586791-frame-of-mind/"><u>Frame of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210039541-9780733645105-my-year-of-living-mindfully/"><u>My Year of Living Mindfully | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210039525-9781841815039-natures-hidden-oracles/"><u>Nature's Hidden Oracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210039531-9780753734490-tiny-healer-confidence/"><u>Tiny Healer: Confidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210038746-9780883918289-your-personal-growth/"><u>Your Personal Growth | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2024-11-23T21:28:24.444Z
-updated: 2024-11-27T18:06:36.204Z
+date: 2024-12-04T18:34:27.853Z
+updated: 2024-12-07T06:49:44.969Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -214,18 +214,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95816957-9781617508905-cat-talk/"><u>Cat Talk | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816962-9781617506215-develop-your-psychic-abilities/"><u>Develop Your Psychic Abilities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816677-9781633410572-keys-to-perception/"><u>Keys to Perception | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816993-9781547502813-smetti-di-essere-un-perdente-11-cambiamenti-in-21-giorni-per-vivere-nelleccellenza/"><u>Smetti di essere un perdente. 11 cambiamenti in 21 giorni per vivere nell'eccellenza, | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95817225-9781507139882-tarot-pairings-between-major-and-minor-arcana/"><u>Tarot Pairings between Major and Minor Arcana | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816992-9781616406325-the-great-new-england-sea-serpent/"><u>The Great New England Sea Serpent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95817394-9781616406066-the-perfect-horoscope/"><u>The Perfect Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816735-9781616406271-the-third-level-of-reality/"><u>The Third Level of Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95817345-9781616406257-thunderbirds/"><u>Thunderbirds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210152139-9781913479633-awaken-the-guru-in-you/"><u>Awaken the Guru in You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210152114-9781646548880-self-reboot-365/"><u>SELF REBOOT 365 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210150654-9781409181071-talking-with-angels-of-wealth/"><u>Talking with Angels of Wealth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210151567-9780999547229-the-nature-of-drugs-vol-1/"><u>The Nature of Drugs Vol. 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210151558-9781913504441-the-ufo-chronicles/"><u>The UFO Chronicles | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

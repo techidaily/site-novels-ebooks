@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-11-21T23:21:44.863Z
-updated: 2024-11-27T20:28:24.640Z
+date: 2024-11-29T17:08:20.612Z
+updated: 2024-12-06T22:14:32.682Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,14 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/653730-9781429914123-haunted-heritage/"><u>Haunted Heritage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/653625-9781429977432-innocence-knowledge-and-wonder/"><u>Innocence, Knowledge, and Wonder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/652271-9781101515334-meditation/"><u>Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/654198-9781429960267-power-politics-and-change/"><u>Power, Politics, and Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/653371-9780776617206-the-other-deeper-you/"><u>The Other Deeper You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848820-9781633832466-art-of-happiness-yoga-meditation-mindfulness-for-beginners/"><u>Art Of Happiness: Yoga Meditation Mindfulness For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848938-9781680328721-chakras-for-beginners-restful-yoga-for-stressful-times-how-to-balance-chakras/"><u>Chakras For Beginners: Restful Yoga For Stressful Times - How To Balance Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848737-9781618130945-la-purificacion-del-corazon/"><u>La Purificación del Corazón | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848896-9781635017007-meditation-techniques-for-beginners-the-daily-meditation-ritual-lifestyle-the-best-kept-secrets-about-meditation-techniques-meditation-exercises-meditation-tran/"><u>Meditation Techniques For Beginners: The Daily Meditation Ritual Lifestyle: The Best Kept Secrets about Meditation Techniques, Meditation Exercises, Meditation Transcendental & Meditation Motivation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848761-9780985565909-purification-of-the-heart/"><u>Purification of the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848866-9781634282697-secret-ways-of-how-letting-go-empowers-your-life-discover-the-seat-of-the-soul-live-longer-happy-mind-slim-healthy-body-start-your-longer-life-today-2-in-1-box-/"><u>Secret Ways Of How Letting GO Empowers Your Life: Discover The Seat Of The Soul & Live Longer! Happy Mind, Slim & Healthy Body. Start Your Longer Life Today! - 2 In 1 Box Set: 2 In 1 Box Set: Book 1: Daily Meditation Ritual + Book 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848864-9781634282888-wherever-you-go-mindfulness-in-every-day-life-is-with-you-2-in-1-box-set/"><u>WHEREVER YOU GO! Mindfulness In Every Day LIFE Is With YOU! - 2 In 1 Box Set | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848949-9781681270197-yoga-for-weight-loss-for-beginners-peace-bliss/"><u>Yoga For Weight Loss For Beginners - Peace & Bliss | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

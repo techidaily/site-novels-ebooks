@@ -1,7 +1,7 @@
 ---
 title: Energy Balance through the Tao | Free Book
-date: 2024-10-23T21:46:56.532Z
-updated: 2024-10-27T02:23:38.891Z
+date: 2024-12-05T00:49:41.693Z
+updated: 2024-12-06T19:24:56.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85c6e453685454d0049492346f79e4cd96006e449c4664a49fa028b1bb660c19.jpg
@@ -180,3 +180,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85c6e453685454d0049492346f79e4c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621273-9781601639561-natural-born-intuition/"><u>Natural Born Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621252-9781601635914-psychic-intuition/"><u>Psychic Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621247-9781601637253-spiritual-protection/"><u>Spiritual Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621255-9781601636119-the-pyramids-and-the-pentagon/"><u>The Pyramids and the Pentagon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621254-9781601636294-the-rise-and-fall-of-the-nephilim/"><u>The Rise and Fall of the Nephilim | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621244-9781601635426-the-secret-history-of-the-reptilians/"><u>The Secret History of the Reptilians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621265-9781601639325-unearthing-ancient-america/"><u>Unearthing Ancient America | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

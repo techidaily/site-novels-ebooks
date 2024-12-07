@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2024-11-22T20:29:43.289Z
-updated: 2024-11-27T17:39:41.753Z
+date: 2024-11-29T21:09:38.727Z
+updated: 2024-12-07T05:39:46.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,18 +163,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783058-9781594778018-darwins-unfinished-business/"><u>Darwin's Unfinished Business | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783061-9781620551684-dmt-and-the-soul-of-prophecy/"><u>DMT and the Soul of Prophecy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783064-9781594779732-dmt-the-spirit-molecule/"><u>DMT: The Spirit Molecule | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783054-9781620554906-dreaming-wide-awake/"><u>Dreaming Wide Awake | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783057-9781594777455-drugs-of-the-dreaming/"><u>Drugs of the Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783066-9781620556986-psychedelic-medicine/"><u>Psychedelic Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783062-9781620550496-the-rebirth-of-nature/"><u>The Rebirth of Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783059-9781620551257-the-religion-of-ayahuasca-2nd-ed/"><u>The Religion of Ayahuasca (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783063-9781620554746-the-witches-ointment/"><u>The Witches' Ointment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124474-9782175402513-mindfulness-meditation-guide/"><u>Mindfulness Meditation Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124723-9781733160131-recollections-of-a-future-ghost/"><u>Recollections of a Future Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124466-9788792633620-the-power-of-the-trumps-and-pips/"><u>The power of the trumps and pips | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124727-9781735648415-weaving-through-the-labyrinth/"><u>WEAVING THROUGH THE LABYRINTH | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

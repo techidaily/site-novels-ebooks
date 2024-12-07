@@ -1,7 +1,7 @@
 ---
 title: Wallace D. Wattles Trilogy | Free Book
-date: 2024-10-25T02:59:56.290Z
-updated: 2024-10-27T01:26:57.267Z
+date: 2024-12-05T19:37:23.381Z
+updated: 2024-12-06T16:50:03.182Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3946aa5d6933ac569f25ca3df29f105a29cf12ca13ab0b196140bab556f6dd4.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3946aa5d6933ac569f25ca3df29f10
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96464926-9781615931125-sophia-the-feminine-face-of-god/"><u>Sophia - The Feminine Face of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456840-9781420948141-the-key-of-solomon-the-king-clavicula-salomonis/"><u>The Key of Solomon the King: Clavicula Salomonis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456876-9781420956108-the-science-of-mind-the-original-1926-edition/"><u>The Science of Mind (The Original 1926 Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464922-9781615931132-the-shaman-and-ayahuasca/"><u>The Shaman and Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464928-9781615931101-year-zero/"><u>Year Zero | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

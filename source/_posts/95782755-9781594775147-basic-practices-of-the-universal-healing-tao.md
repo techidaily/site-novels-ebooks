@@ -1,7 +1,7 @@
 ---
 title: Basic Practices of the Universal Healing Tao | Free Book
-date: 2024-10-25T05:02:40.485Z
-updated: 2024-10-27T06:00:17.697Z
+date: 2024-12-02T05:13:53.657Z
+updated: 2024-12-07T06:53:07.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4afea684632858a852a1f5c1c50867f50fadceee63f4b88266fec2c4ffc3b070.jpg
@@ -187,3 +187,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4afea684632858a852a1f5c1c50867f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138620346-9781722520090-awakened-mind-master-class-series/"><u>Awakened Mind (Master Class Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138619861-9781633411111-backwoods-witchcraft/"><u>Backwoods Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138619865-9781633410909-beyond-the-north-wind/"><u>Beyond the North Wind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620328-9781722520489-breakng-through-my-limits/"><u>Breakng Through My Limits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138619864-9781633411272-evil-archaeology/"><u>Evil Archaeology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620189-9781633410978-sister-karols-book-of-spells-blessings-folk-magic/"><u>Sister Karol's Book of Spells, Blessings & Folk Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138619860-9781633411463-the-big-book-of-numerology/"><u>The Big Book of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620388-9781722520281-the-kybalion-condensed-classics/"><u>The Kybalion (Condensed Classics) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

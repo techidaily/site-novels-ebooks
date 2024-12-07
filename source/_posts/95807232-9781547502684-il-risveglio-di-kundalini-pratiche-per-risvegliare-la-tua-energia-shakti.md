@@ -1,7 +1,7 @@
 ---
 title: Il risveglio di Kundalini - pratiche per risvegliare la tua energia shakti | Free Book
-date: 2024-10-21T01:15:09.330Z
-updated: 2024-10-26T20:38:52.648Z
+date: 2024-12-03T23:27:10.936Z
+updated: 2024-12-06T22:34:13.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b606504accf1255caf99ef024a92c061cd54924095b0eb97637f88d2ba7f1fe1.jpg
@@ -146,3 +146,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b606504accf1255caf99ef024a92c06
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1318738-9781782792000-are-you-happy-now/"><u>Are You Happy Now? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318743-9781782790129-delayed-departure/"><u>Delayed Departure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1315795-9781583946640-emas-odyssey/"><u>Ema's Odyssey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318745-9781780998589-eternal-way-to-bliss/"><u>Eternal Way to Bliss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1316751-9781608681204-guardians-of-being/"><u>Guardians of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1315787-9781400046867-sacred-contracts/"><u>Sacred Contracts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1316764-9781609256708-the-hades-moon/"><u>The Hades Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1297515-9780892545827-the-moons-nodes/"><u>The Moon's Nodes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1316765-9781881098010-the-witches-almanac-issue-33-spring-2014-spring-2015/"><u>The Witches' Almanac: Issue 33, Spring 2014-Spring 2015 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

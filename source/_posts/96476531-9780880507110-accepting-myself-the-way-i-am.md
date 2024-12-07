@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2024-11-26T21:25:01.104Z
-updated: 2024-11-27T18:54:32.664Z
+date: 2024-12-04T03:22:57.293Z
+updated: 2024-12-07T04:05:43.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,16 +163,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95760760-9782268091297-astrologie-initiatique-et-pratique/"><u>Astrologie initiatique et pratique | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758874-9781501156373-conversations-with-mary/"><u>Conversations with Mary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95761104-9781612833798-fortune-telling-by-tarot-cards/"><u>Fortune Telling by Tarot Cards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95760751-9782268091372-le-retour-disrael-et-lesperance-du-monde/"><u>Le Retour d'Israël et l'Espérance du Monde | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95761108-9780892546398-the-8th-seal-its-time-is-now/"><u>The 8th Seal-Its Time is Now! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95759284-9781515415992-the-golden-bough/"><u>The Golden Bough | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758809-9781501165481-transparency/"><u>Transparency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966770-9781683692041-crystal-clear/"><u>Crystal Clear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962956-9781775230069-fear-breakthrough/"><u>Fear Breakthrough | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962960-9781989840078-its-all-about-energy/"><u>It's All About Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966785-9781401961251-mind-over-medicine-revised-edition/"><u>Mind Over Medicine - REVISED EDITION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966739-9781524749125-philosophy-for-polar-explorers/"><u>Philosophy for Polar Explorers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209963645-9781615649082-the-law-of-attraction/"><u>The Law of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966774-9780834842915-the-posture-of-meditation/"><u>The Posture of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966743-9780735276833-the-scientist-and-the-psychic/"><u>The Scientist and the Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962928-9781734688511-what-if-you-were-god/"><u>What If You Were God? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

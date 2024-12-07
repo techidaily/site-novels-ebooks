@@ -1,7 +1,7 @@
 ---
 title: Psychic Research and the Healing Process | Free Book
-date: 2024-10-23T21:04:53.830Z
-updated: 2024-10-27T04:24:34.595Z
+date: 2024-12-03T00:01:04.138Z
+updated: 2024-12-06T17:16:33.692Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db965d4ffd8d319d1099524e6bc8510065ac7c3e20f54c5bae2045ab791429f2.jpg
@@ -137,3 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db965d4ffd8d319d1099524e6bc8510
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1049929-9781782343264-101-amazing-slenderman-facts/"><u>101 Amazing Slenderman Facts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1049783-9781101595213-beyond-area-51/"><u>Beyond Area 51 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1050232-9781780995182-immortal-yearnings/"><u>Immortal Yearnings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1050235-9781780992907-non-duality/"><u>Non-Duality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1049954-9781845404604-tell-my-mother-im-not-dead/"><u>Tell My Mother I'm Not Dead | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

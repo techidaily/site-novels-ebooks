@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-11-25T21:29:47.093Z
-updated: 2024-11-27T20:01:27.826Z
+date: 2024-12-01T20:52:19.166Z
+updated: 2024-12-06T20:30:44.020Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,14 +182,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/829926-9781589795280-aries/"><u>Aries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/829924-9781589795372-capricorn/"><u>Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/829931-9781589795396-pisces/"><u>Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/829927-9781589795358-scorpio/"><u>Scorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/829929-9781589795297-taurus/"><u>Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209869628-9781999375904-bazi-frontiers-the-cosmic-geography-of-success/"><u>Bazi Frontiers, The Cosmic Geography of Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209869459-9781999701420-finding-your-soul-family/"><u>Finding Your Soul Family | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209869791-9780578458731-hidden/"><u>Hidden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209869042-9781595949400-water-and-sunflowers/"><u>Water and Sunflowers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

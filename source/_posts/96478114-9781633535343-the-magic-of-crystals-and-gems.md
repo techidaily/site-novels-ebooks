@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2024-11-22T20:39:48.508Z
-updated: 2024-11-27T21:59:16.797Z
+date: 2024-12-01T05:42:10.768Z
+updated: 2024-12-07T05:30:58.929Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,16 +181,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95769593-9781786781147-impossible-truths/"><u>Impossible Truths | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95769607-9781623171933-jump-girl/"><u>Jump Girl | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95767853-9781493028009-spooky-southwest-2nd-ed/"><u>Spooky Southwest (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95768392-9781515415756-the-law/"><u>The Law | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95768393-9781515415749-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95768845-9781507205389-the-modern-witchcraft-guide-to-the-wheel-of-the-year/"><u>The Modern Witchcraft Guide to the Wheel of the Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95769590-9781786781031-the-practical-guide-to-crystal-healing/"><u>The Practical Guide to Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209969415-9780578656809-masters-among-us-3rd-ed/"><u>Masters Among Us (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209970148-9781087869636-night-flower/"><u>Night Flower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209969765-9781646741052-pursuit-of-wisdom/"><u>PURSUIT OF WISDOM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209968944-9781473389694-the-black-mass-of-the-loves-of-the-incubi-and-succubi-fantasy-and-horror-classics/"><u>The Black Mass - Of the Loves of the Incubi and Succubi (Fantasy and Horror Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209968965-9781473355583-the-werewolf-lycanthropy-fantasy-and-horror-classics/"><u>The Werewolf - Lycanthropy (Fantasy and Horror Classics) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

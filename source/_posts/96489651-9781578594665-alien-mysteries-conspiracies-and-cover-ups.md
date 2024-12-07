@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-11-21T16:53:52.244Z
-updated: 2024-11-27T23:07:14.704Z
+date: 2024-11-30T05:09:37.690Z
+updated: 2024-12-06T22:33:55.838Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,16 +192,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/746168-9781846948640-365-days-of-wisdom/"><u>365 Days of Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/747122-9781101552728-el-poder-de-tu-cumpleanos-the-power-of-your-birthday/"><u>El poder de tu cumpleaños (The Power of Your Birthday) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/746987-9781101562673-george-andersons-lessons-from-the-light/"><u>George Anderson's Lessons from the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/745890-9781439191095-in-her-power/"><u>In Her Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/752418-9781780990620-powers-of-the-sixth-sense/"><u>Powers of the Sixth Sense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/746169-9781780990583-the-hidden-secrets-of-a-modern-seer/"><u>The Hidden Secrets of a Modern Seer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/747264-9781101561119-the-things-you-would-have-said/"><u>The Things You Would Have Said | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863478-9780999206935-higher-vibrational-living/"><u>Higher Vibrational Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863368-9780648391210-oak-trees-gift/"><u>Oak Tree's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863355-9780648391203-rainbow-gums-gift/"><u>Rainbow Gum's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863373-9781732483613-the-mindfulness-effect/"><u>The Mindfulness Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863396-9781945026461-the-truth/"><u>The Truth | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

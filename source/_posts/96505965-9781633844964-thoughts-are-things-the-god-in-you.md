@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-11-26T17:23:54.559Z
-updated: 2024-11-27T19:46:59.601Z
+date: 2024-11-30T18:02:13.949Z
+updated: 2024-12-07T04:34:24.131Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,14 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/449506-9781776510412-fantasia-of-the-unconscious/"><u>Fantasia of the Unconscious | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/448099-9780307569899-out-of-darkness-into-the-light/"><u>Out of Darkness into the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/448203-9780307569479-the-edgar-cayce-primer/"><u>The Edgar Cayce Primer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/448144-9780307420688-the-greatest-secret-in-the-world/"><u>The Greatest Secret in the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/449517-9781776510368-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781824-9781722523701-how-to-use-the-laws-of-mind/"><u>How to Use the Laws of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209782029-9781630478858-just-a-little-girl/"><u>Just a Little Girl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781822-9781722523534-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-create-wealth-and-success/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Create Wealth and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781823-9781722523541-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-overcome-fear-and-worry/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Overcome Fear and Worry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781984-9781683501824-rise-hustle/"><u>Rise + Hustle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781821-9781722523732-telepsychics/"><u>Telepsychics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781818-9781722523855-the-power-of-your-subconscious-mind-for-wealth-and-spirituality/"><u>The Power of Your Subconscious Mind for Wealth and Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209782127-9781614483830-we-dont-die/"><u>We Don't Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209782153-9781600379246-weight-release/"><u>Weight Release | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Molecular Consciousness | Free Book
-date: 2024-10-25T20:54:50.332Z
-updated: 2024-10-27T04:59:29.303Z
+date: 2024-12-02T00:08:23.279Z
+updated: 2024-12-06T22:56:08.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc3827f9654be48d156086f78e14e598f9bcedc61982a591c81e30cb6ca1b676.jpg
@@ -181,3 +181,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc3827f9654be48d156086f78e14e59
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138575641-9781450257978-colloquies/"><u>Colloquies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575445-9781452500348-conversations-with-mr-kiki-one-womans-spiritual-journey-with-her-best-friend/"><u>Conversations with Mr Kiki: One Woman’S Spiritual Journey with Her Best Friend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575607-9780595917563-explore-with-monitor-book-1/"><u>Explore with Monitor: Book 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575361-9781469702735-just-smoke-and-mirrors/"><u>Just Smoke and Mirrors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575582-9781462073795-spiritspeak/"><u>Spiritspeak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575554-9781462086856-the-heartbeat-of-intelligence/"><u>The Heartbeat of Intelligence | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

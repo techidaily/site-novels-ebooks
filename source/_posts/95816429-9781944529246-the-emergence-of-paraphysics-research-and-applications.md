@@ -1,7 +1,7 @@
 ---
 title: "The Emergence of Paraphysics: Research and Applications | Free Book"
-date: 2024-10-26T05:15:36.262Z
-updated: 2024-10-26T16:17:55.497Z
+date: 2024-12-03T01:24:32.256Z
+updated: 2024-12-06T17:44:33.692Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3b726e265443d5497876d8061727267390350a02aff2d882b1c879117bb0af2.jpg
@@ -135,3 +135,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3b726e265443d5497876d806172726
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96506105-9781633846654-power-through-prayer/"><u>Power Through Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506108-9781633846661-prayer-and-praying-men/"><u>Prayer and Praying Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506113-9781633846579-the-god-in-you/"><u>The God In You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506162-9781633847170-thought-vibration-rediscovered-books/"><u>Thought Vibration (Rediscovered Books) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506097-9781633846562-thoughts-are-things/"><u>Thoughts Are Things | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

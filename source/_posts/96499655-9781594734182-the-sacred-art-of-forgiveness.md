@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2024-11-26T18:41:08.750Z
-updated: 2024-11-27T16:38:05.530Z
+date: 2024-11-30T23:12:58.157Z
+updated: 2024-12-07T03:24:43.493Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,15 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/620470-9780307780928-a-better-way-to-live/"><u>A Better Way to Live | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/623597-9780307784759-greatest-mystery-in-the-world/"><u>Greatest Mystery in the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/624346-9780895564849-life-in-the-labyrinth-2nd-ed/"><u>Life in the Labyrinth (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/623749-9781451613001-natural-abundance/"><u>Natural Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/620563-9780307779441-the-complete-guide-to-the-tarot/"><u>The Complete Guide to the Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/632153-9781429919838-what-on-earth-have-i-done/"><u>What On Earth Have I Done? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846480-9780648002338-lucky-astrology-cancer/"><u>Lucky Astrology - Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846481-9780648002376-lucky-astrology-capricorn/"><u>Lucky Astrology - Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846483-9780648002321-lucky-astrology-leo/"><u>Lucky Astrology - Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846476-9780648002390-lucky-astrology-pisces/"><u>Lucky Astrology - Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846474-9780648002345-lucky-astrology-scorpio/"><u>Lucky Astrology - Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846478-9780648002307-lucky-astrology-taurus/"><u>Lucky Astrology - Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846472-9780648002352-lucky-astrology-virgo/"><u>Lucky Astrology - Virgo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-11-24T19:31:31.140Z
-updated: 2024-11-27T22:16:54.660Z
+date: 2024-12-02T19:15:49.339Z
+updated: 2024-12-07T04:07:47.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,14 +164,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782177-9781594778575-atlantis-and-the-cycles-of-time/"><u>Atlantis and the Cycles of Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782186-9781594779909-science-and-the-akashic-field-2nd-ed/"><u>Science and the Akashic Field (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782185-9781594776519-science-and-the-reenchantment-of-the-cosmos/"><u>Science and the Reenchantment of the Cosmos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782184-9781594777851-shakti/"><u>Shakti | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782180-9781594776830-the-return-of-the-dead/"><u>The Return of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002013-9781601639684-hidden-history/"><u>Hidden History | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002033-9781632659262-immortality-of-the-gods/"><u>Immortality of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002025-9781601635594-instant-healing/"><u>Instant Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002011-9781601639646-into-the-light/"><u>Into the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002014-9781632659927-the-haunted-house-diaries/"><u>The Haunted House Diaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002019--the-worlds-most-haunted-hospitals/"><u>The World's Most Haunted Hospitals | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

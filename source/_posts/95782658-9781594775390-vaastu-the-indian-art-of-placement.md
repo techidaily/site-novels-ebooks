@@ -1,7 +1,7 @@
 ---
 title: "Vaastu: The Indian Art of Placement | Free Book"
-date: 2024-10-23T22:30:02.613Z
-updated: 2024-10-27T05:51:11.321Z
+date: 2024-12-03T05:36:16.254Z
+updated: 2024-12-06T17:03:29.855Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d1e4832d91a51ca65de18e6549dba1a8ef0597129eda2fb705c0916852910ae.jpg
@@ -185,3 +185,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d1e4832d91a51ca65de18e6549dba1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209547536-9781609256418-consult-your-inner-psychic/"><u>Consult Your Inner Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547074-9781632658227-hollands-grimoire-of-magickal-correspondence/"><u>Holland's Grimoire of Magickal Correspondence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209548350-9781785356100-living-space/"><u>Living Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209545957-9781528786430-myths-and-dreams/"><u>Myths and Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547537-9781609255978-quantum-affirmations/"><u>Quantum Affirmations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547538-9781609252809-they-dont-see-what-i-see/"><u>They Don't See What I See | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

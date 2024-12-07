@@ -1,7 +1,7 @@
 ---
 title: Your Invisible Power and How to Use It | Free Book
-date: 2024-11-21T16:49:18.095Z
-updated: 2024-11-27T18:11:58.432Z
+date: 2024-12-04T02:40:27.379Z
+updated: 2024-12-06T16:02:30.147Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035b03b1cc767fa3501b8a4d68e2e51d3180.jpg
@@ -140,16 +140,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/466282-9781101176931-accept-this-gift/"><u>Accept This Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466110-9780307575500-discovering-the-bodys-wisdom/"><u>Discovering the Body's Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466033-9780307574589-emmanuels-book-ii/"><u>Emmanuel's Book II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466034-9780307574596-emmanuels-book-iii/"><u>Emmanuel's Book III | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466265-9781101165782-just-one-more-question/"><u>Just One More Question | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466070-9780307574886-the-minds-sky/"><u>The Mind's Sky | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463719-9780307716859-ufos/"><u>UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209790953-9781071508244-la-meditation-un-puissant-pouvoir-qui-guerit-les-maux-physiques-et-emotionnels/"><u>La Méditation, un Puissant Pouvoir qui Guérit les Maux Physiques et Émotionnels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209794927-9781942125617-love-for-the-future/"><u>Love for the Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209790733-9781071506318-meditacao-guia-de-consciencia-plena-para-aumentar-a-felicidade-meditacao-para-iniciantes/"><u>Meditação: Guia De Consciência Plena Para Aumentar A Felicidade (Meditação Para Iniciantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209790925-9781071504123-segundo-yo/"><u>Segundo YO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209794532-9781524856915-the-little-book-of-meditations/"><u>The Little Book of Meditations | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

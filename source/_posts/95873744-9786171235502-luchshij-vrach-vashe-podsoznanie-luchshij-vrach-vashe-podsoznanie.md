@@ -1,7 +1,7 @@
 ---
 title: Лучший врач - ваше подсознание. (Luchshij vrach - vashe podsoznanie.) | Free Book
-date: 2024-10-25T20:04:05.755Z
-updated: 2024-10-26T17:59:53.660Z
+date: 2024-12-03T01:13:43.635Z
+updated: 2024-12-07T00:13:30.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78116a3b0b1a834467e51f5987c7db78eba0f1f8a3d119d084884d83b14a1329.jpg
@@ -156,3 +156,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78116a3b0b1a834467e51f5987c7db7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317084-9781401939274-a-rebel-chick-mystics-guide/"><u>A Rebel Chick Mystic's Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317080-9781401931995-beyond-happiness/"><u>Beyond Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317068-9781401929718-born-knowing/"><u>Born Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317066-9781401928629-inspired-destiny/"><u>Inspired Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317102-9781401932909-the-angel-by-my-side/"><u>The Angel by My Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317073-9781401933036-the-nature-of-good-and-evil/"><u>The Nature of Good and Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317070-9781401933227-trust-your-vibes-at-work-and-let-them-work-for-you/"><u>Trust Your Vibes At Work, And Let Them Work For You! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317109-9781401944810-what-if-this-is-heaven/"><u>What If This Is Heaven? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317093-9781401942434-your-hidden-symmetry/"><u>Your Hidden Symmetry | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

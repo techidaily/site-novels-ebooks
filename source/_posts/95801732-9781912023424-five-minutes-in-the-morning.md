@@ -1,7 +1,7 @@
 ---
 title: Five Minutes in the Morning | Free Book
-date: 2024-10-21T01:28:45.374Z
-updated: 2024-10-26T19:45:52.578Z
+date: 2024-11-29T19:59:59.694Z
+updated: 2024-12-06T17:11:33.109Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4b92712f0702c9a187f5bbd79a34896cc87031f9dab00ab3befcdb702fa1ce4.jpg
@@ -140,3 +140,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4b92712f0702c9a187f5bbd79a3489
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1154537-9781577317050-a-still-small-voice/"><u>A Still, Small Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154463-9781577316916-el-poder-del-ahora/"><u>El poder del ahora | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154438-9781577318354-hands-that-heal/"><u>Hands That Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154441-9781932073300-healing-into-possibility/"><u>Healing into Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154469-9781577319467-human-design/"><u>Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154461-9781608680825-know-yourself-forget-yourself/"><u>Know Yourself, Forget Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154460-9781608681617-the-last-frontier/"><u>The Last Frontier | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154532-9781608681464-the-magical-path/"><u>The Magical Path | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

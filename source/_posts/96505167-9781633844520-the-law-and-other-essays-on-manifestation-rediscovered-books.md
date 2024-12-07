@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-11-23T17:03:36.008Z
-updated: 2024-11-27T17:11:34.471Z
+date: 2024-12-02T23:48:24.998Z
+updated: 2024-12-06T22:14:12.993Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,17 +148,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/658286-9781446406748-an-angel-at-my-shoulder/"><u>An Angel At My Shoulder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/662182-9780761852537-hold-fast-the-mountain-pass/"><u>Hold Fast the Mountain Pass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/658093-9781446406861-just-do-it-now/"><u>Just Do It Now! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/662082-9781451650280-powerhunch/"><u>Powerhunch! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/658103-9781446406984-reiki/"><u>Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/661014-9780895565037-the-deep-self/"><u>The Deep Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/660708-9781587613852-the-faeries-guide-to-green-magick-from-the-garden/"><u>The Faerie's Guide to Green Magick from the Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/661437-9780856833557-wonders-of-spiritual-unfoldment/"><u>Wonders of Spiritual Unfoldment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850316-9781615001279-observations-from-another-planet/"><u>Observations from Another Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850571--the-great-companion-to-meditations-aphorisms-for-moral-transformation/"><u>The Great Companion to Meditations & Aphorisms for Moral Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850521-9781622177103-the-six-principles-of-enlightenment-and-meaning-of-life/"><u>The Six Principles of Enlightenment and Meaning of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850289-9780648085409-three-steps-to-inspiration-for-life/"><u>Three Steps to Inspiration for Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

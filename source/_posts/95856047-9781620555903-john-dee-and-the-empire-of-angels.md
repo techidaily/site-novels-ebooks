@@ -1,7 +1,7 @@
 ---
 title: John Dee and the Empire of Angels | Free Book
-date: 2024-10-23T02:47:33.399Z
-updated: 2024-10-27T01:50:50.273Z
+date: 2024-12-02T17:59:02.210Z
+updated: 2024-12-06T23:09:30.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3da6c3fa90e3ba89e4032b3a2b636f084891e9fcdd8ca6f86333142199459b9d.jpg
@@ -199,3 +199,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3da6c3fa90e3ba89e4032b3a2b636f0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96369140-9781446359211-jungian-spirituality/"><u>Jungian Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369128-9781446358467-moon-lore/"><u>Moon Lore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369034-9781446358221-psychic-experiences/"><u>Psychic Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369150-9781446358443-secret-societies-of-the-middle-ages/"><u>Secret Societies of the Middle Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369077-9781446358184-spells-and-how-they-work/"><u>Spells and How They Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369135-9781446358481-telepathy-genuine-and-fraudulent/"><u>Telepathy: Genuine and Fraudulent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369073-9781446358382-the-coming-of-the-fairies/"><u>The Coming of the Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369108-9781446358542-tree-lore/"><u>Tree Lore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369100-9781446358207-your-psychic-powers-and-how-to-develop-them/"><u>Your Psychic Powers and How to Develop Them | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

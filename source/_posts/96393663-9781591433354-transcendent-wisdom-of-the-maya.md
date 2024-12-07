@@ -1,7 +1,7 @@
 ---
 title: Transcendent Wisdom of the Maya | Free Book
-date: 2024-11-20T19:27:39.576Z
-updated: 2024-11-27T18:43:48.355Z
+date: 2024-12-04T19:38:19.151Z
+updated: 2024-12-06T19:01:32.061Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8fe342fd625e873a2ea83a159fafc7d7dd.jpg
@@ -208,16 +208,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95841706-9781881098454-dame-fortunes-wheel-tarot/"><u>Dame Fortune's Wheel Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842528-9781788284554-discover-meditation-mindfulness/"><u>Discover Meditation & Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841466-9781683254164-entre-en-los-misterios-de-la-numerologia/"><u>Entre en… los misterios de la numerología | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842086-9781936012374-humanitys-spiritual-crisis/"><u>Humanity's Spiritual Crisis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841471-9781683254218-mejora-tu-autoestima/"><u>Mejora tu autoestima | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842069-9781888729832-modern-esoteric/"><u>Modern Esoteric | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842529-9781788284547-the-complete-book-of-healing/"><u>The Complete Book of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163661-9781640828179-got-inspiration-365-days-of-inspiration-for-you/"><u>Got Inspiration? 365 Days of Inspiration for You! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163917-9781646282203-higher-learning-for-higher-activities/"><u>Higher Learning for Higher Activities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163650-9781644240205-i-am-the-thorn-in-satans-side/"><u>I Am The Thorn In Satan's Side! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163728-9781644628126-the-team/"><u>The Team | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

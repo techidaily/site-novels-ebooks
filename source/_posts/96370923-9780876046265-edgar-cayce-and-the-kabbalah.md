@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce and the Kabbalah | Free Book
-date: 2024-11-20T16:14:28.249Z
-updated: 2024-11-27T22:34:39.639Z
+date: 2024-12-03T22:20:38.558Z
+updated: 2024-12-07T07:15:35.097Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b212686194f65e619964bbbc63e450c7505b39c.jpg
@@ -146,15 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b21268
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935414-9781844098392-become-an-earth-angel/"><u>Become an Earth Angel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935416-9781844097722-healing-with-angels-for-personal-transformation/"><u>Healing with Angels for Personal Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935413-9781844093762-healing-with-source/"><u>Healing with Source | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935411-9781844097951-heaven-therapy/"><u>Heaven Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935410-9781844099634-spiritual-hunger/"><u>Spiritual Hunger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935412-9781844093786-the-hearts-note/"><u>The Heart's Note | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210186753-9781684035199-a-moment-for-me/"><u>A Moment for Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187004-9781777467210-a-new-human-story/"><u>A New Human Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210186093-9781970135688-birth-out-of-darkness/"><u>Birth Out of Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210186266-9781913689148-gef/"><u>Gef! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187012-9781736348116-healing-made-simple/"><u>Healing Made Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187782-9781250803818-the-richest-man-in-babylon-the-complete-original-edition-plus-bonus-material/"><u>The Richest Man in Babylon: The Complete Original Edition Plus Bonus Material | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187829-9781250797223-the-wisdom-principles/"><u>The Wisdom Principles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187823-9781250763150-this-is-your-destiny/"><u>This Is Your Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210186782-9781784883607-wishcraft/"><u>WishCraft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

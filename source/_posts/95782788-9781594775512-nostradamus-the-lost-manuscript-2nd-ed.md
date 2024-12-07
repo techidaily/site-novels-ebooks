@@ -1,7 +1,7 @@
 ---
 title: "Nostradamus: The Lost Manuscript (2nd ed.) | Free Book"
-date: 2024-10-20T18:38:52.112Z
-updated: 2024-10-26T22:01:31.096Z
+date: 2024-12-03T16:41:17.634Z
+updated: 2024-12-07T00:06:18.035Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f972a4345669a138420e4ce7ae319f841a7341e151763f4dc7951ca4be619422.jpg
@@ -167,3 +167,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f972a4345669a138420e4ce7ae319f8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1424524-9781780282862-becoming-buddha/"><u>Becoming Buddha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424532-9781780283166-butterfly-tai-chi/"><u>Butterfly Tai Chi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424518-9781780282725-celtic-visions/"><u>Celtic Visions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424534-9781780283203-karma-yoga/"><u>Karma Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424520-9781780282763-kick-ass-angels/"><u>Kick-Ass Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424525-9781780282879-secrets-of-rejuvination/"><u>Secrets of Rejuvination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424528-9781780283043-the-authentic-tarot/"><u>The Authentic Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424533-9781780283180-the-five-healing-tibetans/"><u>The Five Healing Tibetans | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Victor Hugo's Conversations with the Spirit World (2nd ed.) | Free Book
-date: 2024-10-22T17:06:15.781Z
-updated: 2024-10-26T17:20:33.652Z
+date: 2024-12-01T18:56:12.940Z
+updated: 2024-12-06T17:40:44.542Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3fcbba5b2c3cfd3ac0ec2ec7a11ae97f8b5ee1be1924dcc94f0008d2d4c97146.jpg
@@ -180,3 +180,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3fcbba5b2c3cfd3ac0ec2ec7a11ae97
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209636284-9781633411449-lost-teachings-of-the-runes/"><u>Lost Teachings of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636287-9781633411562-magickal-mermaids-and-water-creatures/"><u>Magickal Mermaids and Water Creatures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636275-9781633411555-positive-magic/"><u>Positive Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636286-9781633411425-the-magic-of-marie-laveau/"><u>The Magic of Marie Laveau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636277-9781633411234-the-morrigan/"><u>The Morrigan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636276-9781633411401-third-eye-meditations/"><u>Third Eye Meditations | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

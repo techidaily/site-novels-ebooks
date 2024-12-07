@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2024-11-21T21:28:48.412Z
-updated: 2024-11-27T16:02:24.172Z
+date: 2024-12-05T18:20:19.713Z
+updated: 2024-12-06T20:41:44.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,14 +182,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/613009-9781429907811-compassion/"><u>Compassion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/616616-9781770704695-ghost-stories-of-newfoundland-and-labrador/"><u>Ghost Stories of Newfoundland and Labrador | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/615383-9781429935258-life-love-laughter/"><u>Life, Love, Laughter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/615437-9781429944663-the-man-who-loved-seagulls/"><u>The Man Who Loved Seagulls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/614572-9781439145449-the-spaceships-of-the-visitors/"><u>The Spaceships of the Visitors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844944-9780786755349-good-daughters/"><u>Good Daughters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844969-9780786754397-how-to-save-the-world-on-5-a-day/"><u>How to Save the World on $5 a Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845053-9781946005014-le-buddhist-boot-camp/"><u>LE BUDDHIST BOOT CAMP | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845471-9781911134169-quareia-the-adept/"><u>Quareia The Adept | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2024-11-20T16:21:19.980Z
-updated: 2024-11-27T22:10:24.762Z
+date: 2024-12-05T05:55:03.397Z
+updated: 2024-12-06T23:59:37.939Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,18 +219,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/906781-9781476700410-a-message-of-hope-from-the-angels/"><u>A Message of Hope from the Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/912255-9781846949289-being-mystic/"><u>Being Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/912268-9781846947490-how-to-live-in-the-here-and-now/"><u>How To Live In The Here And Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/919421-9780307817228-out-of-the-garden/"><u>Out of the Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/918912--postcards-from-the-other-side/"><u>Postcards from the Other Side | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/912264-9781780990606-savage-breast/"><u>Savage Breast | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/914657-9781101603741-the-dead-roam-the-earth/"><u>The Dead Roam the Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/923292-9781780990439-the-whole-elephant-revealed/"><u>The Whole Elephant Revealed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/920995-9781476700458-un-mensaje-de-esperanza-de-los-angeles/"><u>Un mensaje de esperanza de los ángeles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876683-9781913192372-grave-doubts/"><u>Grave Doubts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876915-9781913192358-i-am-i-angelic-messages-oracle-book/"><u>I AM I Angelic Messages Oracle Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876871-9781513650845-nikola-tesla-afterlife-comments-on-paraphysical-concepts/"><u>Nikola Tesla: Afterlife Comments On Paraphysical Concepts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876794-9781999067625-the-way-to-peace/"><u>the Way to Peace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

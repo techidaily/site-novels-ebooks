@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2024-11-21T18:06:50.243Z
-updated: 2024-11-27T21:22:26.575Z
+date: 2024-11-30T21:58:19.540Z
+updated: 2024-12-06T18:25:11.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -142,13 +142,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935381-9781844093205-a-little-light-on-the-spiritual-laws/"><u>A Little Light on the Spiritual Laws | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935377-9781844093298-a-new-light-on-ascension/"><u>A New Light on Ascension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935378-9781844093878-the-whale-whisperer/"><u>The Whale Whisperer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935380-9781844092529-write-your-memoir/"><u>Write Your Memoir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185533-9781087934754-a-child-in-search-of-god-truth/"><u>A Child in Search of God & Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184748-9781950241804-be-the-good/"><u>Be the Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184741-9781735983516-stealing-fire-from-the-gods/"><u>Stealing Fire From The Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184979-9781880765760-the-free-will-zone/"><u>The Free Will Zone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185662-9781631598487-the-power-of-breathwork/"><u>The Power of Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184613-9780648652434-the-simplified-book-of-change/"><u>The Simplified book of Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184805-9781087934273-who-do-i-become-when-i-am-no-longer-me/"><u>Who Do I Become When I Am No Longer Me? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184599-9781922456090-alslam-aldakhly-alkoanyn-alkhmsa-lhyaa-mtmna/"><u>السلام الداخلي - القوانين الخمسة لحياة مطمئنة | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

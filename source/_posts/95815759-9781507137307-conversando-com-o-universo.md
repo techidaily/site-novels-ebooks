@@ -1,7 +1,7 @@
 ---
 title: Conversando com o Universo | Free Book
-date: 2024-10-23T16:12:19.041Z
-updated: 2024-10-26T23:49:06.225Z
+date: 2024-12-05T16:51:38.781Z
+updated: 2024-12-06T20:31:09.373Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f7932a5f8e91a7c790a3ca27e5c72c720ad793350db1036eefc9009f47d9a8a.jpg
@@ -138,3 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f7932a5f8e91a7c790a3ca27e5c72c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96505941-9781633844667-attaining-your-desires-rediscovered-books/"><u>Attaining Your Desires (Rediscovered Books) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505977-9781633845121-just-how-to-wake-the-solar-plexus/"><u>Just How to Wake the Solar Plexus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505951-9781633844865-natural-law-in-the-spiritual-world/"><u>Natural Law in the Spiritual World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505965-9781633844964-thoughts-are-things-the-god-in-you/"><u>Thoughts Are Things & The God In You | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

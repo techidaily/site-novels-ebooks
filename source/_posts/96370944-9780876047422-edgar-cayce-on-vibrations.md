@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on Vibrations | Free Book
-date: 2024-11-23T19:21:45.281Z
-updated: 2024-11-27T23:20:16.256Z
+date: 2024-12-01T16:04:24.146Z
+updated: 2024-12-07T02:14:37.300Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc5535059efc28d07ed5501f222c0f4085ec0eb6.jpg
@@ -134,16 +134,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc55350
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95947345-9781623173012-changed-in-a-flash/"><u>Changed in a Flash | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95946814-9781925515664-confucius/"><u>Confucius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95948899-9781785355981-divining-with-animal-guides/"><u>Divining with Animal Guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95948900-9781785356636-earth-astrologys-missing-planet/"><u>Earth: Astrology's Missing Planet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95948905-9781782798439-spiritual-beings-or-economic-tools/"><u>Spiritual Beings or Economic Tools | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95946815-9781925515961-the-book-of-eternity/"><u>The Book of Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95947320-9781786781741-the-premonition-code/"><u>The Premonition Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192381-9781600379277-at-your-command/"><u>At Your Command | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192425-9781614483076-energy-over-mind/"><u>Energy Over Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192361-9781614482314-fall-in-love-with-your-life/"><u>Fall in Love with Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192462-9781683505624-forty-things-i-wish-id-told-my-kids/"><u>Forty Things I Wish I'd Told My Kids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192547-9781630478728-get-out-of-mind-jail/"><u>Get Out of Mind Jail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192483-9781683508298-happily-ever-after/"><u>Happily Ever After | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192508-9781642797473-heal-your-trauma-heal-your-marriage/"><u>Heal Your Trauma, Heal Your Marriage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192458-9781683501480-hushed-cries/"><u>Hushed Cries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192532-9781614487708-letters-to-momo/"><u>Letters to Momo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

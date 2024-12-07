@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2024-11-21T16:39:13.036Z
-updated: 2024-11-27T18:33:29.547Z
+date: 2024-12-01T02:33:04.944Z
+updated: 2024-12-07T04:01:03.567Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -193,17 +193,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95829424-9781944529291-consciousess-and-quantum-theory/"><u>Consciousess and Quantum Theory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95830277-9781616405755-flying-saucers-over-the-white-house/"><u>Flying Saucers over the White House | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95829423-9781507150351-kombinationen-der-tarockkarten-zwischen-grossen-und-kleinen-arkana/"><u>Kombinationen der Tarockkarten zwischen großen und kleinen Arkana | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95829874-9781944529314-myth-consciousness-and-psychic-research/"><u>Myth, Consciousness, and Psychic Research | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95829741-9781944529260-psychic-research-in-the-soviet-union/"><u>Psychic Research in the Soviet Union | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95830101-9781944529130-psychokinesis/"><u>Psychokinesis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95830361-9781616409159-wallace-d-wattles-trilogy/"><u>Wallace D. Wattles Trilogy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95833130-9781449487508-you-are-amazing/"><u>You Are Amazing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210160374-9781526731845-a-history-of-magic-and-witchcraft/"><u>A History of Magic and Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210161034-9781732536142-black-athlete-white-athlete-mental-strength/"><u>Black Athlete White Athlete : Mental Strength | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210159669-9781999401030-daring-to-share/"><u>Daring to Share | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210162363-9781646288892-love-letters-to-my-son/"><u>Love Letters to My Son | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210162461-9781645449973-overwhelming-methodology-of-deception/"><u>Overwhelming Methodology of Deception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210159628-9781734473926-signs-of-the-universe/"><u>Signs of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210162367-9781682135945-some-thoughts-on-god-and-other-things/"><u>Some Thoughts on God and Other Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210159671-9781777429713-sumi/"><u>Sumi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210162452-9781644626139-sweet-themes/"><u>Sweet Themes | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

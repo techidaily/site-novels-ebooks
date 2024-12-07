@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-11-26T18:29:38.149Z
-updated: 2024-11-27T22:37:30.363Z
+date: 2024-12-03T05:37:33.593Z
+updated: 2024-12-06T17:06:24.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,14 +131,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/360514-9781440628207-answered-prayers/"><u>Answered Prayers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/357036-9781440626197-the-complete-idiots-guide-to-indigo-children/"><u>The Complete Idiot's Guide to Indigo Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/356964-9781440626234-the-complete-idiots-guide-to-life-after-death/"><u>The Complete Idiot's Guide to Life After Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/360633-9781440650666-the-complete-idiots-guide-to-past-life-regression/"><u>The Complete Idiot's Guide to Past Life Regression | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/358443-9781440628689-the-sign-of-the-dove/"><u>The Sign of the Dove | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209725765-9781633383234-an-endless-quest-for-spiritual-truth-a-practical-guide-to-everyday-spirituality/"><u>An Endless Quest for Spiritual Truth: A Practical Guide to Everyday Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726827-9780806539522-everyday-wicca/"><u>Everyday Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726966-9780806539546-magick-potions/"><u>Magick Potions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726088-9780806539454-the-gifts-beneath-your-anxiety/"><u>The Gifts Beneath Your Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726953-9780806534336-wanted-undead-or-alive/"><u>Wanted Undead or Alive: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726734-9780806536453-wiccan-spell-a-night-spells-charms-and-potions-for-the-whole-year/"><u>Wiccan Spell A Night: Spells, Charms, And Potions For The Whole Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726582-9780806539683-your-magickal-cat/"><u>Your Magickal Cat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726757-9780806534619-zombie-csu/"><u>Zombie CSU: | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

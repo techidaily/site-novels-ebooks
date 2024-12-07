@@ -1,7 +1,7 @@
 ---
 title: Humanity's Spiritual Crisis | Free Book
-date: 2024-10-23T01:24:39.632Z
-updated: 2024-10-27T01:49:36.386Z
+date: 2024-11-29T18:24:20.424Z
+updated: 2024-12-07T05:08:16.731Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01ccabb144c7d134782f72f8d5cebb38d3c20276167e955110e4e03afad38d57.jpg
@@ -168,3 +168,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01ccabb144c7d134782f72f8d5cebb3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96499229-9781594733314-dancethe-sacred-art/"><u>Dance—The Sacred Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499220-9781594736070-dancing-mindfulness/"><u>Dancing Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499241-9781594734533-divining-the-body/"><u>Divining the Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499272-9781594735714-dreamingthe-sacred-art/"><u>Dreaming—The Sacred Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499243-9781594734458-earth-water-fire-air/"><u>Earth, Water, Fire & Air | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499282-9781594734373-finding-time-for-the-timeless/"><u>Finding Time for the Timeless | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

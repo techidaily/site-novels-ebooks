@@ -1,7 +1,7 @@
 ---
 title: Mystical Origins of the Tarot | Free Book
-date: 2024-10-19T17:25:16.347Z
-updated: 2024-10-26T18:09:17.476Z
+date: 2024-12-01T04:11:35.991Z
+updated: 2024-12-07T04:50:42.439Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f26c2835dad6196baeaec82c32905daa0d33c74801975ce251a75cd2ba6ccc3.jpg
@@ -185,3 +185,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f26c2835dad6196baeaec82c32905d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209598684-9780285640726-a-meditators-diary/"><u>A Meditator's Diary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209598779-9780285644014-change-the-story-of-your-health/"><u>Change the Story of Your Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209598664-9780285641310-i-ching-in-plain-english/"><u>I Ching in Plain English | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209598656-9780285642263-the-hollow-earth-enigma/"><u>The Hollow Earth Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209598817-9780285641211-the-language-of-the-angels/"><u>The Language of the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209598745-9780285639485-the-lost-world-of-agharti/"><u>The Lost World of Agharti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209598722-9780285644045-turmeric/"><u>Turmeric | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

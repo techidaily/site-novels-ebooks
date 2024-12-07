@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-11-26T19:06:02.739Z
-updated: 2024-11-27T21:38:24.867Z
+date: 2024-12-02T06:41:13.426Z
+updated: 2024-12-07T01:46:55.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,15 +262,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782096-9781620554005-demons-and-spirits-of-the-land/"><u>Demons and Spirits of the Land | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782090-9781620551561-eyes-wide-open/"><u>Eyes Wide Open | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782093-9781594777264-kabbalistic-teachings-of-the-female-prophets/"><u>Kabbalistic Teachings of the Female Prophets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782089-9781594776342-layayoga/"><u>Layayoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782102-9781620550564-the-shamans-doorway/"><u>The Shaman's Doorway | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782095-9781594777387-the-spiritual-science-of-the-stars/"><u>The Spiritual Science of the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209987732-9781538754139-life-with-the-afterlife/"><u>Life with the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209990155-9781733710497-pray-attention/"><u>Pray Attention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209991361-9781609883324-the-hidden-power-of-sound/"><u>The Hidden Power of SOund | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209988338-9781641604499-the-power-of-hex/"><u>The Power of Hex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209984323-9781761033209-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209988874-9780989126311-undermind/"><u>UnderMind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209987490-9781734574111-vision-quest/"><u>Vision Quest | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

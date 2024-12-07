@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2024-11-23T22:13:18.666Z
-updated: 2024-11-27T21:39:30.647Z
+date: 2024-12-06T05:10:23.013Z
+updated: 2024-12-06T17:43:03.830Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -141,16 +141,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96166363-9781547513390-chronobiology-the-biology-of-time/"><u>Chronobiology: the Biology of Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96166593-9781547521012-ensueno-una-teoria-de-la-conspiracion/"><u>Ensueño. Una Teoría de la Conspiración | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96171016-9781547527076-fique-rico-jogando-na-lotaria-sistema-de-magia-mental-comprovado/"><u>Fique Rico Jogando na Lotaria. Sistema de Magia Mental Comprovado | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96167846-9781449494698-the-book-of-tarot/"><u>The Book of Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96172190-9781507209158-the-witchs-book-of-self-care/"><u>The Witch's Book of Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96170556-9781684030774-when-spirit-leaps/"><u>When Spirit Leaps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96169719-9780824865672-zen-sand/"><u>Zen Sand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197891-9781631599750-crystal-grids-handbook/"><u>Crystal Grids Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198002-9781592338009-crystals-for-positive-manifestation/"><u>Crystals for Positive Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197953-9781782408093-mindfulness-for-students/"><u>Mindfulness for Students | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197978-9781627882972-spellcraft-for-a-magical-year/"><u>Spellcraft for a Magical Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197989-9780760367834-the-zenned-out-guide-to-understanding-auras/"><u>The Zenned Out Guide to Understanding Auras | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

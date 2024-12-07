@@ -1,7 +1,7 @@
 ---
 title: The Basic Code of the Universe | Free Book
-date: 2024-10-25T03:37:39.496Z
-updated: 2024-10-27T04:25:05.591Z
+date: 2024-12-04T05:50:44.375Z
+updated: 2024-12-07T00:02:29.498Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/573738f193ad84ac32a5d1714a67f4d75af50ec1db4d6dc45be4441d1046795c.jpg
@@ -185,3 +185,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/573738f193ad84ac32a5d1714a67f4d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138586184-9781449710606-extraordinary-living-a-lifestyle-worth-pursuing/"><u>Extraordinary Living: a Lifestyle Worth Pursuing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586036-9781452544724-feng-shui-coaching/"><u>Feng Shui Coaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586064-9781450264471-moments-in-time/"><u>Moments in Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586065-9781452533452-the-lenten-moon/"><u>The Lenten Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586521-9781491778562-volume-iii-clinical-and-medical-hypnotherapy/"><u>Volume Iii Clinical and Medical Hypnotherapy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

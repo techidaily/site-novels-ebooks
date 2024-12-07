@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2024-11-26T22:49:58.191Z
-updated: 2024-11-27T18:51:27.845Z
+date: 2024-12-02T06:02:17.963Z
+updated: 2024-12-06T22:08:07.910Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,17 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782494-9781591439301-alchemical-healing/"><u>Alchemical Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782490-9781591439127-divine-encounters/"><u>Divine Encounters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782488-9781591437659-dna-of-the-gods/"><u>DNA of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782489-9781591438441-don-juan-and-the-art-of-sexual-energy/"><u>Don Juan and the Art of Sexual Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782497-9781591432142-sacred-plant-initiations/"><u>Sacred Plant Initiations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782493-9781591437925-sacred-retreat/"><u>Sacred Retreat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782496-9781591439141-the-cosmic-code-book-vi/"><u>The Cosmic Code (Book VI) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782495-9781591439417-wisdom-of-the-plant-devas/"><u>Wisdom of the Plant Devas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065024-9781647849702-001/"><u>生命奧秘全書001：靈魂光之真理實相（靈學篇） | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065021-9781647849726-003-the-great-tao-of-spiritual-science-series-03-the-great-tao/"><u>生命奧秘全書003：大道─靈性模式的修練（靈修篇）: The Great Tao of Spiritual Science Series 03: The Great Tao | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065018-9781647849733-004-the-great-tao-of-spiritual-science-series-04-the-third-eye/"><u>生命奧秘全書004：天眼─第三眼進入更高人類精神次元（靈力篇）: The Great Tao of Spiritual Science Series 04: The Third Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065026-9781647461201-are-you-polished/"><u>Are You Polished? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065089-9781989838525-bedtime-stories-guided-meditations-for-busy-adults-2-in-1/"><u>Bedtime Stories & Guided Meditations For Busy Adults (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065087-9781989838518-bedtime-stories-guided-meditations-for-busy-adults/"><u>Bedtime Stories & Guided Meditations for Busy Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065471-9781982152321-space-nomads-set-a-course-for-mars/"><u>Space Nomads: Set a Course for Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065396-9781982164874-the-house-your-stars-built/"><u>The House Your Stars Built | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

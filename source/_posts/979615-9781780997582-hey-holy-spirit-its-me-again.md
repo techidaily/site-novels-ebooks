@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2024-11-22T17:12:25.800Z
-updated: 2024-11-27T16:27:01.030Z
+date: 2024-12-05T23:44:33.883Z
+updated: 2024-12-07T04:17:35.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,14 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/369044-9781416568001-huna/"><u>Huna | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/390895-9781775564294-joy/"><u>Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/390855-9781775564256-practical-mental-influence/"><u>Practical Mental Influence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/375398-9780307481610-the-art-of-forgiveness-lovingkindness-and-peace/"><u>The Art of Forgiveness, Lovingkindness, and Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/371222-9781416584056-youre-not-who-you-think-you-are/"><u>You're Not Who You Think You Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730893-9780806539508-candlelight-spells/"><u>Candlelight Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732445-9781788173605-crystals-for-energy-protection/"><u>Crystals for Energy Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733632-9781722523572-self-mastery-through-conscious-autosuggestion-original-classic-edition/"><u>Self-Mastery Through Conscious Autosuggestion (Original Classic Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732469-9781984856609-the-new-stone-age/"><u>The New Stone Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732439-9781401958107-the-universe-always-has-a-plan/"><u>The Universe Always Has a Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733413-9781507212639-the-witchs-book-of-love/"><u>The Witch's Book of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209731435-9780806539607-wicca-candle-magick/"><u>Wicca Candle Magick | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

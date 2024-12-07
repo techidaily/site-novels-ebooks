@@ -1,7 +1,7 @@
 ---
 title: "Nine Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2024-11-26T20:38:42.035Z
-updated: 2024-11-27T19:27:33.618Z
+date: 2024-11-29T17:53:23.304Z
+updated: 2024-12-07T04:04:31.130Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439b6cbc62534ca76a09f60f54167ecc003e.jpg
@@ -140,15 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96176940-9781623366650-believe-ask-act/"><u>Believe, Ask, Act | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96176854-9781623368579-deep-listening/"><u>Deep Listening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96176844-9781623366230-easy-breezy-miracle/"><u>Easy Breezy Miracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96176859-9781635650334-living-in-a-mindful-universe/"><u>Living in a Mindful Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96176821-9781623361211-living-life-in-full-bloom/"><u>Living Life in Full Bloom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96176843-9781623366186-whole-body-intelligence/"><u>Whole Body Intelligence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198346-9781631593987-being-with-flowers/"><u>Being with Flowers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198394-9780760367384-in-focus-numerology/"><u>In Focus Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198326-9781782407126-secrets-of-crystals/"><u>Secrets of Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198405-9781631594816-the-crystal-seer/"><u>The Crystal Seer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198532-9780760365076-the-joy-of-forest-bathing/"><u>The Joy of Forest Bathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198321-9781627889568-witchcraft/"><u>Witchcraft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

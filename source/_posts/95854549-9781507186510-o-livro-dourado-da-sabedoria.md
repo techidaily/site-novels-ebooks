@@ -1,7 +1,7 @@
 ---
 title: O livro Dourado da Sabedoria | Free Book
-date: 2024-10-21T04:07:12.738Z
-updated: 2024-10-26T23:18:28.337Z
+date: 2024-11-30T19:24:43.712Z
+updated: 2024-12-06T22:43:27.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a6addd9e4ec5e1208fcbd21893bf95b75f760e4db4f08e1c2c00dfab712edf4.jpg
@@ -142,3 +142,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a6addd9e4ec5e1208fcbd21893bf95
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317816-9781781803646-aries-moon-sign/"><u>Aries Moon Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317828-9781781808931-dreaming-through-darkness/"><u>Dreaming through Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317786-9781401945473-i-reality-and-subjectivity/"><u>I: Reality and Subjectivity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317788-9781401946623-manifest-moment-to-moment/"><u>Manifest Moment to Moment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317796-9781401943509-percolate/"><u>Percolate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317777-9781401938789-quest/"><u>Quest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317779-9781401936204-the-golden-motorcycle-gang/"><u>The Golden Motorcycle Gang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317780-9781401942809-the-kinslow-system/"><u>The Kinslow System | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317808-9781781803202-the-tarot-masters/"><u>The Tarot Masters | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

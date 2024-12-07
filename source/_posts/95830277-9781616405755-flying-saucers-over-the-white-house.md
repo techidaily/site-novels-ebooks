@@ -1,7 +1,7 @@
 ---
 title: Flying Saucers over the White House | Free Book
-date: 2024-10-22T02:31:28.487Z
-updated: 2024-10-27T03:29:08.405Z
+date: 2024-11-30T21:51:07.154Z
+updated: 2024-12-07T01:26:35.673Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5fb0aac5eb5b53d752063b33a7e4bf637e8f95c60ce5c4ba148c32fb0b17e59.jpg
@@ -142,3 +142,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5fb0aac5eb5b53d752063b33a7e4bf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96456390-9781420937664-mental-chemistry/"><u>Mental Chemistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456244-9781596746718-miracle-mongers-and-their-methods/"><u>Miracle Mongers and Their Methods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96455273-9781420935752-optimism/"><u>Optimism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96455363-9781420935387-the-art-and-science-of-personal-magnetism-the-secret-of-mental-fascination/"><u>The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96455297-9781420924381-the-astral-plane-its-scenery-inhabitants-and-phenomena/"><u>The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456126-9781420935356-the-power-of-concentration/"><u>The Power Of Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456066-9781420955408-the-power-of-your-subconscious-mind/"><u>The Power of Your Subconscious Mind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2024-11-22T17:52:56.093Z
-updated: 2024-11-27T23:20:27.663Z
+date: 2024-12-04T18:10:54.816Z
+updated: 2024-12-06T23:17:33.754Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,17 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782138-9781594777721-the-hermetic-code-in-dna/"><u>The Hermetic Code in DNA | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782137-9781594779312-the-invisible-history-of-the-rosicrucians/"><u>The Invisible History of the Rosicrucians | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782142-9781594775758-the-jade-emperors-mind-seal-classic-2nd-ed/"><u>The Jade Emperor's Mind Seal Classic (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782135-9781620554166-the-john-michell-reader-2nd-ed/"><u>The John Michell Reader (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782143-9781594779275-the-sacred-center-2nd-ed/"><u>The Sacred Center (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782136-9781594776298-the-sacred-embrace-of-jesus-and-mary/"><u>The Sacred Embrace of Jesus and Mary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782140-9781594777868-the-sacred-network/"><u>The Sacred Network | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782141-9781594777066-the-sacred-rite-of-magical-love/"><u>The Sacred Rite of Magical Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209996873-9781529054507-john-hudsons-how-to-survive-a-pandemic/"><u>John Hudson's How to Survive a Pandemic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209998966-9781641375641-rise-to-the-sun/"><u>Rise to the Sun | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000110-9781783254033-sacred-geometry/"><u>Sacred Geometry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000111-9781856754484-the-little-book-of-dreams/"><u>The Little Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000108-9781856754491-the-little-book-of-serenity/"><u>The Little Book of Serenity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209999771-9781761034022-the-reiki-manual/"><u>The Reiki Manual | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

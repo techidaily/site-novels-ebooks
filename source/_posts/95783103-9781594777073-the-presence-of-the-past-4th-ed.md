@@ -1,7 +1,7 @@
 ---
 title: The Presence of the Past (4th ed.) | Free Book
-date: 2024-10-23T20:25:28.989Z
-updated: 2024-10-26T17:16:28.417Z
+date: 2024-12-01T20:43:58.736Z
+updated: 2024-12-06T21:19:40.980Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/deecaf403a4c26516b920beecb676ffbff2d6eefd6930148d6958fa7d01b2d00.jpg
@@ -181,3 +181,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/deecaf403a4c26516b920beecb676ff
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138566314-9781401951603-angels-of-love/"><u>Angels of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566303-9781401951559-clear-home-clear-heart/"><u>Clear Home, Clear Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567493-9780595857876-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566317-9781623173746-the-handbook-of-chinese-horoscopes/"><u>The Handbook of Chinese Horoscopes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566329-9781984824158-the-secret-therapy-of-trees/"><u>The Secret Therapy of Trees | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Advanced Autogenic Training and Primal Awareness | Free Book
-date: 2024-10-19T21:41:36.627Z
-updated: 2024-10-26T18:10:24.101Z
+date: 2024-11-30T17:49:02.850Z
+updated: 2024-12-07T06:35:37.833Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90f080d30064727b2e9e8eb28ab98508c17cc0d663b84b370cc398e07e03bdfb.jpg
@@ -202,3 +202,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90f080d30064727b2e9e8eb28ab9850
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209561255-9781632658265-faery-magick/"><u>Faery Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209561140-9781633411500-project-blue-book/"><u>Project Blue Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209561609-9781401957179-super-attractor/"><u>Super Attractor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560411-9781982100711-waking-the-witch/"><u>Waking the Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Man with the Inexplicable Life | Free Book
-date: 2024-11-20T22:41:36.149Z
-updated: 2024-11-27T19:32:38.297Z
+date: 2024-12-03T18:45:14.543Z
+updated: 2024-12-07T04:35:06.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090d7a673c820c62b2b8653378e4a7827ca4.jpg
@@ -170,13 +170,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782352-9781591432548-ancient-alien-ancestors/"><u>Ancient Alien Ancestors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782351-9781591439790-ancient-egypt-39000-bce/"><u>Ancient Egypt 39,000 BCE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782353-9781591433088-cosmic-womb/"><u>Cosmic Womb | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782354-9781591437901-the-great-pyramid-hoax/"><u>The Great Pyramid Hoax | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032632-9781634500111-ghostly-encounters/"><u>Ghostly Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032445-9781476640266-lucid-dreaming-waking-life/"><u>Lucid Dreaming, Waking Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032674-9781632201362-strange/"><u>Strange | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032996-9781628730968-the-complete-book-of-devils-and-demons/"><u>The Complete Book of Devils and Demons | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

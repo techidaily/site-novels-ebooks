@@ -1,7 +1,7 @@
 ---
 title: The Chakras in Shamanic Practice | Free Book
-date: 2024-10-25T23:17:23.691Z
-updated: 2024-10-27T05:47:55.812Z
+date: 2024-12-02T18:02:14.253Z
+updated: 2024-12-07T00:55:43.682Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4571be3966f35050c68571e96a2b1d95c57ee49398dd25fc4ce25fb2756f7a21.jpg
@@ -186,3 +186,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4571be3966f35050c68571e96a2b1d9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1752769-9781609259556-are-you-psychic-or-making-it-up/"><u>Are You Psychic or Making It Up? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1747030-9781453286463-control-your-dreams/"><u>Control Your Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1752770-9781612833354-conversations-with-god-books-2-3/"><u>Conversations with God, Books 2 & 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1752771-9781618520791-heads-up-dreaming/"><u>Heads-Up Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1753630-9781780287850-pilgrimage-to-iona/"><u>Pilgrimage to Iona | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1755761-9780857011732-the-four-dragons/"><u>The Four Dragons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1753632-9781780288246-the-phoenix-generation/"><u>The Phoenix Generation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1755929-9781618520814-you-a-spiritual-being-on-a-spiritual-journey/"><u>YOU: A Spiritual Being on a Spiritual Journey | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

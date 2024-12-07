@@ -1,7 +1,7 @@
 ---
 title: Astrology and the Rising of Kundalini | Free Book
-date: 2024-10-19T20:47:58.227Z
-updated: 2024-10-26T21:17:47.166Z
+date: 2024-12-06T04:46:33.189Z
+updated: 2024-12-06T20:29:46.562Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8ce4a5f91ffe7f467c5fc6e7dc6b6b596d0b92c0520d0dd14a97bfabb3cfe1a.jpg
@@ -199,3 +199,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8ce4a5f91ffe7f467c5fc6e7dc6b6b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209552794-9781786782571-21-rituals-to-ignite-your-intuition/"><u>21 Rituals to Ignite Your Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556785-9781250313317-astro-poets/"><u>Astro Poets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556320-9780525504696-i-know-what-i-saw/"><u>I Know What I Saw | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556702-9781250307514-the-path-made-clear/"><u>The Path Made Clear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209552797-9781786782632-the-ultimate-colin-wilson/"><u>The Ultimate Colin Wilson | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

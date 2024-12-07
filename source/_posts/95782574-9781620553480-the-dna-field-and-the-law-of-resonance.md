@@ -1,7 +1,7 @@
 ---
 title: The DNA Field and the Law of Resonance | Free Book
-date: 2024-10-23T05:07:27.561Z
-updated: 2024-10-27T00:17:00.290Z
+date: 2024-12-06T00:57:48.111Z
+updated: 2024-12-06T19:30:07.231Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fedcc14b1b152f9ac861bed18e9c1d8152c9919a4398d8c15438c3bb7e9245a7.jpg
@@ -194,3 +194,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fedcc14b1b152f9ac861bed18e9c1d8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209593254-9781925283334-angels-guides-and-goosebumps/"><u>Angels: Guides and Goosebumps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209592630-9781625846631-historic-haunts-of-savannah/"><u>Historic Haunts of Savannah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593369-9780909608101-natures-whispers/"><u>Nature's Whispers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209592447-9781782796558-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593222-9781921596858-sayings-of-the-buddha-and-other-masters/"><u>Sayings of the Buddha and Other Masters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593355-9781925416701-synchronicity-and-dreaming/"><u>Synchronicity and Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593306-9780909608194-the-five-principles-of-spiritual-reality/"><u>The Five Principles of Spiritual Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593266-9781921596841-the-mind-that-changes-everything/"><u>The Mind That Changes Everything | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Mysteries of the Great Cross of Hendaye | Free Book
-date: 2024-10-23T21:57:06.910Z
-updated: 2024-10-26T22:02:37.334Z
+date: 2024-12-01T21:01:24.769Z
+updated: 2024-12-07T05:35:55.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b8bb4972f4558fe5698188593cd88d22906fc571981d781368d43ce330797c8.jpg
@@ -181,3 +181,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b8bb4972f4558fe5698188593cd88d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209636301-9781633411364-divination-conjure-style/"><u>Divination Conjure Style | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636303-9781633411296-eyewitness-to-the-gods/"><u>Eyewitness to the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636304-9781633411586-herbal-magick/"><u>Herbal Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636309-9781633411395-the-big-book-of-chakras-and-chakra-healing/"><u>The Big Book of Chakras and Chakra Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636312-9781881098553-the-magic-of-herbs/"><u>The Magic of Herbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636306-9781633411081-what-we-knew-in-the-night/"><u>What We Knew in the Night | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

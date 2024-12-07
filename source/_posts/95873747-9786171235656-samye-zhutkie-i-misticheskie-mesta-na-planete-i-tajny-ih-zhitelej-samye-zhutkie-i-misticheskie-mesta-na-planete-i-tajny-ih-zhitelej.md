@@ -1,7 +1,7 @@
 ---
 title: Самые жуткие и мистические места на планете и тайны их жителей (Samye zhutkie i misticheskie mesta na planete i tajny ih zhitelej) | Free Book
-date: 2024-10-21T22:54:21.611Z
-updated: 2024-10-26T20:53:51.300Z
+date: 2024-12-03T02:58:47.437Z
+updated: 2024-12-07T00:44:40.385Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1af1dc71867c50c6c3b99cd105badab9b7c6bff949a1a05f93d12ade14de588b.jpg
@@ -150,3 +150,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1af1dc71867c50c6c3b99cd105badab
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317130-9781401946784-beyond-past-lives/"><u>Beyond Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317143-9781401952419-daily-reminders-for-living-a-new-paradigm/"><u>Daily Reminders for Living a New Paradigm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317124-9781401943738-light-the-flame/"><u>Light the Flame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317112-9781401945398-power-vs-force/"><u>Power vs. Force | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317136-9781401952990-the-heart-of-the-shaman/"><u>The Heart of the Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317142-9781401953553-the-illumination-process/"><u>The Illumination Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317120-9781401943813-the-numerology-guidebook/"><u>The Numerology Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317127-9781401949624-uplifting-prayers-to-light-your-way/"><u>Uplifting Prayers to Light Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317128-9781401944865-you-are-the-placebo/"><u>You Are the Placebo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

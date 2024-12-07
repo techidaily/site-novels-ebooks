@@ -1,7 +1,7 @@
 ---
 title: Golden Elixir Chi Kung (2nd ed.) | Free Book
-date: 2024-10-23T04:05:41.300Z
-updated: 2024-10-27T01:33:36.004Z
+date: 2024-12-02T03:42:20.757Z
+updated: 2024-12-07T00:08:33.108Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3fd1ca969a26b7386d7afdede7e87b50cf182215bcbce2f69b93376267c3dace.jpg
@@ -180,3 +180,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3fd1ca969a26b7386d7afdede7e87b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209615494-9781788173506-angel-numbers/"><u>Angel Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209622550-9781473374270-clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616450-9781507211311-crystals-for-mom/"><u>Crystals for Mom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209613092-9781608685967-energy-speaks/"><u>Energy Speaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616476-9781616498047-find-your-light/"><u>Find Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209617649-9781439666302-michigans-haunted-lighthouses/"><u>Michigan's Haunted Lighthouses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616522-9781507211069-your-goddess-year/"><u>Your Goddess Year | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

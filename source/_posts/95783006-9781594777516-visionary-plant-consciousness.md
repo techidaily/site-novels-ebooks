@@ -1,7 +1,7 @@
 ---
 title: Visionary Plant Consciousness | Free Book
-date: 2024-10-23T04:05:39.335Z
-updated: 2024-10-27T03:08:33.895Z
+date: 2024-12-05T04:54:40.053Z
+updated: 2024-12-07T05:35:57.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/46f25f5064bb307682b618af2acb98f0705234578513db82032a5c836f5052b8.jpg
@@ -171,3 +171,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/46f25f5064bb307682b618af2acb98f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138594966-9781449741549-a-sinners-walk-with-god/"><u>A Sinner's Walk with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594843-9781449731236-a-womans-worth/"><u>A Woman's Worth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594905-9781452505305-reuniting-human-spirit-the-heros-journey/"><u>Reuniting Human & Spirit: the Hero’S Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594916-9781449730574-sexual-integrity-by-the-book/"><u>Sexual Integrity by the Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594877-9781462071746-the-way-forward/"><u>The Way Forward | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: El Calendario Maya y la Transformación de la Consciencia | Free Book
-date: 2024-10-20T05:21:33.945Z
-updated: 2024-10-26T19:01:18.985Z
+date: 2024-12-03T19:45:01.166Z
+updated: 2024-12-06T16:33:57.148Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72bc24fc9cd9f0d6b66decb3e7ab9c6f7ccd48267f9de3b2164357509c72f21a.jpg
@@ -179,3 +179,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72bc24fc9cd9f0d6b66decb3e7ab9c6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138569933-9781469768397-the-real-prophet-of-doomvol2/"><u> "The Real, Prophet, of Doom.Vol2(...!) " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569957-9781450202916-a-journey-into-the-soulful-garden/"><u>A Journey into the Soulful Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570070-9780595749652-angels-horizons-inspirational-words-from-heaven/"><u>Angel's Horizon's Inspirational Words from Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570036-9781450282314-from-chicago-to-spinoza/"><u>From Chicago to Spinoza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570028-9781450232142-the-awakening-of-intelligence-toward-a-new-psychology-of-being/"><u>The Awakening of Intelligence: Toward a New Psychology of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570061-9781450248693-the-masculine-heart/"><u>The Masculine Heart | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

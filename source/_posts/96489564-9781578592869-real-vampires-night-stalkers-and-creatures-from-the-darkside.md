@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-11-24T18:51:55.699Z
-updated: 2024-11-27T19:05:15.576Z
+date: 2024-12-02T18:40:17.503Z
+updated: 2024-12-06T16:46:47.110Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,13 +213,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782078-9781620551547-carnal-alchemy/"><u>Carnal Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782077-9781594775093-infinite-energy-technologies/"><u>Infinite Energy Technologies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782076-9781620550618-the-strong-eye-of-shamanism/"><u>The Strong Eye of Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782080-9781594777042-the-struggle-for-your-mind/"><u>The Struggle for Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983774-9781644110522-astrology-for-mystics/"><u>Astrology for Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983775-9781644111192-sacred-geometry-language-of-the-angels/"><u>Sacred Geometry: Language of the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983779-9781644111291-secrets-of-the-druids-2nd-ed/"><u>Secrets of the Druids (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983778-9781591433750-shamanic-mysteries-of-peru/"><u>Shamanic Mysteries of Peru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983484-9781734815504-standing/"><u>STANDING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983776-9781644110447-the-lost-pillars-of-enoch/"><u>The Lost Pillars of Enoch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983780-9781644111628-vibrational-sound-healing/"><u>Vibrational Sound Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983476-9781420967265-your-invisible-power/"><u>Your Invisible Power | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Frontiers of Psychedelic Consciousness | Free Book
-date: 2024-10-21T19:52:54.424Z
-updated: 2024-10-27T03:01:49.634Z
+date: 2024-11-30T17:11:26.998Z
+updated: 2024-12-06T21:52:46.593Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1e112be400d6fd37ee5647f5d1f08cab94bef20b3ade2ef52cf246784f338ad.jpg
@@ -184,3 +184,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1e112be400d6fd37ee5647f5d1f08c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138584078-9781462037124-beyond-cell-memory/"><u>Beyond Cell Memory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583970-9781449714352-compass-points-for-daily-living/"><u>Compass Points for Daily Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584007-9781462047666-dolphinity/"><u>Dolphinity: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583565-9781452532486-free-to-fly/"><u>Free to Fly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584093-9781452532981-from-fear-to-freedom/"><u>From Fear to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584366-9781452540627-post-cards-from-the-void/"><u>Post Cards from the Void | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584290-9781450286015-shadow-place/"><u>Shadow Place | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583978-9781462029372-so-what-do-you-think/"><u>So What Do You Think? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583900-9781491780893-tarot/"><u>Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

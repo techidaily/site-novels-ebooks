@@ -1,7 +1,7 @@
 ---
 title: Founding Fathers, Secret Societies (2nd ed.) | Free Book
-date: 2024-10-24T00:13:06.169Z
-updated: 2024-10-27T00:53:13.622Z
+date: 2024-11-30T01:54:49.578Z
+updated: 2024-12-07T04:43:58.087Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6b7438326478d5f397b6c688bc4f7f3ce486523cba57d7c4a6dc44e5ae852e3.jpg
@@ -177,3 +177,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6b7438326478d5f397b6c688bc4f7f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1729455-9781501100680-angeles-de-luz-divina-angels-of-divine-light-spanish-edition/"><u>Ángeles de Luz Divina (Angels of Divine Light Spanish edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1724714-9781476775746-angels-of-divine-light/"><u>Angels of Divine Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1725827-9780857011510-principles-of-eft-emotional-freedom-technique/"><u>Principles of EFT (Emotional Freedom Technique) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1726104-9781609257088-the-art-practice-of-creative-visualization/"><u>The Art & Practice of Creative Visualization | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1732132-9781885928252-the-key-to-the-true-kabbalah/"><u>The Key to the True Kabbalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1730675-9780600627883-the-shamanism-bible/"><u>The Shamanism Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1725062-9781466878631-the-truth-behind-men-in-black/"><u>The Truth Behind Men In Black | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1730837-9781609259181-the-witchs-eight-paths-of-power/"><u>The Witch's Eight Paths of Power | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

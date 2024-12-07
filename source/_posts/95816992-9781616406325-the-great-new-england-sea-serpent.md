@@ -1,7 +1,7 @@
 ---
 title: The Great New England Sea Serpent | Free Book
-date: 2024-10-25T23:49:43.082Z
-updated: 2024-10-27T00:53:40.768Z
+date: 2024-12-06T00:59:11.504Z
+updated: 2024-12-06T21:02:00.570Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2433f4900b423986dd8b68d6b85705ce7c35e3fd7153c70ea732aaa19998a4fe.jpg
@@ -141,3 +141,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2433f4900b423986dd8b68d6b85705c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/995239--el-sexto-sentido/"><u>El sexto sentido | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/995890-9781742754918-it-doesnt-have-to-be-so-hard-secrets-to-finding-keeping-intimacy/"><u>It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/995217--la-caja-de-pandora/"><u>La caja de pandora | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/995238--los-secretos-de-la-reencarnacion/"><u>Los secretos de la reencarnación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/995213-9781781604045-numerologia-sexo-y-amor/"><u>Numerología, sexo y amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/995221--paracelso-medico-alquimista/"><u>Paracelso, médico-alquimista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/995198--rituales-de-magia-blanca/"><u>Rituales de magia blanca | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Qigong Teachings of a Taoist Immortal | Free Book
-date: 2024-10-21T00:11:22.162Z
-updated: 2024-10-26T22:54:58.728Z
+date: 2024-12-06T03:52:32.685Z
+updated: 2024-12-06T17:20:22.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62c31fcdf34fdab72931c1b3d3d04a3ddd1007581b710d60b9c2a389f38b128b.jpg
@@ -174,3 +174,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62c31fcdf34fdab72931c1b3d3d04a3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138589625-9781452504933-commit-to-feel-good/"><u>Commit to Feel Good! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589718-9781491750162-further-journeys-with-a-shaman-warrior/"><u>Further Journeys with a Shaman Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589631-9781452540894-how-to-create-instant-magic-in-a-busy-life/"><u>How to Create Instant Magic in a Busy Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589548-9781449716103-my-joy-in-the-morning-rising-from-the-ashes/"><u>My Joy in the Morning: Rising from the Ashes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589639-9781452544076-stay-in-your-own-lane/"><u>Stay in Your Own Lane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589780-9781475957082-the-morning-echo/"><u>The Morning Echo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589835-9781452541556-we-are-mountains/"><u>We Are Mountains | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

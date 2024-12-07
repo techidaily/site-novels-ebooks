@@ -1,7 +1,7 @@
 ---
 title: LSD and the Divine Scientist | Free Book
-date: 2024-10-21T17:14:17.865Z
-updated: 2024-10-27T03:28:42.479Z
+date: 2024-12-05T00:44:13.057Z
+updated: 2024-12-06T19:23:10.135Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1990131060efae65bac6343795e33be0b31cfa9670bc18f9b7cc16c8ef7b60a.jpg
@@ -191,3 +191,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1990131060efae65bac6343795e33b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138544978-9781401928650-colors-numbers/"><u>Colors & Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544653-9781547547944-een-nacht-in-annwn/"><u>Een Nacht in Annwn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544964-9781401926687-spontaneous-evolution/"><u>Spontaneous Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544962-9781401924881-the-13th-step/"><u>The 13th Step | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

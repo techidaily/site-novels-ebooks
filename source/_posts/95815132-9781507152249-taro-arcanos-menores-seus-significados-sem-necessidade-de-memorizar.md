@@ -1,7 +1,7 @@
 ---
 title: Tarô Arcanos Menores, seus significados sem necessidade de memorizar | Free Book
-date: 2024-10-23T20:40:54.757Z
-updated: 2024-10-26T22:43:39.154Z
+date: 2024-11-30T00:53:18.736Z
+updated: 2024-12-07T06:41:09.083Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/402248116dfbfc51141ab63c17e31d346c8d2d8c1bbd0dc5f6dd5dd88a7e29e9.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/402248116dfbfc51141ab63c17e31d3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126982-9781612831848-how-to-pray-without-talking-to-god/"><u>How to Pray Without Talking to God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126987-9781612830001-im-spiritual-dammit/"><u>I'm Spiritual, Dammit! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127009-9781612831992-lessons-out-of-the-body/"><u>Lessons Out of the Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127003-9781612832777-the-journey-of-robert-monroe/"><u>The Journey of Robert Monroe | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

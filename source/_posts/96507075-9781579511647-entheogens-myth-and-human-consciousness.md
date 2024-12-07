@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-11-22T22:04:32.688Z
-updated: 2024-11-27T16:18:24.688Z
+date: 2024-12-05T22:10:16.626Z
+updated: 2024-12-07T00:46:45.864Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,17 +246,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/601386-9780307777331-ask-your-angels/"><u>Ask Your Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/599110-9781451629019-cell-level-healing/"><u>Cell-Level Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/599103-9781451634983-curese-naturaltmente/"><u>Curese Naturaltmente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/604516-9781101478165-its-up-to-you/"><u>It's Up to You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/606579-9781409005957-mind-and-movement/"><u>Mind And Movement | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/606580-9781409005995-the-instant-dream-book/"><u>The Instant Dream Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/599113-9781439181867-the-power/"><u>The Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/604517-9781101478196-think-your-troubles-away/"><u>Think Your Troubles Away | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840920-9780994369321-astrology/"><u>ASTROLOGY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840989-9780984002900-mary-magdalene-beckons/"><u>Mary Magdalene Beckons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840928-9781513602851-nikola-tesla-afterlife-comments-on-paraphysical-concepts-volume-one/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts, Volume One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841008-9780977512669-pranayama-the-breath-of-yoga/"><u>Pranayama the Breath of Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840981-9780984002931-sublime-union/"><u>Sublime Union | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840882-9780992433833-the-deeper-the-sorrow-the-stronger-the-spirit/"><u>The Deeper the Sorrow, The Stronger the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841167-9780994359315-where-the-light-lives/"><u>Where The Light Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841278-9788460679677-your-magnificent-self-a-journey-to-freedom/"><u>Your Magnificent Self... A Journey to Freedom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

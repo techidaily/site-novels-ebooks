@@ -1,7 +1,7 @@
 ---
 title: The Shadow That Seeks the Sun | Free Book
-date: 2024-10-21T01:36:21.742Z
-updated: 2024-10-26T16:20:27.327Z
+date: 2024-12-02T06:37:23.707Z
+updated: 2024-12-07T02:42:28.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a37b917534b310b475674091971928aa980df4345079b9836a75d0cedadff623.jpg
@@ -223,3 +223,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a37b917534b310b475674091971928a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125763-9781609253769-hermetic-magic/"><u>Hermetic Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125765-9781609252656-hex-and-spellwork/"><u>Hex and Spellwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125769-9781609250485-high-heeled-manners/"><u>High-Heeled Manners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125764-9781609255855-the-hermetic-museum/"><u>The Hermetic Museum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125768-9781609254582-the-hieroglyphic-monad/"><u>The Hieroglyphic Monad | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

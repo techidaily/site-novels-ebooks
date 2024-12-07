@@ -1,7 +1,7 @@
 ---
 title: Self-Healing with Breathwork | Free Book
-date: 2024-10-23T17:18:46.477Z
-updated: 2024-10-26T17:04:49.812Z
+date: 2024-12-04T00:41:16.889Z
+updated: 2024-12-06T19:39:49.295Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5e7dc52c0d12ace8664e4f98cec8286c004ef3562d69e5d1bab571b6b0b1ffa.jpg
@@ -176,3 +176,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5e7dc52c0d12ace8664e4f98cec828
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1424577-9781780284651-heal-your-spirit-heal-yourself/"><u>Heal Your Spirit, Heal Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424578-9781780284668-life-beyond-death/"><u>Life Beyond Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424579-9781780284675-make-your-own-angel-blessing-scrolls/"><u>Make Your Own Angel Blessing Scrolls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424581-9781780284743-peace-of-mind/"><u>Peace of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424583-9781780284781-so-you-want-to-be-psychic/"><u>So You Want to be Psychic? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424584-9781780284798-summoning-angels/"><u>Summoning Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424580-9781780284699-the-meditation-handbook/"><u>The Meditation Handbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The New Psychedelic Revolution | Free Book
-date: 2024-10-24T21:20:04.270Z
-updated: 2024-10-27T01:20:18.851Z
+date: 2024-12-04T19:23:36.543Z
+updated: 2024-12-07T07:20:13.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ad60e7074217e65d8633454fccaa2a32baac4a94c15c5f24de102bbb11164cc.jpg
@@ -183,3 +183,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ad60e7074217e65d8633454fccaa2a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138567668-9781450258210-authentic-insights/"><u>Authentic Insights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567583-9781617640384-el-infinito/"><u>El Infinito | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567766-9781469737799-fly-without-fear-or-stress/"><u>Fly Without Fear or Stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567677-9781491762011-how-to-unleash-the-supernatural-power-within-you/"><u>How to Unleash the Supernatural Power Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567641-9781452534121-its-a-metaphysical-world/"><u>It's a Metaphysical World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567765-9781469764887-journey-to-alternity/"><u>Journey to Alternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567693-9781462020768-seventy-meditation-lessons-from-my-universe/"><u>Seventy Meditation Lessons from My Universe | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

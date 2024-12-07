@@ -1,7 +1,7 @@
 ---
 title: Dialogues with My God Self | Free Book
-date: 2024-10-22T16:58:49.867Z
-updated: 2024-10-26T18:44:34.016Z
+date: 2024-12-02T16:01:51.332Z
+updated: 2024-12-06T20:34:36.936Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab0b647e131f889bd4baec5431a9d558d43c1f5a81335e57a36f374a92957af1.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab0b647e131f889bd4baec5431a9d55
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126176-9781609251857-the-white-magic-book/"><u>The White Magic Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126180-9781609254520-the-wicca-handbook/"><u>The Wicca Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126186-9781609255213-the-winged-bull/"><u>The Winged Bull | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126171-9781609254605-what-is-occultism/"><u>What Is Occultism? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126213-9781609251703-your-guardian-angel-and-you/"><u>Your Guardian Angel and You | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

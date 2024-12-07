@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2024-11-25T23:08:42.121Z
-updated: 2024-11-27T17:11:00.763Z
+date: 2024-11-30T17:24:29.036Z
+updated: 2024-12-07T06:37:43.341Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,15 +191,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95881463-9781786781550-a-course-in-mastering-alchemy/"><u>A Course in Mastering Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95881524-9781787131965-crystals/"><u>Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95885077-9781459742147-ghosts-of-niagara-on-the-lake-2nd-ed/"><u>Ghosts of Niagara-on-the-Lake (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95887576-9781507194522-quello-che-e-una-scorciatoia-all-altro-mondo/"><u>Quello che É - Una scorciatoia all' Altro Mondo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95882109-9781785355943-the-art-of-freedom/"><u>The Art of Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95884856-9780998688718-the-recognition-sutras/"><u>The Recognition Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170073-9781643346373-el-cazador-de-la-mente-subconsciente/"><u>El Cazador de la Mente Subconsciente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170088-9781643343822-el-exito-en-la-mirada-de-un-desconocido/"><u>El Éxito En La Mirada De Un Desconocido | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170094-9781643345338-gemas-de-motivacion/"><u>Gemas De Motivación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170096-9781643346205-reflexiones-sobre-la-naturaleza-y-el-universo/"><u>Reflexiones sobre la naturaleza y el universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210169466-9780834843370-the-diamond-approach/"><u>The Diamond Approach | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Anthropology and Psychic Research | Free Book
-date: 2024-10-23T23:44:45.713Z
-updated: 2024-10-27T05:30:02.896Z
+date: 2024-12-04T18:34:44.738Z
+updated: 2024-12-06T16:07:05.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d281ede0e14b9f7f72064e78332c3e089c5737b0e3a26e0715040030292e8e52.jpg
@@ -138,3 +138,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d281ede0e14b9f7f72064e78332c3e0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125948-9781609255121-a-pagan-ritual-prayer-book/"><u>A Pagan Ritual Prayer Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125952-9781609251376-people-who-dont-know-theyre-dead/"><u>People Who Don't Know They're Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125954-9781609252328-perils-of-the-soul/"><u>Perils of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125966-9781609256388-practice-of-magic/"><u>Practice of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125957-9781609254315-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key to the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125962-9781609257828-the-practical-psychic/"><u>The Practical Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125965-9781609256685-the-practice-of-classical-palmistry/"><u>The Practice of Classical Palmistry | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Metaphysical World of Isaac Newton | Free Book
-date: 2024-10-20T05:27:33.671Z
-updated: 2024-10-26T16:12:57.497Z
+date: 2024-12-02T22:27:55.076Z
+updated: 2024-12-07T01:54:29.704Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08eb6e2be6c87fbbbfb334998fdad4cb373d4effac7da5b5939b03e0901faba4.jpg
@@ -205,3 +205,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08eb6e2be6c87fbbbfb334998fdad4c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621176-9781601639288-a-wiccan-bible/"><u>A Wiccan Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621180-9781601639905-companion-for-the-apprentice-wizard/"><u>Companion for the Apprentice Wizard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621189-9781601637154-encyclopedia-of-the-undead/"><u>Encyclopedia of the Undead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621174-9781601637383-pleiadian-initiations-of-light/"><u>Pleiadian Initiations of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621167-9781601635105-remnants-of-the-gods/"><u>Remnants of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621193-9781601635907-spell-castings/"><u>Spell Castings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621185-9781601636430-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621190-9781601636867-twilight-of-the-gods/"><u>Twilight of the Gods | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

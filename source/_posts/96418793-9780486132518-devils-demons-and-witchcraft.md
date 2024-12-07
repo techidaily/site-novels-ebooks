@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2024-11-26T18:31:33.212Z
-updated: 2024-11-27T20:09:01.189Z
+date: 2024-11-30T00:55:54.909Z
+updated: 2024-12-07T01:44:31.218Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,14 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783080-9781594777974-entheogens-and-the-future-of-religion-2nd-ed/"><u>Entheogens and the Future of Religion (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783083-9781620556900-overtones-and-undercurrents/"><u>Overtones and Undercurrents | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783081-9781620552636-the-ayahuasca-experience-3rd-ed/"><u>The Ayahuasca Experience (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783078-9781594775024-the-psychedelic-future-of-the-mind/"><u>The Psychedelic Future of the Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783079-9781620555033-the-psychedelic-gospels/"><u>The Psychedelic Gospels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127780-9781761035470-desarrollo-de-las-habilidades-psiquicas/"><u>Desarrollo de las Habilidades Psíquicas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127374-9781789046373-how-to-lead-a-badass-business-from-your-heart/"><u>How to Lead a Badass Business From Your Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127709-9782824633855-les-secrets-du-voyage-astral/"><u>Les secrets du voyage astral | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127370-9781506460468-the-ancient-way-discoveries-on-the-path-of-celtic-christianity/"><u>The Ancient Way: Discoveries on the Path of Celtic Christianity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127799-9781087915005-to-hell-with-corona/"><u>TO HELL WITH CORONA | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

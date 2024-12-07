@@ -1,7 +1,7 @@
 ---
 title: Understanding Aleister Crowley's Thoth Tarot | Free Book
-date: 2024-10-24T16:00:41.069Z
-updated: 2024-10-26T23:47:34.649Z
+date: 2024-12-05T04:27:55.755Z
+updated: 2024-12-06T18:13:19.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e040460d6f20859742a48c1559673cb1386fe008d1e4109676ce1fb34c831e21.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e040460d6f20859742a48c1559673cb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317651-9781781804155-crystals-for-psychic-self-protection/"><u>Crystals for Psychic Self-Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317648-9781781805121-deliberate-receiving/"><u>Deliberate Receiving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317646-9781781803752-leo-moon-sign/"><u>Leo Moon Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317654-9781401950910-return-to-life/"><u>Return To Life | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

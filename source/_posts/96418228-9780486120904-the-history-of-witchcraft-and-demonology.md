@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2024-11-24T18:23:59.845Z
-updated: 2024-11-27T17:17:36.840Z
+date: 2024-12-04T21:18:36.783Z
+updated: 2024-12-07T03:41:23.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,15 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783034-9781594775154-global-awakening/"><u>Global Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783031-9781594775185-green-psychology/"><u>Green Psychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783037-9781594779671-morphic-resonance-4th-ed/"><u>Morphic Resonance (4th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783033-9781594779176-radical-nature-2nd-ed/"><u>Radical Nature (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783035-9781594778667-the-crack-in-the-cosmic-egg/"><u>The Crack in the Cosmic Egg | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783032-9781594778582-the-spiritual-life-of-water/"><u>The Spiritual Life of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123885-9781789046397-everything-you-never-learned-about-sex/"><u>Everything You Never Learned About Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123670-9780993911446-medicine-buddhamedicine-mind/"><u>Medicine Buddha/Medicine Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123887-9781789044331-medicine-of-the-imagination-dwelling-in-possibility/"><u>Medicine of the Imagination: Dwelling in Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123902-9781797200378-moon-bath/"><u>Moon Bath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210122951-9780648873945-my-heart-speaks/"><u>My Heart Speaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123412-9780744043044-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124120-9781475857238-teach-like-a-human/"><u>Teach Like a Human | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

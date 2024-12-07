@@ -1,7 +1,7 @@
 ---
 title: Crystal Healing for the Heart | Free Book
-date: 2024-10-22T17:23:09.856Z
-updated: 2024-10-26T22:42:25.904Z
+date: 2024-12-02T04:53:26.403Z
+updated: 2024-12-07T06:24:22.524Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e3569353588c3286653c8aab0f25fb73d8bfd6afc967e1fbc7c8038c4c5bd0b.jpg
@@ -197,3 +197,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e3569353588c3286653c8aab0f25fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1655470-9780349404608-colour-your-life/"><u>Colour Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1653600-9780857011619-daoist-meditation/"><u>Daoist Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650305-9781612833286-induced-after-death-communication/"><u>Induced After Death Communication | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1652055-9781476789750-outrageous-openness/"><u>Outrageous Openness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1652665-9781780282282-the-hiram-key-revisited/"><u>The Hiram Key Revisited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1656054-9781608829040-the-practicing-happiness-workbook/"><u>The Practicing Happiness Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1651771-9781609259532-the-theban-oracle/"><u>The Theban Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1655230-9780698171817-your-inner-will/"><u>Your Inner Will | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

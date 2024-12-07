@@ -1,7 +1,7 @@
 ---
 title: Mothman and Other Curious Encounters | Free Book
-date: 2024-10-22T22:22:26.164Z
-updated: 2024-10-26T16:07:37.760Z
+date: 2024-12-03T00:10:57.854Z
+updated: 2024-12-07T06:08:48.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4786e2623b183f6e5224ff8668db138253fa9b88870d0d388c00ff64fae950a.jpg
@@ -131,3 +131,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4786e2623b183f6e5224ff8668db13
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1207457-9781780994604-healing-divination/"><u>Healing Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1208898-9780759113138-hidden-circles-in-the-web/"><u>Hidden Circles in the Web | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207458-9781780999760-how-to-lavish-a-leo/"><u>How to Lavish a Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207463-9781782790037-new-reiki-software-for-divine-living/"><u>New Reiki Software for Divine Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1208905-9781609253073-psychic-abilities/"><u>Psychic Abilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1212512-9781250020864-return-to-life/"><u>Return to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1212602-9781583948095-sorcerers-apprentice/"><u>Sorcerer's Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1212604-9781583948149-the-passionate-mind-revisited/"><u>The Passionate Mind Revisited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207471-9781780991887-wild-earth-wild-soul/"><u>Wild Earth, Wild Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

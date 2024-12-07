@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2024-11-20T17:27:24.685Z
-updated: 2024-11-27T21:01:40.261Z
+date: 2024-12-03T21:05:41.989Z
+updated: 2024-12-06T19:44:15.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,16 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782776-9781594778490-advanced-chi-nei-tsang/"><u>Advanced Chi Nei Tsang | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782775-9781620553008-aspects-in-astrology/"><u>Aspects in Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782778-9781620553442-osogbo/"><u>Osogbo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782779-9781620555170-tao-tantric-arts-for-women/"><u>Tao Tantric Arts for Women | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782777-9781620550632-taoist-astrology/"><u>Taoist Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782774-9781620552841-the-five-dharma-types/"><u>The Five Dharma Types | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782773-9781620551363-the-future-of-human-experience/"><u>The Future of Human Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210113114-9782824634326-aux-frontieres-de-lesprit/"><u>Aux Frontières de L'Esprit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117955-9780892546893-far-from-this-land/"><u>Far From This Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210114047-9780593196984-guided-tarot/"><u>Guided Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210112798-9780648951940-little-bit/"><u>Little Bit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210112793-9781513663616-nikola-tesla-volume-five/"><u>Nikola Tesla: Volume Five | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210114276-9781642502893-prayers-for-healing/"><u>Prayers for Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210113864-9781787136700-the-mystical-year/"><u>The Mystical Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210113536-9781087909127-the-organized-mind/"><u>The Organized Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210113183-9781916099524-the-wonder-of-stillness-meditation-for-children-a-practical-guide-for-parents-and-teachers/"><u>The Wonder of Stillness, Meditation for Children, A Practical Guide for Parents and Teachers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

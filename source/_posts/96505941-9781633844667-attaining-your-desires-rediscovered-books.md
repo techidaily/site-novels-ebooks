@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-11-23T23:21:04.516Z
-updated: 2024-11-27T20:04:55.818Z
+date: 2024-12-04T03:57:26.213Z
+updated: 2024-12-06T16:37:17.195Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,15 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/447115-9781101133255-the-complete-idiots-guide-to-connecting-with-your-angels/"><u>The Complete Idiot's Guide to Connecting with Your Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447096-9781101126691-the-complete-idiots-guide-to-feng-shui-3rd-edition/"><u>The Complete Idiot's Guide to Feng Shui, 3rd Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/444290-9781442945562-the-history-of-spiritualism/"><u>The History of Spiritualism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447112-9781101108604-the-secret-doctrine/"><u>The Secret Doctrine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447146-9781101127384-the-witchs-magical-handbook/"><u>The Witch's Magical Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/445261-9780974470658-the-yamas-amp-niyamas/"><u>The Yamas &amp; Niyamas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780365-9781633411012-existential-kink/"><u>Existential Kink | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780350-9781633411784-futhark/"><u>Futhark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780357-9781633411630-lunar-alchemy/"><u>Lunar Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780352-9781633411265-orishas-goddesses-and-voodoo-queens/"><u>Orishas, Goddesses, and Voodoo Queens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780351-9781633411548-the-21-divisions/"><u>The 21 Divisions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780353-9781632657619-the-anunnaki-connection/"><u>The Anunnaki Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780355-9781633411340-the-handbook-of-yoruba-religious-concepts/"><u>The Handbook of Yoruba Religious Concepts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780364-9781633411814-the-herbal-alchemists-handbook/"><u>The Herbal Alchemist's Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

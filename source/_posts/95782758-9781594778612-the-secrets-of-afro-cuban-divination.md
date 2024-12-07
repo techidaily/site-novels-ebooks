@@ -1,7 +1,7 @@
 ---
 title: The Secrets of Afro-Cuban Divination | Free Book
-date: 2024-10-20T21:15:15.883Z
-updated: 2024-10-26T22:27:10.052Z
+date: 2024-12-04T01:37:45.526Z
+updated: 2024-12-06T22:38:30.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eceab856520f9f2a3ac85d2e5a553465a83129eb2386f8abb18271e10872aa40.jpg
@@ -182,3 +182,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eceab856520f9f2a3ac85d2e5a55346
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138620408-9781722520144-how-to-attract-good-luck-condensed-classics/"><u>How to Attract Good Luck (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620412-9781722520267-the-game-of-life-and-how-to-play-it-condensed-classics/"><u>The Game of Life And How to Play it (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620407-9781722520229-the-secret-of-the-ages-condensed-classics/"><u>The Secret of the Ages (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621060-9781601636126-the-synthesis-effect/"><u>The Synthesis Effect | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

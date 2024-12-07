@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-11-20T17:16:20.016Z
-updated: 2024-11-27T18:04:32.792Z
+date: 2024-12-03T05:34:51.072Z
+updated: 2024-12-07T02:11:57.281Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,15 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/458086-9780307573735-a-path-with-heart/"><u>A Path with Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/458077-9780307574329-barefoot-on-holy-ground/"><u>Barefoot on Holy Ground | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/454959-9781101144961-feng-shui-for-success/"><u>Feng Shui for Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/458001-9780307427564-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/451661-9781101136249-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/458076-9780307574343-where-two-worlds-touch-spiritual-rites-of-passage/"><u>Where Two Worlds Touch: Spiritual Rites of Passage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785236-9781786784087-a-short-history-of-nearly-everything-paranormal/"><u>A Short History of (Nearly) Everything Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785388-9780857838674-breathe-well/"><u>Breathe Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785768-9781439668092-creepy-florida/"><u>Creepy Florida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209783338-9781950584406-finding-god-in-ordinary-time/"><u>Finding God in Ordinary Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785767-9781439668054-haunts-of-the-white-city/"><u>Haunts of the White City | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209785244-9781788173940-surrender/"><u>Surrender | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209784545-9781524856854-the-little-book-of-forest-bathing/"><u>The Little Book of Forest Bathing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-11-23T21:23:23.718Z
-updated: 2024-11-27T22:26:26.408Z
+date: 2024-12-04T03:22:06.979Z
+updated: 2024-12-07T00:31:22.475Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,16 +169,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95795254-9781780995120-find-and-follow-your-inner-compass/"><u>Find and Follow Your Inner Compass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95801732-9781912023424-five-minutes-in-the-morning/"><u>Five Minutes in the Morning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95796401-9780762463565-lunar-abundance/"><u>Lunar Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95795255-9781785355745-pagan-portals-the-crane-bag/"><u>Pagan Portals: The Crane Bag | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95798447-9781351912839-parapsychology/"><u>Parapsychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95801744-9781912023257-walking-in-the-rain/"><u>Walking in the Rain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95801743-9781912023240-washing-up-is-good-for-you/"><u>Washing up is Good for you | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133159-9781591434016-alien-intelligence-and-the-pathway-to-mars/"><u>Alien Intelligence and the Pathway to Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133163-9781644110393-animal-spirit-wisdom/"><u>Animal Spirit Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133166-9781644112151-answering-the-call-of-the-elementals/"><u>Answering the Call of the Elementals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133168-9781644112090-crazy-wisdom-of-the-yogini/"><u>Crazy Wisdom of the Yogini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133160-9781620557204-introduction-to-magic-volume-iii/"><u>Introduction to Magic, Volume III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133164-9781644110799-mysteries-of-the-werewolf/"><u>Mysteries of the Werewolf | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133167-9781644111666-the-ancient-language-of-sacred-sound-2nd-ed/"><u>The Ancient Language of Sacred Sound (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133161-9781620559789-the-fall-of-spirituality/"><u>The Fall of Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133158-9781591434146-the-mystery-tradition-of-miraculous-conception/"><u>The Mystery Tradition of Miraculous Conception | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

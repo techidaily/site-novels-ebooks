@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-11-26T21:45:37.545Z
-updated: 2024-11-27T17:28:16.625Z
+date: 2024-12-04T16:14:32.728Z
+updated: 2024-12-07T06:40:06.112Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,18 +236,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95544023-9780834823044-a-theory-of-everything/"><u>A Theory of Everything | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95544070-9780834823600-chi/"><u>Chi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95544074-9780834823730-the-complete-book-of-chinese-health-and-healing/"><u>The Complete Book of Chinese Health and Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95543954-9780834822177-the-essential-ken-wilber/"><u>The Essential Ken Wilber | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95543958-9780834822221-the-eye-of-spirit/"><u>The Eye of Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95544152-9780834824676-the-light-of-discovery/"><u>The Light of Discovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95544014-9780834822931-the-simple-feeling-of-being/"><u>The Simple Feeling of Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95544215--the-unfolding-now/"><u>The Unfolding Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95544227-9780834825703-womens-qigong-for-health-and-longevity/"><u>Women's Qigong for Health and Longevity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881827-9780966374537-belief-therapy-volume-ii/"><u>Belief Therapy Volume II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881766-9781989638439-guided-meditations-for-deep-sleep-anxiety-and-developing-mindfulness/"><u>Guided Meditations for Deep Sleep, Anxiety and Developing Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881756-9781989638507-guided-meditations-for-deep-sleep-relaxation-and-overcoming-insomnia/"><u>Guided Meditations For Deep Sleep, Relaxation, And Overcoming Insomnia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881759-9781989638453-guided-meditations-for-sleep-overcoming-anxiety-and-mindfulness/"><u>Guided Meditations for Sleep, Overcoming Anxiety and Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881804-9781734069952-spiritual-practicality/"><u>Spiritual Practicality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881840-9781734105810-your-secret-operator/"><u>Your Secret Operator | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

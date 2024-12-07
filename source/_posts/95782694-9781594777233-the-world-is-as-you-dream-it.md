@@ -1,7 +1,7 @@
 ---
 title: The World Is As You Dream It | Free Book
-date: 2024-10-21T04:02:54.853Z
-updated: 2024-10-26T20:02:30.959Z
+date: 2024-12-06T06:37:33.734Z
+updated: 2024-12-06T22:32:51.861Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1deebf79eaf6ccfa667619fdecfb114960a155edb18710b7dee0ddd9c4e01b73.jpg
@@ -183,3 +183,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1deebf79eaf6ccfa667619fdecfb114
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/185866-9781595470621-a-work-of-saturn/"><u>A Work of Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865611-9780983346647-brigit/"><u>Brigit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865622-9781782797647-carry-the-rock/"><u>Carry the Rock | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1863937-9781476617947-evidence-for-psi/"><u>Evidence for Psi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1840239-9780698401617-looking-at-mindfulness/"><u>Looking at Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1839869-9781459730922-mysteries-and-secrets-the-16-book-complete-codex/"><u>Mysteries and Secrets: The 16-Book Complete Codex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/186036-9781595470669-the-golden-chain-of-homer/"><u>The Golden Chain of Homer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/184065-9781595470034-the-realness-of-witchcraft-in-america/"><u>The Realness of Witchcraft in America | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

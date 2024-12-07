@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Way of the Bee (2nd ed.) | Free Book
-date: 2024-10-21T00:10:29.832Z
-updated: 2024-10-26T21:08:43.079Z
+date: 2024-12-01T02:15:52.507Z
+updated: 2024-12-06T22:36:55.345Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aeb55c1855791abb3001e6e01487acf10ba59e78a00f1cc33845d5ed1ab8b7a3.jpg
@@ -188,3 +188,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aeb55c1855791abb3001e6e01487acf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209518627-9781620558195-mindapps/"><u>Mindapps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518629-9781620558843-sex-and-the-enneagram/"><u>Sex and the Enneagram | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519670-9781788887021-the-book-of-fortune-telling/"><u>The Book of Fortune Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519672-9781789502893-the-complete-book-of-ghosts/"><u>The Complete Book of Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518625-9781620559031-working-with-chakras-for-belief-change/"><u>Working with Chakras for Belief Change | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

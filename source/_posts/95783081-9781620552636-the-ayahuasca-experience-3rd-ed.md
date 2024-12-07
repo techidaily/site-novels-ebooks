@@ -1,7 +1,7 @@
 ---
 title: The Ayahuasca Experience (3rd ed.) | Free Book
-date: 2024-10-23T18:13:15.208Z
-updated: 2024-10-26T18:49:46.689Z
+date: 2024-12-03T17:58:07.317Z
+updated: 2024-12-07T01:32:14.916Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4dc28c065e43220ac6c40f9137e190756fd4149fe986e0d0720140edbd9f7d44.jpg
@@ -201,3 +201,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4dc28c065e43220ac6c40f9137e1907
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1384930-9781101660867-dare-to-be-great/"><u>Dare to Be Great! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138522737-9781462919109-lost-tarot-of-nostradamus-ebook/"><u>Lost Tarot of Nostradamus Ebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1378909-9781461741473-midnight-in-new-england/"><u>Midnight in New England | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543628-9781528783569-raphaels-horary-astrology-by-which-every-question-relating-to-the-future-may-be-answered/"><u>Raphael's Horary Astrology by which Every Question Relating to the Future May Be Answered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543384-9781633535367-rituals-for-magic-and-meaning/"><u>Rituals for Magic and Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138522742-9781462919086-steampunk-tarot-ebook/"><u>Steampunk Tarot Ebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138522725-9781462914876-tao-of-birth-days/"><u>Tao of Birth Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543674-9781528783118-zetetic-astronomy-earth-not-a-globe-an-experimental-inquiry-into-the-true-figure-of-the-earth-proving-it-a-plane-without-axial-or-orbital-motion-and-the-only-ma/"><u>Zetetic Astronomy - Earth Not a Globe! An Experimental Inquiry into the True Figure of the Earth: Proving it a Plane, Without Axial or Orbital Motion; and the Only Material World in the Universe! | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

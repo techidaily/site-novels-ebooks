@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2024-11-21T21:53:33.839Z
-updated: 2024-11-27T17:09:07.893Z
+date: 2024-12-05T05:43:39.922Z
+updated: 2024-12-06T23:52:44.536Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,14 +249,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/409405-9781440685439-a-message-to-garcia/"><u>A Message to Garcia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/411794-9781440696244-empowering-your-life-with-angels/"><u>Empowering Your Life with Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/410847-9781416959298-most-good-least-harm/"><u>Most Good, Least Harm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/412076-9781440695810-the-complete-idiots-guide-to-celtic-wisdom/"><u>The Complete Idiot's Guide to Celtic Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/410841-9781439155134-the-power-of-soul/"><u>The Power of Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209766152-9781465498182-a-little-book-of-self-care-breathwork/"><u>A Little Book of Self Care: Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209758045-9780917849800-chronicles-of-religious-science-volume-ii-1960-2012/"><u>Chronicles of Religious Science, Volume II, 1960-2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209764174-9781789040555-coherent-self-coherent-world/"><u>Coherent Self, Coherent World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209760161-9781119643135-feng-shui-for-dummies-2nd-ed/"><u>Feng Shui For Dummies (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209766654-9781493043699-ghost-writers/"><u>Ghost Writers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209764170-9781789042078-hoodoo-in-the-psalms/"><u>Hoodoo in the Psalms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209758588-9781401958053-no-endings-only-beginnings/"><u>No Endings, Only Beginnings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209769974-9780593086568-reading-the-leaves/"><u>Reading the Leaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209762183-9781632658081-witchs-master-grimoire/"><u>Witch's Master Grimoire | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

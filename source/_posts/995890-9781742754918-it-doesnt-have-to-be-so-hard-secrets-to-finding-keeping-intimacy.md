@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-11-26T16:09:03.618Z
-updated: 2024-11-27T18:18:18.552Z
+date: 2024-11-30T04:54:40.821Z
+updated: 2024-12-06T16:52:27.874Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,14 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/266709-9780307419958-boundless-energy/"><u>Boundless Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2667973-9781501158698-golden/"><u>Golden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2669773-9781780993355-the-divine-human/"><u>The Divine Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/266711-9780307381606-the-power-of-purpose/"><u>The Power of Purpose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2668037-9780007388394-understanding-dreams-what-they-are-and-how-to-interpret-them/"><u>Understanding Dreams: What they are and how to interpret them | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650576-9780757319051-becoming-a-sage/"><u>Becoming a Sage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650601-9780757318856-connecting-with-coincidence/"><u>Connecting with Coincidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652300-9781912807086-earth-divination-earth-magic/"><u>Earth Divination, Earth Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652345-9781493040841-haunted-ohio-2nd-ed/"><u>Haunted Ohio (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209653739-9781722522315-magic-of-faith/"><u>Magic of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652338-9781493040780-spooky-california-2nd-ed/"><u>Spooky California (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652346-9781493040803-spooky-new-york-tales-of-hauntings-strange-happenings-and-other-local-lore-2nd-ed/"><u>Spooky New York: Tales Of Hauntings, Strange Happenings, And Other Local Lore (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649841-9780757391873-the-medium-next-door/"><u>The Medium Next Door | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650525-9780757397448-the-secrets-and-mysteries-of-hawaii/"><u>The Secrets and Mysteries of Hawaii | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

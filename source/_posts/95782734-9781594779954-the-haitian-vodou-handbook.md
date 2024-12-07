@@ -1,7 +1,7 @@
 ---
 title: The Haitian Vodou Handbook | Free Book
-date: 2024-10-25T18:28:53.776Z
-updated: 2024-10-27T03:36:10.456Z
+date: 2024-12-04T17:55:52.081Z
+updated: 2024-12-07T01:31:36.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/619bcb7995259bef0bf6eb863018f9ff7f198b771d6b494825f52852f9e8ce9c.jpg
@@ -177,3 +177,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/619bcb7995259bef0bf6eb863018f9f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1627866-9781444141306-encounters-with-vampires-flash/"><u>Encounters with Vampires: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627938-9781444140941-find-peace-with-meditation-flash/"><u>Find Peace with Meditation: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627863-9781444141146-first-steps-in-witchcraft-flash/"><u>First Steps in Witchcraft: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627785-9781444141283-revitalize-your-life-with-feng-shui-flash/"><u>Revitalize Your Life with Feng Shui: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628023-9781444717167-the-tibetan-art-of-living/"><u>The Tibetan Art of Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627867-9781444141313-wicca-druidry-and-shamanism-flash/"><u>Wicca, Druidry and Shamanism: Flash | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

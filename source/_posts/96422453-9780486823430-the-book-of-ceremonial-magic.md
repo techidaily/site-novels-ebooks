@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2024-11-20T17:54:44.416Z
-updated: 2024-11-27T20:03:03.284Z
+date: 2024-12-02T01:47:00.081Z
+updated: 2024-12-07T02:39:35.886Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,14 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95793115-9781101993750-fear-less/"><u>Fear Less | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95794192-9781493027972-spooky-new-england-2nd-ed/"><u>Spooky New England (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95794193-9781493027989-spooky-new-jersey-2nd-ed/"><u>Spooky New Jersey (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95792943-9781449470456-you-will-go-far/"><u>You Will Go Far | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95793949-9786171230545-rokovye-prorochestva-i-znaki-sudby-rokovye-prorochestva-i-znaki-sudby/"><u>Роковые пророчества и знаки судьбы (Rokovye prorochestva i znaki sud'by) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133156-9781591434122-animal-medicine/"><u>Animal Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133157-9781591434061-beyond-the-flower-of-life-2nd-ed/"><u>Beyond the Flower of Life (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133155-9781591434283-first-nations-crystal-healing/"><u>First Nations Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133152-9781591433927-ghosts-of-atlantis/"><u>Ghosts of Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132702-9781953791115-i-sing-my-psalm/"><u>I Sing My Psalm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133151-9781591433699-revelations-of-the-watchers/"><u>Revelations of the Watchers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132746-9781618521293-the-chelas-handbook/"><u>The Chela's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133153-9781591434030-the-great-pyramid-void-enigma/"><u>The Great Pyramid Void Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132697-9788792633644-what-is-not/"><u>What is Not | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Secret Teachings of the Tao Te Ching | Free Book
-date: 2024-10-22T23:58:56.746Z
-updated: 2024-10-27T03:05:09.316Z
+date: 2024-12-02T20:18:42.749Z
+updated: 2024-12-07T03:54:20.811Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a6d8e6d840d2a4f9ae2413c838cd666759c5d5e85ceb02bf8b433add5e1c8de.jpg
@@ -185,3 +185,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a6d8e6d840d2a4f9ae2413c838cd66
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138620403-9781722520120-how-to-attract-money-condensed-classics/"><u>How to Attract Money (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620397-9781722520243-the-power-of-your-subconscious-mind-condensed-classics/"><u>The Power of Your Subconscious Mind (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620393-9781722520939-the-solution/"><u>The Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620395-9781722520748-the-very-simple-law-of-attraction/"><u>The Very Simple Law of Attraction | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

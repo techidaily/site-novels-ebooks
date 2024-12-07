@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2024-11-24T19:54:50.247Z
-updated: 2024-11-27T16:15:12.779Z
+date: 2024-12-05T21:52:20.516Z
+updated: 2024-12-06T21:01:24.294Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,18 +145,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/617406-9780875868189-aliens-and-man/"><u>Aliens and Man? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/617031-9781451620979-el-poder/"><u>El Poder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/617474-9781849892445-horoscopes-your-future-in-2011/"><u>Horoscopes - Your Future In 2011 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/620290-9780307785879-hunab-ku/"><u>Hunab Ku | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/619923-9781101154076-rudolf-steiner/"><u>Rudolf Steiner | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/617475-9781849892421-tell-your-own-future/"><u>Tell Your Own Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/616639-9781770704565-the-big-book-of-mysteries/"><u>The Big Book of Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/616665-9781770704572-the-big-book-of-ufos/"><u>The Big Book of UFOs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/620315-9780307784322-this-is-it/"><u>This Is It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845687-9781936470679-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845730-9780996776028-easy-tarot/"><u>Easy Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845682-9781936470471-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845677-9781936470495-gratitude/"><u>Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845635-9781946088130-women-of-spirit/"><u>Women of Spirit | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

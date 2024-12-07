@@ -1,7 +1,7 @@
 ---
 title: Teachings of the Santería Gods | Free Book
-date: 2024-10-24T18:40:35.977Z
-updated: 2024-10-26T16:02:29.863Z
+date: 2024-11-30T00:30:53.902Z
+updated: 2024-12-06T19:19:39.671Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0a6a701c8b039302a8807e02bd6b9aa174079f3c389abd5750c832fa3f7328d.jpg
@@ -186,3 +186,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0a6a701c8b039302a8807e02bd6b9a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1638137-9781780282251-before-the-pyramids/"><u>Before the Pyramids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1638138-9781780282275-civilization-one/"><u>Civilization One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1640621-9780698153837-i-ching/"><u>I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1639365-9781317712763-psychotherapy-with-gay-men-and-lesbians/"><u>Psychotherapy with Gay Men and Lesbians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1640694-9780698176218-the-energies-of-love/"><u>The Energies of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1638139-9781780282299-who-built-the-moon/"><u>Who Built the Moon? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

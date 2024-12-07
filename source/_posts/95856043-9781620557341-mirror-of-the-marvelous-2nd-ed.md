@@ -1,7 +1,7 @@
 ---
 title: Mirror of the Marvelous (2nd ed.) | Free Book
-date: 2024-10-21T00:13:58.340Z
-updated: 2024-10-26T17:28:06.200Z
+date: 2024-11-29T19:04:28.760Z
+updated: 2024-12-06T19:18:40.994Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14eae5ba5863ef66d2241bcfd4bfa4b61571a2f9c40b27c0abad58d5a4631db7.jpg
@@ -196,3 +196,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14eae5ba5863ef66d2241bcfd4bfa4b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96333001-9781561646388-ancient-city-hauntings/"><u>Ancient City Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96334578-9781401957018-channeled-messages-from-deep-space/"><u>Channeled Messages from Deep Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96331024-9780824861858-chinese-healing-exercises/"><u>Chinese Healing Exercises | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96332995-9781561646326-florida-ghost-stories/"><u>Florida Ghost Stories | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Seven Archetypal Stones | Free Book
-date: 2024-10-25T01:42:54.959Z
-updated: 2024-10-26T16:42:31.402Z
+date: 2024-12-02T23:09:08.325Z
+updated: 2024-12-06T21:57:28.755Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a4680dfb9c2bc4b434aa65851f8c3a475d80413eeed50480ac6e9d77cd2121e.jpg
@@ -194,3 +194,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a4680dfb9c2bc4b434aa65851f8c3a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209514897-9782824631004-ce-que-les-defunts-me-disent/"><u>Ce que les défunts me disent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516540-9781632659613-eternal-dharma/"><u>Eternal Dharma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515671-9781401933418-facing-lifes-challenges/"><u>Facing Life's Challenges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515004-9781625848000-ghosts-of-the-queen-mary/"><u>Ghosts of the Queen Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515647-9780399591600-signs/"><u>Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516543-9781632659330-the-lost-history-of-ancient-america/"><u>The Lost History of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516541-9781632659576-the-pleiadian-promise/"><u>The Pleiadian Promise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209513554-9781612834368-unlock-the-zodiac/"><u>Unlock the Zodiac | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

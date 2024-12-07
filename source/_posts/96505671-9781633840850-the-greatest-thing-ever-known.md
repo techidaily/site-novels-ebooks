@@ -1,7 +1,7 @@
 ---
 title: The Greatest Thing Ever Known | Free Book
-date: 2024-11-23T23:04:35.148Z
-updated: 2024-11-27T16:43:39.988Z
+date: 2024-12-06T04:11:33.511Z
+updated: 2024-12-07T05:17:15.883Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20557559b5de132635d0bef62652ecc90843768cf66e6544630bc45f313fe32b.jpg
@@ -133,18 +133,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20557559b5de132635d0bef62652ecc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/710017-9781446489024-a-handbook-of-angels/"><u>A Handbook Of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/692733-9781583944233-cosmic-weather-report/"><u>Cosmic Weather Report | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/711457-9781429991995-courage/"><u>Courage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/712706-9781451663020-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/692861--sixth-sense/"><u>Sixth Sense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/709442-9781458700803-tea-and-ceremony/"><u>Tea and Ceremony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/710048-9781446489048-the-pendulum-book/"><u>The Pendulum Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/714286-9781101543504-the-source-field-investigations/"><u>The Source Field Investigations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/714271-9781101477762-ufos-in-wartime/"><u>UFOs in Wartime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859813-9789387669468-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859810-9789387669475-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859814-9781911134336-the-quareia-apprentice-study-guide/"><u>The Quareia Apprentice Study Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859816-9789387669482-the-seven-laws-of-teaching/"><u>The Seven Laws of Teaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860012-9781732030008-unbox-yourself/"><u>Unbox Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859932-9781732044715-your-return-to-freedom/"><u>Your Return to Freedom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

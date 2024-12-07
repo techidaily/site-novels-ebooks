@@ -1,7 +1,7 @@
 ---
 title: Out-of-the-Body Experiences | Free Book
-date: 2024-10-24T19:19:28.810Z
-updated: 2024-10-27T03:27:32.550Z
+date: 2024-12-02T03:15:52.415Z
+updated: 2024-12-06T17:04:42.025Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dcd8df946d7505bce7df5ba513c98565b033feab271319716c70f127086fd83e.jpg
@@ -134,3 +134,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dcd8df946d7505bce7df5ba513c9856
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1078463-9781780993560-a-healer-of-souls/"><u>A Healer of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1078456-9781780994543-attributes-of-mastery/"><u>Attributes of Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1078464-9781780996141-how-to-love-a-libra/"><u>How to Love a Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1078465-9781780994642-lets-talk-about-pagan-festivals/"><u>Let's Talk About Pagan Festivals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1079187-9781420924350-malleus-maleficarum/"><u>Malleus Maleficarum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1078466-9781780993645-nine-lives/"><u>Nine Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1078468-9781846949685-soul-to-soul-connections/"><u>Soul to Soul Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1079321-9781420935387-the-art-and-science-of-personal-magnetism/"><u>The Art and Science of Personal Magnetism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

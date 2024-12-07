@@ -1,7 +1,7 @@
 ---
 title: Paranormal and Transcendental Experience | Free Book
-date: 2024-11-21T16:43:42.777Z
-updated: 2024-11-27T19:49:36.313Z
+date: 2024-12-03T05:02:15.698Z
+updated: 2024-12-06T21:35:54.628Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858be456feab2af71507ceb8cba5237ffe9a.jpg
@@ -138,17 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783093-9781620556436-into-the-mystic/"><u>Into the Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783085-9781620551400-lsd-and-the-divine-scientist/"><u>LSD and the Divine Scientist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783090-9781620553671-magic-mushroom-explorer/"><u>Magic Mushroom Explorer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783088-9781620554623-teachings-of-the-peyote-shamans/"><u>Teachings of the Peyote Shamans | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783100-9781620551424-the-new-science-of-psychedelics/"><u>The New Science of Psychedelics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783098-9781594778711-the-prophets-way/"><u>The Prophet's Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783094-9781594779374-the-psilocybin-solution/"><u>The Psilocybin Solution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783097-9781594779367-the-psychedelic-explorers-guide/"><u>The Psychedelic Explorer's Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210128582-9781401962951-african-goddess-initiation/"><u>African Goddess Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127817-9781735539355-breathing-with-orisha/"><u>Breathing With Orisha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129042-9781420970159-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210128301-9780691221991-doctor-illuminatus/"><u>Doctor Illuminatus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129044-9781420970791-in-tune-with-the-infinite/"><u>In Tune with the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129031-9781420970814-the-edinburgh-lectures-on-mental-science/"><u>The Edinburgh Lectures on Mental Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129000-9781420970319-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

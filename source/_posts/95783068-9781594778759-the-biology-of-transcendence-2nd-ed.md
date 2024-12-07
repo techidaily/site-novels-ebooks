@@ -1,7 +1,7 @@
 ---
 title: The Biology of Transcendence (2nd ed.) | Free Book
-date: 2024-10-20T02:12:50.822Z
-updated: 2024-10-26T18:03:18.750Z
+date: 2024-11-30T00:09:45.934Z
+updated: 2024-12-07T03:39:28.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b168535f3fb08c0942a12f5239783ab8a802cc753b4b95325cdc2e6e5457f8d.jpg
@@ -191,3 +191,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b168535f3fb08c0942a12f5239783a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138585921-9781450282017-divagating-through-the-tarot/"><u>Divagating Through the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585086-9781452538716-journey-with-gwen/"><u>Journey with Gwen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585813-9781462020249-life-is-too-short/"><u>Life Is Too Short | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584808-9781462033850-psychic-beauty-energy-cords-psychic-exercises/"><u>Psychic Beauty ~ Energy Cords & Psychic Exercises ~ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585305-9781475940237-the-acts-of-creation/"><u>The Acts of Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585853-9781462004799-the-pathway-beyond/"><u>The Pathway Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584409-9781450294010-tribute-to-a-common-man/"><u>Tribute to a Common Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584552-9781449743642-your-destiny-and-your-palace/"><u>Your Destiny and Your Palace | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

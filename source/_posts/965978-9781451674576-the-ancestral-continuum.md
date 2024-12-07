@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2024-11-24T20:01:23.383Z
-updated: 2024-11-27T21:59:54.470Z
+date: 2024-12-01T18:37:05.374Z
+updated: 2024-12-07T05:09:34.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,18 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/339947-9780743253710-astrostyle/"><u>Astrostyle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339707-9780307414755-christmas-conversation-piece/"><u>Christmas Conversation Piece | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/334057--dearly-departed/"><u>Dearly Departed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339630-9780307415202-everyday-karma/"><u>Everyday Karma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339623-9780307415417-have-you-ever/"><u>Have You Ever... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339612-9780307415615-if-volume-1/"><u>If..., Volume 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339615-9780307415646-if-volume-4/"><u>If..., Volume 4 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339580-9780307415707-intuitive-astrology/"><u>Intuitive Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339906-9781416568032-the-circles/"><u>The Circles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699318-9781547583980-ansiedade-liberte-se-da-ansiedade-e-da-depressao/"><u>Ansiedade : Liberte-se Da Ansiedade E Da Depressão | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699287-9781634242523-black-jack/"><u>Black Jack | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209696572-9781452179902-dangerous-games-to-play-in-the-dark/"><u>Dangerous Games to Play in the Dark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209695080-9780857719812-englands-first-demonologist/"><u>England's First Demonologist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699340-9781547584598-meditacao-como-meditar-guia-para-iniciantes-para-aumentar-a-energia-live-without-stress/"><u>Meditação : Como Meditar Guia Para Iniciantes Para Aumentar A Energia (Live Without Stress) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699338-9781547586714-meditacao-como-alcancar-a-paz-interior-e-encontrar-a-felicidade-real/"><u>Meditação: Como Alcançar A Paz Interior E Encontrar A Felicidade Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699329-9781547584949-meditacao-guia-de-iniciantes-para-alcancar-o-estado-zen-e-se-livrar-do-stress/"><u>Meditação: Guia De Iniciantes Para Alcançar O Estado Zen E Se Livrar Do Stress | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

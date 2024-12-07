@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2024-11-20T22:08:50.810Z
-updated: 2024-11-27T19:46:52.964Z
+date: 2024-11-30T19:42:31.607Z
+updated: 2024-12-06T23:19:54.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -189,18 +189,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95833766-9781938289651-awaken-your-inner-fire/"><u>Awaken Your Inner Fire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841423-9781683253723-las-cartas-adivinatorias-de-los-indios-de-america/"><u>Las cartas adivinatorias de los indios de América | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95836300-9781946764034-long-weekend/"><u>Long Weekend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95834602-9781507163726-pactes-damour-la-verite-sacree-des-ames-jumelles/"><u>Pactes D'Amour - La Vérité Sacrée des Âmes Jumelles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95834641-9781507148259-pactos-de-amor-a-verdade-sagrada-das-chamas-gemeas/"><u>Pactos de Amor - A Verdade Sagrada das Chamas Gêmeas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95834629-9781507152232-pacts-of-love-the-sacred-truth-of-the-twin-flames/"><u>Pacts of Love - The Sacred Truth of the Twin Flames | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95834637-9781507169490-patti-damore/"><u>Patti d'amore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95840466-9781787206700-the-royal-secret/"><u>The Royal Secret | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95836291-9781556439520-your-souls-plan/"><u>Your Soul's Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210162791-9781684564170-a-clarion-call-to-compassion/"><u>A Clarion Call to Compassion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163142-9781646283767-be-not-a-seeker/"><u>Be Not a Seeker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163162-9781640270527-dedicated-to-all/"><u>Dedicated to All | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163370-9781635683011-roots-to-wings/"><u>Roots to Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210162653-9781642981490-the-gift-of-finding-gods-love/"><u>The Gift of Finding God's Love | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Advanced Spiritual Intimacy (3rd ed.) | Free Book
-date: 2024-10-19T22:05:18.870Z
-updated: 2024-10-26T21:45:39.147Z
+date: 2024-12-03T06:31:40.183Z
+updated: 2024-12-07T00:14:59.702Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/043781430424cfbcbeb54e0921ef6d30904cf669cc346907787a947392a1eebd.jpg
@@ -193,3 +193,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/043781430424cfbcbeb54e0921ef6d3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1624924-9780733630323-best-ever-baby-tips/"><u>Best Ever Baby Tips | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625556-9781444743784-calm-the-soul-a-book-of-simple-wisdom-and-prayer/"><u>Calm the Soul: A Book of Simple Wisdom and Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1624390-9781405522021-good-medicine/"><u>Good Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1624936-9781444190212-how-to-interpret-dreams-teach-yourself/"><u>How to Interpret Dreams: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1619817-9781780996912-meditation-in-the-wild/"><u>Meditation in the Wild | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1624939-9781444181739-peacefulness-teach-yourself/"><u>Peacefulness: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625227-9780733628924-silence-your-mind/"><u>Silence Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625157-9781444777543-touched-by-evil/"><u>Touched by Evil | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Роковые пророчества и знаки судьбы (Rokovye prorochestva i znaki sud'by) | Free Book
-date: 2024-10-26T00:13:13.827Z
-updated: 2024-10-27T00:06:27.484Z
+date: 2024-12-04T21:29:00.780Z
+updated: 2024-12-06T19:01:54.109Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d86a76337a3dbaa78c88f13ecbad567ce2f87d5d80c66ef0fec4008584bdeb8.jpg
@@ -169,3 +169,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d86a76337a3dbaa78c88f13ecbad56
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1138133-9780892545629-asteroid-goddesses/"><u>Asteroid Goddesses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138136-9780892545674-jung-and-the-alchemical-imagination/"><u>Jung and the Alchemical Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138134-9780892545711-the-astrology-of-self-discovery/"><u>The Astrology of Self-Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138141-9781609259242-the-chemical-wedding-of-christian-rosenkreutz/"><u>The Chemical Wedding of Christian Rosenkreutz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138202-9780988178724-the-universe-speaks-a-heavenly-dialogue-book-two/"><u>The Universe Speaks a Heavenly Dialogue, Book Two | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

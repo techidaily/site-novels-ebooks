@@ -1,7 +1,7 @@
 ---
 title: Psychic Research and Modern Physics | Free Book
-date: 2024-10-25T16:08:45.797Z
-updated: 2024-10-26T20:58:19.356Z
+date: 2024-12-04T19:29:30.953Z
+updated: 2024-12-07T04:00:47.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e1bec3890204e8723513ea26b1f00d000b635c64d85f5026f310f2cbed3b3f5.jpg
@@ -136,3 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e1bec3890204e8723513ea26b1f00d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126150-9781609256296-the-way-of-the-oracle/"><u>The Way of the Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126167-9781609251673-the-weiser-fields-guide-to-ascension/"><u>The Weiser Fields Guide to Ascension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126152-9781609250799-we-are-not-alone/"><u>We Are Not Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126156-9781609256142-weird-ways-of-witchcraft/"><u>Weird Ways of Witchcraft | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

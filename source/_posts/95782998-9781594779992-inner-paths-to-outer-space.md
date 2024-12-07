@@ -1,7 +1,7 @@
 ---
 title: Inner Paths to Outer Space | Free Book
-date: 2024-10-21T20:55:02.795Z
-updated: 2024-10-27T04:00:12.269Z
+date: 2024-12-04T05:06:23.503Z
+updated: 2024-12-06T20:59:11.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ef4859d3b9b9ba61b16a3aab3814b1ba27a7b209b00a6285e1672239ec7b80db.jpg
@@ -193,3 +193,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ef4859d3b9b9ba61b16a3aab3814b1b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138593562-9781452551593-believing-and-knowing/"><u>Believing and Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593559-9781462022168-chemo-plan-your-day/"><u>C.H.E.M.O. Plan Your Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593560-9781449733650-coffee-with-jesus/"><u>Coffee with Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593228-9781449743178-diamond-in-the-sky/"><u>Diamond in the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593561-9781462042142-homers-son/"><u>Homer’S Son | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593600-9781452534831-let-your-dreams-be-your-doctor/"><u>Let Your Dreams Be Your Doctor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593071-9781452544489-messages-from-within/"><u>Messages from Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593140-9781449736859-the-little-things/"><u>The Little Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593066-9781452518152-transformission/"><u>Transformission | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

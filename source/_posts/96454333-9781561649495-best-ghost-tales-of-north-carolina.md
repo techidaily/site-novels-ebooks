@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2024-11-24T22:48:37.609Z
-updated: 2024-11-27T16:06:50.908Z
+date: 2024-11-29T16:29:44.912Z
+updated: 2024-12-06T22:29:13.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,15 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95812447-9781616406387-a-souls-journey/"><u>A Soul's Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812579-9781944529222-apparitions-hauntings-and-poltergeists/"><u>Apparitions, Hauntings, and Poltergeists | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812551-9781507152256-astrologia-preditiva-estudo-dos-acontecimentos/"><u>Astrologia preditiva - Estudo dos acontecimentos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812433-9781507151204-come-meditare-le-migliori-8-meditazioni-per-ridurre-lo-stress/"><u>Come meditare: Le migliori 8 meditazioni per ridurre lo stress | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812999-9781944529284-psychic-research-and-modern-physics/"><u>Psychic Research and Modern Physics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812617-9781616409630-the-supermarket-sorceress/"><u>The Supermarket Sorceress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210146418-9783200071933-50-shades-of-love/"><u>50 Shades of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147609-9781528762380-a-manual-of-occultism/"><u>A Manual of Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147631-9780008438494-aries-2022-your-personal-horoscope/"><u>Aries 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147632-9780008438524-cancer-2022-your-personal-horoscope/"><u>Cancer 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210146767-9781913504328-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147634-9780008438531-leo-2022-your-personal-horoscope/"><u>Leo 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210146260-9781786785251-raise-your-vibes/"><u>Raise Your Vibes! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210147633-9780008438500-taurus-2022-your-personal-horoscope/"><u>Taurus 2022: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210146657-9780646819150-the-book-of-life/"><u>The Book of Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Mysterious Essenes | Free Book
-date: 2024-11-21T20:56:06.886Z
-updated: 2024-11-27T18:42:57.271Z
+date: 2024-12-01T04:41:11.971Z
+updated: 2024-12-07T07:10:40.326Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1682a8a7aa5bc6a00a5d4d4f134ff00a15.jpg
@@ -146,15 +146,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96164931-9781591433224-eden-in-the-altai-3rd-ed/"><u>Eden in the Altai (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164934-9781620557693-future-sacred/"><u>Future Sacred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164940-9781620558348-mind-detox-2nd-ed/"><u>Mind Detox (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164932-9781620557570-runic-lore-and-legend-2nd-ed/"><u>Runic Lore and Legend (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164942-9781620557778-searching-for-the-philosophers-stone/"><u>Searching for the Philosophers' Stone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164933-9781620557952-the-nepalese-shamanic-path/"><u>The Nepalese Shamanic Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197286-9781631595189-crystal-lore-legends-myths/"><u>Crystal Lore, Legends & Myths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197475-9781782408840-mindful-thoughts-for-makers/"><u>Mindful Thoughts for Makers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197538-9781782406310-mindfulness-and-the-big-questions/"><u>Mindfulness and the Big Questions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197510-9781782408802-nature-tonic/"><u>Nature Tonic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197494-9781782406266-secrets-of-reiki/"><u>Secrets of Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197402-9780760369661-tales-of-the-night-sky/"><u>Tales of the Night Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197441-9781631596971-the-book-of-blessings-and-rituals/"><u>The Book of Blessings and Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197243-9781781319499-the-moon-fix/"><u>The Moon Fix | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

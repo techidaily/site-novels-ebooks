@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Wisdom of the Huichol (2nd ed.) | Free Book
-date: 2024-10-26T05:11:27.564Z
-updated: 2024-10-26T20:28:43.336Z
+date: 2024-12-03T21:16:12.084Z
+updated: 2024-12-07T05:07:54.711Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2409ceb9a71d553470f7bb3115a303fffad0cc04701576b23271df5edfc568af.jpg
@@ -186,3 +186,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2409ceb9a71d553470f7bb3115a303f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209522213-9781446359310-a-people-bewitched/"><u>A People Bewitched | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522210-9781446358429-ghosts-of-the-tower-of-london/"><u>Ghosts of the Tower of London | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522209-9781446357866-memories-of-an-essex-ghosthunter/"><u>Memories of an Essex Ghosthunter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522203-9781446357804-science-and-the-paranormal/"><u>Science and the Paranormal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

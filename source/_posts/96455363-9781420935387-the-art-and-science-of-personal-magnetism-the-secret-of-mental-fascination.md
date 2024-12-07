@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2024-11-24T18:19:47.932Z
-updated: 2024-11-27T21:25:21.254Z
+date: 2024-12-01T16:12:35.766Z
+updated: 2024-12-07T02:06:16.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,14 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782474-9781591432661-atlantis-in-the-caribbean-3rd-ed/"><u>Atlantis in the Caribbean (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782475-9781591438250-bird-medicine/"><u>Bird Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782467-9781591439912-forbidden-religion/"><u>Forbidden Religion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782466-9781591438922-forgotten-worlds/"><u>Forgotten Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782468-9781591439516-journeys-to-the-mythical-past-2nd-ed/"><u>Journeys to the Mythical Past (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064542-9781071550533-a-porta-para-a-eternidade/"><u>A Porta Para a Eternidade | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064661-9781071546352-curar-el-dolor-emocional-y-fisico-con-el-poder-de-la-meditacion/"><u>Curar el Dolor Emocional y Físico con el Poder de la Meditación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064523-9781071549742-il-potere-della-meditazione/"><u>Il potere della Meditazione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064578-9781071545539-le-voyage-scolaire-de-megan/"><u>Le voyage scolaire de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064509-9781071550250-megan-en-de-fietser/"><u>Megan en de Fietser | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064614-9781071544907-megan-und-der-radfahrer/"><u>Megan und der Radfahrer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064502-9781071550236-megan-va-al-zoologico/"><u>Megan va al zoológico | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064574-9781071549353-megans-trettonde/"><u>Megans Trettonde | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

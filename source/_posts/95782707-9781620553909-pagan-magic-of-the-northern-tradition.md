@@ -1,7 +1,7 @@
 ---
 title: Pagan Magic of the Northern Tradition | Free Book
-date: 2024-10-26T04:01:01.453Z
-updated: 2024-10-26T23:17:19.991Z
+date: 2024-12-01T00:47:31.488Z
+updated: 2024-12-06T22:31:05.313Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84c6e5e5fe098b39c69e5e653cd9c39b8742dc652a234dc389e755c88af15fb5.jpg
@@ -184,3 +184,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84c6e5e5fe098b39c69e5e653cd9c39
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1985913-9781780282442-life-alignment/"><u>Life Alignment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1980053-9781583947333-mystery-school-in-hyperspace/"><u>Mystery School in Hyperspace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985908-9781780282244-the-deeper-secret/"><u>The Deeper Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1981015-9781609259877-the-evidence-for-phantom-hitch-hikers/"><u>The Evidence for Phantom Hitch-Hikers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1973644-9780895565389-the-master-game/"><u>The Master Game | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985905-9781780282121-the-secret-american-dream/"><u>the Secret American Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985912--the-serpent-grail/"><u>The Serpent Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985245-9781476788050-the-soul-searchers-handbook/"><u>The Soul Searcher's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1981013-9781609259853-the-travelers-guide-to-the-astral-plane/"><u>The Traveler's Guide to the Astral Plane | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

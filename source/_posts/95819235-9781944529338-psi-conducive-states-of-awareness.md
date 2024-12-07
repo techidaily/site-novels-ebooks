@@ -1,7 +1,7 @@
 ---
 title: Psi-Conducive States of Awareness | Free Book
-date: 2024-10-25T04:45:11.532Z
-updated: 2024-10-26T19:17:56.040Z
+date: 2024-11-29T20:07:30.559Z
+updated: 2024-12-07T01:20:24.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f89176e1cd5ea458edaa0230e1c3225ec7b6ecf1c1bf070fc9e6ec160f7e349d.jpg
@@ -134,3 +134,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f89176e1cd5ea458edaa0230e1c3225
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1079375-9781420937664-mental-chemistry/"><u>Mental Chemistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1079441-9781420935752-optimism/"><u>Optimism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1079455-9781420924381-the-astral-plane/"><u>The Astral Plane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1080511-9781743341315-the-big-book-of-astrology-2013/"><u>The Big Book of Astrology 2013 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1079374-9781420935608-the-master-key-system/"><u>The Master Key System | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1079322-9781420935356-the-power-of-concentration/"><u>The Power Of Concentration | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

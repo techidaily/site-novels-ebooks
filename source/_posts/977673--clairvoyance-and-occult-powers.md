@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2024-11-23T19:32:07.954Z
-updated: 2024-11-27T16:56:30.270Z
+date: 2024-12-04T02:51:40.999Z
+updated: 2024-12-07T04:06:47.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,14 +133,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/352793-9781101078808-edgar-cayces-esp/"><u>Edgar Cayce's ESP | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/356960-9781440625640-the-complete-idiots-guide-dream-dictionary/"><u>The Complete Idiot's Guide Dream Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/350758-9781440636936-the-evolution-angel/"><u>The Evolution Angel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/352175-9780345512819-the-love-response/"><u>The Love Response | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/353213-9781741762693-the-wisdom-of-water/"><u>The Wisdom of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723550-9781420962383-believe-in-yourself/"><u>Believe In Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723696-9781633534841-eclectic-wicca/"><u>Eclectic Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723692-9781633536746-goddess-power/"><u>Goddess Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723675-9781633535633-moon-spell-magic/"><u>Moon Spell Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723697-9781633535329-real-life-mindfulness/"><u>Real Life Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723689-9781633532946-tea-spiration/"><u>Tea-spiration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209722679-9781507212158-the-moon-you/"><u>The Moon + You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723227-9781722521936-the-secret-of-the-ages-original-classic-edition/"><u>The Secret of the Ages (Original Classic Edition) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

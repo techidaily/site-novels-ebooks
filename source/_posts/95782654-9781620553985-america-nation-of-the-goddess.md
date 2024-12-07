@@ -1,7 +1,7 @@
 ---
 title: "America: Nation of the Goddess | Free Book"
-date: 2024-10-21T18:43:35.843Z
-updated: 2024-10-27T02:44:40.836Z
+date: 2024-12-05T06:06:41.251Z
+updated: 2024-12-07T00:03:50.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba57012e59c1aa152f28ad519dd5404f7414934f8023c842b9a5ded9229c2fd3.jpg
@@ -218,3 +218,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba57012e59c1aa152f28ad519dd5404
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209541307-9780008319427-aquarius-2020-your-personal-horoscope/"><u>Aquarius 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541302-9780008319359-cancer-2020-your-personal-horoscope/"><u>Cancer 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541299-9780008319342-gemini-2020-your-personal-horoscope/"><u>Gemini 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541306-9780008319366-leo-2020-your-personal-horoscope/"><u>Leo 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541303-9780008319403-sagittarius-2020-your-personal-horoscope/"><u>Sagittarius 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541300-9780008319397-scorpio-2020-your-personal-horoscope/"><u>Scorpio 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541301-9780008319335-taurus-2020-your-personal-horoscope/"><u>Taurus 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541305-9780008319373-virgo-2020-your-personal-horoscope/"><u>Virgo 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541304-9780008319304-your-personal-horoscope-2020/"><u>Your Personal Horoscope 2020 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Healing Light of the Tao (2nd ed.) | Free Book
-date: 2024-10-24T18:04:22.009Z
-updated: 2024-10-26T18:54:21.466Z
+date: 2024-11-30T06:32:51.692Z
+updated: 2024-12-06T20:11:33.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6634214022e3f04367585b98a507450ac23c533738220f01af512359be6ae3e9.jpg
@@ -174,3 +174,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6634214022e3f04367585b98a507450
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1818255-9781782796701-collecting-feathers/"><u>Collecting Feathers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818257-9781782797081-death-the-last-god/"><u>Death, the Last God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1815859-9780970711779-got-ghost/"><u>Got Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818259-9781782797166-of-course/"><u>Of Course! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1816015-9781776586905-practical-psychomancy-and-crystal-gazing/"><u>Practical Psychomancy and Crystal Gazing | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Pagan Portals: The Crane Bag | Free Book"
-date: 2024-10-20T02:13:11.659Z
-updated: 2024-10-26T20:51:38.854Z
+date: 2024-12-03T02:55:42.770Z
+updated: 2024-12-07T02:37:20.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee0f593592db91ed3ecb0793789233316aa78b3149674138c38d027c8c987208.jpg
@@ -149,3 +149,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee0f593592db91ed3ecb07937892333
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1153682-9781577317005-365-prescriptions-for-the-soul/"><u>365 Prescriptions for the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153688-9781577319658-active-dreaming/"><u>Active Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153690-9781577317074-all-my-relations/"><u>All My Relations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153701-9781608681396-astrology-for-the-new-age/"><u>Astrology for the New Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152436-9781451696837-healing-with-the-arts/"><u>Healing with the Arts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152505-9781476728643-the-spiritual-science-of-emma-curtis-hopkins/"><u>The Spiritual Science of Emma Curtis Hopkins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152610-9781476744728-tipping-sacred-cows/"><u>Tipping Sacred Cows | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

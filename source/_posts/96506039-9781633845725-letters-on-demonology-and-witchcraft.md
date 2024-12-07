@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2024-11-24T19:17:45.169Z
-updated: 2024-11-27T16:21:48.476Z
+date: 2024-12-06T05:30:17.544Z
+updated: 2024-12-06T22:59:55.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,14 +155,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/475342-9781458711410-calming-the-fearful-mind/"><u>Calming the Fearful Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/480049-9781101195840-conquer-the-cosmos/"><u>Conquer the Cosmos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475344-9781458711250-for-a-future-to-be-possible/"><u>For a Future to Be Possible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475345-9781458711281-teachings-on-love/"><u>Teachings on Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475346-9781458711359-understanding-our-mind/"><u>Understanding Our Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2098150-9781459733473-creepy-capital/"><u>Creepy Capital | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209814593-9781982135539-everything-you-wanted-to-know-about-the-afterlife-but-were-afraid-to-ask/"><u>Everything You Wanted to Know about the Afterlife but Were Afraid to Ask | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209814266-9781783253852-five-minutes-in-the-evening/"><u>Five Minutes in the Evening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209814240-9781856754361-the-little-book-of-spiritual-bliss/"><u>The Little Book of Spiritual Bliss | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

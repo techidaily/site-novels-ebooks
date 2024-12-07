@@ -1,7 +1,7 @@
 ---
 title: Soul Healing with Our Animal Companions (2nd ed.) | Free Book
-date: 2024-10-26T02:27:47.788Z
-updated: 2024-10-26T21:30:31.844Z
+date: 2024-12-01T06:09:49.138Z
+updated: 2024-12-06T19:59:34.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff4bfdfa854a251b3c2139fbad740a6277f4c54d857f533cd5eddf0a03ae1e10.jpg
@@ -205,3 +205,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff4bfdfa854a251b3c2139fbad740a6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96369157-9781446359235-everyday-magic/"><u>Everyday Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369778-9781446358528-famous-curses/"><u>Famous Curses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370842-9781933346649-inviting-silence/"><u>Inviting Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369676-9781446358405-mediumship-and-survival/"><u>Mediumship and Survival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369168-9781446358504-the-book-of-witches/"><u>The Book of Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96369293-9781446359198-your-dark-side/"><u>Your Dark Side | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

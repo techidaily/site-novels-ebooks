@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-11-24T23:09:18.339Z
-updated: 2024-11-27T20:56:00.793Z
+date: 2024-12-02T17:37:18.244Z
+updated: 2024-12-06T23:18:43.879Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,15 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/435873-9781775568476-a-textbook-of-theosophy/"><u>A Textbook of Theosophy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435872-9781775568490-the-astral-plane/"><u>The Astral Plane | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435855-9781775568582-the-basis-of-morality/"><u>The Basis of Morality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435880-9781775568438-the-crest-wave-of-evolution/"><u>The Crest-Wave of Evolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435883-9781775568414-the-doctrine-and-practice-of-yoga/"><u>The Doctrine and Practice of Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435881-9781775568407-the-secret-of-dreams/"><u>The Secret of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209779133-9781439667903-haunted-el-reno/"><u>Haunted El Reno | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209779130-9781439667897-haunted-southern-maryland/"><u>Haunted Southern Maryland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780327-9781633411746-the-hynek-ufo-report/"><u>The Hynek UFO Report | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780329-9781612834450-the-little-book-of-prosperity/"><u>The Little Book of Prosperity | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

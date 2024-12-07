@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Intuition | Free Book
-date: 2024-11-22T17:33:35.782Z
-updated: 2024-11-27T16:28:37.036Z
+date: 2024-12-01T20:59:56.455Z
+updated: 2024-12-07T01:04:16.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc91bdc663b6f65fa5b3200c18dc7433ba47.jpg
@@ -144,16 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96037668-9781633410732-blackthorns-botanical-magic/"><u>Blackthorn's Botanical Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96059414-9781786781925-spiritual-science/"><u>Spiritual Science | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96059395-9781101993071-strange-frequencies/"><u>Strange Frequencies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96059415-9781786781970-the-anatomy-of-loneliness/"><u>The Anatomy of Loneliness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96039702-9781937866020-the-medical-cannabis-guidebook/"><u>The Medical Cannabis Guidebook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96037671-9781938289835-the-seven-secrets-to-healthy-happy-relationships/"><u>The Seven Secrets to Healthy, Happy Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96037670-9781881098478-the-witches-almanac-issue-38-spring-2019-to-spring-2020/"><u>The Witches' Almanac: Issue 38, Spring 2019 to Spring 2020 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210194991-9781619021426-a-book-of-silence/"><u>A Book of Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196542-9781631595530-angels-spirit-guides-goddesses/"><u>Angels, Spirit Guides & Goddesses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210195339-9781619021266-kissed-by-a-fox/"><u>Kissed by a Fox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210194614-9781644113875-stones-of-the-new-consciousness-2nd-ed/"><u>Stones of the New Consciousness (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196558-9781592337996-the-key-to-the-chakras/"><u>The Key to the Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210194615-9781644113868-the-pocket-book-of-stones-3rd-ed/"><u>The Pocket Book of Stones (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210195729-9781953474018-the-voice-of-venus/"><u>The Voice of Venus | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

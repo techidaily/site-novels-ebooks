@@ -1,7 +1,7 @@
 ---
 title: Emotion and Healing in the Energy Body | Free Book
-date: 2024-10-24T03:25:01.698Z
-updated: 2024-10-27T05:59:58.286Z
+date: 2024-11-30T23:18:18.659Z
+updated: 2024-12-06T18:56:00.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7663b2ea86a55874d2b44464331455b2e0b01fd1a051989c7de2b2c2b0b8875.jpg
@@ -201,3 +201,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7663b2ea86a55874d2b44464331455
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1424572-9781780284552-angel-healing/"><u>Angel Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424562-9781780284408-celtic-wisdom/"><u>Celtic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424574-9781780284590-creative-meditation-visualisation/"><u>Creative Meditation & Visualisation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424575-9781780284620-self-healing-reiki/"><u>Self-Healing Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424567-9781780284484-the-meditations-of-marcus-aurelius/"><u>The Meditations of Marcus Aurelius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424558-9781780283715-water-pure-and-simple/"><u>Water, Pure and Simple | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

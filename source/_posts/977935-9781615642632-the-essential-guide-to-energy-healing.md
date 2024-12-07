@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-11-26T23:08:35.666Z
-updated: 2024-11-27T20:30:13.882Z
+date: 2024-12-04T01:37:14.017Z
+updated: 2024-12-07T06:56:48.148Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,18 +187,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/363831-9781440649820-astrology-of-midlife-and-aging/"><u>Astrology of Midlife and Aging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/361881-9781605571744-green-zone-living/"><u>Green Zone Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/363791-9781440649776-shamans-through-time/"><u>Shamans Through Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/363833-9781440649844-the-essential-nostradamus/"><u>The Essential Nostradamus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/360650-9781440627620-the-gift-of-pain/"><u>The Gift of Pain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/360655-9781440650833-the-inner-west/"><u>The Inner West | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/363962-9781416563235-the-return-of-the-prophet/"><u>The Return of the Prophet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/363827-9781440649752-the-tarot/"><u>The Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/361886-9781605572437-your-exceptional-mind/"><u>Your Exceptional Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209728898-9780806536422-goth-magick-an-enchanted-grimoire/"><u>Goth Magick: An Enchanted Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209727270-9780806539560-phantom-felines-and-other-ghostly-animals/"><u>Phantom Felines and Other Ghostly Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209727868-9780806539591-the-wicca-book-of-days/"><u>The Wicca Book of Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209727459-9780806539584-wicca-a-to-z/"><u>Wicca A to Z | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

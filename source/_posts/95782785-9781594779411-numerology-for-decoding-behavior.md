@@ -1,7 +1,7 @@
 ---
 title: Numerology for Decoding Behavior | Free Book
-date: 2024-10-25T22:17:40.207Z
-updated: 2024-10-26T21:41:09.061Z
+date: 2024-11-30T19:16:44.214Z
+updated: 2024-12-07T01:27:29.287Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f9da733b9e83129c585ba93e309554aa886e098d3ab45ab240d452cdcc00bc2.jpg
@@ -185,3 +185,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f9da733b9e83129c585ba93e309554
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1424500-9781780281308-gifts-from-angels/"><u>Gifts from Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/140765-9780743457750-nostradamus-2003-2025/"><u>Nostradamus 2003-2025 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424498-9781780281285-the-out-of-body-experience/"><u>The Out-of-Body Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1402730-9781782793069-the-shaman-within/"><u>The Shaman Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1408115-9780971887060-to-perfect-this-feast-3rd-ed/"><u>To Perfect This Feast (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/141473-9780253109682-who-knows/"><u>Who Knows? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

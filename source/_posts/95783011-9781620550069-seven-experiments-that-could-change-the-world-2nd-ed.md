@@ -1,7 +1,7 @@
 ---
 title: Seven Experiments That Could Change the World (2nd ed.) | Free Book
-date: 2024-10-19T23:35:30.343Z
-updated: 2024-10-26T16:50:26.741Z
+date: 2024-11-29T22:47:35.655Z
+updated: 2024-12-06T16:41:59.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ed5bf8bef773c97b810ec7c85a10e189d4a5c5bbee66531a76f983176145db4.jpg
@@ -188,3 +188,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ed5bf8bef773c97b810ec7c85a10e1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138595493-9781452503615-conversations-through-my-soul-of-presence/"><u>Conversations Through My Soul of Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595637-9781449758929-encouraged/"><u>Encouraged | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595462-9781449749781-inside-out/"><u>Inside Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595387-9781469751474-oh-my-gosh-i-over-slept/"><u>Oh, My Gosh I over Slept! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595740-9781452545127-one-moar-paradigm/"><u>One Moar Paradigm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595536-9781449753337-rainbow-over-my-house/"><u>Rainbow over My House | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595670-9781462024957-the-happiness-thermometer/"><u>The Happiness Thermometer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595649-9781452543314-touchstone-moments/"><u>Touchstone Moments | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

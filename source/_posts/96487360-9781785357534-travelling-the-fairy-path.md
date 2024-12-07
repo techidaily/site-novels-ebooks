@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-11-26T20:21:07.118Z
-updated: 2024-11-27T16:13:55.064Z
+date: 2024-11-29T23:11:46.029Z
+updated: 2024-12-06T21:52:34.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,16 +153,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95781683-9780895566102-book-of-floating/"><u>Book of Floating | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95780352-9781101870419-this-life/"><u>This Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95778591-9781515412328-unveiled-mysteries/"><u>Unveiled Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95778596-9781515415145-what-all-the-worlds-a-seeking/"><u>What All the World’s A-Seeking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95781173-9781515415107-when-prophecy-fails/"><u>When Prophecy Fails | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95781176-9781515412335-wild-talents/"><u>Wild Talents | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95778262-9780008268190-witch-a-magickal-journey-a-guide-to-modern-witchcraft/"><u>Witch: a Magickal Journey: A Guide to Modern Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974026-9781633411890-blackthorns-botanical-brews/"><u>Blackthorn's Botanical Brews | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974029-9781612834627-conversations-with-god-book-2/"><u>Conversations With God, Book 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974030-9781612834542-super-tarot/"><u>Super Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974021-9781633411883-tarot-no-questions-asked/"><u>Tarot: No Questions Asked | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974023-9781633411739-witch-hunt/"><u>Witch Hunt | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

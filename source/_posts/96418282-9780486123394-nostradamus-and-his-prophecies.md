@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2024-11-21T18:41:53.411Z
-updated: 2024-11-27T22:42:50.204Z
+date: 2024-12-03T01:11:24.255Z
+updated: 2024-12-07T00:45:41.833Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,15 +151,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783072-9781594777011-from-the-bodies-of-the-gods/"><u>From the Bodies of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783067-9781620553930-frontiers-of-psychedelic-consciousness/"><u>Frontiers of Psychedelic Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783074-9781594776281-sacred-mushroom-of-visions-teonanacatl/"><u>Sacred Mushroom of Visions: Teonanácatl | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783076-9781594778889-the-acid-diaries/"><u>The Acid Diaries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783069-9781594779503-the-basic-code-of-the-universe/"><u>The Basic Code of the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783068-9781594778759-the-biology-of-transcendence-2nd-ed/"><u>The Biology of Transcendence (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210125795-9780648831228-a-single-flower/"><u>A Single Flower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210126584-9780578769325-caring/"><u>Caring | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210125864-9781936012930-falling-open-in-a-world-falling-apart/"><u>Falling Open in a World Falling Apart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127151-9781087909561-positive-affirmations-for-women/"><u>Positive Affirmations For Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210125846-9781935413233-the-essentials-of-buddhist-meditation/"><u>The Essentials of Buddhist Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127143-9781950241835-the-gift-of-courage-3rd-ed/"><u>The Gift of Courage (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124738-9781838537104-vipassana/"><u>Vipassana | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

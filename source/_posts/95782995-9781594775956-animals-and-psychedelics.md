@@ -1,7 +1,7 @@
 ---
 title: Animals and Psychedelics | Free Book
-date: 2024-10-20T03:02:33.875Z
-updated: 2024-10-27T05:36:27.803Z
+date: 2024-12-04T06:19:49.438Z
+updated: 2024-12-06T21:02:10.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f6e10b50d30cf2e7df0dfec9bfc03d88a7090a4fa1ecde2a3821b8f7a85d8e7.jpg
@@ -180,3 +180,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f6e10b50d30cf2e7df0dfec9bfc03d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138592454-9781452536248-enlightenment-journal/"><u>Enlightenment Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592481-9781462027033-grace-for-your-journey/"><u>Grace for Your Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592599-9781452549224-paint-to-remember/"><u>Paint to Remember | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592592-9781449745011-simply-for-thought/"><u>Simply for Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592488-9781452550527-will-the-real-world-please-stand-up/"><u>Will the Real World Please Stand Up? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

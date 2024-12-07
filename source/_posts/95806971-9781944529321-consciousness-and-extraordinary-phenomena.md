@@ -1,7 +1,7 @@
 ---
 title: Consciousness and Extraordinary Phenomena | Free Book
-date: 2024-10-23T20:05:04.066Z
-updated: 2024-10-26T22:58:47.032Z
+date: 2024-12-04T22:54:30.416Z
+updated: 2024-12-07T00:10:56.764Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f8afd44a0757998476733cec6f2bf07ff918de787c802efc790abb9bf2e12f0.jpg
@@ -132,3 +132,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f8afd44a0757998476733cec6f2bf0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1237937-9780761861089-adjusting-to-lifes-changing-seasons/"><u>Adjusting to Life's Changing Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1230262-9781780992808-identity-and-the-quartered-circle/"><u>Identity and the Quartered Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245839-9781476713090-making-marks/"><u>Making Marks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1224575-9781609259273-runecasters-handbook/"><u>Runecaster's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245861-9781451698589-the-sacred-history/"><u>The Sacred History | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

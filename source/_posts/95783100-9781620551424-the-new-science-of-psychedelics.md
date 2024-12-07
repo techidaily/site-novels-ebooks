@@ -1,7 +1,7 @@
 ---
 title: The New Science of Psychedelics | Free Book
-date: 2024-10-23T22:35:19.735Z
-updated: 2024-10-26T23:32:48.912Z
+date: 2024-12-03T16:19:28.880Z
+updated: 2024-12-07T02:31:20.198Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/940eb14f431a711287ee07cd4827281e948b3556b827e515c675e3df49e0ec57.jpg
@@ -194,3 +194,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/940eb14f431a711287ee07cd4827281
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138566286-9781401930479-101-ways-to-jump-start-your-intuition/"><u>101 Ways to Jump-Start Your Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566300-9781401932121-animal-spirit-guides/"><u>Animal Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566273-9781401954499-charge-and-the-energy-body/"><u>Charge and the Energy Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566291-9781401948450-co-creating-at-its-best/"><u>Co-creating at Its Best | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566279-9781401954208-core-light-healing/"><u>Core Light Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566295-9781401952396-crystal-muse/"><u>Crystal Muse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566296-9781401932923-the-force/"><u>The Force | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566302-9781401921408-the-guru-of-joy/"><u>The Guru of Joy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

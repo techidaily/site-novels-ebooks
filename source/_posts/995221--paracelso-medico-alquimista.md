@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-11-25T21:45:52.780Z
-updated: 2024-11-27T16:13:09.678Z
+date: 2024-12-05T07:08:46.430Z
+updated: 2024-12-07T02:46:02.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,14 +143,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2653608-9780752492261-haunted-lambeth/"><u>Haunted Lambeth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2653579-9780752481616-haunted-southend/"><u>Haunted Southend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2653532-9780997458411-let-go-courageously-and-live-with-love/"><u>Let Go Courageously and Live with Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2652781-9781786780317-lucid-living/"><u>Lucid Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2654455-9781683255642-quiromancia-guia-practica-para-leer-la-mano/"><u>Quiromancia. Guía práctica para leer la mano | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645584-9781620559260-a-theology-of-love/"><u>A Theology of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2096442-9780892546633-astrological-insights-into-personality/"><u>Astrological Insights into Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643983-9781632658050-before-you-cast-a-spell/"><u>Before You Cast A Spell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645575-9781620556887-breathing-as-spiritual-practice/"><u>Breathing as Spiritual Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209644890-9782824631929-dans-la-lumiere-de-votre-ange-gardien/"><u>Dans la lumière de votre ange gardien | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645416-9781462920631-japanese-tea-ceremony/"><u>Japanese Tea Ceremony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645574-9781620559093-the-hermetic-science-of-transformation/"><u>The Hermetic Science of Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645573-9781620558706-the-magian-tarok-3rd-ed/"><u>The Magian Tarok (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645054-9781452175058-the-seasonal-soul/"><u>The Seasonal Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

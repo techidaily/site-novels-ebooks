@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2024-11-25T21:13:51.474Z
-updated: 2024-11-27T22:44:20.446Z
+date: 2024-12-05T17:10:01.456Z
+updated: 2024-12-06T17:11:34.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -173,18 +173,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95827921-9781547508471-assim-acima-como-abaixo-a-minha-vida-como-um-adepto-uma-autobiografia-por-seila-orienta/"><u>Assim Acima, Como Abaixo. A Minha Vida Como Um Adepto. Uma Autobiografia por Seila Orienta | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95828505-9781608684946-big-love/"><u>Big Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95829048-9781547500482-der-traumzustand-eine-verschworungstheorie/"><u>Der Traumzustand - Eine Verschwörungstheorie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95828523-9781681652924-el-despertar-de-la-conciencia/"><u>El despertar de la conciencia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95828176-9781547507542-el-primer-arcano-menor/"><u>El Primer Arcano Menor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95824000-9780892546671-geomancy/"><u>Geomancy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95829402-9781944529185-man-plant-communcation/"><u>Man-Plant Communcation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95828927-9780980502244-moonbeams-of-mahamudra/"><u>Moonbeams of Mahamudra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95825155-9780007484096-the-dream-dictionary-from-a-to-z-revised-edition/"><u>The Dream Dictionary from A to Z [Revised edition] | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210159509-9781642505672-each-day-a-renewed-beginning/"><u>Each Day a Renewed Beginning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210158379-9781087920610-flouriish-efflorescence-journal/"><u>Flouriish Efflorescence Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210159502-9781642504385-practical-mindfulness/"><u>Practical Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210159508-9781642504507-sacred-codes-in-times-of-crisis/"><u>Sacred Codes in Times of Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210159355-9780744038408-the-birthday-book/"><u>The Birthday Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210158725-9780593296912-this-is-your-mind-on-plants/"><u>This Is Your Mind on Plants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210158566-9781999425593-un-manuale-di-ce-5/"><u>Un manuale di CE-5 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

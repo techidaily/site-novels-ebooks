@@ -1,7 +1,7 @@
 ---
 title: Natural Law in the Spiritual World | Free Book
-date: 2024-11-20T21:07:05.687Z
-updated: 2024-11-27T19:02:15.231Z
+date: 2024-11-29T23:26:19.983Z
+updated: 2024-12-06T20:10:16.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf6958958cca10e64f647f82e013fd8bf669c9.jpg
@@ -143,17 +143,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf695
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/448047-9780307419675-dance-of-the-spirit/"><u>Dance of the Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447568-9781101128114-healing-grief/"><u>Healing Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447914-9780307421715-kundalini-awakening/"><u>Kundalini Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447732-9781439165744-la-sabiduria-del-alma-soul-wisdom-spanish-edition/"><u>La Sabiduria del Alma (Soul Wisdom; Spanish edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447902-9780307570079-seduction-by-the-stars/"><u>Seduction by the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447348-9781101133118-testimony-of-light/"><u>Testimony of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447885-9780307489722-the-power-of-birthdays-stars-numbers/"><u>The Power of Birthdays, Stars & Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447491-9781101127735-the-stargate-conspiracy/"><u>The Stargate Conspiracy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781790-9781439667989-ghosts-and-legends-of-northern-ohio/"><u>Ghosts and Legends of Northern Ohio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781786-9781439667958-haunted-clarke-county-virginia/"><u>Haunted Clarke County, Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780778-9781984854889-love-is-greater-than-pain/"><u>Love Is Greater Than Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780767-9781984857811-pocket-guide-to-chakras-revised/"><u>Pocket Guide to Chakras, Revised | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780782-9781984857859-pocket-guide-to-the-tarot-revised/"><u>Pocket Guide to the Tarot, Revised | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781815-9781722523749-psychic-perception/"><u>Psychic Perception | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

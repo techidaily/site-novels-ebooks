@@ -1,7 +1,7 @@
 ---
 title: The Harmonic Origins of the World | Free Book
-date: 2024-10-24T03:47:43.939Z
-updated: 2024-10-27T00:57:34.449Z
+date: 2024-12-05T03:47:58.121Z
+updated: 2024-12-06T22:29:16.208Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e8c4e9dc2af178b45e990d9999424be808357b4510942c781f50c75b914a1e5.jpg
@@ -188,3 +188,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e8c4e9dc2af178b45e990d9999424b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96327201-9781501193217-dont-just-sit-there/"><u>Don't Just Sit There! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96330070-9780893894191-mystics-magicians-and-medicine-people/"><u>Mystics, Magicians and Medicine People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96330992-9780824860899-shamans-nostalgias-and-the-imf/"><u>Shamans, Nostalgias, and the IMF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96327038-9781507209653-the-little-book-of-self-care-for-aries/"><u>The Little Book of Self-Care for Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96327041-9781507209837-the-little-book-of-self-care-for-capricorn/"><u>The Little Book of Self-Care for Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96327037-9781507209691-the-little-book-of-self-care-for-gemini/"><u>The Little Book of Self-Care for Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96327033-9781507209813-the-little-book-of-self-care-for-sagittarius/"><u>The Little Book of Self-Care for Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96330062-9780893894160-yoga-psychology/"><u>Yoga Psychology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

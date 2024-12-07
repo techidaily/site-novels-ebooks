@@ -1,7 +1,7 @@
 ---
 title: Enochian Magic and the Higher Worlds | Free Book
-date: 2024-10-21T02:31:36.931Z
-updated: 2024-10-26T17:07:49.018Z
+date: 2024-12-05T22:40:31.834Z
+updated: 2024-12-06T16:47:04.334Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2f59df5427949e9545b6ae641d732992ff763121a88ec50c2d0c61b4cb53f5f.jpg
@@ -190,3 +190,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2f59df5427949e9545b6ae641d7329
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621222-9781601633873-bloodline-of-the-gods/"><u>Bloodline of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621221-9781632659019-one-voice-sacred-wisdom/"><u>One Voice, Sacred Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621220-9781601639530-opening-the-ark-of-the-covenant/"><u>Opening the Ark of the Covenant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621218-9781632659606-weapons-of-the-gods/"><u>Weapons of the Gods | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

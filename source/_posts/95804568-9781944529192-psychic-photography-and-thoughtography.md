@@ -1,7 +1,7 @@
 ---
 title: Psychic Photography and Thoughtography | Free Book
-date: 2024-10-21T23:21:18.827Z
-updated: 2024-10-26T20:01:35.258Z
+date: 2024-12-04T21:40:21.301Z
+updated: 2024-12-07T04:05:44.325Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59f0edb4406af6ccceab0b7ff6742dcea6613879da0bcf318686d764de488d6e.jpg
@@ -133,3 +133,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59f0edb4406af6ccceab0b7ff6742dc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1184535-9781897448878-a-glimpse-of-light/"><u>A Glimpse of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1182835-9780892545506-alan-okens-complete-astrology/"><u>Alan Oken's Complete Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1187257-9781782791331-calling-to-the-white-tribe/"><u>Calling to the White Tribe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1184455-9781459717664-haunted-ontario-3/"><u>Haunted Ontario 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1184627-9781578264667-peace/"><u>Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1184451-9781459719248-spooky-sudbury/"><u>Spooky Sudbury | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

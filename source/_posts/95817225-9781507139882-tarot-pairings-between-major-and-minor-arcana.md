@@ -1,7 +1,7 @@
 ---
 title: Tarot Pairings between Major and Minor Arcana | Free Book
-date: 2024-10-26T02:39:12.285Z
-updated: 2024-10-26T17:22:22.026Z
+date: 2024-12-05T05:25:28.481Z
+updated: 2024-12-06T18:32:15.943Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75c66a481a99e79d3072b77d5342c050eaa503acf1e221591b061206266109a5.jpg
@@ -138,3 +138,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75c66a481a99e79d3072b77d5342c05
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1000973-9781908646606-all-will-be-well/"><u>All Will Be Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1003122-9780857010858-fire-dragon-meridian-qigong/"><u>Fire Dragon Meridian Qigong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010630-9781780993157-good-living-in-hard-times/"><u>Good Living in Hard Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010633-9781780993492-pagan-portals-hedge-riding/"><u>Pagan Portals - Hedge Riding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010634-9781780993300-pagan-portals-hedge-witchcraft/"><u>Pagan Portals - Hedge Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010635-9781780997865-palmistry-made-easy/"><u>Palmistry Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010636-9781780993973-psychology-of-a-medium/"><u>Psychology of a Medium | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

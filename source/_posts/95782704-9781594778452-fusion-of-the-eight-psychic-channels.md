@@ -1,7 +1,7 @@
 ---
 title: Fusion of the Eight Psychic Channels | Free Book
-date: 2024-10-25T05:33:46.408Z
-updated: 2024-10-26T20:54:25.941Z
+date: 2024-12-01T17:51:41.949Z
+updated: 2024-12-07T03:02:05.429Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9b41871afcaf309fbaee3a670f02272457697cabbb51be93000600520ff8131.jpg
@@ -167,3 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9b41871afcaf309fbaee3a670f0227
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1938658-9780835630535-a-new-science-of-the-paranormal/"><u>A New Science of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/195589-9781596255487-an-enquiry-concerning-human-understanding/"><u>An Enquiry Concerning Human Understanding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/194600--antique-affair/"><u>Antique Affair | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/195591-9781596258532-dialogues-concerning-natural-religion/"><u>Dialogues Concerning Natural Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1956479-9780812998399-the-light-between-us/"><u>The Light Between Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

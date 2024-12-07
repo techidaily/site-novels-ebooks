@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Spiritual Forces Within You | Free Book
-date: 2024-11-22T21:11:23.877Z
-updated: 2024-11-27T19:35:05.372Z
+date: 2024-12-01T04:43:44.992Z
+updated: 2024-12-06T22:33:04.349Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470b857f14ac64c99772e37190174dfb5c38.jpg
@@ -144,18 +144,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96028110-9781591433255-military-encounters-with-extraterrestrials/"><u>Military Encounters with Extraterrestrials | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028119-9781591433101-pleiadian-earth-energy-astrology/"><u>Pleiadian Earth Energy Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028111-9781591433040-reign-of-the-anunnaki/"><u>Reign of the Anunnaki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028114-9781620557266-rune-might-3rd-ed/"><u>Rune Might (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028118-9781620557716-runic-book-of-days/"><u>Runic Book of Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028115-9781620557679-the-miracle-club/"><u>The Miracle Club | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028113-9781620557914-the-mirror-of-magic-6th-ed/"><u>The Mirror of Magic (6th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028112-9781620557730-the-real-witches-of-new-england/"><u>The Real Witches of New England | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028116-9781620557129-the-spiritual-meaning-of-the-sixties/"><u>The Spiritual Meaning of the Sixties | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193187-9781642500165-adventures-in-cryptozoology-volume-1/"><u>Adventures in Cryptozoology Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193164-9781609252175-awakened-mind/"><u>Awakened Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193089-9781642790313-true-starlight/"><u>True Starlight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193230-9781609253660-us/"><u>Us! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193073-9781642797602-who-will-love-me/"><u>Who Will Love Me? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

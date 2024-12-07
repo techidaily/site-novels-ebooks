@@ -1,7 +1,7 @@
 ---
 title: Psychic Research in the Soviet Union | Free Book
-date: 2024-10-26T01:01:54.426Z
-updated: 2024-10-26T21:02:29.123Z
+date: 2024-12-02T19:21:37.527Z
+updated: 2024-12-07T03:02:25.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2dbfa1599c20f6f203e85ab759a1fc1c7fd46e0974dcbeb6fd41bdd68315ae1a.jpg
@@ -133,3 +133,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2dbfa1599c20f6f203e85ab759a1fc1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96421504-9780486791715-demonolatry/"><u>Demonolatry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96419876-9780486144863-paranormal-and-transcendental-experience/"><u>Paranormal and Transcendental Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96421970-9780486802985-the-romance-of-sorcery/"><u>The Romance of Sorcery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96421740-9780486111469-the-secret-commonwealth-of-elves-fauns-and-fairies/"><u>The Secret Commonwealth of Elves, Fauns and Fairies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Sexual Practices of the Druids (2nd ed.) | Free Book
-date: 2024-10-20T23:44:10.264Z
-updated: 2024-10-26T18:37:07.589Z
+date: 2024-12-06T02:47:39.366Z
+updated: 2024-12-06T17:18:04.179Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0145b710d8b7c1923cc6d30798bd81ad59b7ee1a1e05e8a2484498bc61474bdf.jpg
@@ -172,3 +172,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0145b710d8b7c1923cc6d30798bd81a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621224-9781632658913-ancient-aliens-in-the-bible/"><u>Ancient Aliens in the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621235-9781601633897-awaken-your-third-eye/"><u>Awaken Your Third Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621225-9781632659743-life-after-near-death/"><u>Life After Near Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621229-9781601634320-the-light-a-book-of-wisdom/"><u>The Light: A Book of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621227-9781601634054-the-multidimensional-traveler/"><u>The Multidimensional Traveler | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621239-9781601635020-the-power-of-auras/"><u>The Power of Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621240-9781601635013-the-power-of-chakras/"><u>The Power of Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621234-9781601634689-ufos-gods-chariots/"><u>UFOs: God's Chariots? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

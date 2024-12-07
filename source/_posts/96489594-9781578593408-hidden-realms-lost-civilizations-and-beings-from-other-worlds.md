@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-11-25T19:32:26.312Z
-updated: 2024-11-27T17:58:49.696Z
+date: 2024-12-04T23:26:10.810Z
+updated: 2024-12-06T22:39:42.594Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,13 +227,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95570770-9781459739215-alien-abductions-and-ufo-sightings-5-book-bundle/"><u>Alien Abductions and UFO Sightings 5-Book Bundle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95570870-9781780998985-pagan-portals-the-urban-ovate/"><u>Pagan Portals - The Urban Ovate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95568216-9781784504373-the-art-of-being-human/"><u>The Art of Being Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95570872-9781785354854-the-morning-muse/"><u>The Morning Muse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883647-9781644110423-cannabis-for-couples/"><u>Cannabis for Couples | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883648-9781644110461-gateways-to-the-soul/"><u>Gateways to the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883652-9781644111109-healing-with-light-frequencies-2nd-ed/"><u>Healing with Light Frequencies (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883643-9781644110294-primal-wisdom-of-the-ancients/"><u>Primal Wisdom of the Ancients | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883646-9781644110317-psychedelic-consciousness/"><u>Psychedelic Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883650-9781644110232-psychedelics-and-spirituality-3rd-ed/"><u>Psychedelics and Spirituality (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883642-9781620559529-remote-healing/"><u>Remote Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

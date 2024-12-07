@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Sacred Stones | Free Book
-date: 2024-11-20T20:02:28.204Z
-updated: 2024-11-27T23:09:50.652Z
+date: 2024-12-02T19:43:12.299Z
+updated: 2024-12-06T19:39:57.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c2342d3f9628aa1746820b2356f8531168276.jpg
@@ -138,15 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c234
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96031412-9781925712353-happiness-plan/"><u>Happiness Plan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028126-9781620558010-psychedelic-mystery-traditions/"><u>Psychedelic Mystery Traditions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028585-9780835621687-the-chakras-and-the-human-energy-fields/"><u>The Chakras and the Human Energy Fields | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028586-9780835621878-the-inner-life/"><u>The Inner Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028583-9780835621922-the-seven-rays/"><u>The Seven Rays | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028584-9780835621564-thoughts-for-aspirants/"><u>Thoughts for Aspirants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193432-9781609252496-coincidence-or-destiny/"><u>Coincidence or Destiny? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193437-9781609250287-life-is-sweet/"><u>Life Is Sweet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193424-9781642501278-living-a-loved-life/"><u>Living a Loved Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193445-9781633536531-prayers-for-hard-times/"><u>Prayers for Hard Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193372-9781642502626-start-here-start-now-start-anywhere/"><u>Start Here, Start Now . . . Start Anywhere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193429-9781609252229-the-community-of-kindness/"><u>The Community of Kindness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

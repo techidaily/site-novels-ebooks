@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2024-11-26T16:33:39.052Z
-updated: 2024-11-27T23:14:28.045Z
+date: 2024-12-01T01:44:12.252Z
+updated: 2024-12-06T19:30:40.922Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,14 +178,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782682-9781594778483-bone-marrow-nei-kung/"><u>Bone Marrow Nei Kung | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782689-9781594776656-darkness-visible/"><u>Darkness Visible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782688-9781594778568-decoding-the-enochian-secrets/"><u>Decoding the Enochian Secrets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782683-9781594779459-karsai-nei-tsang/"><u>Karsai Nei Tsang | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782684-9781594777899-the-vaastu-workbook/"><u>The Vaastu Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102941-9781071558072-guide-de-guerison-et-de-formation-de-lempathe/"><u>Guide de Guérison et de Formation de L’empathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102987-9781071555552-le-jardin-de-megan/"><u>Le Jardin de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103342-9781250769541-manifesting/"><u>Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103153-9781071546949-meditation-pour-les-debutants/"><u>Méditation pour les Débutants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103018-9781071554821-megan-e-il-ciclista/"><u>Megan e il ciclista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103035-9781071558904-megans-tuin/"><u>Megan's Tuin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103152-9781071555194-megans-skolresa/"><u>Megans skolresa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103084--voices-from-beyond/"><u>Voices from Beyond | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

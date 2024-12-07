@@ -1,7 +1,7 @@
 ---
 title: The Inner Structure of Tai Chi (2nd ed.) | Free Book
-date: 2024-10-25T04:59:50.037Z
-updated: 2024-10-27T01:08:54.760Z
+date: 2024-12-05T05:10:30.673Z
+updated: 2024-12-07T00:01:08.709Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f558281fa41aedfff39c8adfcf35d69ad5e51bfbe03a5334fb8a8efd54aa0a14.jpg
@@ -187,3 +187,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f558281fa41aedfff39c8adfcf35d69
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1924704-9780698408753-angels/"><u>Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1925423-9781782790211-breaking-the-mother-goose-code/"><u>Breaking the Mother Goose Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1925436-9781782794134-teen-spirit-guide-to-working-with-mediumship/"><u>Teen Spirit Guide to Working with Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1920844-9780786487523-the-conscious-mind-and-the-material-world/"><u>The Conscious Mind and the Material World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924732-9780698137226-the-secret-teachers-of-the-western-world/"><u>The Secret Teachers of the Western World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924696-9780698408067-the-simple-road/"><u>The Simple Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/191953-9780767910972-witch-crafting/"><u>Witch Crafting | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

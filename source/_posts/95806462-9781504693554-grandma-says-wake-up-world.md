@@ -1,7 +1,7 @@
 ---
 title: "Grandma Says: Wake Up, World! | Free Book"
-date: 2024-10-20T02:34:20.779Z
-updated: 2024-10-26T22:44:25.744Z
+date: 2024-12-03T23:32:42.287Z
+updated: 2024-12-07T02:03:03.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0fab6d8f84aab27478b49f2ba656b2dc475f592b5af6b9d88550b2dc90850ae.jpg
@@ -166,3 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0fab6d8f84aab27478b49f2ba656b2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/121819-9780253108388-claiming-sacred-ground/"><u>Claiming Sacred Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216496-9781583947272-manifesting-minds/"><u>Manifesting Minds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1215871-9781612830308-the-back-in-time-tarot-book/"><u>The Back in Time Tarot Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216500-9781583948200-the-return-of-the-mother/"><u>The Return of the Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1219168-9781101620274-whole-health/"><u>Whole Health | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Complete Book of Healing | Free Book
-date: 2024-10-23T02:44:22.226Z
-updated: 2024-10-26T20:09:13.216Z
+date: 2024-12-05T05:24:41.296Z
+updated: 2024-12-06T17:30:31.295Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/507981cb3e9e5b5408c44ffa11a7abc32e49f0b3d76d3640da1635d46da837ac.jpg
@@ -156,3 +156,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/507981cb3e9e5b5408c44ffa11a7abc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96505050-9781617208171-conscious-union-with-god/"><u>Conscious Union with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505155-9781627554039-the-law/"><u>The Law | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505057-9781617208201-the-power-of-your-subconscious-mind/"><u>The Power of Your Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505066-9781627553933-the-science-of-getting-rich/"><u>The Science of Getting Rich | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505078-9781627554725-the-science-of-getting-rich/"><u>The Science of Getting Rich | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96502178-9781939681683-when-spirit-calls/"><u>When Spirit Calls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499729-9781594734120-woman-spirit-awakening-in-nature/"><u>Woman Spirit Awakening in Nature | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

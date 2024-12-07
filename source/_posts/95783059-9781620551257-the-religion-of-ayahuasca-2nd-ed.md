@@ -1,7 +1,7 @@
 ---
 title: The Religion of Ayahuasca (2nd ed.) | Free Book
-date: 2024-10-19T16:00:51.284Z
-updated: 2024-10-26T18:47:31.834Z
+date: 2024-12-01T18:10:31.294Z
+updated: 2024-12-06T21:29:06.709Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7aebee2eb26d8b9467a997e049411f3db5ff84f406c5408a9f35fca2f9deb96a.jpg
@@ -179,3 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7aebee2eb26d8b9467a997e049411f3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138579039-9781462020485-alayas-fables/"><u>Alaya's Fables | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579046-9781475931365-how-the-churches-got-it-wrong/"><u>How the Churches Got It Wrong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138578533-9781449711061-ryans-world/"><u>Ryan's World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138578870-9781450292399-seasons/"><u>Seasons | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

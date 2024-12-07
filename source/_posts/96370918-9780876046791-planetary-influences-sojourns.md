@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2024-11-21T17:21:15.272Z
-updated: 2024-11-27T18:18:06.727Z
+date: 2024-11-30T05:37:39.685Z
+updated: 2024-12-07T02:17:04.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -139,16 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935367-9781844099597-crystal-healing-for-animals/"><u>Crystal Healing for Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935366-9781844099122-gratitude-and-beyond/"><u>Gratitude and Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935372-9781844098019-the-bicycle-effect/"><u>The Bicycle Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935369-9781844097715-the-fearless-path/"><u>The Fearless Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935368-9781844099542-the-findhorn-garden-story/"><u>The Findhorn Garden Story | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935374-9781844098132-the-missing-element/"><u>The Missing Element | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935364-9781844093908-the-path-of-synchronicity/"><u>The Path of Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184338-9781736047019-behind-those-heels/"><u>Behind those Heels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184450-9781087927909-faces-of-the-mother/"><u>Faces of the Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184584-9781734574180-saving-seventeen/"><u>Saving Seventeen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184501-9781952076152-the-50-million-reelection-gift/"><u>The $50-Million Reelection Gift | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

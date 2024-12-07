@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2024-11-21T19:18:01.768Z
-updated: 2024-11-27T16:07:22.277Z
+date: 2024-12-05T02:23:52.722Z
+updated: 2024-12-07T05:51:40.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,17 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782789-9781620554081-norse-goddess-magic-2nd-ed/"><u>Norse Goddess Magic (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782788-9781594775512-nostradamus-the-lost-manuscript-2nd-ed/"><u>Nostradamus: The Lost Manuscript (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782781-9781620550762-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782785-9781594779411-numerology-for-decoding-behavior/"><u>Numerology for Decoding Behavior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782786-9781594777790-numerology-for-healing/"><u>Numerology for Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782784-9781594777936-obi/"><u>Obí | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782782-9781620550625-tao-and-tai-chi-kung/"><u>Tao and T'ai Chi Kung | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782780-9781594777912-taoist-astral-healing/"><u>Taoist Astral Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117957-9781632657480-captured-the-betty-and-barney-hill-ufo-experience-60th-anniversary-edition/"><u>Captured! The Betty and Barney Hill UFO Experience (60th Anniversary Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117962-9781612834658-paranormal-confessions/"><u>Paranormal Confessions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117960-9781632657428-the-ancient-alien-question-10th-anniversary-edition/"><u>The Ancient Alien Question, 10th Anniversary Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117956-9781612834665-the-shamans-book-of-living-and-dying/"><u>The Shaman's Book of Living and Dying | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117964-9781612834481-this-life-is-yours/"><u>This Life Is Yours | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

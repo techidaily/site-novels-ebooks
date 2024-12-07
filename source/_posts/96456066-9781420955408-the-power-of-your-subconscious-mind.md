@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-11-22T17:51:24.501Z
-updated: 2024-11-27T20:29:24.891Z
+date: 2024-12-05T03:06:05.778Z
+updated: 2024-12-07T00:41:54.488Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,17 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782485-9781591437833-atlantis-and-the-coming-ice-age-2nd-ed/"><u>Atlantis and the Coming Ice Age (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782477-9781591438953-atlantis-beneath-the-ice-2nd-ed/"><u>Atlantis beneath the Ice (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782482-9781591439783-atlantis-in-the-amazon/"><u>Atlantis in the Amazon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782484-9781591438465-don-juan-and-the-power-of-medicine-dreaming-2nd-ed/"><u>Don Juan and the Power of Medicine Dreaming (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782481-9781591437598-shamanic-awakening-2nd-ed/"><u>Shamanic Awakening (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782487-9781591439929-shamanic-breathwork/"><u>Shamanic Breathwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782483-9781591439806-shamanic-egyptian-astrology/"><u>Shamanic Egyptian Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782486-9781591439455-the-return-of-the-rebel-angels/"><u>The Return of the Rebel Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065017-9781647849757-006-the-great-tao-of-spiritual-science-series-06-the-nature-spirituality-hsin-hsing/"><u>生命奧秘全書006：心性自然－靈性之修練與心性評量（養性篇）: The Great Tao of Spiritual Science Series 06: The Nature Spirituality "Hsin Hsing " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064917--after/"><u>After | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064679-9781071550045-arricchisciti-camminando-verso-il-mondo-delleta-dorata-con-commentari-alla-meditazione/"><u>Arricchisciti camminando verso il Mondo dell’Età Dorata (con commentari alla meditazione) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064687-9781071545232-megan-et-le-concours-de-cuisine/"><u>Megan et le Concours de Cuisine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064963-9781250773852-the-immutable-laws-of-the-akashic-field/"><u>The Immutable Laws of the Akashic Field | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064957-9781250784315-the-path-of-greatness-the-game-of-life-and-how-to-play-it-and-other-essential-works/"><u>The Path of Greatness: The Game of Life and How to Play It and Other Essential Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064962-9781250779977-the-science-of-mindthe-original-1926-edition-other-essential-works/"><u>The Science of Mind:The Original 1926 Edition & Other Essential Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064964-9781250780065-the-secrets-of-mind-power-the-secret-of-success-and-other-essential-works/"><u>The Secrets of Mind Power: The Secret of Success and Other Essential Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064954-9781250779694-ultimate-energy-using-your-natural-energies-to-balance-body-mind-and-spirit/"><u>Ultimate Energy: Using Your Natural Energies to Balance Body, Mind, and Spirit | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

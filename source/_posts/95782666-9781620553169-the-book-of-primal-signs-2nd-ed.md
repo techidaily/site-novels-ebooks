@@ -1,7 +1,7 @@
 ---
 title: The Book of Primal Signs (2nd ed.) | Free Book
-date: 2024-10-24T17:47:07.853Z
-updated: 2024-10-27T05:33:55.239Z
+date: 2024-12-05T00:27:57.556Z
+updated: 2024-12-07T04:48:05.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e60868938f2736086c1a4ba9d01f91567e82fbfd320543765297a649784be95.jpg
@@ -180,3 +180,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e60868938f2736086c1a4ba9d01f91
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1716816-9781466877863-divine-prescriptions/"><u>Divine Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1716377-9781776537365-evolution-of-life-and-form/"><u>Evolution of Life and Form | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1712936-9781473510333-seasons-of-hope/"><u>Seasons of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1710061-9781608829507-the-qigong-workbook-for-anxiety/"><u>The Qigong Workbook for Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1713677-9781615645459-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-11-25T19:26:39.080Z
-updated: 2024-11-27T21:55:23.740Z
+date: 2024-12-06T06:16:19.523Z
+updated: 2024-12-06T21:18:18.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,18 +170,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782324-9781591438359-gobekli-tepe-genesis-of-the-gods/"><u>Gobekli Tepe: Genesis of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782323-9781591438526-gods-of-eden/"><u>Gods of Eden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782325-9781591439585-gods-of-the-runes/"><u>Gods of the Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782319-9781591438052-mysteries-of-the-ancient-past/"><u>Mysteries of the Ancient Past | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782327-9781591438472-power-animal-meditations/"><u>Power Animal Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782326-9781591438670-prayers-and-meditations-of-the-quero-apache/"><u>Prayers and Meditations of the Quero Apache | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782329-9781591437543-the-mysterious-origins-of-hybrid-man/"><u>The Mysterious Origins of Hybrid Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782322-9781591438731-time-and-the-technosphere/"><u>Time and the Technosphere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782320-9781591439394-visionary-shamanism/"><u>Visionary Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210024818-9781912409068-for-humanity/"><u>For Humanity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210025905-9789198578522-mission-space/"><u>Mission Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210025281-9781538131459-researching-the-paranormal/"><u>Researching the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210025284-9781493044801-spooky-maryland-2nd-ed/"><u>Spooky Maryland (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The New Orleans Voodoo Handbook | Free Book
-date: 2024-10-21T03:20:48.773Z
-updated: 2024-10-27T04:34:25.386Z
+date: 2024-12-02T20:48:55.405Z
+updated: 2024-12-07T06:58:06.952Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b68a8afabd2b1c02deaa0847a8d77f120cf0a6a080f8fe2d2746f8f456f85255.jpg
@@ -194,3 +194,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b68a8afabd2b1c02deaa0847a8d77f1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209513016-9781633411388-becoming-dangerous/"><u>Becoming Dangerous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2094942-9781782798668-integration/"><u>Integration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209513553-9781612834351-out-of-your-hands/"><u>Out of Your Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209513018-9781633411135-tarot-for-troubled-times/"><u>Tarot for Troubled Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209512980-9781888729726-the-invisible-master/"><u>The Invisible Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209513015-9781633411197-true-magic/"><u>True Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209513019-9781633411319-ufo-secrets-inside-wright-patterson/"><u>UFO Secrets Inside Wright-Patterson | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

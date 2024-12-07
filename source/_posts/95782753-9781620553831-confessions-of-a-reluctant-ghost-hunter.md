@@ -1,7 +1,7 @@
 ---
 title: Confessions of a Reluctant Ghost Hunter | Free Book
-date: 2024-10-24T04:18:17.561Z
-updated: 2024-10-26T20:17:45.990Z
+date: 2024-12-05T16:16:16.508Z
+updated: 2024-12-06T17:10:26.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98385308003fbfbe61e1956e8a5b80c2a856d0650561d2e191fd6ed7cb84abbd.jpg
@@ -195,3 +195,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98385308003fbfbe61e1956e8a5b80c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1683723-9781317994176-god-image-handbook-for-spiritual-counseling-and-psychotherapy/"><u>God Image Handbook for Spiritual Counseling and Psychotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684660-9781466873889-love-lives-using-astrology-to-build-the-perfect-relationship-with-any-star-sign/"><u>Love Lives: Using Astrology to Build the Perfect Relationship with Any Star Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684664-9781466873896-moon-signs-for-lovers/"><u>Moon Signs for Lovers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684689-9781466873902-your-stars-at-work/"><u>Your Stars at Work | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

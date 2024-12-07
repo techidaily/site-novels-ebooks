@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Australian Druidry | Free Book
-date: 2024-10-21T19:07:30.142Z
-updated: 2024-10-26T20:39:14.977Z
+date: 2024-12-06T05:59:16.514Z
+updated: 2024-12-07T03:28:26.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63782e7c912ad18e018424ea2bf1108a7efb795d766b244bec17325b493d1dd5.jpg
@@ -147,3 +147,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63782e7c912ad18e018424ea2bf1108
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96380819-9781771621342-embers/"><u>Embers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393655-9781620559116-healing-body-meditations/"><u>Healing Body Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393656-9781620558058-instructions-for-spiritual-living-3rd-ed/"><u>Instructions for Spiritual Living (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393351-9780399582967-lifeprints/"><u>Lifeprints | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96387982-9780801462252-the-occult-mind/"><u>The Occult Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96387691-9780801464881-the-secret-history-of-hermes-trismegistus/"><u>The Secret History of Hermes Trismegistus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96386079-9781926845555-why-not/"><u>Why Not? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

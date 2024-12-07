@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-11-20T19:46:07.586Z
-updated: 2024-11-27T22:21:11.633Z
+date: 2024-11-29T20:06:58.379Z
+updated: 2024-12-07T02:02:35.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,15 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95777856-9781449446338-100-hugs/"><u>100 Hugs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95774504-9781608684960-expect-the-unexpected/"><u>Expect the Unexpected | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95776658-9788121252263-mind-and-ideology/"><u>Mind And Ideology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95777808-9781493027996-spooky-michigan-2nd-ed/"><u>Spooky Michigan (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95775814-9781946764010-the-nest-in-the-stream/"><u>The Nest in the Stream | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95774685-9781937673857-the-new-diplomatic-strategies-of-sir-winston-churchill/"><u>The New Diplomatic Strategies of Sir Winston Churchill | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974011-9781633412118-ancient-egyptian-magic-for-modern-witches/"><u>Ancient Egyptian Magic for Modern Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974005-9780892546794-astrologys-higher-octaves/"><u>Astrology's Higher Octaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974015-9781633411760-earth-energy-meditations/"><u>Earth Energy Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974007-9781633412057-psychic-self-defense/"><u>Psychic Self-Defense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974013-9781633411906-the-extraterrestrial-species-almanac/"><u>The Extraterrestrial Species Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974006-9781633411982-the-way-of-the-water-priestess/"><u>The Way of the Water Priestess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974008-9781881098751-the-witches-almanac-2021-2022-standard-edition/"><u>The Witches' Almanac 2021-2022 Standard Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974012-9781632657633-war-of-the-gods/"><u>War of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974020-9781633411876-year-of-the-witch/"><u>Year of the Witch | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

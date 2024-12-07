@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Western Sexual Mysticism | Free Book
-date: 2024-10-23T02:54:55.699Z
-updated: 2024-10-26T21:31:01.404Z
+date: 2024-12-01T16:29:03.568Z
+updated: 2024-12-07T02:40:44.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85ad0feb847a15a8201cecc902c5625d3518e3f3052eef632018ee785e702384.jpg
@@ -185,3 +185,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85ad0feb847a15a8201cecc902c5625
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1985914-9781780282459-confusion-no-more/"><u>Confusion No More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985918-9781780282541-the-knights-of-the-holy-grail/"><u>The Knights of the Holy Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985915-9781780282466-the-wisdom-of-balsekar/"><u>The Wisdom of Balsekar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985919-9781780282558-what-islam-did-for-us/"><u>What Islam Did For Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

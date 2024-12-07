@@ -1,7 +1,7 @@
 ---
 title: Exploring the Crack in the Cosmic Egg (6th ed.) | Free Book
-date: 2024-10-23T16:09:01.614Z
-updated: 2024-10-27T00:10:41.657Z
+date: 2024-12-04T19:03:21.680Z
+updated: 2024-12-06T19:45:20.692Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45ad3b3cb72b15f0a9b58934b6abf95ca188b6be0fb14ca911a6046c9ad04df6.jpg
@@ -196,3 +196,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45ad3b3cb72b15f0a9b58934b6abf95
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138594326-9781452546858-1-2-3-your-wish-is-granted/"><u>1, 2, 3 Your Wish Is Granted! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594470-9781452537467-divinely-touched-transform-your-life/"><u>Divinely Touched: Transform Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594605-9781452545097-escucha-al-amor/"><u>Escucha Al Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594313-9781452547329-househeal/"><u>Househeal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594282-9781452548623-life-on-the-flow/"><u>Life on the Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594530-9781475902617-madeleine-and-the-seventh-mystic/"><u>Madeleine and the Seventh Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594400-9781452538020-ricky-roars/"><u>Ricky Roars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594629-9781452541525-theres-a-whole-in-the-sky/"><u>There's a Whole in the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594814-9781462069750-transcending-illness-through-the-power-of-belief/"><u>Transcending Illness Through the Power of Belief | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

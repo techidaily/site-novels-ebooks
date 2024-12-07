@@ -1,7 +1,7 @@
 ---
 title: Seeing the Dead, Talking with Spirits | Free Book
-date: 2024-10-24T05:54:06.023Z
-updated: 2024-10-26T21:05:42.184Z
+date: 2024-12-05T23:30:35.740Z
+updated: 2024-12-06T21:26:52.744Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95b1b1b52152bb4f06c6b82db4de3634eece38160148d504f8f5e59bc3bf07c2.jpg
@@ -187,3 +187,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95b1b1b52152bb4f06c6b82db4de363
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2048718-9781634240024-a-sorcerers-apprentice/"><u>A Sorcerer's Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2054578-9781459732438-haunted-ontario-3-book-bundle/"><u>Haunted Ontario 3-Book Bundle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2052253-9780553419504-life-between-heaven-and-earth/"><u>Life Between Heaven and Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2052331-9781583949894-spiritual-balancing/"><u>Spiritual Balancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2055421-9780835631402-thought-forms/"><u>Thought Forms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2041962-9781782799832-tours-and-cures-of-a-lightsoldier/"><u>Tours and Cures of a Lightsoldier | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

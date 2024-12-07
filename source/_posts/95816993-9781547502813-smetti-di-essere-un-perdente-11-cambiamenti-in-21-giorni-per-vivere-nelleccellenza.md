@@ -1,7 +1,7 @@
 ---
 title: Smetti di essere un perdente. 11 cambiamenti in 21 giorni per vivere nell'eccellenza, | Free Book
-date: 2024-10-25T05:15:06.148Z
-updated: 2024-10-27T05:32:17.618Z
+date: 2024-11-30T20:05:50.900Z
+updated: 2024-12-07T04:14:57.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e03e020e530ee4f32b28076ebacedb7e1bb890848f7fff6b08869e046f1efc84.jpg
@@ -135,3 +135,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e03e020e530ee4f32b28076ebacedb7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/996178-9780770436469-a-complaint-free-world/"><u>A Complaint Free World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/997563-9781846949388-blue-sky-god/"><u>Blue Sky God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/998652-9781101614884-descubre-como-hacerse-rico-a-traves-del-zodiaco/"><u>Descubre cómo hacerse rico a través del zodiaco | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/996122-9780307824639-hello-from-heaven/"><u>Hello from Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/997566-9781780990989-life-is-eternal-newness/"><u>Life Is Eternal Newness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/997568-9781780994208-medicine-for-the-soul/"><u>Medicine for the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/996175-9780770433307-shoestrology/"><u>Shoestrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/996103-9780307814883-the-lens-of-perception/"><u>The Lens of Perception | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

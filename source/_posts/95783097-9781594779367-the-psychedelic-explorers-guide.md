@@ -1,7 +1,7 @@
 ---
 title: The Psychedelic Explorer's Guide | Free Book
-date: 2024-10-25T01:38:56.750Z
-updated: 2024-10-27T02:05:51.515Z
+date: 2024-12-01T02:24:04.213Z
+updated: 2024-12-07T06:03:14.025Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e85e6cccfd9799fb43448f503489f025feae61c87125be21c4270e0335ce1171.jpg
@@ -198,3 +198,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e85e6cccfd9799fb43448f503489f02
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138566230-9781401922634-adventures-of-a-psychic/"><u>Adventures of a Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566229-9781401932114-an-autobiography-of-george-washington/"><u>An Autobiography of George Washington | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566228-9781401922603-astrology-through-a-phychics-eyes/"><u>Astrology Through a Phychic's Eyes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138565813-9780880500937-falling-in-love-with-darkness/"><u>Falling in Love With Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138560203-9781939681874-order-of-the-sacred-earth/"><u>Order of the Sacred Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138561271-9780281078059-see-love-be/"><u>See, Love, Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138564923-9780880504553-the-psychology-of-the-esoteric-2nd-ed/"><u>The Psychology of the Esoteric (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

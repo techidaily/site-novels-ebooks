@@ -1,7 +1,7 @@
 ---
 title: "DMT: La molécula del espíritu | Free Book"
-date: 2024-10-22T01:28:04.232Z
-updated: 2024-10-27T03:18:53.364Z
+date: 2024-12-05T03:48:35.624Z
+updated: 2024-12-06T16:53:39.813Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2c0720d5da8e675990178b0bebeb0278af27d50cb45e023bae59ddd3e6cde37.jpg
@@ -174,3 +174,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2c0720d5da8e675990178b0bebeb02
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138571800-9781440137969-both-feet-on-the-spiritual-path/"><u>Both Feet on the Spiritual Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571714-9781450231725-physical-body-ascension-to-the-new-earth/"><u>Physical Body Ascension to the New Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571817-9781450237765-poetry-of-midlife-crisis/"><u>Poetry of Midlife Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571696-9780595631681-the-astrological-imagination/"><u>The Astrological Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571751-9780595888405-welcome-to-your-designer-planet/"><u>Welcome to Your Designer Planet! | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

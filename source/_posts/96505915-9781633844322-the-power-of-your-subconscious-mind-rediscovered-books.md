@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2024-11-25T18:59:18.711Z
-updated: 2024-11-27T21:40:50.311Z
+date: 2024-11-30T21:47:39.131Z
+updated: 2024-12-06T21:54:46.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,13 +153,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/442093-9781101076125-chariots-of-the-gods/"><u>Chariots of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/441581-9781101077016-jaguar-woman/"><u>Jaguar Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/441231-9781775568629-the-breath-of-life/"><u>The Breath of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/441832-9781101099247-the-hidden-power-of-the-bible/"><u>The Hidden Power of the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780343-9781633411722-horse-magick/"><u>Horse Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780346-9781632657626-on-the-trail-of-bigfoot/"><u>On the Trail of Bigfoot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780344-9781633411647-stellas-daemonum/"><u>Stellas Daemonum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780349-9781633411708-utterly-wicked/"><u>Utterly Wicked | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: I Don't Know What to Believe | Free Book
-date: 2024-11-24T18:12:16.627Z
-updated: 2024-11-27T22:26:51.519Z
+date: 2024-12-01T17:25:45.767Z
+updated: 2024-12-07T00:24:24.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152bb6c16e86aeec1f648f85b672402b361fa.jpg
@@ -205,13 +205,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782753-9781620553831-confessions-of-a-reluctant-ghost-hunter/"><u>Confessions of a Reluctant Ghost Hunter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782754-9781594778834-iron-shirt-chi-kung-2nd-ed/"><u>Iron Shirt Chi Kung (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782751-9781594777905-taoist-cosmic-healing/"><u>Taoist Cosmic Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782750-9781594778605-taoist-shaman/"><u>Taoist Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106514-9781771368964-fransesca/"><u>Fransesca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106622-9781608687053-growing-big-dreams/"><u>Growing Big Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106930-9781722526252-riches-now/"><u>Riches Now! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107075-9780648695790-the-art-of-accompanying/"><u>The Art of Accompanying | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106914-9781608687138-the-clear-light/"><u>The Clear Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106935-9780648946007-the-natural-high/"><u>THE NATURAL HIGH | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

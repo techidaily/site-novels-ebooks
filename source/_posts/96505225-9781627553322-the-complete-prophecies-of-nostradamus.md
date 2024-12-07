@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2024-11-25T16:26:19.695Z
-updated: 2024-11-27T16:30:06.510Z
+date: 2024-12-04T22:19:51.030Z
+updated: 2024-12-06T23:33:57.477Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,16 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/664358-9781846946295-crystal-prescriptions/"><u>Crystal Prescriptions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664364-9781846946301-dancing-in-the-footsteps-of-eve/"><u>Dancing In The Footsteps Of Eve | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664369-9781846946585-how-to-survive-a-pisces/"><u>How To Survive A Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664363-9781846946400-japanese-art-of-reiki/"><u>Japanese Art Of Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664356-9781846946448-palmistry-from-apprentice-to-pro-in-24/"><u>Palmistry: From Apprentice To Pro In 24 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664357-9781846946509-shamanic-reiki-expanded-ways-of-working/"><u>Shamanic Reiki: Expanded Ways Of Working | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664370-9781846946523-the-starfleet-messages/"><u>The Starfleet Messages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851405-9781947151291-45-ways-to-excellent-life/"><u>45 Ways to Excellent Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851401-9780983542810-a-fish-made-of-water/"><u>A Fish Made of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851305-9780995881105-beyond-surviving/"><u>Beyond Surviving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851496-9780984136049-my-subconscious-mind/"><u>My Subconscious Mind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

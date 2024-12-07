@@ -1,7 +1,7 @@
 ---
 title: The Mystery of Spring-Heeled Jack | Free Book
-date: 2024-10-24T20:04:05.420Z
-updated: 2024-10-26T18:07:49.789Z
+date: 2024-12-01T23:42:34.335Z
+updated: 2024-12-06T19:31:40.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93aba708e9d07ab2af3e4e2f3e052d61af9155ed6f48fd6ff9712b2a5bc12a6e.jpg
@@ -181,3 +181,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93aba708e9d07ab2af3e4e2f3e052d6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2080613-9780984840731-birth-2012-and-beyond/"><u>Birth 2012 and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2078517-9781476798950-denises-daily-word/"><u>Denise's Daily Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2081564-9781782797289-not-i-not-other-than-i/"><u>Not I, Not other than I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2081565-9781785350917-pagan-dreaming/"><u>Pagan Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2078465-9781501120244-the-creative-tarot/"><u>The Creative Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2081559-9781885928283-the-practice-of-magical-evocation/"><u>The Practice of Magical Evocation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2078558-9781476771472-your-body-and-the-stars/"><u>Your Body and the Stars | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Assim Acima, Como Abaixo. A Minha Vida Como Um Adepto. Uma Autobiografia por Seila Orienta | Free Book
-date: 2024-10-26T03:12:27.045Z
-updated: 2024-10-26T19:56:26.179Z
+date: 2024-12-04T18:14:51.967Z
+updated: 2024-12-07T03:38:33.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99f3ac682ee3507739f47f3a20b2021c9b505e5b3a79bb0fdfbc310f263041eb.jpg
@@ -146,3 +146,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99f3ac682ee3507739f47f3a20b2021
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1121187-9781842438213-conspiracy-theories/"><u>Conspiracy Theories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121435--el-angel-caido/"><u>El ángel caído | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121434--el-tarot-intuitivo-del-siglo-xxi/"><u>El tarot intuitivo del siglo XXI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121432--entre-en-los-poderes-de-la-parapsicologia/"><u>Entre en… los poderes de la parapsicología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121433--entre-en-los-poderes-del-espiritismo/"><u>Entre en… los poderes del espiritismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121431--las-ciencias-ocultas/"><u>Las ciencias ocultas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121425--los-misterios-de-los-venenos/"><u>Los misterios de los venenos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121424--los-seres-de-luz/"><u>Los seres de luz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121441--rezar-a-los-angeles/"><u>Rezar a los ángeles | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

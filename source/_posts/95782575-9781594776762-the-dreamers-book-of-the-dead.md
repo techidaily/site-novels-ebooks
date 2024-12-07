@@ -1,7 +1,7 @@
 ---
 title: The Dreamer's Book of the Dead | Free Book
-date: 2024-10-23T05:35:42.718Z
-updated: 2024-10-26T18:19:35.026Z
+date: 2024-11-30T17:05:22.009Z
+updated: 2024-12-07T06:19:31.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/611e28e75e3afef042a0d737b73d3717dfea673b43d961575530cdd4e19711de.jpg
@@ -181,3 +181,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/611e28e75e3afef042a0d737b73d371
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209593991-9781472957443-giving-up-without-giving-up/"><u>Giving Up Without Giving Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593970-9781632658159-haindl-tarot-major-arcana-rev-ed/"><u>Haindl Tarot, Major Arcana, Rev Ed. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593570-9781925282344-healing-through-sound-colour-and-movement/"><u>Healing Through Sound, Colour and Movement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593388-9781922036391-love-equals-power/"><u>Love Equals Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593416-9781922175854-the-power-of-your-words/"><u>The Power Of Your Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209594746-9781786782984-what-the-dead-are-dying-to-teach-us/"><u>What the Dead are Dying to Teach Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

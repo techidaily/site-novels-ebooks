@@ -1,7 +1,7 @@
 ---
 title: Stop  Being  a Dumbass  11 Changes in 21 Days to Live a Life of Excellence | Free Book
-date: 2024-10-20T20:24:43.370Z
-updated: 2024-10-27T05:22:50.849Z
+date: 2024-12-02T17:01:47.358Z
+updated: 2024-12-06T21:44:55.693Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a63b1e8e2e2a999b63f8569ad57a034f11c50f3ea045fe366fbde7387062438.jpg
@@ -157,3 +157,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a63b1e8e2e2a999b63f8569ad57a03
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96506738-9781515406181-awakened-imagination/"><u>Awakened Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506367-9781515400011-knowledge-of-the-higher-worlds-and-its-attainment/"><u>Knowledge of the Higher Worlds and Its Attainment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506809-9781515407133-new-thought-bundle-2/"><u>New Thought Bundle #2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506776-9781515406914-new-thought-super-pack-2/"><u>New Thought Super Pack #2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506747-9781515406303-the-infinite-way/"><u>The Infinite Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506762-9781515406327-the-power-of-awareness/"><u>The Power Of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506924-9781515412250-through-the-gates-of-good/"><u>Through the Gates of Good | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

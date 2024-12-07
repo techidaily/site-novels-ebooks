@@ -1,7 +1,7 @@
 ---
 title: El poder curativo de la mente | Free Book
-date: 2024-10-25T02:43:15.438Z
-updated: 2024-10-27T04:41:01.990Z
+date: 2024-12-01T20:37:57.451Z
+updated: 2024-12-07T01:54:47.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adc4f452188aa640768795fc8dbc3f663fed63a08f680670ca5c1015577e276f.jpg
@@ -166,3 +166,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adc4f452188aa640768795fc8dbc3f6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138569479-9781450230155-a-heart-to-give/"><u>A Heart to Give | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568971-9780595616152-lightning-holds-my-hand/"><u>Lightning Holds My Hand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568936-9781462051205-manifesting-101-beyond/"><u>Manifesting 101 & Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568755-9781475909456-pilgrimage-to-java/"><u>Pilgrimage to Java | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569257-9781440139246-the-root-of-all-healing/"><u>The Root of All Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568838-9780595612475-through-the-veil/"><u>Through the Veil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568889-9780595831678-too-soon-old-too-late-smart/"><u>Too Soon Old-Too Late Smart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569494-9781450255622-wake-up-for-ascension-to-a-new-earth-or-leave/"><u>Wake up for Ascension to a New Earth - or Leave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569467-9781469727301-wealth-consciousness/"><u>Wealth Consciousness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

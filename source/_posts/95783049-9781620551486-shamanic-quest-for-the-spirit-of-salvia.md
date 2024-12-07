@@ -1,7 +1,7 @@
 ---
 title: Shamanic Quest for the Spirit of Salvia | Free Book
-date: 2024-10-23T22:14:25.770Z
-updated: 2024-10-26T21:02:04.231Z
+date: 2024-12-05T18:52:35.905Z
+updated: 2024-12-07T05:50:03.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/701c9a199194850d2b7bac700cfdedd9a9d9d0b14fc4ec22b7550894ab273c45.jpg
@@ -178,3 +178,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/701c9a199194850d2b7bac700cfdedd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138576297-9781440183935-finding-our-center/"><u>Finding Our Center | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576296-9781450246422-in-love-and-light/"><u>In Love and Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576286-9780595843923-keys-to-the-door-of-truth/"><u>Keys to the Door of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576269-9780595750719-the-ghost-next-door/"><u>The Ghost Next Door | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

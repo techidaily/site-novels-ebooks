@@ -1,7 +1,7 @@
 ---
 title: Sharp Spear, Crystal Mirror | Free Book
-date: 2024-10-24T21:03:34.473Z
-updated: 2024-10-27T01:54:50.917Z
+date: 2024-12-04T18:38:56.173Z
+updated: 2024-12-07T00:53:06.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82863a0a79dbdd2ebd3c906d8746679bd03dbb9782d65871f6f871e54236438e.jpg
@@ -179,3 +179,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82863a0a79dbdd2ebd3c906d8746679
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138619506-9781250153746-america-before/"><u>America Before | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138619859-9781633410954-conjuring-harriet-mama-moses-tubman-and-the-spirits-of-the-underground-railroad/"><u>Conjuring Harriet "Mama Moses " Tubman and the Spirits of the Underground Railroad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138617590-9781783253180-crystals/"><u>Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138616853-9781614483694-my-spirit-is-not-religious/"><u>My Spirit Is Not Religious | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138617028-9781630476618-ready-set-live/"><u>Ready, Set, Live! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138619858-9781633411357-the-big-book-of-tarot/"><u>The Big Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138618845-9781510720862-the-big-book-of-ufo-facts-figures-truth/"><u>The Big Book of UFO Facts, Figures & Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138617580-9781856754057-the-little-book-of-meditation/"><u>The Little Book of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138616880-9781614485810-the-prosperity-game/"><u>The Prosperity Game | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-11-23T21:11:41.323Z
-updated: 2024-11-27T20:05:37.869Z
+date: 2024-12-02T22:27:20.805Z
+updated: 2024-12-06T16:40:51.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,13 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/654507-9781429967860-dream-on-it/"><u>Dream on It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/654258-9781429944007-mystics-and-zen-masters/"><u>Mystics and Zen Masters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/655361-9781770707580-the-worlds-most-mysterious-objects/"><u>The World's Most Mysterious Objects | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/654264-9781429944076-thoughts-in-solitude/"><u>Thoughts In Solitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849577-9781946005137-campo-de-entrenamiento-budista/"><u>CAMPO DE ENTRENAMIENTO BUDISTA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849493-9780988986619-how-to-predict-the-future/"><u>How to Predict the Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849122-9780995735132-laberintos-a-w/"><u>Laberintos A-Ω | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849118-9780995735118-labyrinth-a-w/"><u>Labyrinth A-Ω | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849098-9789535945208-love-outside-the-box/"><u>Love Outside The Box | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849870-9781945558504-open-your-gifts/"><u>Open Your G.I.F.T.S. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849164-9781640075597-singing-into-bone/"><u>Singing into Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849639-9780473369347-the-new-mysticism/"><u>The New Mysticism | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2024-11-21T18:07:26.055Z
-updated: 2024-11-27T21:49:43.773Z
+date: 2024-12-02T05:07:28.148Z
+updated: 2024-12-06T23:33:51.066Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,15 +135,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/684874-9781446458549-astrology/"><u>Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/684899-9781446445891-druid-mysteries/"><u>Druid Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/689158-9781409022268-let-your-life-flow/"><u>Let Your Life Flow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/685381-9781101526002-the-complete-idiots-guide-to-discovering-your-past-lives-2nd-edition/"><u>The Complete Idiot's Guide to Discovering Your Past Lives, 2nd Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/684940-9781101515365-transcendence/"><u>Transcendence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/684877-9781446445877-turn-around/"><u>Turn-Around | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858537-9788792980540-a-life-changing-journey-with-a-master/"><u>A Life Changing Journey with a Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858595-9781532307560-dare-to-know-who-you-are/"><u>DARE TO KNOW WHO YOU ARE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858519-9780999494721-dream-a-better-dream/"><u>Dream A Better Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858430-9780692984741-elhaz-ablaze/"><u>Elhaz Ablaze | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858426--kundalini-yoga/"><u>Kundalini yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858509-9781999963002-the-art-of-the-intuitive-healer-volume-2/"><u>The art of the intuitive healer. Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858546-9780997118582-true-ghost-stories-and-hauntings/"><u>True Ghost Stories and Hauntings | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

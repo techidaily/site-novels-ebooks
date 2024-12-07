@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of the Mind | Free Book
-date: 2024-10-25T00:10:10.839Z
-updated: 2024-10-27T04:43:48.876Z
+date: 2024-11-30T16:52:18.291Z
+updated: 2024-12-07T03:00:59.299Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18a278b3851063fd6a0c19249b95b5674e24b8af49bb4245c672214215121206.jpg
@@ -145,3 +145,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18a278b3851063fd6a0c19249b95b56
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138590775-9781462071005-angels-legacy/"><u>Angel's Legacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590917-9781449731434-hers-to-treasure/"><u>Hers to Treasure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590805-9781452539447-hot-chocolate-for-seniors/"><u>Hot Chocolate for Seniors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590849-9781449719128-how-do-i-get-rid-of-a-ghost/"><u>How Do I Get Rid of a Ghost? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590799-9781452542676-i-healed-my-crohns-colitis/"><u>I Healed My Crohn's Colitis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590773-9781449719203-my-journey-my-cross/"><u>My Journey--My Cross | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590802-9781452535036-the-only-lesson/"><u>The Only Lesson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590987-9781449773571-the-prized-possession/"><u>The Prized Possession | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Survival Research: Problems and Possibilites | Free Book"
-date: 2024-10-23T18:28:15.564Z
-updated: 2024-10-26T19:06:10.275Z
+date: 2024-12-04T00:23:48.006Z
+updated: 2024-12-06T21:35:22.149Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3f4f14204e4bbfefb452bc9322c173536b0d89ce6823515ad09a88e2cea41c7.jpg
@@ -133,3 +133,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3f4f14204e4bbfefb452bc9322c173
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1094669-9781742757728-poems-of-love-and-life-for-aquarius/"><u>Poems of Love and Life for Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094671-9781742757766-poems-of-love-and-life-for-aries/"><u>Poems of Love and Life for Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094674-9781742757827-poems-of-love-and-life-for-cancer/"><u>Poems of Love and Life for Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094668-9781742757704-poems-of-love-and-life-for-capricorn/"><u>Poems of Love and Life for Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094673-9781742757803-poems-of-love-and-life-for-gemini/"><u>Poems of Love and Life for Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094675-9781742757841-poems-of-love-and-life-for-leo/"><u>Poems of Love and Life for Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094670-9781742757742-poems-of-love-and-life-for-pisces/"><u>Poems of Love and Life for Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094672-9781742757780-poems-of-love-and-life-for-taurus/"><u>Poems of Love and Life for Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094676-9781742757865-poems-of-love-and-life-for-virgo/"><u>Poems of Love and Life for Virgo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

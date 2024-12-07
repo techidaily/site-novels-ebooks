@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2024-10-22T04:02:31.551Z
-updated: 2024-10-27T01:27:43.397Z
+date: 2024-11-29T23:15:20.828Z
+updated: 2024-12-07T06:34:37.726Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b6b8c0fc2a0a5b3ff4858fb46359ad2bc4c985ab6c45eb1c4ffc9718cb5602f.jpg
@@ -139,3 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b6b8c0fc2a0a5b3ff4858fb46359ad
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1187259-9781846946790-colin-wilsons-occult-trilogy/"><u>Colin Wilson's 'Occult Trilogy' | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1187269-9781780998466-how-to-soothe-a-virgo/"><u>How to Soothe a Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1187465-9781609258917-of-witches/"><u>Of Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1187466-9780892545537-soul-centered-astrology/"><u>Soul Centered Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1188136-9781583947258-the-more-beautiful-world-our-hearts-know-is-possible/"><u>The More Beautiful World Our Hearts Know Is Possible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1191831-9781476751948-the-secret-daily-teachings/"><u>The Secret Daily Teachings | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

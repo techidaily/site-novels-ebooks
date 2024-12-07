@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-11-20T17:42:22.252Z
-updated: 2024-11-27T17:54:20.524Z
+date: 2024-12-04T19:11:56.020Z
+updated: 2024-12-07T03:09:04.938Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,16 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/327456-9780316032797-after-the-fire/"><u>After the Fire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/328792-9780976397274-dancing-with-the-aardvark/"><u>Dancing with the Aardvark | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/321725-9781416539780-discover-your-inner-wisdom/"><u>Discover Your Inner Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/320686-9780977055500-how-to-get-anything-you-want/"><u>How to Get Anything You Want | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/326240-9781416588061-miraculous-health/"><u>Miraculous Health | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/328774-9780973094909-the-art-of-living-in-your-green-zone/"><u>The Art of Living in Your Green Zone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/328768-9780973094930-the-art-of-loving-in-your-green-zone/"><u>The Art of Loving in Your Green Zone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209690884-9780857838261-ancient-wisdom-for-modern-living/"><u>Ancient Wisdom for Modern Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691039-9781250257741-auras/"><u>Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209690048-9780691200620-change/"><u>Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209693660-9781939839053-how-patience-works/"><u>How Patience Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209690814-9781916068971-otherworlds/"><u>Otherworlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691091-9781250246455-reconnecting-to-the-source/"><u>Reconnecting to The Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691112-9781250253057-soul-magic/"><u>Soul Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691054-9781250250704-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691105-9781250230591-the-warrior-heart-practice/"><u>The Warrior Heart Practice | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

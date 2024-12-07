@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2024-11-25T22:24:12.620Z
-updated: 2024-11-27T21:30:29.189Z
+date: 2024-12-01T21:29:06.304Z
+updated: 2024-12-06T21:41:08.627Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,16 +184,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95846967-9781507205303-find-your-goddess/"><u>Find Your Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95845201-9781439658239-haunted-bachelors-grove/"><u>Haunted Bachelors Grove | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842534-9781788286527-hauntings/"><u>Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95847344-9781507205792-my-pocket-mantras/"><u>My Pocket Mantras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842530-9781788284523-the-complete-book-of-dreams/"><u>The Complete Book of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842751-9781881098447-the-witches-almanac-issue-37-spring-2018-to-2019/"><u>The Witches' Almanac: Issue 37, Spring 2018 to 2019 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95847018-9781501176906-unmedicated/"><u>Unmedicated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164012-9781645848943-it-is-time/"><u>It Is Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163979-9781647017002-medium-brave/"><u>Medium Brave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164425-9781634177542-the-story-of-us/"><u>The Story of Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164021-9781646286690-words-thoughts-imaginations-and-inspirational-reading/"><u>Words, Thoughts, Imaginations, and Inspirational Reading | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Find and Follow Your Inner Compass | Free Book
-date: 2024-10-22T23:01:14.738Z
-updated: 2024-10-26T20:00:44.498Z
+date: 2024-12-05T03:04:04.993Z
+updated: 2024-12-07T00:42:45.890Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a9225c58f8a2416ab00f4c76b7d6d3eae7382af39c15d436fcef68efa169dae2.jpg
@@ -152,3 +152,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a9225c58f8a2416ab00f4c76b7d6d3e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1144840-9781612832791-the-seven-chakra-sisters/"><u>The Seven Chakra Sisters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144828-9781938289064-the-universe-in-black-and-white/"><u>The Universe in Black and White | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144833-9781612831329-the-witches-almanac-issue-30-spring-2011-to-spring-2012/"><u>The Witches' Almanac: Issue 30, Spring 2011 to Spring 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144830-9781609256159-voodoo-hoodoo-spellbook/"><u>Voodoo Hoodoo Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144843-9781612833095-we-are-the-children-of-the-stars/"><u>We Are the Children of the Stars | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Timothy Leary: The Harvard Years | Free Book"
-date: 2024-10-25T01:15:50.491Z
-updated: 2024-10-26T17:36:16.526Z
+date: 2024-12-01T18:35:27.005Z
+updated: 2024-12-06T20:36:03.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6818286b06184be6fa5238998e4ab97afaac9165388b0d2c01f4bab52352dfb7.jpg
@@ -188,3 +188,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6818286b06184be6fa5238998e4ab97
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138593655-9781462070688-abc-book-of-poems/"><u>Abc Book of Poems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593739-9781475930238-american-dream/"><u>American Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593792-9781452538259-how-i-found-my-true-inner-peace/"><u>How I Found My True Inner Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593675-9781452508702-madeleine-maddy-midge/"><u>Madeleine, Maddy & Midge | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

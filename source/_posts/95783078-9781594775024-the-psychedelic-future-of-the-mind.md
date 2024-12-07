@@ -1,7 +1,7 @@
 ---
 title: The Psychedelic Future of the Mind | Free Book
-date: 2024-10-20T21:29:36.386Z
-updated: 2024-10-26T16:55:50.530Z
+date: 2024-12-02T00:43:45.451Z
+updated: 2024-12-07T05:58:42.070Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10932dbc7ff3d815545813872cd5db7f3ff5e4c28c6f3a96f17ead3ee528e477.jpg
@@ -194,3 +194,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10932dbc7ff3d815545813872cd5db7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138588672-9781449735630-2251-acoustic-neuroma/"><u>225.1 Acoustic Neuroma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588724-9781469781549-aliens-and-angels-ii/"><u>Aliens and Angels Ii | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588910-9781452541341-slow-train/"><u>Slow Train | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588944-9781452545868-surrendering-to-the-call/"><u>Surrendering to the Call | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588671-9781452549279-the-12-principles-of-pyonghwa/"><u>The 12 Principles of Pyong'hwa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588712-9781449744205-the-adorning-of-a-woman/"><u>The Adorning of a Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588892-9781452539034-the-awakening-of-a-warrior-angel/"><u>The Awakening of a Warrior-Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588998-9781449717872-worship-me-because/"><u>Worship Me Because | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

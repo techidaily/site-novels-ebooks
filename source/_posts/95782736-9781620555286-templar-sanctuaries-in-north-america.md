@@ -1,7 +1,7 @@
 ---
 title: Templar Sanctuaries in North America | Free Book
-date: 2024-10-25T01:46:27.912Z
-updated: 2024-10-26T20:06:19.448Z
+date: 2024-11-29T19:22:55.588Z
+updated: 2024-12-07T06:18:41.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3045e00bf2caa50b3cb7f4a925fe1f6a2290243a17172d51214e29cfa7a58315.jpg
@@ -184,3 +184,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3045e00bf2caa50b3cb7f4a925fe1f6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1630723-9781776530601-book-of-wise-sayings/"><u>Book of Wise Sayings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629887-9781466866997-feng-shui/"><u>Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1630703-9781776530205-lures-of-life/"><u>Lures of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629281-9781459728462-meeting-place-of-the-dead/"><u>Meeting Place of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629060-9781444719833-psychic-case-files/"><u>Psychic Case Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/163150-9780743418652-sight-unseen/"><u>Sight Unseen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628716-9781444129724-take-control-with-astrology-teach-yourself/"><u>Take Control With Astrology: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1630783-9781776531806-the-book-of-life/"><u>The Book of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629873-9781466867369-the-book-of-women/"><u>The Book of Women | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

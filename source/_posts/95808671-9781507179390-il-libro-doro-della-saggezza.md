@@ -1,7 +1,7 @@
 ---
 title: Il libro d'oro della saggezza | Free Book
-date: 2024-10-26T04:04:43.677Z
-updated: 2024-10-26T22:14:50.598Z
+date: 2024-11-30T01:04:27.448Z
+updated: 2024-12-06T22:59:05.380Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6174378badab5229489bb246b5a9129b797e7767ff4a2bd2b6da97c0324a905c.jpg
@@ -142,3 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6174378badab5229489bb246b5a9129
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125533-9781609254728-apocalypse-of-baruch-and-the-assumption-of-moses/"><u>Apocalypse Of Baruch And The Assumption Of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125534-9781609254704-applied-magic/"><u>Applied Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125535-9781609256609-aquarius-now/"><u>Aquarius Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125537-9781609257071-the-art-and-practice-of-astral-projection/"><u>The Art and Practice of Astral Projection | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

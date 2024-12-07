@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-11-24T17:41:45.528Z
-updated: 2024-11-27T20:51:42.837Z
+date: 2024-12-04T17:44:36.247Z
+updated: 2024-12-06T19:10:46.838Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac07a38be5866ac3c050132f9f679e6b03a3.jpg
@@ -141,18 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782811-9781620554289-emotion-and-healing-in-the-energy-body/"><u>Emotion and Healing in the Energy Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782905-9781594777844-himalayan-salt-crystal-lamps/"><u>Himalayan Salt Crystal Lamps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782878-9781594776526-qigong-teachings-of-a-taoist-immortal/"><u>Qigong Teachings of a Taoist Immortal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782867-9781594777820-reiki-energy-medicine/"><u>Reiki Energy Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782827-9781620552537-seiki-jutsu/"><u>Seiki Jutsu | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782825-9781620550045-self-healing-with-breathwork/"><u>Self-Healing with Breathwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782793-9781620555620-tantric-jesus/"><u>Tantric Jesus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782851-9781620554180-the-spiritual-mysteries-of-blood/"><u>The Spiritual Mysteries of Blood | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782884-9781594775253-the-warrior-as-healer/"><u>The Warrior As Healer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117973-9781633412231-american-brujeria/"><u>American Brujeria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117971-9781633412156-ancestral-tarot/"><u>Ancestral Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117974-9781633412088-doctoring-the-devil/"><u>Doctoring the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117967-9781633411852-four-elements-of-the-wise/"><u>Four Elements of the Wise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117972-9781633411913-hekate/"><u>Hekate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117968-9781633412163-manifestation-magic/"><u>Manifestation Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117976-9781633411975-seasons-of-a-magical-life/"><u>Seasons of a Magical Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117966-9781632657459-ufos-and-the-deep-state/"><u>UFOs and the Deep State | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117969-9781633412132-wild-soul-runes/"><u>Wild Soul Runes | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Energy Healing for Everyone | Free Book
-date: 2024-11-23T20:36:47.052Z
-updated: 2024-11-27T19:51:05.434Z
+date: 2024-12-01T00:29:18.164Z
+updated: 2024-12-06T17:26:43.273Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859a2687327012523ee141028dafe5e3e789.jpg
@@ -175,14 +175,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782695-9781594776991-cosmic-astrology/"><u>Cosmic Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782691-9781594778513-healing-light-of-the-tao-2nd-ed/"><u>Healing Light of the Tao (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782693-9781594776274-shamanic-christianity/"><u>Shamanic Christianity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782692-9781594775567-the-world-dream-book/"><u>The World Dream Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782694-9781594777233-the-world-is-as-you-dream-it/"><u>The World Is As You Dream It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103370-9781250790682-chakras-food-and-you/"><u>Chakras, Food, and You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103373-9781250779991-scientific-christian-mental-practice-also-includes-high-mysticism/"><u>Scientific Christian Mental Practice: Also Includes High Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103358-9781250794918-the-edinburgh-lectures-on-mental-science-and-other-essential-works/"><u>The Edinburgh Lectures on Mental Science: And Other Essential Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103345-9781250212634-the-kingdom/"><u>The Kingdom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

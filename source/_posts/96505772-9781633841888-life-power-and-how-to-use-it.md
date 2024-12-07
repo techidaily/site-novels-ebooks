@@ -1,7 +1,7 @@
 ---
 title: Life Power and How to Use It | Free Book
-date: 2024-11-20T20:49:20.882Z
-updated: 2024-11-27T16:39:34.226Z
+date: 2024-12-05T01:14:04.287Z
+updated: 2024-12-06T22:43:36.796Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f8b0d68c30dc559a17ffd4ac5d1f54a86a.jpg
@@ -135,15 +135,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/730015-9780989100052-a-helbrede-sinnet/"><u>A Helbrede Sinnet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/730372-9781446489918-a-home-course-in-nutrition/"><u>A Home Course In Nutrition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/730383-9781446490761-astrological-aromatherapy/"><u>Astrological Aromatherapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/730374-9781446489963-spiritual-alchemy/"><u>Spiritual Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/730375-9781446489970-the-mirror-of-existence/"><u>The Mirror Of Existence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/727588-9781446489871-the-secret-path/"><u>The Secret Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861020-9781999885137-a-little-book-of-permission/"><u>A Little Book of Permission | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861447-9780984530687-alicerce-para-a-cura/"><u>Alicerce para a Cura | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860970-9781908421296-animals-in-the-spirit-world/"><u>Animals in the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861292-9780987600738-the-magdalen-codes/"><u>The Magdalen Codes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860860-9780999636510-the-origin-comes-alive/"><u>The Origin Comes Alive | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

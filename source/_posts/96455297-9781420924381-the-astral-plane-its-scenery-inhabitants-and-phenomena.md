@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-11-23T18:29:37.881Z
-updated: 2024-11-27T20:10:24.167Z
+date: 2024-12-03T23:33:40.411Z
+updated: 2024-12-07T05:25:13.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,18 +136,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782458-9781591438137-breaking-the-mirror-of-heaven/"><u>Breaking the Mirror of Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782456-9781591438427-breathing/"><u>Breathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782453-9781591438038-how-to-create-sacred-water/"><u>How to Create Sacred Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782460-9781591438625-mastery-of-awareness/"><u>Mastery of Awareness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782462-9781591439332-medicine-of-the-cherokee/"><u>Medicine of the Cherokee | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782461-9781591438908-meditations-with-animals/"><u>Meditations with Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782463-9781591437871-the-union-of-isis-and-thoth/"><u>The Union of Isis and Thoth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782464-9781591437567-the-vatican-heresy/"><u>The Vatican Heresy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782459-9781591438939-the-velikovsky-heresies/"><u>The Velikovsky Heresies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064361-9781913479213-dear-mam/"><u>Dear Mam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064444-9781989838495-guided-meditations-for-deep-sleep-overcoming-anxiety-mindfulness/"><u>Guided Meditations For Deep Sleep, Overcoming Anxiety& Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064448-9781989838501-guided-meditations-bedtime-stories-hypnosis-for-deep-sleep-self-healing-anxiety-2-in-1/"><u>Guided Meditations, Bedtime Stories & Hypnosis For Deep Sleep, Self-Healing& Anxiety (2 In 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064090-9781071546185-meditacion-tecnicas-de-meditacion-para-incrementar-la-energia/"><u>Meditación: Técnicas de meditación para incrementar la energía | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064088-9781071545805-through-the-maze-of-chartres-on-the-path-to-yourself/"><u>Through the Maze of Chartres on the Path to Yourself | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

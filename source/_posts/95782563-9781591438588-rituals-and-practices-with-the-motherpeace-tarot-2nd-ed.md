@@ -1,7 +1,7 @@
 ---
 title: Rituals and Practices with the Motherpeace Tarot (2nd ed.) | Free Book
-date: 2024-10-23T20:59:29.375Z
-updated: 2024-10-27T02:28:31.301Z
+date: 2024-12-03T07:19:21.351Z
+updated: 2024-12-07T02:01:19.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c54e17da319223f4994ce8acb60f1f0db0f1a4715033767ad8ab773aa90de5c4.jpg
@@ -181,3 +181,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c54e17da319223f4994ce8acb60f1f0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209559287-9781785358913-divine-meditations/"><u>Divine Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560209-9781631584442-dreams-interpreted/"><u>Dreams Interpreted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560312-9781507210239-friendship-signs/"><u>Friendship Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209559426-9780982871805-love-yourself-love-your-life/"><u>Love Yourself Love Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560114-9781501173790-the-four-sacred-secrets/"><u>The Four Sacred Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560188-9781507210895-the-healing-power-of-reiki/"><u>The Healing Power of Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560189-9781507210857-the-only-tarot-book-youll-ever-need/"><u>The Only Tarot Book You'll Ever Need | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560225-9781507210758-wicca-a-modern-practitioners-guide/"><u>Wicca: A Modern Practitioner's Guide | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

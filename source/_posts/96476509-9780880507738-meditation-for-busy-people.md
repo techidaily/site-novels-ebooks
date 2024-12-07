@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2024-11-20T17:28:27.287Z
-updated: 2024-11-27T18:00:40.772Z
+date: 2024-12-03T23:39:44.436Z
+updated: 2024-12-06T23:03:30.823Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -178,13 +178,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782416-9781591439714-14-steps-to-awaken-the-sacred-feminine/"><u>14 Steps to Awaken the Sacred Feminine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782417-9781591437703-rebel-angels-in-exile/"><u>Rebel Angels in Exile | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782419-9781591432104-remapping-your-mind/"><u>Remapping Your Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782418-9781591438519-the-lost-treasure-of-king-juba/"><u>The Lost Treasure of King Juba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210056697-9781999597276-the-stairway-to-happiness/"><u>通向幸福的阶梯 - The Stairway to Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061650-9781949661255-akashic-records-seminar-series-guided-practices-two-complete-seminars/"><u>Akashic Records Seminar Series - Guided Practices - Two Complete Seminars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061348-9781250782274-everyday-osho/"><u>Everyday Osho | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061534-9781989838464-guided-mindfulness-meditations-bedtime-stories-for-busy-adults/"><u>Guided Mindfulness Meditations & Bedtime Stories for Busy Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061608-9781913821104-irish-witchcraft-from-an-irish-witch-2nd-ed/"><u>Irish Witchcraft from an Irish Witch (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061547-9781648713385-origins-of-the-minor-arcana/"><u>Origins of the Minor Arcana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210059637-9780997592764-the-wayfarer-autumn-2019-issue/"><u>The Wayfarer Autumn 2019 Issue | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061173-9780753734506-tiny-healer-happiness/"><u>Tiny Healer: Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210056705-9781999425579-un-guide-de-ce-5/"><u>Un Guide de CE-5 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

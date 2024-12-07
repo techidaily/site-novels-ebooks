@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2024-11-25T19:29:00.877Z
-updated: 2024-11-27T20:43:17.150Z
+date: 2024-12-03T23:20:18.659Z
+updated: 2024-12-07T06:41:38.871Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,15 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/731682-9781780990095-an-angel-whispered/"><u>An Angel Whispered | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/731683-9781846949944-avenues-of-the-human-spirit/"><u>Avenues of the Human Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/731684-9781846949951-conscious-living-made-easy/"><u>Conscious Living Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/731516-9781429907705-tarot-in-the-spirit-of-zen/"><u>Tarot in the Spirit of Zen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/730390-9781446490839-the-mystical-crystal/"><u>The Mystical Crystal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/730408-9781446490631-we-are-one-another/"><u>We Are One Another | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861734-9781948172912-beyond-the-cross/"><u>Beyond the Cross | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861853-9780999228418-ensoulment/"><u>Ensoulment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861743-9781948172936-laying-up-treasures-in-heaven/"><u>Laying Up Treasures In Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862186-9780993462658-loves-story-of-why-we-are-here/"><u>Love's Story of Why We Are Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861705-9780999858622-member-heal-thyself/"><u>Member Heal Thyself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861954-9781999392116-soothsaying-tarot-and-the-mantegna-revealed/"><u>Soothsaying Tarot and the Mantegna Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862007-9781732241268-the-language-of-dreams/"><u>The Language of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861972-9781949169713-the-story-of-ada/"><u>The Story of Ada | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

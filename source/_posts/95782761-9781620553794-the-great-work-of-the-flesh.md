@@ -1,7 +1,7 @@
 ---
 title: The Great Work of the Flesh | Free Book
-date: 2024-10-19T17:06:09.779Z
-updated: 2024-10-26T18:34:01.953Z
+date: 2024-12-04T23:17:28.227Z
+updated: 2024-12-07T06:56:28.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15f558f2cf9ae3be6f842c2660b75f6edba1bb165a8e26b75e508aecfd20bdbf.jpg
@@ -193,3 +193,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15f558f2cf9ae3be6f842c2660b75f6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621202-9781601635938-ad-after-disclosure/"><u>A.D. After Disclosure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621208-9781632659033-beyond-the-bermuda-triangle/"><u>Beyond the Bermuda Triangle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621207-9781601637598-history-is-wrong/"><u>History Is Wrong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621205-9781601636010-the-unfoldment/"><u>The Unfoldment | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

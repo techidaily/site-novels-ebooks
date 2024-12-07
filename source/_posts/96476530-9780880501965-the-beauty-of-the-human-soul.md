@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-11-22T20:56:21.516Z
-updated: 2024-11-27T20:11:31.397Z
+date: 2024-12-05T19:50:42.226Z
+updated: 2024-12-06T16:14:07.916Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,17 +183,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95758766-9781501171796-la-magia-del-lerego/"><u>La Magia del LEREGO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758294-9780834841024-mindfulness-on-the-go/"><u>Mindfulness on the Go | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758671-9781507205020-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758425-9781841814803-the-encyclopedia-of-crystals-new-edition/"><u>The Encyclopedia of Crystals, New Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758691-9781507204726-the-green-witch/"><u>The Green Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95756414-9781250138071-the-wisdom-of-sundays/"><u>The Wisdom of Sundays | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758312-9781101992302-thriving-through-uncertainty/"><u>Thriving Through Uncertainty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95758668-9781507205082-unlightenment/"><u>Unlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209961612-9781644111505-finding-your-elvenheart/"><u>Finding Your ElvenHeart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962013-9781989838112-guided-meditations-for-deep-sleep-stress-relief-and-relaxation/"><u>Guided Meditations for Deep Sleep, Stress Relief and Relaxation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209961615-9781644111734-inviting-angels-into-your-life/"><u>Inviting Angels into Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209961609-9781644110836-sensitive-soul/"><u>Sensitive Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962705-9781734464641-so-how-do-i-know-this-is-real/"><u>So, How Do I Know This is Real? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209961607-9781591433965-the-chiron-effect/"><u>The Chiron Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962568-9789948365129-iy-orby/"><u>إيْ وَرَبِّي! | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

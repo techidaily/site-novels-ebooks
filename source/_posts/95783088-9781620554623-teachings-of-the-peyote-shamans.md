@@ -1,7 +1,7 @@
 ---
 title: Teachings of the Peyote Shamans | Free Book
-date: 2024-10-23T19:29:36.058Z
-updated: 2024-10-26T18:23:19.609Z
+date: 2024-12-01T16:34:21.039Z
+updated: 2024-12-06T19:26:30.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f678311e8f306c71ba29bf1f78c753af4dabaae223f4d99bf78374f457a73e8.jpg
@@ -201,3 +201,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f678311e8f306c71ba29bf1f78c753
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138544983-9781401949976-a-course-in-miracles-made-easy/"><u>A Course in Miracles Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545006-9781401926748-accepting-the-psychic-torch/"><u>Accepting the Psychic Torch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544997-9781401941109-archetypes/"><u>Archetypes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544984-9781401941734-celebrating-the-universe/"><u>Celebrating the Universe! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545011-9781401927714-chants-of-a-lifetime/"><u>Chants of a Lifetime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545009-9781401922306-cosmos/"><u>CosMos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544996-9781401925055-fractal-time/"><u>Fractal Time | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: A Brief Tour of Higher Consciousness (2nd ed.) | Free Book
-date: 2024-10-25T17:54:44.156Z
-updated: 2024-10-26T20:56:53.357Z
+date: 2024-12-06T02:06:59.563Z
+updated: 2024-12-06T19:40:18.516Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b490b7b801e671ae32ea98b9ec7bade72ca2cc7c2f698b36256a4dc0f88c86eb.jpg
@@ -176,3 +176,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b490b7b801e671ae32ea98b9ec7bade
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209634834-9781547573028-la-meditazione-come-affrontare-stress-e-ansia/"><u>La Meditazione come affrontare stress e ansia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634827-9781547573141-meditacao-um-guia-perfeito-para-obter-paz-e-felicidade-interior/"><u>Meditação : Um Guia Perfeito Para Obter Paz E Felicidade Interior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634773-9781547573172-meditacao-incrivel-guia-para-iniciantes-e-aqueles-que-odeiam-ficar-parados/"><u>Meditação: Incrível Guia Para Iniciantes E Aqueles Que Odeiam Ficar Parados | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209630859-9781785358715-raising-faith/"><u>Raising Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209630861-9781789040395-sacred-art-a-hollow-bone-for-spirit/"><u>Sacred Art - A Hollow Bone for Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634783-9781547535750-trabajador-de-luz-reiki/"><u>Trabajador de Luz Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634762-9781547563661-uma-noite-em-annwn/"><u>Uma Noite em Annwn | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

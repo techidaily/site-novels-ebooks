@@ -1,7 +1,7 @@
 ---
 title: Shamanic Transformations | Free Book
-date: 2024-10-24T04:49:29.655Z
-updated: 2024-10-27T05:27:11.524Z
+date: 2024-12-03T02:59:15.537Z
+updated: 2024-12-06T18:35:10.692Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bdba995fa01501a554c0292f359a1a02293dd3712745cd8e3704c5a7da2ae1bb.jpg
@@ -192,3 +192,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bdba995fa01501a554c0292f359a1a0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1744287-9781782795599-crystal-prescriptions/"><u>Crystal Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1740516-9781583948361-holistic-tarot/"><u>Holistic Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1743864-9781135851620-homeless-children/"><u>Homeless Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1744915-9781476789521-mas-alla-de-la-vida-theres-more-to-life-than-this/"><u>Más allá de la vida (There's More to Life Than This) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1746047-9781409156772-mindfulness-plain-simple/"><u>Mindfulness Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1744114-9781459730069-real-hauntings-3-book-bundle/"><u>Real Hauntings — 3-Book Bundle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1744305-9781782796282-to-the-devils-tune/"><u>To the Devil's Tune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1742591-9781938289378-warrior-goddess-training/"><u>Warrior Goddess Training | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

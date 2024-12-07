@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2024-11-23T21:51:45.275Z
-updated: 2024-11-27T23:08:03.886Z
+date: 2024-12-06T05:18:27.045Z
+updated: 2024-12-07T04:09:49.293Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,16 +158,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/475339-9781458711304-breathe-you-are-alive/"><u>Breathe, You Are Alive! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475333-9781458711441-happiness/"><u>Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/472965-9781101173824-magic-power-of-white-witchcraft/"><u>Magic Power of White Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/472974-9781101173831-secrets-of-the-i-ching/"><u>Secrets of the I Ching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/473389-9781101173640-the-amazing-laws-of-cosmic-mind-power/"><u>The Amazing Laws of Cosmic Mind Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/471698-9781402228612-the-ghost-chronicles/"><u>The Ghost Chronicles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475330-9781458711311-the-world-we-have/"><u>The World We Have | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209801184-9781789041859-diary-of-a-death-doula/"><u>Diary of a Death Doula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804322-9781465498861-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804484-9781608936700-new-england-ufos/"><u>New England UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209805425-9780486844466-qigong-and-the-tai-chi-axis/"><u>Qigong and the Tai Chi Axis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209806253-9781684034901-the-earth-prescription/"><u>The Earth Prescription | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209803952-9780349425634-the-little-book-of-moon-magic/"><u>The Little Book of Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209805146-9781609949204-the-seven-paths/"><u>The Seven Paths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804591-9781609948016-yoga-wisdom-at-work/"><u>Yoga Wisdom at Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209812243-9786171257177-astrologiya-dlya-zhizni-magiya-luny-astrologija-dlja-zhizni-magija-luny/"><u>Астрология для жизни. Магия Луны (Astrologija dlja zhizni. Magija Luny) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: El despertar de la conciencia | Free Book
-date: 2024-10-19T18:41:21.257Z
-updated: 2024-10-26T20:18:52.375Z
+date: 2024-12-03T02:13:36.352Z
+updated: 2024-12-07T04:01:44.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59d6a2cd7d7f4e6d96644f3396fb470ffe01cf08a558ef684820e0b637e430a3.jpg
@@ -146,3 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59d6a2cd7d7f4e6d96644f3396fb470
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1124166-9780892545636-astrology-and-the-authentic-self/"><u>Astrology and the Authentic Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124170-9780892545513-houses-of-the-horoscope/"><u>Houses of the Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124172-9780892545803-planets-in-therapy/"><u>Planets in Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124174-9780892545544-real-alchemy/"><u>Real Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124168-9780892545599-the-future-that-brought-her-here/"><u>The Future That Brought Her Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124169-9780892545766-the-hermetic-link/"><u>The Hermetic Link | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

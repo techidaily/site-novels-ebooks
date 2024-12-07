@@ -1,7 +1,7 @@
 ---
 title: Ghosts of Niagara-on-the-Lake (2nd ed.) | Free Book
-date: 2024-10-24T01:44:18.507Z
-updated: 2024-10-27T01:12:50.267Z
+date: 2024-12-01T04:43:09.625Z
+updated: 2024-12-06T20:27:25.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fdf9d53aa4bff44837a849ca5e562569fbfa9a5ce6a6caf347f959504298ff8.jpg
@@ -167,3 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fdf9d53aa4bff44837a849ca5e5625
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317400-9781401929749-count-your-blessings/"><u>Count Your Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317387-9781401930202-sixth-sense/"><u>Sixth Sense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317393-9781401926298-the-hope/"><u>The Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317394-9781401923662-your-souls-compass/"><u>Your Soul's Compass | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

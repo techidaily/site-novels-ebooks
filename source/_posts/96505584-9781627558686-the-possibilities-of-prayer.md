@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-11-22T16:28:45.075Z
-updated: 2024-11-27T20:21:42.129Z
+date: 2024-12-02T23:55:53.059Z
+updated: 2024-12-06T23:39:45.951Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,13 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/678698-9788472457249-chamanismo/"><u>Chamanismo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/678227-9781459700703-ghosts-of-the-canadian-national-exhibition/"><u>Ghosts of the Canadian National Exhibition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/678926-9781451656855-the-hidden-messages-in-water/"><u>The Hidden Messages in Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/678231-9781554889952-the-oak-island-mystery-2nd-ed/"><u>The Oak Island Mystery (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856015-9780648184638-acupuncture-of-the-mind/"><u>Acupuncture of The Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855916-9780692509623-deeply-wounded-hope/"><u>Deeply Wounded Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855793-9781784569501-female-energy-awakening/"><u>Female Energy Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855880-9780999480595-the-power-formula/"><u>The Power Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855887-9780692986127-thought-optional/"><u>Thought Optional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856155-9780993448256-thrive/"><u>Thrive | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

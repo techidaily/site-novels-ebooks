@@ -1,7 +1,7 @@
 ---
 title: The Metaphysical Book of Gems and Crystals | Free Book
-date: 2024-10-20T01:40:12.574Z
-updated: 2024-10-26T23:00:42.359Z
+date: 2024-12-06T05:09:22.922Z
+updated: 2024-12-06T18:19:43.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f0c706b20e8fd85e90bdda9ecc48594636642ac0b25832866df1f02c4748125.jpg
@@ -187,3 +187,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f0c706b20e8fd85e90bdda9ecc4859
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138591999-9781469746562-a-beautiful-mind-wasted/"><u>A Beautiful Mind Wasted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591835-9781449739836-firing-on-all-cylinders/"><u>Firing on All Cylinders | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591983-9781462400218-i-stand-with-courage/"><u>I Stand with Courage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591876--journal-magic/"><u>Journal M.A.G.I.C. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592048-9781452549828-on-wings-of-dreams/"><u>On Wings of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592008-9781462400973-talking-dogs/"><u>Talking Dogs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591933-9781462053308-whats-next-papa/"><u>What’S Next, Papa? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

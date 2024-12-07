@@ -1,7 +1,7 @@
 ---
 title: La caja de pandora | Free Book
-date: 2024-11-22T21:39:27.227Z
-updated: 2024-11-27T22:02:48.577Z
+date: 2024-12-03T17:26:35.032Z
+updated: 2024-12-07T01:31:14.076Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e93143498e8986258009c90315cbf22a586286.jpg
@@ -147,15 +147,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e9314
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2650222-9781612833675-angels-plain-simple/"><u>Angels Plain & Simple | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2650224-9781633410213-crystal-skulls/"><u>Crystal Skulls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2651766-9781493019410-haunted-washington-dc/"><u>Haunted Washington, DC | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2652766-9781578266777-mindfulness-in-nature/"><u>Mindfulness in Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2650226-9781633410350-tarot-triumphs/"><u>Tarot Triumphs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/265102-9781741153224-yoga-the-essence-of-life/"><u>Yoga: The Essence of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643391-9780917849732-conversations-with-ernest/"><u>Conversations with Ernest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643619-9780983704065-guia-de-peliculas-par-el-despertar/"><u>Guia De Peliculas Par el Despertar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209642550-9781351854146-health-care-spirituality/"><u>Health Care & Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643614-9781780990576-the-high-heeled-guide-to-enlightenment/"><u>The High Heeled Guide to Enlightenment | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2024-11-22T17:53:15.177Z
-updated: 2024-11-27T19:57:36.754Z
+date: 2024-11-30T07:12:21.502Z
+updated: 2024-12-06T22:35:31.113Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,18 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/664325-9781846946837-aware-in-a-world-asleep/"><u>Aware In A World Asleep | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664326-9781846946844-benevolent-virus/"><u>Benevolent Virus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664328-9781846946868-every-little-thing-matters/"><u>Every Little Thing Matters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664331-9781846946899-seventy-thousand-veils-the-miracle-of/"><u>Seventy Thousand Veils: The Miracle Of | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664332-9781846946905-shadows-in-the-night-memoirs-of-a-ghost/"><u>Shadows In The Night: Memoirs Of A Ghost | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664333-9781846946912-shaman-in-disguise/"><u>Shaman in Disguise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664347-9781846946516-spirit-release/"><u>Spirit Release | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664335-9781846946936-three-dangerous-magi-osho-gurdjieff-cr/"><u>Three Dangerous Magi: Osho Gurdjieff Cr | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/664275-9781429983747-worker-in-the-light/"><u>Worker in the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851187-9780648108405-ainslie-meares-on-meditation/"><u>Ainslie Meares on Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851059-9780998870212-aphrodite-emerges/"><u>Aphrodite Emerges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850928-9781945031014-how-to-live-with-a-psychic/"><u>How to Live with a Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850921-9780983696414-message-for-the-tribe-of-many-colors/"><u>Message for the Tribe of Many Colors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850935-9780997261059-sweat/"><u>Sweat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850936-9780648101710-weird/"><u>Weird | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

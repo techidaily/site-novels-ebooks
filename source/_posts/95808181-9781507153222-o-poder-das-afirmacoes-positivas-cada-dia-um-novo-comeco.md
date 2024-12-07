@@ -1,7 +1,7 @@
 ---
 title: "O poder das Afirmações Positivas: Cada Dia Um Novo Começo | Free Book"
-date: 2024-10-26T02:04:19.740Z
-updated: 2024-10-27T01:30:40.185Z
+date: 2024-11-30T22:25:31.136Z
+updated: 2024-12-07T06:34:35.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ddfc8a4f6979e8e8ec8ab20e620b492a512cbe58d05cb99c4937ac6ffcda5b0.jpg
@@ -139,3 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ddfc8a4f6979e8e8ec8ab20e620b49
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125512-9781609257019-21st-century-mage/"><u>21st Century Mage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125498-9781612832838-future-memory/"><u>Future Memory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125255-9781136158896-john-dees-actions-with-spirits-volumes-1-and-2/"><u>John Dee's Actions with Spirits (Volumes 1 and 2) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125497-9781938289125-the-five-levels-of-attachment/"><u>The Five Levels of Attachment | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

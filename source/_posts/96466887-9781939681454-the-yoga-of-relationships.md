@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-11-22T20:13:25.177Z
-updated: 2024-11-27T17:36:53.337Z
+date: 2024-12-02T19:41:41.628Z
+updated: 2024-12-06T21:26:13.608Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,15 +162,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782703-9781594778445-fusion-of-the-five-elements/"><u>Fusion of the Five Elements | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782697-9781620556801-journeys-in-the-kali-yuga/"><u>Journeys in the Kali Yuga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782698-9781594775499-shaman-md/"><u>Shaman, M.D. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782699-9781620550793-the-healing-power-of-gemstones/"><u>The Healing Power of Gemstones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782700-9781594778438-the-inner-smile/"><u>The Inner Smile | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782702-9781594778421-the-inner-structure-of-tai-chi-2nd-ed/"><u>The Inner Structure of Tai Chi (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103389-9781250786432-aspects-of-meditation-book-1/"><u>Aspects of Meditation Book 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103375-9781250786470-aspects-of-meditation-book-3/"><u>Aspects of Meditation Book 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103374-9781250786494-aspects-of-meditation-book-4/"><u>Aspects of Meditation Book 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103381-9781250780218-celtic-spirituality/"><u>Celtic Spirituality | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Pactos de Amor - A Verdade Sagrada das Chamas Gêmeas | Free Book
-date: 2024-10-22T21:45:37.278Z
-updated: 2024-10-26T23:30:49.317Z
+date: 2024-12-05T21:35:39.505Z
+updated: 2024-12-06T17:43:28.060Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38449093b6e6d17ec876146f18a4e5a139d13b6be50240bcfba1503b53a90d42.jpg
@@ -150,3 +150,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38449093b6e6d17ec876146f18a4e5a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96476478-9780880504287-born-with-a-question-mark-in-your-heart/"><u>Born With a Question Mark in Your Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476482-9780880500210-hypnosis-in-the-service-of-meditation/"><u>Hypnosis in the Service of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476476-9780880503211-the-tantra-experience/"><u>The Tantra Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476475-9780880509879-what-is-meditation/"><u>What is Meditation? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476481-9780880500531-why-is-love-so-painful/"><u>Why Is Love So Painful? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

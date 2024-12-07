@@ -1,7 +1,7 @@
 ---
 title: The Crack in the Cosmic Egg | Free Book
-date: 2024-10-21T16:09:44.547Z
-updated: 2024-10-27T04:58:24.542Z
+date: 2024-12-03T17:34:57.886Z
+updated: 2024-12-06T16:30:44.736Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/136330bef59641f753d984b4b259c8b59ec0a683d28d5d7cd51eb7437bb3fa27.jpg
@@ -182,3 +182,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/136330bef59641f753d984b4b259c8b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138574-9780743221894-a-mans-journey-to-simple-abundance/"><u>A Man's Journey to Simple Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573943-9781450269230-ann-of-1000-lives/"><u>Ann of 1,000 Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574199-9780595879526-auras-chakras-and-energy-fields/"><u>Auras, Chakras, and Energy Fields | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573811-9781469797908-haven-of-lost-dreams-revisited/"><u>Haven of Lost Dreams, Revisited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574068-9781462073788-how-to-lay-on-the-altar-without-wiggling/"><u>How to Lay on the Altar Without Wiggling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574145-9781462079803-reaching-out/"><u>Reaching Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574162-9781450252607-stop-talking-to-me/"><u>Stop Talking to Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573786-9781475930139-the-new-universe/"><u>The New Universe | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

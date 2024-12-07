@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2024-11-22T17:16:11.753Z
-updated: 2024-11-27T17:16:51.505Z
+date: 2024-11-30T16:56:47.611Z
+updated: 2024-12-07T05:45:38.830Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,13 +179,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782680-9781594779282-drawing-down-the-spirits/"><u>Drawing Down the Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782678-9781594775925-how-to-read-signs-and-omens-in-everyday-life/"><u>How to Read Signs and Omens in Everyday Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782681-9781594779701-matrix-meditations/"><u>Matrix Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782679-9781594778247-womb-wisdom/"><u>Womb Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102657-9781071553459-40-dosis-de-sabiduria/"><u>40 Dosis de Sabiduría | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102919-9781071554289-megan-va-a-navegar-en-yate/"><u>Megan va a navegar en Yate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102822-9781071558683-mindfulness-para-gestantes/"><u>Mindfulness para gestantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102823-9781071557112-my-last-glass/"><u>My Last Glass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102692-9781071553961-pase-entre-bastidores-al-otro-lado-charlas-con-el-mas-alla-con-jennifer-shaffer-segunda-parte/"><u>Pase entre bastidores al otro lado: Charlas con el más allá con Jennifer Shaffer, Segunda parte. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102840--prohibitted-knowledge/"><u>Prohibitted Knowledge | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

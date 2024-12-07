@@ -1,7 +1,7 @@
 ---
 title: Consciousess and Quantum Theory | Free Book
-date: 2024-10-20T00:10:26.259Z
-updated: 2024-10-26T20:22:47.430Z
+date: 2024-12-04T16:32:23.850Z
+updated: 2024-12-07T02:53:50.590Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9cdc3fd60c93c7c1a560907c8e9a9e8a73fd68599360f013f53e58500264af05.jpg
@@ -131,3 +131,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9cdc3fd60c93c7c1a560907c8e9a9e8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96418793-9780486132518-devils-demons-and-witchcraft/"><u>Devils, Demons, and Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96418282-9780486123394-nostradamus-and-his-prophecies/"><u>Nostradamus and His Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96418237-9780486121017-the-key-of-solomon-the-king/"><u>The Key of Solomon the King | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96418246-9780486122694-the-malleus-maleficarum-of-heinrich-kramer-and-james-sprenger/"><u>The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

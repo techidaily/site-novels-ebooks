@@ -1,7 +1,7 @@
 ---
 title: Hildegard von Bingen's Physica | Free Book
-date: 2024-10-25T00:29:34.663Z
-updated: 2024-10-26T19:01:38.182Z
+date: 2024-12-02T04:31:27.312Z
+updated: 2024-12-06T23:05:21.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c51af2c8e4307561ed95c43dead5adf8421463cbdd48a0e1320c0c40635b108.jpg
@@ -181,3 +181,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c51af2c8e4307561ed95c43dead5ad
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138590533-9781452542706-bound-by-destiny/"><u>Bound by Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590691-9781452536279-conscious-mastery/"><u>Conscious Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590480-9781452539287-dial-love-divine-intelligence-almighty-love-light-omnipresent-vibrational-energy/"><u>Dial Love: Divine Intelligence Almighty Love, Light Omnipresent Vibrational Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590599-9781452550930-inspired-by-reiki-energy/"><u>Inspired by Reiki Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590730-9781452504490-my-encounters-with-the-spirit-world/"><u>My Encounters with the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590522-9781452551388-the-great-spirit-says/"><u>The Great Spirit Says | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590695-9781452539867-the-universal-power-of-you/"><u>The Universal Power of You | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Investigating Events with Astrology: Practical Astrology | Free Book"
-date: 2024-10-19T16:47:29.465Z
-updated: 2024-10-26T21:09:18.160Z
+date: 2024-12-05T06:58:14.096Z
+updated: 2024-12-06T23:54:00.232Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ad4a1aa9dc32f2de05b58be40eefe1b8644e75697a369eed540156ca2954ad9.jpg
@@ -140,3 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ad4a1aa9dc32f2de05b58be40eefe1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1126888-9781612830032-aarons-crossing/"><u>Aaron's Crossing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126217-9781609254971-aspects-of-occultism/"><u>Aspects of Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126894-9781612831213-astral-projection-and-the-nature-of-reality/"><u>Astral Projection and the Nature of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126901-9781612831787-beyond-the-secret/"><u>Beyond the Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126911-9781612830544-chaos-point-2012-and-beyond/"><u>Chaos Point 2012 and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126895-9781612832890-the-astrology-of-great-gay-sex/"><u>The Astrology of Great Gay Sex | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

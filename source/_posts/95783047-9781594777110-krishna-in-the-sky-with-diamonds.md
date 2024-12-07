@@ -1,7 +1,7 @@
 ---
 title: Krishna in the Sky with Diamonds | Free Book
-date: 2024-10-22T18:43:11.430Z
-updated: 2024-10-26T22:17:08.558Z
+date: 2024-12-02T02:21:00.367Z
+updated: 2024-12-06T22:09:13.379Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2897a183633480b0c080dafabd32f34f54592f37eea44e362149db5eb81dbe34.jpg
@@ -181,3 +181,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2897a183633480b0c080dafabd32f34
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138576154-9781475915785-a-healers-guide-to-miracles/"><u>A Healer's Guide to Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576033-9781440123986-beyond-reason/"><u>Beyond Reason | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576113-9781449774431-speak-your-healing-from-the-homosexual-deception/"><u>Speak Your Healing from the Homosexual Deception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575993-9780595827121-the-gods-in-their-cities/"><u>The Gods in Their Cities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576074-9780595806775-the-promise-of-heaven/"><u>The Promise of Heaven | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2024-11-20T19:04:34.554Z
-updated: 2024-11-27T22:16:08.037Z
+date: 2024-12-04T19:24:25.701Z
+updated: 2024-12-07T03:33:42.349Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,15 +134,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782537-9781591432180-beowulfs-ecstatic-trance-magic/"><u>Beowulf's Ecstatic Trance Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782542-9781591438014-confessions-of-a-rebel-angel/"><u>Confessions of a Rebel Angel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782539-9781591439271-coyote-wisdom/"><u>Coyote Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782547-9781591439400-invoking-the-scribes-of-ancient-egypt/"><u>Invoking the Scribes of Ancient Egypt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782544-9781591439936-the-temples-of-light/"><u>The Temples of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782541-9781591437574-the-three-ages-of-atlantis/"><u>The Three Ages of Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210083609-9781734574142-art-of-magic/"><u>Art of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210083216-9780958611497-grace-upon-grace/"><u>Grace Upon Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210083612-9781734574166-oracle/"><u>Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210083188-9781646631353-resonate/"><u>Resonate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210083613-9781734574159-robin/"><u>Robin | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

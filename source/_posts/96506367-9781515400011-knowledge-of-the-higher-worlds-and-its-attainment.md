@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2024-11-21T18:52:00.563Z
-updated: 2024-11-27T22:02:27.311Z
+date: 2024-12-01T06:30:32.917Z
+updated: 2024-12-07T02:45:37.312Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,18 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/542087-9781451603675-divining-your-dreams/"><u>Divining Your Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/542352-9781439182444-herscopes/"><u>HerScopes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/542210-9781439173039-manifesting-michelangelo/"><u>Manifesting Michelangelo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/541755-9781451603705-rootwork/"><u>Rootwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/541838-9781439104491-the-roswell-dig-diaries/"><u>The Roswell Dig Diaries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/542229-9781439177426-the-sacred-promise/"><u>The Sacred Promise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/542016-9781451603866-the-sivananda-companion-to-meditation/"><u>The Sivananda Companion to Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/541769-9781451603224-where-to-park-your-broomstick/"><u>Where to Park Your Broomstick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/542179-9781451603583-zolars-encyclopedia-and-dictionary-of-dreams/"><u>Zolar's Encyclopedia and Dictionary of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838180-9780991345748-a-journey-of-possibilities/"><u>A Journey of Possibilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838360-9781495111679-soul-realized-unlocking-the-sacred-keys-to-becoming-a-divine-human/"><u>Soul Realized: Unlocking the Sacred Keys to Becoming a Divine Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838341-9780992843021-the-charge-of-the-goddess-the-poetry-of-doreen-valiente/"><u>The Charge of the Goddess - The Poetry of Doreen Valiente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838270-9780984660445-the-gurus-gift/"><u>The Guru's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838249-9780692024980-the-kama-sutra-kitchen/"><u>The Kama Sutra Kitchen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838339-9780992843038-where-witchcraft-lives/"><u>Where Witchcraft Lives | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

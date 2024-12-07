@@ -1,7 +1,7 @@
 ---
 title: Entheogens and the Future of Religion (2nd ed.) | Free Book
-date: 2024-10-25T01:26:40.586Z
-updated: 2024-10-26T21:16:25.701Z
+date: 2024-12-03T02:40:04.747Z
+updated: 2024-12-07T00:19:47.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0e8216a19f6e7df9555904421cf709a59eb8e44a235c8402c789533bbcddfb4.jpg
@@ -176,3 +176,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0e8216a19f6e7df9555904421cf709
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1370637-9780895565310-astral-projection-made-easy/"><u>Astral Projection Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1375336-9781609259112-banshees-werewolves-vampires-and-other-creatures-of-the-night/"><u>Banshees, Werewolves, Vampires, and Other Creatures of the Night | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1366446-9781599474557-discovering-the-laws-of-life/"><u>Discovering the Laws of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1375335-9781609258436-do-it-yourself-akashic-wisdom/"><u>Do It Yourself Akashic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1367850-9781461741480-ghosts-on-the-coast-of-maine/"><u>Ghosts on the Coast of Maine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1375333-9781609258641-horns-of-honor/"><u>Horns of Honor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1367851-9781461741497-vineyard-supernatural/"><u>Vineyard Supernatural | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

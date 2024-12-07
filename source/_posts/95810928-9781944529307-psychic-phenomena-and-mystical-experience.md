@@ -1,7 +1,7 @@
 ---
 title: Psychic Phenomena and Mystical Experience | Free Book
-date: 2024-10-23T03:44:14.215Z
-updated: 2024-10-26T22:13:35.622Z
+date: 2024-12-05T04:10:56.187Z
+updated: 2024-12-07T06:46:07.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/924f6aef5097a6ec5a5ae7c36baca9fbfe79e86d129b770d4abab2d9b2128f0c.jpg
@@ -134,3 +134,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/924f6aef5097a6ec5a5ae7c36baca9f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125777-9781609251864-how-to-get-a-good-reading-from-a-psychic-medium/"><u>How to Get a Good Reading from a Psychic Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125780-9781609251413-how-to-read-your-astrological-chart/"><u>How to Read Your Astrological Chart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125785-9781609253134-i-ching-companion/"><u>I Ching Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125795-9781609257385-initiation-into-numerology/"><u>Initiation into Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125800-9781609252304-intuition/"><u>Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125801-9781609251352-intuitive-living/"><u>Intuitive Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125805-9781609255725-john-dees-five-books-of-mystery/"><u>John Dee's Five Books of Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125797-9781609253875-the-inner-planets/"><u>The Inner Planets | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

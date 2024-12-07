@@ -1,7 +1,7 @@
 ---
 title: Blueprint for Holistic Healing | Free Book
-date: 2024-11-20T22:38:35.347Z
-updated: 2024-11-27T22:13:03.065Z
+date: 2024-11-29T16:20:14.882Z
+updated: 2024-12-07T07:16:16.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0c3fcfbb9f190d1a66c5dd6334d24e3be0.jpg
@@ -139,16 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96164189-9781401950941-chakradance/"><u>Chakradance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164317-9781608685752-enlightenment-town/"><u>Enlightenment Town | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164193-9781788171748-sacred-oils/"><u>Sacred Oils | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164882-9781472137388-seeing-myself/"><u>Seeing Myself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164185-9781401953942-the-hashimotos-healing-diet/"><u>The Hashimoto's Healing Diet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164924-9781620557938-the-mother-mantra/"><u>The Mother Mantra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164184-9781788171250-this-works/"><u>This Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197108-9780760367001-life-unplugged/"><u>Life Unplugged | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197145-9780711253452-mindful-thoughts-at-home/"><u>Mindful Thoughts at Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197069-9781782407140-secrets-of-shiatsu/"><u>Secrets of Shiatsu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197066-9781631595370-the-ultimate-guide-to-chakras/"><u>The Ultimate Guide to Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197043-9781627888523-the-ultimate-guide-to-tarot-spreads/"><u>The Ultimate Guide to Tarot Spreads | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

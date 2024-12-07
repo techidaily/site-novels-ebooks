@@ -1,7 +1,7 @@
 ---
 title: "MYSTERY-MAYHEM:CHRONICLE USA | Free Book"
-date: 2024-11-25T22:16:53.272Z
-updated: 2024-11-27T16:25:46.660Z
+date: 2024-12-01T21:30:27.434Z
+updated: 2024-12-07T02:22:40.543Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b629334482a128390c36ad4018a228f91e165a.jpg
@@ -134,16 +134,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b6293
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782150-9781594778797-the-brother-of-jesus-and-the-lost-teachings-of-christianity/"><u>The Brother of Jesus and the Lost Teachings of Christianity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782154-9781594775239-the-celestial-key-to-the-vedas/"><u>The Celestial Key to the Vedas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782151-9781620556610-the-cosmic-hologram/"><u>The Cosmic Hologram | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782149-9781594778896-the-cosmological-origins-of-myth-and-symbol/"><u>The Cosmological Origins of Myth and Symbol | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782144-9781620557327-the-intelligence-of-the-cosmos/"><u>The Intelligence of the Cosmos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782153-9781620556375-the-lost-art-of-resurrection-2nd-ed/"><u>The Lost Art of Resurrection (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782146-9781620550717-the-warrior-is-silent/"><u>The Warrior Is Silent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000825-9781761034312-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000449-9781783752034-midwinter-heat/"><u>Midwinter Heat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000824-9781761034305-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001418-9781761034459-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001417-9781761034497-reiki/"><u>Reiki | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

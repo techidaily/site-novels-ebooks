@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Origin and Destiny of Man | Free Book
-date: 2024-11-22T21:17:30.646Z
-updated: 2024-11-27T17:53:13.880Z
+date: 2024-11-30T19:05:45.643Z
+updated: 2024-12-06T20:07:34.909Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa2c793124908b958b4a5f62931aa531578.jpg
@@ -141,13 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935433-9781844099009-conscious-food/"><u>Conscious Food | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935431-9781844093090-flight-into-freedom-and-beyond-2nd-ed/"><u>Flight into Freedom and Beyond (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935430-9781844093793-the-keys-to-the-universe/"><u>The Keys to the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935432-9781844097661-the-language-of-the-soul/"><u>The Language of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188814-9781648717079-adams-daughter/"><u>Adam's Daughter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188150-9781908421449-heaven-and-earth/"><u>Heaven and Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188827-9781087936444-i-am-the-buddhas-eyes/"><u>I Am The Buddha's Eyes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188163-9781953449221-new-moon-rituals-for-entrepreneurs-2021/"><u>New Moon rituals for Entrepreneurs (2021) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188057-9781649520982-praying-in-the-safe-room/"><u>Praying in the Safe Room | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188154-9781953449238-star-powered-brand/"><u>Star-Powered Brand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188737-9781476641522-the-science-of-spirit/"><u>The Science of Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188119-9781788175463-why-woo-woo-works/"><u>Why Woo-Woo Works | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

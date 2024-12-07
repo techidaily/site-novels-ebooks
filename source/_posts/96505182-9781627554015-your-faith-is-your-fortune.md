@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2024-11-25T17:59:19.465Z
-updated: 2024-11-27T20:17:37.654Z
+date: 2024-12-05T02:53:43.988Z
+updated: 2024-12-07T04:42:37.893Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,16 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/662420-9781446459362-intuition-and-beyond/"><u>Intuition And Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/662894-9781583943427-manifesto-for-the-noosphere/"><u>Manifesto for the Noosphere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/663568-9781583943533-natural-chi-movement/"><u>Natural Chi Movement | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/662405-9781446459324-radionics-the-subtle-anatomy-of-man/"><u>Radionics & The Subtle Anatomy Of Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/662504-9781583943373-the-book-of-theanna-updated-edition/"><u>The Book of Theanna, Updated Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/663151-9781583943434-the-electric-jesus/"><u>The Electric Jesus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/662447-9781780570297-the-jan-de-vries-guide-to-health-and-vitality/"><u>The Jan de Vries Guide to Health and Vitality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850765-9780996846912-energy-in-motion/"><u>Energy in Motion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850617-9780994318817-keep-it-super-simple/"><u>Keep It Super Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850737-9781513620817-nikola-tesla-afterlife-comments-on-paraphysical-concepts/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850808-9780998764719-the-priestess-code-awakening-the-modern-woman/"><u>The Priestess Code: Awakening the Modern Woman: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850658-9781947072015-this-joy-that-i-have/"><u>This Joy That I Have | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850648-9781946479693-zanoni-the-rosicrucian-tale-a-story-of-the-long-livers/"><u>Zanoni the Rosicrucian Tale a Story of the Long Livers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

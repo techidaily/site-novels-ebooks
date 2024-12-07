@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2024-11-25T17:11:07.255Z
-updated: 2024-11-27T22:07:29.222Z
+date: 2024-11-29T20:47:03.998Z
+updated: 2024-12-07T07:16:16.857Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,17 +205,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95917945-9781620556689-dictionary-of-gypsy-mythology/"><u>Dictionary of Gypsy Mythology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95913236-9782268097602-edgar-cayce-guerir-par-la-musique/"><u>Edgar Cayce : guérir par la musique | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95910651-9781941394267-for-love-of-the-real/"><u>For Love of the Real | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95913239-9782268097381-la-premiere-lettre-tome-3/"><u>La Première Lettre, tome 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95916685-9782268097466-la-symbolique-maconnique-devoilee/"><u>La symbolique maçonnique dévoilée | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95913246-9782268097190-les-therapeutes-de-linvisible/"><u>Les thérapeutes de l'invisible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95911335-9781612833958-medicine-wheel-plain-simple/"><u>Medicine Wheel Plain & Simple | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95917944-9781591432920-sacred-messengers-of-shamanic-africa/"><u>Sacred Messengers of Shamanic Africa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210171301-9781071571989-larte-di-essere/"><u>L’arte di essere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210171313-9781071572801-leben-in-annwn/"><u>Leben In Annwn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210171315-9781071573075-megan-en-de-kookwedstrijd/"><u>Megan en de Kookwedstrijd | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210171162-9780578808826-no-more-residue/"><u>No More Residue | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210171364-9781071574416-o-segundo-jo/"><u>O Segundo Jó | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Meditación para gente ocupada | Free Book
-date: 2024-10-20T20:26:58.673Z
-updated: 2024-10-26T23:11:21.191Z
+date: 2024-12-02T16:48:00.138Z
+updated: 2024-12-07T00:46:28.316Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d39fe8173aa53f6604605364fd6611a417226f8a728aebffdcbfcd562ec6284.jpg
@@ -166,3 +166,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d39fe8173aa53f6604605364fd6611
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317703-9781848508798-change-your-words-change-your-world/"><u>Change Your Words, Change Your World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317712-9781401921286-courageous-dreaming/"><u>Courageous Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317710-9781401922238-manifest-your-desires/"><u>Manifest Your Desires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317711-9781401920562-secret-societies/"><u>Secret Societies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317715-9781401922535-sylvia-brownes-book-of-angels/"><u>Sylvia Browne's Book of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317720-9781401926724-the-proof/"><u>The Proof | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317698-9781848506558-thetahealing-diseases-and-disorders/"><u>ThetaHealing: Diseases and Disorders | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

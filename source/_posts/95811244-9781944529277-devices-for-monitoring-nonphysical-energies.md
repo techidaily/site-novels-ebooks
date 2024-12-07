@@ -1,7 +1,7 @@
 ---
 title: Devices for Monitoring Nonphysical Energies | Free Book
-date: 2024-10-24T17:38:05.942Z
-updated: 2024-10-26T20:50:19.816Z
+date: 2024-12-04T02:16:28.302Z
+updated: 2024-12-07T03:53:30.210Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee7e9780fd8f62c0aa6ba00365364d284748996bf53eee1cf4ae7f9004e20640.jpg
@@ -137,3 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee7e9780fd8f62c0aa6ba00365364d2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125817-9781609250751-keywords-for-the-crowley-tarot/"><u>Keywords for the Crowley Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125819-9781609251680-kids-who-see-ghosts/"><u>Kids Who See Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125834-9781609254131-learning-the-tarot/"><u>Learning the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125818-9781609254209-the-ki-process/"><u>The Ki Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125829-9781609257644-the-laws-of-manifestation/"><u>The Laws of Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125838-9781609253776-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
