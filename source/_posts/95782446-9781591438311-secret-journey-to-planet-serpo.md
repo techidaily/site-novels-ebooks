@@ -1,7 +1,7 @@
 ---
 title: Secret Journey to Planet Serpo | Free Book
-date: 2024-10-25T17:28:54.710Z
-updated: 2024-10-26T18:12:02.344Z
+date: 2024-12-08T03:41:32.953Z
+updated: 2024-12-12T22:26:45.919Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fee33fc03cba9ea88871485dcbbd49c821938b2cacec5b7f88eb8bdc24927284.jpg
@@ -196,3 +196,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fee33fc03cba9ea88871485dcbbd49c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210290245-9781734920956-feminine-archetypes/"><u>Feminine Archetypes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290638-9781801345880-guided-meditations-for-deep-sleep/"><u>Guided Meditations For Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290847-9781098011635-identity-in-christ/"><u>Identity in Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290439-9781662410581-principles-of-progress/"><u>Principles of Progress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290511-9781636308029-visible-visions-motivation/"><u>Visible Visions Motivation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

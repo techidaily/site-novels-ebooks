@@ -1,7 +1,7 @@
 ---
 title: The Lost History of the Little People | Free Book
-date: 2024-10-20T20:08:08.129Z
-updated: 2024-10-27T02:11:25.609Z
+date: 2024-12-07T06:39:52.144Z
+updated: 2024-12-12T16:50:34.936Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91ed5c84991c6bbaa6e8daee5d0ff703ca84bb537a43c9df858210777535c418.jpg
@@ -194,3 +194,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91ed5c84991c6bbaa6e8daee5d0ff70
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210292820-9781645156260-beyond-yourself/"><u>Beyond Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292601-9781645693642-open-your-heart-and-write-your-vision/"><u>Open Your Heart And Write Your Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292629-9781098013882-shepherds-daughter/"><u>Shepherd's Daughter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292919-9781645151401-the-gift-from-the-sea/"><u>The GIFT from the Sea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292937-9781645692119-the-spirit-has-our-back/"><u>The Spirit Has Our Back | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292698-9781098005511-your-facts-are-not-my-truths/"><u>your Facts Are Not My Truths | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

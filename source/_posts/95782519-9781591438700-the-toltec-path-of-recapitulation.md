@@ -1,7 +1,7 @@
 ---
 title: The Toltec Path of Recapitulation | Free Book
-date: 2024-10-22T22:07:41.405Z
-updated: 2024-10-26T22:56:19.025Z
+date: 2024-12-08T18:25:08.030Z
+updated: 2024-12-12T23:58:21.662Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/017861bfa8a4197b52e04435cb641b124a2a42781d608d1940f7dbee90deed30.jpg
@@ -170,3 +170,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/017861bfa8a4197b52e04435cb641b1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210210403-9781777318949-2021-year-of-tarot/"><u>2021 Year of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210661-9781722526078-romancing-the-soul/"><u>Romancing the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210651-9781722526122-the-power-of-your-transcendental-mind-condensed-classics/"><u>The Power of Your Transcendental Mind (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210656-9781722526719-the-secret-formula/"><u>The Secret Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210663-9781722526696-think-and-grow-rich-and-the-richest-man-in-babylon-with-study-guides/"><u>Think and Grow Rich and The Richest Man in Babylon with Study Guides | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2024-12-05T18:20:19.713Z
-updated: 2024-12-06T20:41:44.564Z
+date: 2024-12-10T16:13:34.021Z
+updated: 2024-12-13T03:26:42.509Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,13 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209844944-9780786755349-good-daughters/"><u>Good Daughters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844969-9780786754397-how-to-save-the-world-on-5-a-day/"><u>How to Save the World on $5 a Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845053-9781946005014-le-buddhist-boot-camp/"><u>LE BUDDHIST BOOT CAMP | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845471-9781911134169-quareia-the-adept/"><u>Quareia The Adept | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662625-9781633412736-african-american-magick/"><u>African American Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662623-9781633412811-awakening-osiris/"><u>Awakening Osiris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662624-9781633412439-enoch-and-the-return-of-the-gods/"><u>Enoch and the Return of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662299-9781722521981-neville-goddards-final-lectures/"><u>Neville Goddard's Final Lectures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662620-9781633412835-spirit-voices/"><u>Spirit Voices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662628-9781612834863-the-game-of-life-and-how-to-play-it-gift-edition/"><u>The Game of Life and How to Play It (Gift Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662629-9781633412422-the-gods-were-astronauts/"><u>The Gods Were Astronauts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662630-9781633412606-the-magic-in-your-genes/"><u>The Magic in Your Genes | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

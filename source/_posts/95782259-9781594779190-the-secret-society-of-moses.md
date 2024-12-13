@@ -1,7 +1,7 @@
 ---
 title: The Secret Society of Moses | Free Book
-date: 2024-10-26T04:15:21.937Z
-updated: 2024-10-26T21:09:11.726Z
+date: 2024-12-08T05:23:44.575Z
+updated: 2024-12-13T01:57:45.978Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/958ed5adea449e9153a4795fe4f9900e2d823233ac5bef78e8e3f74a64b1a221.jpg
@@ -175,3 +175,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/958ed5adea449e9153a4795fe4f9900
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210476996-9780801888977-arcana-mundi-a-collection-of-ancient-texts/"><u>Arcana Mundi: A Collection of Ancient Texts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476720-9781504074650-beyond-any-kind-of-god/"><u>Beyond Any Kind of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476837-9781789044461-practically-pagan-an-alternative-guide-to-planet-friendly-living/"><u>Practically Pagan - An Alternative Guide to Planet Friendly Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476842-9781803411385-the-celtic-wheel-of-the-year/"><u>The Celtic Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476839-9781789047905-the-witchs-book-of-simples/"><u>The Witch's Book of Simples | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

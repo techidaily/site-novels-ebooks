@@ -1,7 +1,7 @@
 ---
 title: The Lost Treasure of King Juba | Free Book
-date: 2024-10-21T19:48:37.179Z
-updated: 2024-10-27T00:39:32.434Z
+date: 2024-12-11T20:57:07.979Z
+updated: 2024-12-12T19:17:21.131Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3842dd979532338c06bd6a693d18710cb6de51258c5f2e6507e0c47cb8648377.jpg
@@ -187,3 +187,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3842dd979532338c06bd6a693d18710
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210339952-9781722526917-daydream-believer/"><u>Daydream Believer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339913-9789811817991-i-am-youand-you-are-me/"><u>I AM YOU...AND YOU ARE ME | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339878-9781631952968-irrational-kindness/"><u>Irrational Kindness! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339910-9781737582236-poems-for-my-people-iii/"><u>Poems for My People III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339416-9781401966836-sedona-psychic-energy-vortexes/"><u>Sedona, Psychic Energy Vortexes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339934-9789529451616-the-holy-book-of-luck/"><u>The Holy Book of Luck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339953-9781722526955-the-miracle-month-second-edition/"><u>The Miracle Month - Second Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339856-9781439667811-witchcraft-in-colonial-virginia/"><u>Witchcraft in Colonial Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339959-9781722526924-your-unlimited-self/"><u>Your Unlimited Self | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Sanctuary of the Divine Presence | Free Book
-date: 2024-10-21T16:10:58.488Z
-updated: 2024-10-26T17:08:32.086Z
+date: 2024-12-07T08:30:57.776Z
+updated: 2024-12-13T00:37:14.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/941916c1a44f0121e4372c4c6a1574f7dabe58e0e4f0099ec1ced105814bbc4d.jpg
@@ -196,3 +196,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/941916c1a44f0121e4372c4c6a1574f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210455935-9781638147473-dream-on/"><u>Dream On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454824-9780525541110-rise-and-shine/"><u>Rise and Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210455516-9781638854524-the-upside-down-tree/"><u>The Upside-Down Tree | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210455152-9781872240503-the-way-more-spirit-from-the-well/"><u>The Way - More Spirit from the Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210455157-9781872240510-the-way-spirit-from-the-well/"><u>The Way - Spirit from the Well | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

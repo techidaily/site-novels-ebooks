@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2024-12-05T05:43:39.922Z
-updated: 2024-12-06T23:52:44.536Z
+date: 2024-12-05T22:14:59.712Z
+updated: 2024-12-13T08:08:29.574Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,18 +249,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209766152-9781465498182-a-little-book-of-self-care-breathwork/"><u>A Little Book of Self Care: Breathwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209758045-9780917849800-chronicles-of-religious-science-volume-ii-1960-2012/"><u>Chronicles of Religious Science, Volume II, 1960-2012 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209764174-9781789040555-coherent-self-coherent-world/"><u>Coherent Self, Coherent World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209760161-9781119643135-feng-shui-for-dummies-2nd-ed/"><u>Feng Shui For Dummies (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209766654-9781493043699-ghost-writers/"><u>Ghost Writers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209764170-9781789042078-hoodoo-in-the-psalms/"><u>Hoodoo in the Psalms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209758588-9781401958053-no-endings-only-beginnings/"><u>No Endings, Only Beginnings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209769974-9780593086568-reading-the-leaves/"><u>Reading the Leaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209762183-9781632658081-witchs-master-grimoire/"><u>Witch's Master Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210599053-9781631959301-be-it-until-you-become-it/"><u>Be It Until You Become It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210599397-9781647009212-cats-rule-the-earth-tarot/"><u>Cats Rule the Earth Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210599077-9781685262471-from-pieces-to-peace/"><u>From Pieces to Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210600680-9781401965068-in-the-world-but-not-of-it/"><u>In the World, But Not of It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210599137-9781780725710-just-one-thing/"><u>Just One Thing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210601273-9780645521115-shadow-paradise/"><u>Shadow Paradise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210601217-9781957895710-voices-from-nature-lessons-from-god/"><u>Voices From Nature, Lessons From God | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

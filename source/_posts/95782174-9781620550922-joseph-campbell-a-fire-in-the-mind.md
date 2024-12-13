@@ -1,7 +1,7 @@
 ---
 title: "Joseph Campbell: A Fire in the Mind | Free Book"
-date: 2024-10-20T23:56:22.638Z
-updated: 2024-10-26T23:43:45.724Z
+date: 2024-12-12T01:06:11.729Z
+updated: 2024-12-12T20:18:23.056Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a400fe116a79781d52a684710be5f7a6c3eeb905d93c05387080d1010d742b4.jpg
@@ -172,3 +172,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a400fe116a79781d52a684710be5f7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210499489-9781639613052-god-is-here-there-and-everywhere/"><u>God Is Here, There and Everywhere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210499638-9781524878344-moon-phases/"><u>Moon Phases | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210498338-9780648893264-mudras-seals-of-yoga/"><u>MUDRAS Seals of Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210498262-9781990695131-souls-from-mercury/"><u>Souls from Mercury | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210499633-9781524878306-spells-for-change/"><u>Spells for Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210499998-9781398818057-the-dark-history-of-the-occult/"><u>The Dark History of the Occult | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

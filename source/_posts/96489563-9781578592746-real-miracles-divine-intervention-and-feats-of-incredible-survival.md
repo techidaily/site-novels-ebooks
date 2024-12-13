@@ -1,7 +1,7 @@
 ---
 title: Real Miracles, Divine Intervention, and Feats of Incredible Survival | Free Book
-date: 2024-12-03T21:10:28.532Z
-updated: 2024-12-06T20:44:41.954Z
+date: 2024-12-11T06:35:07.404Z
+updated: 2024-12-12T17:24:01.269Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57ea7dfd2cda2089bb353ab39f65ecb5d50.jpg
@@ -203,13 +203,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209983000-9781071535080-a-family-gift/"><u>A Family Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209982997-9781071533208-mike-covell-investiga-los-archivos-paranormales/"><u>Mike Covell Investiga Los Archivos Paranormales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983460-9781420967203-thought-vibration/"><u>Thought Vibration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983002-9781071532669-word-rijk-bij-het-binnenwandelen-in-de-wereld-van-het-gouden-tijdperk-met-meditatiecommentaar/"><u>Word rijk bij het binnenwandelen in de wereld van het gouden tijdperk (met meditatiecommentaar) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762045-9781800077324-affirmations-for-every-day/"><u>Affirmations for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761877-9781591798903-awakening-to-the-spirit-world/"><u>Awakening to the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762021-9780857654144-master-your-inner-critic/"><u>Master Your Inner Critic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761872-9781622036332-the-re-enchantment/"><u>The Re-Enchantment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761884-9781622032228-the-shaman-within/"><u>The Shaman Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761876-9781591799030-what-to-do-when-you-cant-decide/"><u>What to Do When You Can't Decide | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2024-12-06T05:30:17.544Z
-updated: 2024-12-06T22:59:55.206Z
+date: 2024-12-10T08:24:26.542Z
+updated: 2024-12-13T07:42:48.380Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,13 +155,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2098150-9781459733473-creepy-capital/"><u>Creepy Capital | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209814593-9781982135539-everything-you-wanted-to-know-about-the-afterlife-but-were-afraid-to-ask/"><u>Everything You Wanted to Know about the Afterlife but Were Afraid to Ask | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209814266-9781783253852-five-minutes-in-the-evening/"><u>Five Minutes in the Evening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209814240-9781856754361-the-little-book-of-spiritual-bliss/"><u>The Little Book of Spiritual Bliss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210635076-9781945642166-a-sacred-journey/"><u>A Sacred Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210635067-9781735014029-be-you/"><u>Be You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210639927-9781637772799-born-to-serve-with-love/"><u>Born to Serve with Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210639835-9781959018148-crystal-grids/"><u>Crystal Grids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210639847-9798885830669-high-on-being/"><u>High on Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640256-9781639035496-i-promise-youre-healed/"><u>I Promise You're Healed | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

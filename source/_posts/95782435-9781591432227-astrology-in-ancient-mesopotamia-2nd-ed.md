@@ -1,7 +1,7 @@
 ---
 title: Astrology in Ancient Mesopotamia (2nd ed.) | Free Book
-date: 2024-10-21T01:58:11.101Z
-updated: 2024-10-26T19:12:18.703Z
+date: 2024-12-08T16:52:15.250Z
+updated: 2024-12-13T01:10:57.289Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/749333307d58dd3428df3447f6978b9310549063c4ed6a21d40660fca48bfd13.jpg
@@ -180,3 +180,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/749333307d58dd3428df3447f6978b9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210283368-9781098077594-five-years-and-a-million-tears/"><u>Five Years and a Million Tears | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283408-9781098080068-just-random-thoughts/"><u>Just Random Thoughts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283320-9781722523527-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-develop-self-confidence-and-self-esteem/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Develop Self Confidence and Self Esteem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283319-9781722526757-the-magic-keys/"><u>The Magic Keys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283123-9780578901176-the-timeline/"><u>The TimeLine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283288-9782357288003-thrice-greatest-hermes/"><u>Thrice-Greatest Hermes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283277-9780578899336-your-souls-gift/"><u>Your Soul's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283321-9781722526764-your-super-powers/"><u>Your Super Powers! | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-12-02T23:48:24.998Z
-updated: 2024-12-06T22:14:12.993Z
+date: 2024-12-09T05:09:21.815Z
+updated: 2024-12-12T18:28:08.662Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,13 +148,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209850316-9781615001279-observations-from-another-planet/"><u>Observations from Another Planet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850571--the-great-companion-to-meditations-aphorisms-for-moral-transformation/"><u>The Great Companion to Meditations & Aphorisms for Moral Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850521-9781622177103-the-six-principles-of-enlightenment-and-meaning-of-life/"><u>The Six Principles of Enlightenment and Meaning of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850289-9780648085409-three-steps-to-inspiration-for-life/"><u>Three Steps to Inspiration for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668093-9781662454295-chortle/"><u>Chortle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668034-9780876128015-finding-the-joy-within-you/"><u>Finding the Joy Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668160-9780648776161-guide-to-the-new-age/"><u>Guide to the New Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668400-9798218072049-my-blue-cells/"><u>My Blue Cells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668095-9781662484346-such-a-journey/"><u>Such a Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668038-9798886168594-the-power-of-gods-consciousness/"><u>The Power of God's Consciousness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

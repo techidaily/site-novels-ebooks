@@ -1,7 +1,7 @@
 ---
 title: Secrets of Aboriginal Healing (2nd ed.) | Free Book
-date: 2024-10-21T18:52:09.695Z
-updated: 2024-10-26T23:28:57.944Z
+date: 2024-12-05T18:06:17.084Z
+updated: 2024-12-12T19:56:53.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9fdeb11a860df9befa520a87751a7dcdd1f7c5d58ae572b08163098795b5ca.jpg
@@ -195,3 +195,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9fdeb11a860df9befa520a87751a7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210325289-9781982150464-at-heavens-door/"><u>At Heaven's Door | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324529-9781647467852-living-without-skin/"><u>Living Without Skin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324578-9781801345224-lucid-dreaming-astral-projection-made-easy/"><u>Lucid Dreaming & Astral Projection Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210326076-9781797211350-sleep-meditations/"><u>Sleep Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210325000-9781510768109-the-modern-witchs-guide-to-natural-magick/"><u>The Modern Witch's Guide to Natural Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324985-9781507217573-the-modern-witchcraft-guide-to-runes/"><u>The Modern Witchcraft Guide to Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210325355-9781982188610-the-secret-to-love-health-and-money/"><u>The Secret to Love, Health, and Money | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324993-9781507217948-the-witchs-guide-to-wellness/"><u>The Witch's Guide to Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324577-9780645173611-waking-wisdom/"><u>WAKING WISDOM | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

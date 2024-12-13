@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-12-02T03:07:03.145Z
-updated: 2024-12-07T01:47:03.975Z
+date: 2024-12-12T00:21:23.394Z
+updated: 2024-12-12T18:35:20.495Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,17 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210012119-9781547545506-arricchirsi-giocando-alla-lotteria/"><u>Arricchirsi giocando alla lotteria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011975-9781071537084-leadership-gagner-le-respect-et-faire-avancer-les-choses/"><u>Leadership: Gagner Le Respect Et Faire Avancer Les Choses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011915-9781071540763-meditacao-para-iniciantes/"><u>Meditação para Iniciantes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011990-9781071515563-meditazione-pochi-passi-per-il-successo-nella-tua-vita/"><u>Meditazione: Pochi Passi Per Il Successo Nella Tua Vita | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210012145-9781071539156-megan-va-de-excursion/"><u>Megan va de excursión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210012062-9781071539590-megan-y-el-ciclista/"><u>Megan y el ciclista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210012029-9781071539293-productividad-la-guia-definitiva-para-aumentar-su-productividad-y-formas-de-vencer-la-dilacion/"><u>Productividad: La Guía Definitiva Para Aumentar Su Productividad Y Formas De Vencer La Dilación | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011908-9781071539521-h-megkan-paei-ippasia/"><u>Η Μέγκαν πάει ιππασία | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772295-9781088121924-fearfully-forward-success/"><u>Fearfully Forward Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772834-9781922405081-full-ideals/"><u>Full Ideals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772841-9781649694669-reflections/"><u>Reflections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772827-9781925939040-the-grass-root-friend/"><u>The Grass-Root Friend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772825-9781925819571-twenty-three-years-of-lessons/"><u>Twenty Three Years of Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772858-9781649699800-what-if/"><u>WHAT IF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772303-9781088123065-word-to-the-wise-20-108-days-of-power/"><u>Word to the Wise 2.0 - 108 Days of Power | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

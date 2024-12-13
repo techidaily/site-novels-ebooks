@@ -1,7 +1,7 @@
 ---
 title: The Ancient Giants Who Ruled America | Free Book
-date: 2024-10-23T20:17:52.804Z
-updated: 2024-10-26T20:20:48.845Z
+date: 2024-12-09T07:36:02.245Z
+updated: 2024-12-12T20:44:17.524Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e9985b1bd502e1913ab163046e5d9644a6be5476149e78f951977928181602f.jpg
@@ -186,3 +186,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e9985b1bd502e1913ab163046e5d96
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210275267-9781989838419-bedtime-stories-and-guided-mindfulness-meditations-for-adults-2-in-1/"><u>Bedtime Stories And Guided Mindfulness Meditations For Adults (2 In 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275261-9781989838365-guided-meditations-for-deep-sleep-relaxation-and-stress-relief/"><u>Guided Meditations for Deep Sleep, Relaxation, and Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275269-9781989838440-guided-meditations-for-overthinking-anxiety-depression-mindfulness-beginners-scripts-for-deep-sleep-insomnia-self-healing-relaxation-overthinking-chakra-healing/"><u>Guided Meditations For Overthinking, Anxiety, Depression & Mindfulness: Beginners Scripts For Deep Sleep, Insomnia, Self-Healing, Relaxation, Overthinking, Chakra Healing& Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275264-9781989838426-guided-meditations-for-overthinking-anxiety-depression-mindfulness/"><u>Guided Meditations For Overthinking, Anxiety, Depression& Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275258-9781989838273-guided-meditations-for-overthinking-anxiety-depression-mindfulness-meditation-scripts-for-beginners-for-sleep-self-hypnosis-insomnia-self-healing-deep-relaxatio/"><u>Guided Meditations for Overthinking, Anxiety, Depression& Mindfulness Meditation Scripts For Beginners & For Sleep, Self-Hypnosis, Insomnia, Self-Healing, Deep Relaxation& Stress-Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275626-9781098048105-insights-and-prayers-for-the-spirit/"><u>Insights and Prayers for the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275268-9781989838372-rapid-weight-loss-hypnosis-for-women/"><u>Rapid Weight Loss Hypnosis For Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275640-9781098048921-the-absolute-best-little-book-of-poetry/"><u>The Absolute Best Little Book of Poetry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275982-9781922456564-the-soul-warrior/"><u>The Soul Warrior | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

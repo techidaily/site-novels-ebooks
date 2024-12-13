@@ -1,7 +1,7 @@
 ---
 title: "Aleister Crowley: The Beast in Berlin | Free Book"
-date: 2024-10-20T02:47:31.653Z
-updated: 2024-10-27T04:48:41.287Z
+date: 2024-12-07T07:35:43.372Z
+updated: 2024-12-12T17:36:27.592Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afbc6ac76a3de6d1126049bed9e38ab45b68b29d94677b6f8516bac588bf2af9.jpg
@@ -201,3 +201,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afbc6ac76a3de6d1126049bed9e38ab
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210503039-9781633412620-ancestral-grimoire/"><u>Ancestral Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503037-9781633412613-evolution-is-wrong/"><u>Evolution Is Wrong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503041-9781633412767-finding-the-fool/"><u>Finding the Fool | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503038-9781633412460-how-antigravity-built-the-pyramids/"><u>How Antigravity Built the Pyramids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503036-9781633412668-living-thelema/"><u>Living Thelema | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503040-9781633412729-subtle-energy-work/"><u>Subtle Energy Work | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

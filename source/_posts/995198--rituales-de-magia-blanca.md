@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-12-02T04:19:33.337Z
-updated: 2024-12-07T04:43:53.594Z
+date: 2024-12-06T20:53:17.306Z
+updated: 2024-12-12T19:46:07.146Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,14 +136,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2096410-9780835631785-a-most-unusual-life/"><u>A Most Unusual Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209638214-9781547573219-meditacao-poucos-passos-para-o-sucesso-em-sua-vida/"><u>Meditação : Poucos Passos Para O Sucesso Em Sua Vida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209638212-9781547573233-meditacao-guia-de-atencao-plena-para-autodisciplina-e-sucesso/"><u>Meditação: Guia De Atenção Plena Para Autodisciplina E Sucesso | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209638226-9781547571321-meditacion-guia-para-sanar-el-alma-y-encontrar-la-paz-espiritualidad-para-principiantes/"><u>Meditación: Guía Para Sanar El Alma Y Encontrar La Paz (Espiritualidad Para Principiantes) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209638221-9781547571338-meditacion-tecnicas-para-mejorar-el-sueno-mindfulness-para-principiantes/"><u>Meditación. Técnicas Para Mejorar El Sueño (Mindfulness Para Principiantes). | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533357-9798985500547-aim-high-the-heart-of-god-volume-1/"><u>Aim High - The Heart of God Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533227-9781743588437-the-womens-circle/"><u>The Women's Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533034-9781912085088-trauma-healing-in-the-yoga-zone/"><u>Trauma Healing in the Yoga Zone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533110-9781250285287-whats-your-fcking-destiny/"><u>What's Your F*cking Destiny? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

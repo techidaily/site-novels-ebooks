@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-11-30T18:02:13.949Z
-updated: 2024-12-07T04:34:24.131Z
+date: 2024-12-05T17:05:02.609Z
+updated: 2024-12-12T21:35:55.663Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,18 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209781824-9781722523701-how-to-use-the-laws-of-mind/"><u>How to Use the Laws of Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209782029-9781630478858-just-a-little-girl/"><u>Just a Little Girl | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209781822-9781722523534-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-create-wealth-and-success/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Create Wealth and Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209781823-9781722523541-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-overcome-fear-and-worry/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Overcome Fear and Worry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209781984-9781683501824-rise-hustle/"><u>Rise + Hustle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209781821-9781722523732-telepsychics/"><u>Telepsychics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209781818-9781722523855-the-power-of-your-subconscious-mind-for-wealth-and-spirituality/"><u>The Power of Your Subconscious Mind for Wealth and Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209782127-9781614483830-we-dont-die/"><u>We Don't Die | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209782153-9781600379246-weight-release/"><u>Weight Release | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210623263-9781648480751-awakening-your-psychic-ability/"><u>Awakening Your Psychic Ability | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210625874-9781638603368-beneath-the-mask/"><u>Beneath the Mask | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210623865-9781493046973-haunted-highways-2nd-ed/"><u>Haunted Highways (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210622609-9781684930708-melchizedek-and-the-mystery-of-fire/"><u>Melchizedek and the Mystery of Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210625889-9780760375235-the-complete-guide-to-living-by-the-moon/"><u>The Complete Guide to Living by the Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210622592-9798986162836-the-flourish-experience/"><u>The Flourish Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210623170-9781881098898-the-witches-almanac-2023-2024-standard-edition-issue-42/"><u>The Witches' Almanac 2023-2024 Standard Edition Issue 42 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

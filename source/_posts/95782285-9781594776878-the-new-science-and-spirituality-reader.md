@@ -1,7 +1,7 @@
 ---
 title: The New Science and Spirituality Reader | Free Book
-date: 2024-10-26T01:12:25.986Z
-updated: 2024-10-27T02:21:33.423Z
+date: 2024-12-08T20:27:38.970Z
+updated: 2024-12-13T07:24:33.819Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c856a0c60b74149478d1f28499e5059802cc80be04ddd70fff87c27b6c96f18f.jpg
@@ -175,3 +175,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c856a0c60b74149478d1f28499e5059
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210418714-9780578327662-bigger-than-the-sky/"><u>Bigger Than the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210420385-9781401968205-dream-guidance/"><u>Dream Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210420398-9781623177096-hoodoo-for-everyone/"><u>Hoodoo for Everyone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418512-9781637675830-i-want-you-to-know-my-glory/"><u>I Want You To Know My Glory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418573-9781802270518-marvellous-magical-chakras/"><u>Marvellous Magical Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418581-9781951879037-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2104195-9781936012336-realizing-soul/"><u>Realizing Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418609-9781956896282-the-game-of-lovelife/"><u>The Game of Love/Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418676-9781953555205-you-are-more/"><u>You Are More | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2024-12-03T04:16:52.896Z
-updated: 2024-12-07T05:53:19.919Z
+date: 2024-12-11T20:53:09.367Z
+updated: 2024-12-12T19:26:16.268Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,16 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209780339-9781633411777-elemental-magick/"><u>Elemental Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780333-9781632657602-exogenesis-hybrid-humans/"><u>Exogenesis: Hybrid Humans | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780335-9781633411715-hoodoo-cleansing-and-protection-magic/"><u>Hoodoo Cleansing and Protection Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780342-9781950253012-how-to-meditate-like-a-buddhist/"><u>How to Meditate Like a Buddhist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780336-9781633411869-spellcrafting/"><u>Spellcrafting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780332-9780892546688-the-secret-temple-2nd-ed/"><u>The Secret Temple (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780338-9781633411920-the-spirit-of-the-celtic-gods-and-goddesses/"><u>The Spirit of the Celtic Gods and Goddesses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614965-9781523505159-an-invitation-to-dream/"><u>An Invitation to Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210615384-9781612125121-joy-in-every-moment/"><u>Joy in Every Moment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210615132-9781523502141-the-tiny-book-of-tiny-pleasures/"><u>The Tiny Book of Tiny Pleasures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614910-9781579659264-whole-beauty-meditation-mindfulness/"><u>Whole Beauty: Meditation & Mindfulness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

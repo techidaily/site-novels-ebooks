@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-12-05T22:10:16.626Z
-updated: 2024-12-07T00:46:45.864Z
+date: 2024-12-09T19:24:52.230Z
+updated: 2024-12-12T23:10:40.771Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,17 +246,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209840920-9780994369321-astrology/"><u>ASTROLOGY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840989-9780984002900-mary-magdalene-beckons/"><u>Mary Magdalene Beckons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840928-9781513602851-nikola-tesla-afterlife-comments-on-paraphysical-concepts-volume-one/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts, Volume One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841008-9780977512669-pranayama-the-breath-of-yoga/"><u>Pranayama the Breath of Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840981-9780984002931-sublime-union/"><u>Sublime Union | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840882-9780992433833-the-deeper-the-sorrow-the-stronger-the-spirit/"><u>The Deeper the Sorrow, The Stronger the Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841167-9780994359315-where-the-light-lives/"><u>Where The Light Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841278-9788460679677-your-magnificent-self-a-journey-to-freedom/"><u>Your Magnificent Self... A Journey to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655605-9781454942160-1001-tarot-spreads/"><u>1001 Tarot Spreads | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655610-9781454942566-the-holistic-witch/"><u>The Holistic Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655590-9781454940838-wicca-book-of-spells/"><u>Wicca Book of Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655596-9781454941019-wicca-crystal-magic/"><u>Wicca Crystal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655591-9781454941033-wicca-essential-oils-magic/"><u>Wicca Essential Oils Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655597-9781454941064-wicca-herbal-magic/"><u>Wicca Herbal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655599-9781454941101-wicca-year-of-magic/"><u>Wicca Year of Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

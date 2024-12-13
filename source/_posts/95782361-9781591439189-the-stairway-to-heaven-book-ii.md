@@ -1,7 +1,7 @@
 ---
 title: The Stairway to Heaven (Book II) | Free Book
-date: 2024-10-26T02:55:03.338Z
-updated: 2024-10-27T03:21:30.231Z
+date: 2024-12-05T17:48:04.226Z
+updated: 2024-12-12T20:08:51.642Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08ace030696808274103242b01e7e915025719ea4447d187f8e049dc773a9b7d.jpg
@@ -179,3 +179,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08ace030696808274103242b01e7e91
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210349423-9782226303141-lesprit-du-yoga/"><u>L'Esprit du yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349424-9782226291202-le-reve-eveille-libre/"><u>Le Rêve éveillé libre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349438-9782226304278-les-attentives/"><u>Les Attentives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349457-9782226303028-oser-la-bienveillance/"><u>Oser la bienveillance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349411-9782226303165-paroles-de-verite/"><u>Paroles de vérité | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

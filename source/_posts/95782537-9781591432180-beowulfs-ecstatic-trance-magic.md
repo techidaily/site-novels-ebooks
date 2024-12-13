@@ -1,7 +1,7 @@
 ---
 title: Beowulf's Ecstatic Trance Magic | Free Book
-date: 2024-10-23T01:09:14.833Z
-updated: 2024-10-26T17:29:28.495Z
+date: 2024-12-12T00:39:25.699Z
+updated: 2024-12-12T19:44:53.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acdec43b9d09d7bd58e67c7f79a0cf16497e4016654713fb3b0c1f0dec5c269f.jpg
@@ -199,3 +199,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acdec43b9d09d7bd58e67c7f79a0cf1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210231477-9781071585955-evocazioni/"><u>Evocazioni | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229149-9781952874437-exponiendo-practicas-espiritualistas-curativas/"><u>Exponiendo Prácticas Espiritualistas Curativas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210231508-9781071588307-megan-e-il-gatto-perduto/"><u>Megan e il gatto perduto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229382-9781732823884-rise/"><u>RISE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229431-9781951943325-spirits-speak/"><u>Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210230532-9780593295946-tarot-for-change/"><u>Tarot for Change | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

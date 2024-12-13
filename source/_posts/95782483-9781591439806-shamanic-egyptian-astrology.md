@@ -1,7 +1,7 @@
 ---
 title: Shamanic Egyptian Astrology | Free Book
-date: 2024-10-24T19:53:15.645Z
-updated: 2024-10-26T18:17:52.150Z
+date: 2024-12-10T00:49:58.882Z
+updated: 2024-12-12T22:03:58.543Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd14aebebf4cf86bc3a55df1c5792b5327314cda6719f0cb16df00eea2384dea.jpg
@@ -186,3 +186,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd14aebebf4cf86bc3a55df1c5792b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210252601-9781682131831-an-army-in-heaven/"><u>An Army in Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252959-9781101993064-becoming-aware/"><u>Becoming Aware | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253168-9781733807913-persephones-pearls/"><u>Persephone's Pearls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252807-9781611534023-who-cares-what-the-numbers-say/"><u>Who Cares What the Numbers Say | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-12-05T07:08:46.430Z
-updated: 2024-12-07T02:46:02.423Z
+date: 2024-12-10T05:04:12.040Z
+updated: 2024-12-13T04:44:04.830Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,18 +143,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209645584-9781620559260-a-theology-of-love/"><u>A Theology of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2096442-9780892546633-astrological-insights-into-personality/"><u>Astrological Insights into Personality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209643983-9781632658050-before-you-cast-a-spell/"><u>Before You Cast A Spell | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645575-9781620556887-breathing-as-spiritual-practice/"><u>Breathing as Spiritual Practice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209644890-9782824631929-dans-la-lumiere-de-votre-ange-gardien/"><u>Dans la lumière de votre ange gardien | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645416-9781462920631-japanese-tea-ceremony/"><u>Japanese Tea Ceremony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645574-9781620559093-the-hermetic-science-of-transformation/"><u>The Hermetic Science of Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645573-9781620558706-the-magian-tarok-3rd-ed/"><u>The Magian Tarok (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645054-9781452175058-the-seasonal-soul/"><u>The Seasonal Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534602-9781667426839-donneio-vi-amo/"><u>Donne...io vi amo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534085-9781638605171-finding-the-right-direction-4-success/"><u>Finding the Right Direction 4 Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534905-9781447482116-fortune-telling-by-playing-cards-containing-information-on-card-reading-divination-the-tarot-and-other-aspects-of-fortune-telling/"><u>Fortune Telling by Playing Cards - Containing Information on Card Reading, Divination, the Tarot and Other Aspects of Fortune Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534056-9781638855651-phineas-parkhurst-quimby/"><u>PHINEAS PARKHURST QUIMBY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534058-9781684810802-quiet-mind/"><u>Quiet Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534146-9781644845295-regenerate-your-reality/"><u>Regenerate Your Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534169-9781761038358-the-dream-dictionary/"><u>The Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534028-9781637107553-thom-jons/"><u>Thom Jons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534472-9781667426433-una-vita-di-sogni/"><u>Una vita di sogni | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

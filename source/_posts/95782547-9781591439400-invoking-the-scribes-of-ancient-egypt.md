@@ -1,7 +1,7 @@
 ---
 title: Invoking the Scribes of Ancient Egypt | Free Book
-date: 2024-10-22T03:06:45.870Z
-updated: 2024-10-26T22:12:51.144Z
+date: 2024-12-07T06:04:57.417Z
+updated: 2024-12-12T22:37:18.382Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/77c0cb1d04bff2cc585c1b2ae1ae799068255055aca96495d6167ccef7e8c05c.jpg
@@ -182,3 +182,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/77c0cb1d04bff2cc585c1b2ae1ae799
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210233072-9781632657442-confessions-of-an-egyptologist/"><u>Confessions of an Egyptologist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233075-9781612834689-prosperity-meditations/"><u>Prosperity Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233076-9780892546909-rites-of-the-mummy/"><u>Rites of the Mummy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233082-9781633412149-the-big-book-of-magical-incense/"><u>The Big Book of Magical Incense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233079-9781612834672-the-healing-power-of-african-american-spirituality/"><u>The Healing Power of African-American Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233081-9781633411456-witch-queens-voodoo-spirits-and-hoodoo-saints/"><u>Witch Queens, Voodoo Spirits, and Hoodoo Saints | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

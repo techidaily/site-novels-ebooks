@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-12-03T05:37:33.593Z
-updated: 2024-12-06T17:06:24.122Z
+date: 2024-12-11T21:00:16.470Z
+updated: 2024-12-13T03:41:03.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,17 +131,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209725765-9781633383234-an-endless-quest-for-spiritual-truth-a-practical-guide-to-everyday-spirituality/"><u>An Endless Quest for Spiritual Truth: A Practical Guide to Everyday Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726827-9780806539522-everyday-wicca/"><u>Everyday Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726966-9780806539546-magick-potions/"><u>Magick Potions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726088-9780806539454-the-gifts-beneath-your-anxiety/"><u>The Gifts Beneath Your Anxiety | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726953-9780806534336-wanted-undead-or-alive/"><u>Wanted Undead or Alive: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726734-9780806536453-wiccan-spell-a-night-spells-charms-and-potions-for-the-whole-year/"><u>Wiccan Spell A Night: Spells, Charms, And Potions For The Whole Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726582-9780806539683-your-magickal-cat/"><u>Your Magickal Cat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209726757-9780806534619-zombie-csu/"><u>Zombie CSU: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210581446-9781493047963-haunted-lighthouses-2nd-ed/"><u>Haunted Lighthouses (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210581447-9781493045815-haunted-maine-2nd-ed/"><u>Haunted Maine (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582009-9781493044924-spooky-wisconsin-2nd-ed/"><u>Spooky Wisconsin (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210580518-9781638371144-the-2020-birthday-book-of-message/"><u>The 2020 Birthday Book of Message | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210580983-9781780993447-the-mysteries-of-the-twelfth-astrological-house-fallen-angels/"><u>The Mysteries of the Twelfth Astrological House: Fallen Angels | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

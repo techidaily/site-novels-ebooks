@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-11-29T23:11:46.029Z
-updated: 2024-12-06T21:52:34.465Z
+date: 2024-12-07T01:57:42.716Z
+updated: 2024-12-13T06:25:31.109Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,14 +153,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209974026-9781633411890-blackthorns-botanical-brews/"><u>Blackthorn's Botanical Brews | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974029-9781612834627-conversations-with-god-book-2/"><u>Conversations With God, Book 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974030-9781612834542-super-tarot/"><u>Super Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974021-9781633411883-tarot-no-questions-asked/"><u>Tarot: No Questions Asked | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974023-9781633411739-witch-hunt/"><u>Witch Hunt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761772-9781649631350-a-year-in-practice/"><u>A Year in Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761770-9781591798361-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761763-9781622030736-saint-francis-of-assisi/"><u>Saint Francis of Assisi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761760-9781604073348-tibetan-sound-healing/"><u>Tibetan Sound Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

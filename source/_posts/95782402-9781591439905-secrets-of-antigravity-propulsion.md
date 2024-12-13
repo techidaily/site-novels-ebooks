@@ -1,7 +1,7 @@
 ---
 title: Secrets of Antigravity Propulsion | Free Book
-date: 2024-10-23T04:57:09.502Z
-updated: 2024-10-26T18:28:59.518Z
+date: 2024-12-10T21:46:16.608Z
+updated: 2024-12-13T03:07:55.985Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df19291f1184d29f950960af3a566fea30c3d433e457ee7698d9b0068ffdea7e.jpg
@@ -187,3 +187,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df19291f1184d29f950960af3a566fe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210324344-9781801344777-empath-narcissistic-abuse-recovery-2-in-1/"><u>Empath & Narcissistic Abuse Recovery (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324342-9781801347549-empath-narcissistic-abuse-survival-guide/"><u>Empath & Narcissistic Abuse Survival Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324198-9781801349208-empath-psychic-abilities-self-love/"><u>Empath, Psychic Abilities & Self-Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324522-9780995755543-heal-your-home-2/"><u>Heal Your Home 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324323-9780578938196-persistence/"><u>Persistence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324414-9781922465757-shades-of-being/"><u>Shades of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324271-9781989840245-stories-of-the-unseen/"><u>Stories of the Unseen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324218-9781087964744-infinit-poslednij-most-sem/"><u>Инфинит. Последний мост Сэм. | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

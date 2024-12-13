@@ -1,7 +1,7 @@
 ---
 title: The Earth Chronicles Handbook | Free Book
-date: 2024-10-21T23:10:20.839Z
-updated: 2024-10-27T04:34:47.564Z
+date: 2024-12-10T03:16:07.811Z
+updated: 2024-12-12T21:12:34.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/062cd878d248c4ce30c92b904944c4fc65c6acc7eee832c967c923a72897397e.jpg
@@ -203,3 +203,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/062cd878d248c4ce30c92b904944c4f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210437822-9781639360369-earth/"><u>Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437659-9781476646527-flying-saucers-over-america/"><u>Flying Saucers Over America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437236-9781528983440-le-grand-tarot-de-lamour/"><u>Le Grand Tarot de L’amour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437704-9781856754941-the-little-book-of-palm-reading/"><u>The Little Book of Palm Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437881-9781250844910-the-power-of-your-subconscious-mindthe-complete-original-edition-with-bonus-material/"><u>The Power of Your Subconscious Mind:The Complete Original Edition (With Bonus Material) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

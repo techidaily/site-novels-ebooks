@@ -1,7 +1,7 @@
 ---
 title: Merlin and the Discovery of Avalon in the New World | Free Book
-date: 2024-10-21T23:36:59.897Z
-updated: 2024-10-26T18:32:09.268Z
+date: 2024-12-07T07:17:14.220Z
+updated: 2024-12-13T02:31:01.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ac5758a0024925b7e40e552a23df27a71d7a15eb84f86c27a3be3b959882138.jpg
@@ -180,3 +180,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ac5758a0024925b7e40e552a23df27
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210436558-9781684860357-blueberry-dreams/"><u>Blueberry Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437063-9781449437435-coast-to-coast-ghosts/"><u>Coast to Coast Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436611-9798985098914-dancing-with-unity/"><u>Dancing with Unity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434731-9781722527044-introduction-to-the-occult/"><u>Introduction To The Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434828-9781952692239-present-moment-wonderful-moment-revised-edition/"><u>Present Moment Wonderful Moment (Revised Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436691-9781956955033-somatic-fanatic/"><u>Somatic Fanatic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436641-9781396320583-the-key-to-health-wealth-and-love/"><u>The Key to Health, Wealth and Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436548-9781761037535-wicca/"><u>Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210436533-9781761037566-wicca-spells/"><u>Wicca Spells | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Science and the Akashic Field (2nd ed.) | Free Book
-date: 2024-10-26T05:15:23.022Z
-updated: 2024-10-27T01:36:43.875Z
+date: 2024-12-07T17:44:31.571Z
+updated: 2024-12-13T07:59:27.510Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df9c628226d02faa456bf5f52e41bec4a5fe0dcc9524bfeaf419750b6c94b43c.jpg
@@ -181,3 +181,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df9c628226d02faa456bf5f52e41bec
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210500808-9781644115633-archangel-alchemy-healing/"><u>Archangel Alchemy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500818-9781644115855-creating-places-of-power-2nd-ed/"><u>Creating Places of Power (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500823-9781644116579-el-elemento-perdido/"><u>El elemento perdido | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500807-9781644115503-escribe-el-guion-de-la-vida-que-quieres/"><u>Escribe el guion de la vida que quieres | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500820-9781644115831-healing-sounds-4th-ed/"><u>Healing Sounds (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500814-9781644115770-psychiatry-and-the-spirit-world/"><u>Psychiatry and the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500806-9781644115619-radical-regeneration/"><u>Radical Regeneration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500813-9781644115978-the-flowering-wand/"><u>The Flowering Wand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500815-9781644115930-uncertain-places/"><u>Uncertain Places | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-11-30T05:09:37.690Z
-updated: 2024-12-06T22:33:55.838Z
+date: 2024-12-10T07:46:45.534Z
+updated: 2024-12-12T21:24:07.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,14 +192,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209863478-9780999206935-higher-vibrational-living/"><u>Higher Vibrational Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863368-9780648391210-oak-trees-gift/"><u>Oak Tree's Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863355-9780648391203-rainbow-gums-gift/"><u>Rainbow Gum's Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863373-9781732483613-the-mindfulness-effect/"><u>The Mindfulness Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863396-9781945026461-the-truth/"><u>The Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693849-9780975575147-awakening-the-amazing-in-you/"><u>Awakening the Amazing in You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210694084-9781493076642-spooky-campfire-tales/"><u>Spooky Campfire Tales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693806-9781737105527-staying-power-2/"><u>Staying Power 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693833-9780760377949-the-astrology-companion/"><u>The Astrology Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693878-9781916344396-the-pay-it-forward-series/"><u>The Pay It Forward Series | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210694337-9781528939355-what-does-it-mean-to-be-human/"><u>What Does It Mean To Be Human? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

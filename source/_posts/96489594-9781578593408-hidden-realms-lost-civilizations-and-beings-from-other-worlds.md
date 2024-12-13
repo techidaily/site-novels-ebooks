@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-12-04T23:26:10.810Z
-updated: 2024-12-06T22:39:42.594Z
+date: 2024-12-10T19:59:11.612Z
+updated: 2024-12-12T20:36:07.765Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,16 +227,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209883647-9781644110423-cannabis-for-couples/"><u>Cannabis for Couples | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209883648-9781644110461-gateways-to-the-soul/"><u>Gateways to the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209883652-9781644111109-healing-with-light-frequencies-2nd-ed/"><u>Healing with Light Frequencies (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209883643-9781644110294-primal-wisdom-of-the-ancients/"><u>Primal Wisdom of the Ancients | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209883646-9781644110317-psychedelic-consciousness/"><u>Psychedelic Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209883650-9781644110232-psychedelics-and-spirituality-3rd-ed/"><u>Psychedelics and Spirituality (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209883642-9781620559529-remote-healing/"><u>Remote Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723311-9780760377130-astrology-for-the-cosmic-soul/"><u>Astrology for the Cosmic Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723464-9780486851600-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723569-9781662480256-escaping-out-of-the-matrix/"><u>Escaping Out of the Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210722981-9781645678335-its-just-fucking-meditation/"><u>It’s Just Fucking Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723178-9781788179478-the-book-of-runic-astrology/"><u>The Book of Runic Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723312-9781578598144-the-witches-almanac/"><u>The Witches Almanac | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

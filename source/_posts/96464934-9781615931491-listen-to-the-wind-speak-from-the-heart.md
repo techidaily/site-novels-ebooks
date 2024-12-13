@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2024-12-03T21:30:18.427Z
-updated: 2024-12-06T23:12:14.471Z
+date: 2024-12-10T19:48:08.873Z
+updated: 2024-12-13T05:15:49.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,13 +147,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210087621-9781722521875-from-fear-to-eternity/"><u>From Fear to Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210087229-9781912517077-nondual-passion/"><u>Nondual Passion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210087592-9781528767989-the-book-of-black-magic-and-of-pacts/"><u>The Book of Black Magic and of Pacts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210087248-9781087900186-the-inner-map/"><u>The Inner Map | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210812691-9781803411590-atlantis-and-gaia/"><u>Atlantis and Gaia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210812257-9780593496688-on-thriving/"><u>On Thriving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210812692-9781803412306-pagan-portals-where-fairies-meet/"><u>Pagan Portals - Where Fairies Meet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210812696-9781803411521-the-afterlife-a-journey-to/"><u>The Afterlife - A Journey to | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Lost Art of Heart Navigation (2nd ed.) | Free Book
-date: 2024-10-23T02:52:18.346Z
-updated: 2024-10-27T04:08:57.943Z
+date: 2024-12-07T01:35:18.143Z
+updated: 2024-12-13T03:34:35.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ad11c5b38230496cf5e5d8b4de94cc9d9b5c7af4a72397c25d55ea8b6d6d839.jpg
@@ -202,3 +202,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ad11c5b38230496cf5e5d8b4de94cc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210349180-9782226308306-cheminer-contempler/"><u>Cheminer, contempler | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349216-9782226306869-cinq-eloges-de-lepreuve/"><u>Cinq éloges de l'épreuve | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349200-9782226304216-contes-des-petits-riens-et-de-tous-les-possibles/"><u>Contes des petits riens et de tous les possibles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349153-9782226307408-lexil-occidental/"><u>L'Exil occidental | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349125-9782226308986-le-cercle-de-vie/"><u>Le Cercle de vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349147-9782226308924-le-zen-autrement/"><u>Le Zen autrement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349164-9782226306388-prendre-soin-de-letre/"><u>Prendre soin de l'être | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349118-9782226301314-rencontres-avec-carlos-castaneda-et-pachita-la-guerisseuse/"><u>Rencontres avec Carlos Castaneda et Pachita la guérisseuse | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

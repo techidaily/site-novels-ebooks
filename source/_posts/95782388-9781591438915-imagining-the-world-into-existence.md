@@ -1,7 +1,7 @@
 ---
 title: Imagining the World into Existence | Free Book
-date: 2024-10-19T19:11:31.910Z
-updated: 2024-10-26T18:40:14.820Z
+date: 2024-12-11T01:52:25.334Z
+updated: 2024-12-13T06:07:47.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9048b23590675ce269323ccd86a9df993476aaece7174f715a35a0f15c2b6c9a.jpg
@@ -190,3 +190,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9048b23590675ce269323ccd86a9df9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210361742-9780578977508-mindfulness-and-mysticism/"><u>Mindfulness and Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361483-9780997717860-one-2nd-ed/"><u>ONE... (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361536-9780982339916-step-into-your-miracle-zone/"><u>Step Into Your Miracle Zone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361496-9781737540519-the-golden-remembrance/"><u>The Golden Remembrance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361665-9781911134596-the-magical-knowledge-trilogy/"><u>The Magical Knowledge Trilogy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361523-9781737435617-the-next-room/"><u>The Next Room | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361694-9781910559666-walking-with-persephone/"><u>Walking with Persephone | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

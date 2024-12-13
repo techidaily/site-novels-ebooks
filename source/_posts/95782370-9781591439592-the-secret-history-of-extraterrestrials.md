@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Extraterrestrials | Free Book
-date: 2024-10-23T19:41:30.223Z
-updated: 2024-10-26T22:00:03.789Z
+date: 2024-12-10T16:54:28.833Z
+updated: 2024-12-13T07:50:27.887Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2cdbd46e837b4d15bdaa8b182cd444c89387cbf2b38dda78f4b5f30a33e462b0.jpg
@@ -191,3 +191,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2cdbd46e837b4d15bdaa8b182cd444c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210351758-9781087883175-a-souls-journey-through-the-mist/"><u>A Souls Journey Through the Mist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210351693-9781952961045-highlights-of-palmistry/"><u>Highlights of Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350651-9782226267580-linterprete-des-desirs-2nd-ed/"><u>L'Interprète des désirs (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210351474-9780349425016-the-book-of-tarot/"><u>The Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210351820-9781734688559-the-egyptian-codex/"><u>The Egyptian Codex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210351809-9781649907912-the-girl-who-wrote-her-own-fairytale/"><u>The Girl Who Wrote Her Own Fairytale | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Shamanism for the Age of Science (2nd ed.) | Free Book
-date: 2024-10-20T21:22:12.175Z
-updated: 2024-10-26T23:56:26.971Z
+date: 2024-12-09T19:09:55.919Z
+updated: 2024-12-12T21:41:06.942Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e138c00bb0360d691958a10bd663b5f1d21dba62e4731ad5b25a473b1926304e.jpg
@@ -179,3 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e138c00bb0360d691958a10bd663b5f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210323889-9781098095673-a-pocket-full-of-hope/"><u>A Pocket Full of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210323996-9781087885872-breathe/"><u>breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324121-9780645206418-honouring-thy-self/"><u>Honouring Thy Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210322991-9781645153443-the-rebellious-child/"><u>The Rebellious Child | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

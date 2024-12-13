@@ -1,7 +1,7 @@
 ---
 title: The Secret Initiation of Jesus at Qumran | Free Book
-date: 2024-10-22T00:43:18.090Z
-updated: 2024-10-26T21:41:51.705Z
+date: 2024-12-12T07:44:16.924Z
+updated: 2024-12-12T16:00:17.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c3ed627f3912bcf588fe29ded445f2d6105a38350c2c0adbf4fa337f8b4882c.jpg
@@ -183,3 +183,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c3ed627f3912bcf588fe29ded445f2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210348679-9782226342416-don-et-pardon/"><u>Don et pardon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348683-9782226306043-du-sommeil-et-autres-joies-deraisonnables/"><u>Du sommeil et autres joies déraisonnables | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348674-9782226335661-elements-de-psychologie-spirituelle/"><u>Éléments de psychologie spirituelle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348738-9782226300379-le-desert-interieur/"><u>Le Désert intérieur | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348772-9782226338006-une-etoile-qui-danse-sur-le-chaos/"><u>Une étoile qui danse sur le chaos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348682-9782226339164-une-mystique-sans-dieu/"><u>Une mystique sans Dieu | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

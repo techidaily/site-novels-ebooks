@@ -1,7 +1,7 @@
 ---
 title: Miracle Mongers and Their Methods | Free Book
-date: 2024-12-04T17:55:47.291Z
-updated: 2024-12-06T17:26:43.407Z
+date: 2024-12-07T23:19:36.312Z
+updated: 2024-12-12T18:33:33.193Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e18e749e6e3e5ddec50f37fe4245221bc77.jpg
@@ -148,14 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210067800-9781922132499-dying-to-know/"><u>Dying to Know | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210066908-9780578714646-from-comatose-to-consciousness/"><u>From Comatose To Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210069988-9780262297714-meditating-selflessly/"><u>Meditating Selflessly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210066607-9781908421395-the-scole-report/"><u>The Scole Report | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210067714-9781925275995-turning-inside-out/"><u>Turning Inside Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800695-9781955811408-born-to-rise/"><u>Born to Rise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800693-9783988312037-crystals-healing-for-beginners/"><u>Crystals Healing for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800701-9781399949569-fear-not-the-spiritual-truth/"><u>Fear not the Spiritual Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800686-9781958082416-gods-gracious-glory/"><u>God's Gracious Glory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800683-9781958434826-musings-of-a-mad-scientist/"><u>Musings of a Mad Scientist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800704-9781959682547-outrageous-fortune/"><u>Outrageous Fortune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800396-9781959254010-present-moment-awareness-4th-ed/"><u>Present Moment Awareness (4th ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

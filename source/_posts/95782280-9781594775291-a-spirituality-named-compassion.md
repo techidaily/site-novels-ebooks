@@ -1,7 +1,7 @@
 ---
 title: A Spirituality Named Compassion | Free Book
-date: 2024-10-21T02:09:41.479Z
-updated: 2024-10-27T02:35:35.075Z
+date: 2024-12-08T19:12:26.014Z
+updated: 2024-12-13T07:03:43.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abe88f0a38f18152194ef8a96b6caba95957ca4c2956cf508361c8661133d801.jpg
@@ -173,3 +173,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abe88f0a38f18152194ef8a96b6caba
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210414971-9781639452583-a-year-in-balance/"><u>A YEAR IN BALANCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210414913-9781955346122-deeper-magic/"><u>Deeper Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210414500-9781476645124-dream-medicine/"><u>Dream Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210413986-9780620971737-for-i-shall-praise-him-once-more/"><u>For I shall praise Him once more | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210414690-9781631599392-the-thrifty-witchs-book-of-simple-spells/"><u>The Thrifty Witch's Book of Simple Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210413723-9781529192261-wild-magic/"><u>Wild Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Entering the Mind of the Tracker | Free Book
-date: 2024-10-24T17:09:17.537Z
-updated: 2024-10-27T00:19:27.115Z
+date: 2024-12-11T01:07:09.325Z
+updated: 2024-12-13T01:48:35.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ed6804a0b1c9635f2444e3ab4d7512e79d2c567c668a6a488efae757a5138a0.jpg
@@ -196,3 +196,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ed6804a0b1c9635f2444e3ab4d7512
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210219062-9781914071195-ereshkigal/"><u>Ereshkigal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210218074-9781982170950-hello-goodbye/"><u>Hello, Goodbye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219209-9781662413087-remember-to-love/"><u>Remember to Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219089-9781736186039-yahweh-gods-harmony-in-creation/"><u>Yahweh God's Harmony in Creation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

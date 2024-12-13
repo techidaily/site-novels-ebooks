@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2024-12-05T21:52:20.516Z
-updated: 2024-12-06T21:01:24.294Z
+date: 2024-12-11T18:51:02.909Z
+updated: 2024-12-13T08:31:16.967Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,14 +145,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209845687-9781936470679-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845730-9780996776028-easy-tarot/"><u>Easy Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845682-9781936470471-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845677-9781936470495-gratitude/"><u>Gratitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845635-9781946088130-women-of-spirit/"><u>Women of Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662631-9781633412958-heal-the-witch-wound/"><u>Heal the Witch Wound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662633-9781633412934-the-complete-enochian-dictionary/"><u>The Complete Enochian Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662638-9781633412941-the-evil-eye/"><u>The Evil Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662635-9781633413009-the-treadwells-book-of-plant-magic/"><u>The Treadwell's Book of Plant Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662636-9781633412903-the-ufo-experience/"><u>The UFO Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662634-9781633412965-uncharted/"><u>Uncharted | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

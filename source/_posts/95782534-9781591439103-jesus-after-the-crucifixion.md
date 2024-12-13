@@ -1,7 +1,7 @@
 ---
 title: Jesus after the Crucifixion | Free Book
-date: 2024-10-19T21:43:25.734Z
-updated: 2024-10-26T20:02:01.537Z
+date: 2024-12-11T19:43:52.375Z
+updated: 2024-12-13T03:18:29.349Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b88f2b8c80ec55760806fa837039d117d01478c8111b800f774ab4fbb0aa0132.jpg
@@ -191,3 +191,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b88f2b8c80ec55760806fa837039d11
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210228848-9780813174532-ghosts-of-old-louisville/"><u>Ghosts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228613-9780813174501-haunts-of-old-louisville/"><u>Haunts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228574-9780813174471-phantoms-of-old-louisville/"><u>Phantoms of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228534-9781838141110-signposts-to-source/"><u>Signposts to Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228445-9781638215479-this-is-pk-mind-over-matter-2nd-ed/"><u>This Is "PK " Mind Over Matter (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

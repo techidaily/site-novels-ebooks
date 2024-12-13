@@ -1,7 +1,7 @@
 ---
 title: The John Michell Reader (2nd ed.) | Free Book
-date: 2024-10-21T03:51:53.060Z
-updated: 2024-10-26T16:14:47.821Z
+date: 2024-12-06T17:52:26.202Z
+updated: 2024-12-12T19:43:37.472Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4861079eb728d723aef94e2e956b4fe813ef28d44c37f8082075e4409429d0b4.jpg
@@ -181,3 +181,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4861079eb728d723aef94e2e956b4fe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210528009-9781644115282-ars-notoria-the-notory-art-of-solomon/"><u>Ars Notoria: The Notory Art of Solomon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528017-9781644116708-psychedelic-buddhism/"><u>Psychedelic Buddhism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528011-9781644115442-psychedelic-wisdom/"><u>Psychedelic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528014-9781644115022-source-magic/"><u>Source Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528015-9781644116111-the-kabbalah-of-writing/"><u>The Kabbalah of Writing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528016-9781644116203-the-nature-of-astrology/"><u>The Nature of Astrology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

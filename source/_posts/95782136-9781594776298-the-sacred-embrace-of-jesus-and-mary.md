@@ -1,7 +1,7 @@
 ---
 title: The Sacred Embrace of Jesus and Mary | Free Book
-date: 2024-10-25T03:27:47.161Z
-updated: 2024-10-27T01:19:08.184Z
+date: 2024-12-08T23:01:49.035Z
+updated: 2024-12-13T04:04:09.677Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/906b31da1eb43e08c7af6866ef832edca2311516810a9c8dcb929bb71feb4ba7.jpg
@@ -183,3 +183,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/906b31da1eb43e08c7af6866ef832ed
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210528990-9781955312394-arethas-food-for-the-mind/"><u>Aretha's Food for The Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528144-9781909141872-breathing-mudras-and-meridians/"><u>Breathing, Mudras and Meridians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528709-9798985753400-invocations/"><u>Invocations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528181-9781909141711-mindful-relationships/"><u>Mindful Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529087-9781736398296-science-subtle-energies-and-spirituality/"><u>Science, Subtle Energies, and Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528021-9781644117040-shamanic-dreaming/"><u>Shamanic Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528516-9781529082128-wild-card/"><u>Wild Card | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528150-9781912085941-yoga-and-resilience/"><u>Yoga and Resilience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Ancient Past | Free Book
-date: 2024-10-20T16:18:46.893Z
-updated: 2024-10-26T16:16:01.261Z
+date: 2024-12-06T01:09:17.752Z
+updated: 2024-12-13T05:09:55.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b25966eaac163ef155ccf1924fc3bdb20f42023901b77e65caa70a1cd629406.jpg
@@ -192,3 +192,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b25966eaac163ef155ccf1924fc3bd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210376696-9781638851639-blessins-and-lessons/"><u>Blessins and Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375475-9781940837635-everyday-grace/"><u>Everyday Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375485-9781940837697-laws-of-life/"><u>Laws of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375478-9781736679319-rise-up-2nd-ed/"><u>Rise Up! (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210376306-9781638600527-soul-licensed/"><u>Soul Licensed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210376297-9781637109250-the-ego-has-landed/"><u>THE EGO HAS LANDED | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

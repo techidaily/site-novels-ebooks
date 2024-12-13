@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-12-02T19:15:49.339Z
-updated: 2024-12-07T04:07:47.703Z
+date: 2024-12-05T19:06:14.281Z
+updated: 2024-12-12T23:32:07.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,15 +164,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210002013-9781601639684-hidden-history/"><u>Hidden History | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002033-9781632659262-immortality-of-the-gods/"><u>Immortality of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002025-9781601635594-instant-healing/"><u>Instant Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002011-9781601639646-into-the-light/"><u>Into the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002014-9781632659927-the-haunted-house-diaries/"><u>The Haunted House Diaries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002019--the-worlds-most-haunted-hospitals/"><u>The World's Most Haunted Hospitals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768056-9781646998708-curso-de-cartomancia-como-leer-las-cartas-para-predecir-el-futuro/"><u>Curso de Cartomancia - Cómo leer las cartas para predecir el futuro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768067-9781646998777-el-extraordinario-mundo-de-lo-paranormal/"><u>El extraordinario mundo de lo paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768054-9781646998661-el-lenguaje-secreto-del-tarot/"><u>El lenguaje secreto del tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768062-9781646998739-el-poder-magico-de-las-velas/"><u>El poder mágico de las velas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768063-9781646998685-interpretar-el-tarot/"><u>Interpretar el tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768065-9781646998388-la-kundalini/"><u>La Kundalini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768059-9781646998647-nostradamus-las-profecias-desde-hoy-hasta-el-ano-2200/"><u>Nostradamus - Las profecías desde hoy hasta el año 2200 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210767938-9781803411798-pagan-portals-dream-analysis-made-easy/"><u>Pagan Portals - Dream Analysis Made Easy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Delusions in Science and Spirituality | Free Book
-date: 2024-10-26T04:46:30.881Z
-updated: 2024-10-26T19:22:13.275Z
+date: 2024-12-09T04:56:03.611Z
+updated: 2024-12-12T18:32:14.130Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6374931c237e9e9db96ef4e4046bb1032d679610c92a6abdde348993699f94ea.jpg
@@ -196,3 +196,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6374931c237e9e9db96ef4e4046bb10
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210289270-9781398814073-discover-your-psychic-self/"><u>Discover Your Psychic Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289614-9780578909578-her-psalms/"><u>Her Psalms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289716-9781507217443-money-spells/"><u>Money Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289628-9788792633606-tarology/"><u>Tarology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289620-9780645169911-the-power-of-love-with-animals/"><u>The Power of Love with Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289275-9781398814080-the-power-of-meditation/"><u>The Power of Meditation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

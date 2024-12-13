@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-12-03T05:34:51.072Z
-updated: 2024-12-07T02:11:57.281Z
+date: 2024-12-11T20:07:35.578Z
+updated: 2024-12-12T21:33:40.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,16 +134,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209785236-9781786784087-a-short-history-of-nearly-everything-paranormal/"><u>A Short History of (Nearly) Everything Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209785388-9780857838674-breathe-well/"><u>Breathe Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209785768-9781439668092-creepy-florida/"><u>Creepy Florida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209783338-9781950584406-finding-god-in-ordinary-time/"><u>Finding God in Ordinary Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209785767-9781439668054-haunts-of-the-white-city/"><u>Haunts of the White City | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209785244-9781788173940-surrender/"><u>Surrender | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209784545-9781524856854-the-little-book-of-forest-bathing/"><u>The Little Book of Forest Bathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626157-9780645416510-body-wisdom/"><u>Body Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626096-9798986573632-from-clutter-to-cleanlinessthe-renewal-of-a-mind/"><u>From Clutter To Cleanliness:The Renewal Of A Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626160-9781684930913-god-man/"><u>God-Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626126-9781087963686-on-my-way-to-greatness/"><u>On My Way to Greatness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

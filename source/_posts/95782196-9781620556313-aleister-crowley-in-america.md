@@ -1,7 +1,7 @@
 ---
 title: Aleister Crowley in America | Free Book
-date: 2024-10-21T05:02:11.114Z
-updated: 2024-10-27T02:17:37.221Z
+date: 2024-12-11T21:06:55.855Z
+updated: 2024-12-13T08:05:36.521Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be8b0d443d486cb3c15e258a3ca39cc78b57eb1a83ddfa3b636dbb3283f3cbc7.jpg
@@ -204,3 +204,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be8b0d443d486cb3c15e258a3ca39cc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210503045-9781950253326-earth-witch/"><u>Earth Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503044-9781950253302-the-human-design-workbook/"><u>The Human Design Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503042-9781633412774-the-magick-of-aleister-crowley/"><u>The Magick of Aleister Crowley | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503047-9781633412781-the-meaning-of-witchcraft/"><u>The Meaning of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503051-9781633412866-the-power-of-candle-magic/"><u>The Power of Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503048-9781950253289-the-witchs-book-of-numbers/"><u>The Witch's Book of Numbers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

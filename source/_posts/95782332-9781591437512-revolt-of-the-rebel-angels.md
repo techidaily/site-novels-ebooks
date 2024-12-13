@@ -1,7 +1,7 @@
 ---
 title: Revolt of the Rebel Angels | Free Book
-date: 2024-10-20T23:24:55.309Z
-updated: 2024-10-26T19:39:38.035Z
+date: 2024-12-11T04:46:02.193Z
+updated: 2024-12-13T05:23:10.770Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b4f3e4a8b1a10e20a05231085f171273231c8deac001010af6b48b5fc32cd32.jpg
@@ -195,3 +195,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b4f3e4a8b1a10e20a05231085f1712
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210395573-9780811875905-celtic-wisdom/"><u>Celtic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395508-9780811870740-fortune-telling-birthday-book/"><u>Fortune-Telling Birthday Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395547-9781452136707-fortune-telling-book-of-colors/"><u>Fortune-Telling Book of Colors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395503-9780811870726-fortune-telling-book-of-dreams/"><u>Fortune-Telling Book of Dreams | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

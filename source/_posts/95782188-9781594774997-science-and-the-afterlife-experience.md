@@ -1,7 +1,7 @@
 ---
 title: Science and the Afterlife Experience | Free Book
-date: 2024-10-25T20:00:05.491Z
-updated: 2024-10-26T18:09:31.234Z
+date: 2024-12-10T04:09:52.014Z
+updated: 2024-12-12T16:15:54.854Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1a06e1a629668e1d5682ada86798731aa1dea4198a96abd4680fecca945edda.jpg
@@ -198,3 +198,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1a06e1a629668e1d5682ada8679873
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210501927-9781736973837-girlfriend-u/"><u>Girlfriend U | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502018-9781774816950-initiates-of-the-flame/"><u>Initiates of the Flame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502015-9781953120472-source-dialogues/"><u>Source Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502132-9781669350415-summary-of-diane-ahlquists-moon-magic/"><u>Summary of Diane Ahlquist's Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501921-9781087944593-the-heartsoul-healing/"><u>The HeartSoul Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502359-9781942125983-the-laws-of-messiah/"><u>The Laws Of Messiah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501943-9781957343013-words-of-the-temple/"><u>Words of the Temple | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2024-12-03T23:20:18.659Z
-updated: 2024-12-07T06:41:38.871Z
+date: 2024-12-12T02:39:37.158Z
+updated: 2024-12-13T00:12:35.670Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,17 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209861734-9781948172912-beyond-the-cross/"><u>Beyond the Cross | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209861853-9780999228418-ensoulment/"><u>Ensoulment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209861743-9781948172936-laying-up-treasures-in-heaven/"><u>Laying Up Treasures In Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209862186-9780993462658-loves-story-of-why-we-are-here/"><u>Love's Story of Why We Are Here | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209861705-9780999858622-member-heal-thyself/"><u>Member Heal Thyself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209861954-9781999392116-soothsaying-tarot-and-the-mantegna-revealed/"><u>Soothsaying Tarot and the Mantegna Revealed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209862007-9781732241268-the-language-of-dreams/"><u>The Language of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209861972-9781949169713-the-story-of-ada/"><u>The Story of Ada | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692733-9781959561088-cosmic-christ-transmissions/"><u>Cosmic Christ Transmissions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692674-9780760380147-moon-energy-for-beginners/"><u>Moon Energy for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692731-9781959561125-path-of-awakening/"><u>Path of Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210691424-9780760380086-the-beginners-guide-to-crystal-healing/"><u>The Beginner's Guide to Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692657-9781801520331-the-tree-of-life-and-death/"><u>The Tree of Life and Death | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

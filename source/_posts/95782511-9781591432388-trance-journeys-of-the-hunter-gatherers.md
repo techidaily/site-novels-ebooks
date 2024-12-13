@@ -1,7 +1,7 @@
 ---
 title: Trance Journeys of the Hunter-Gatherers | Free Book
-date: 2024-10-23T21:09:40.518Z
-updated: 2024-10-26T22:41:03.219Z
+date: 2024-12-12T01:10:27.335Z
+updated: 2024-12-12T16:41:03.358Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a8c1a237de0ddad09a2a55ba01b7293584225f3d6e8b902575f8819970e92353.jpg
@@ -205,3 +205,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a8c1a237de0ddad09a2a55ba01b7293
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210276847-9780998276540-ayahuasca-religions/"><u>Ayahuasca Religions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210277401-9781637301456-beyond-the-diploma/"><u>Beyond the Diploma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210277069-9781722526689-manifest-the-perfect-mate/"><u>Manifest the Perfect Mate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276055-9781948626286-radical-loving/"><u>Radical Loving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276145-9781493044849-spooky-great-smokies/"><u>Spooky Great Smokies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276146-9781493044887-spooky-massachusetts-2nd-ed/"><u>Spooky Massachusetts (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210277068-9781722526276-wake-up-and-live/"><u>Wake Up and Live! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276437-9781401963125-you-are-more-than-you-think-you-are/"><u>You Are More Than You Think You Are | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

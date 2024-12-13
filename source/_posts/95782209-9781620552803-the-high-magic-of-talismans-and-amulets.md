@@ -1,7 +1,7 @@
 ---
 title: The High Magic of Talismans and Amulets | Free Book
-date: 2024-10-21T23:37:52.799Z
-updated: 2024-10-26T16:53:17.996Z
+date: 2024-12-08T03:08:24.082Z
+updated: 2024-12-12T21:14:02.123Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c7c984046fc523f3164cfa1e6bf6062a41f5f23c3e3cde7f75680f9390ed1fb.jpg
@@ -195,3 +195,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c7c984046fc523f3164cfa1e6bf606
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210519627-9781098095567-broken-crushed-shattered-mended-healed/"><u>Broken, Crushed, Shattered, Mended, Healed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519628-9781639615964-my-five-guiding-principles/"><u>My Five Guiding Principles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519630-9781639613229-seeds-for-enlightenment-101/"><u>Seeds for Enlightenment 101 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519021-9798985440300-the-building-blocks-of-meditation/"><u>The Building Blocks of Meditation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

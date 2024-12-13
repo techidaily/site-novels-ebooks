@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-12-02T23:55:53.059Z
-updated: 2024-12-06T23:39:45.951Z
+date: 2024-12-07T00:41:17.975Z
+updated: 2024-12-12T21:20:00.619Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,15 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209856015-9780648184638-acupuncture-of-the-mind/"><u>Acupuncture of The Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855916-9780692509623-deeply-wounded-hope/"><u>Deeply Wounded Hope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855793-9781784569501-female-energy-awakening/"><u>Female Energy Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855880-9780999480595-the-power-formula/"><u>The Power Formula | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855887-9780692986127-thought-optional/"><u>Thought Optional | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209856155-9780993448256-thrive/"><u>Thrive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210681914-9781734687118-awaken-in-nature/"><u>Awaken In Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210682553-9781956914573-five-hundred-miles-from-help-and-i-heard/"><u>Five Hundred Miles From Help And I Heard... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210682211-9781662482458-on-earth-as-it-is-in-heaven/"><u>On Earth, as it is in Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210682142-9788293791676-the-power-of-silence/"><u>The Power of Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210681885-9781736787472-the-vision-partner-journal/"><u>The Vision Partner Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210682176-9780983938736-when-spirits-speak/"><u>When Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210682200-9781646283026-where-are-your-angels/"><u>Where Are Your Angels? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

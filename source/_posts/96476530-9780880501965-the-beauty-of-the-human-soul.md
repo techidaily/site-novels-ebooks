@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-12-05T19:50:42.226Z
-updated: 2024-12-06T16:14:07.916Z
+date: 2024-12-07T18:28:42.265Z
+updated: 2024-12-13T01:07:14.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,16 +183,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209961612-9781644111505-finding-your-elvenheart/"><u>Finding Your ElvenHeart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209962013-9781989838112-guided-meditations-for-deep-sleep-stress-relief-and-relaxation/"><u>Guided Meditations for Deep Sleep, Stress Relief and Relaxation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209961615-9781644111734-inviting-angels-into-your-life/"><u>Inviting Angels into Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209961609-9781644110836-sensitive-soul/"><u>Sensitive Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209962705-9781734464641-so-how-do-i-know-this-is-real/"><u>So, How Do I Know This is Real? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209961607-9781591433965-the-chiron-effect/"><u>The Chiron Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209962568-9789948365129-iy-orby/"><u>إيْ وَرَبِّي! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761501-9781622034208-a-lamp-in-the-darkness/"><u>A Lamp in the Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761494-9781622031702-awaken-the-inner-shaman/"><u>Awaken the Inner Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761491-9781622030750-how-to-meditate/"><u>How to Meditate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761493-9781622031115-red-hot-and-holy/"><u>Red Hot and Holy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: A Druid's Herbal of Sacred Tree Medicine | Free Book
-date: 2024-10-24T00:18:40.559Z
-updated: 2024-10-27T05:55:33.685Z
+date: 2024-12-07T05:32:18.136Z
+updated: 2024-12-13T06:53:08.852Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/720cbce8880f3117116fb939911517c505e898ee1586bae62a9c4f92d08439ef.jpg
@@ -183,3 +183,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/720cbce8880f3117116fb939911517c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210199809-9781631597077-10-minute-magic-spells/"><u>10-Minute Magic Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199891-9781592338016-crystals-for-energy-healing/"><u>Crystals for Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199863-9780760365847-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199780-9781610586405-one-zentangle-a-day/"><u>One Zentangle A Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199845-9780760362297-the-dictionary-of-dreams/"><u>The Dictionary of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199738-9781631591624-the-love-sex-and-relationship-dream-dictionary/"><u>The Love, Sex, and Relationship Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199753-9781631598340-the-ultimate-guide-to-witchcraft/"><u>The Ultimate Guide to Witchcraft | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

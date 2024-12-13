@@ -1,7 +1,7 @@
 ---
 title: The Secret Influence of the Moon | Free Book
-date: 2024-10-20T21:18:39.604Z
-updated: 2024-10-26T18:32:09.127Z
+date: 2024-12-06T02:37:57.058Z
+updated: 2024-12-12T22:34:26.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94d9628c555742679e4a7a852ba1d9fd3c3e6d893cf54f8c1c114f1855e3267a.jpg
@@ -192,3 +192,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94d9628c555742679e4a7a852ba1d9f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210200999-9781908005151-art-of-mindful-silence/"><u>Art of Mindful Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202532-9781641605748-becoming-a-hollow-bone/"><u>Becoming a Hollow Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201517-9781647465773-becoming-whole/"><u>Becoming Whole | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202121-9781788174817-healing-is-the-new-high/"><u>Healing Is the New High | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200997-9781908005540-mindfulness-the-art-of-managing-anger/"><u>Mindfulness & the Art of Managing Anger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203115-9781528767798-remarkable-spirit-manifestations/"><u>Remarkable Spirit Manifestations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201660-9781735740126-trouble-in-paradise/"><u>Trouble In Paradise | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

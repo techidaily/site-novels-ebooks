@@ -1,7 +1,7 @@
 ---
 title: Aboriginal Secrets of Awakening | Free Book
-date: 2024-10-20T19:45:48.603Z
-updated: 2024-10-26T16:44:56.854Z
+date: 2024-12-11T08:15:00.088Z
+updated: 2024-12-13T01:43:37.084Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b66f9a725ac08201b183a9682b76fcdc3a68c3a01ecca783da07b02252b594b.jpg
@@ -193,3 +193,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b66f9a725ac08201b183a9682b76fc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210270547-9781250780256-heal-from-within/"><u>Heal from Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270470-9781582708515-modern-merlin/"><u>Modern Merlin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270692-9781250809384-seeking-wisdom/"><u>Seeking Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270642-9781250773838-the-body-code/"><u>The Body Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270645-9781250766786-the-complete-book-of-astrology/"><u>The Complete Book of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270649-9781250279552-the-kickass-coven/"><u>The Kickass Coven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270585-9781250828729-the-science-of-breath-the-essential-works-of-yogi-ramacharaka/"><u>The Science of Breath: The Essential Works of Yogi Ramacharaka | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

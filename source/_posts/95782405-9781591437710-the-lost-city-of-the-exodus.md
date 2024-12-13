@@ -1,7 +1,7 @@
 ---
 title: The Lost City of the Exodus | Free Book
-date: 2024-10-22T23:25:51.119Z
-updated: 2024-10-27T03:39:31.408Z
+date: 2024-12-09T23:22:41.032Z
+updated: 2024-12-12T16:09:11.479Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b5ffce140a87776ff5dffb5f73546a87bd376d6e9513a695421c7ac79b29d1d.jpg
@@ -199,3 +199,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b5ffce140a87776ff5dffb5f73546a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210328048-9781944648190-a-return-to-eros/"><u>A Return to Eros | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210327198-9781582708621-acts-of-power/"><u>Acts of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328005-9781935251248-biocentrism/"><u>Biocentrism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210326597-9781602201712-complete-guide-to-chinese-horoscopes/"><u>Complete Guide to Chinese Horoscopes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210326464-9781098078621-earth-plan-4c/"><u>Earth Plan 4C | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328145-9781935251057-fit-soul-fit-body/"><u>Fit Soul, Fit Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210326313-9780813165707-haunted-holidays/"><u>Haunted Holidays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210326194-9780813170893-haunted-houses-and-family-ghosts-of-kentucky/"><u>Haunted Houses and Family Ghosts of Kentucky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210326291-9780813170831-real-life-x-files/"><u>Real-Life X-Files | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

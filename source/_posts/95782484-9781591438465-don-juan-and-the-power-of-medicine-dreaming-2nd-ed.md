@@ -1,7 +1,7 @@
 ---
 title: Don Juan and the Power of Medicine Dreaming (2nd ed.) | Free Book
-date: 2024-10-23T04:32:54.125Z
-updated: 2024-10-26T16:53:06.025Z
+date: 2024-12-09T20:32:24.562Z
+updated: 2024-12-13T08:23:21.686Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba6865797bf6575a68e51083ac4bee2c58dc2c54f2416f2a7094ee47811d73e3.jpg
@@ -189,3 +189,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba6865797bf6575a68e51083ac4bee2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210254247-9781398702158-astrosex-aquarius/"><u>Astrosex: Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254151-9781398810396-atlantis-and-other-lost-worlds/"><u>Atlantis and Other Lost Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253203-9781087954615-finding-your-superpowers-in-the-place-you-left-them/"><u>Finding Your Superpowers in the Place you Left Them | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253212-9780578840130-holy-bleep-that-was-not-a-coincidence/"><u>Holy BLEEP! That Was Not a Coincidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253233-9781736600603-lets-go-home/"><u>Let's Go Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254159-9781398810044-secret-wisdom/"><u>Secret Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253368-9789354278136-see-the-world-as-a-five-layered-cake/"><u>See the world as a five layered cake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253376-9781401965938-you-were-born-again-to-be-together/"><u>You Were Born Again to Be Together | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

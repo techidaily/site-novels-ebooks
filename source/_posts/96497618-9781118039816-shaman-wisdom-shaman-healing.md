@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-12-01T20:52:19.166Z
-updated: 2024-12-06T20:30:44.020Z
+date: 2024-12-08T06:57:46.984Z
+updated: 2024-12-12T23:04:58.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,13 +182,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209869628-9781999375904-bazi-frontiers-the-cosmic-geography-of-success/"><u>Bazi Frontiers, The Cosmic Geography of Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209869459-9781999701420-finding-your-soul-family/"><u>Finding Your Soul Family | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209869791-9780578458731-hidden/"><u>Hidden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209869042-9781595949400-water-and-sunflowers/"><u>Water and Sunflowers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705156-9780760379998-angel-numbers/"><u>Angel Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705161-9780760379974-candle-magic/"><u>Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705153-9780760376393-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705157-9780760377697-moon-meditations/"><u>Moon Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705150-9780760379981-pendulum-magic/"><u>Pendulum Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

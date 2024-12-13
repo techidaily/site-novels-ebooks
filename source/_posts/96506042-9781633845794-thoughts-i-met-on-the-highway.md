@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2024-11-30T23:10:44.089Z
-updated: 2024-12-06T16:59:39.532Z
+date: 2024-12-10T21:06:06.024Z
+updated: 2024-12-12T17:05:22.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,13 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209815496-9781789042429-ancient-teachings-for-modern-times/"><u>Ancient Teachings for Modern Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209820540-9781743586518-find-your-sparkle/"><u>Find Your Sparkle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209815494-9781789042177-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209815503-9781789041385-the-energetic-dimension/"><u>The Energetic Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640751-9781647842901-a-revolution-beyond-death/"><u>A Revolution Beyond Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210641195-9781538726952-deeper-mindfulness/"><u>Deeper Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640665-9780648525028-giving-spirit-a-voice/"><u>Giving Spirit A Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640334-9798985990911-into-your-soul-a-beginners-guide-to-past-life-regression/"><u>Into Your Soul - A Beginner's Guide to Past Life Regression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640753-9798218046828-refined/"><u>Refined | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640320-9781914083624-taxi-for-spirit-2/"><u>Taxi for 'Spirit' 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640290-9798885401395-the-search-for-dry-land/"><u>The Search for Dry Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640698-9781685262235-the-unmerciful-pain/"><u>The Unmerciful Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210641186-9780762482214-well-rested-every-day/"><u>Well-Rested Every Day | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

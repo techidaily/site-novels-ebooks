@@ -1,7 +1,7 @@
 ---
 title: The Self-Actualizing Cosmos | Free Book
-date: 2024-10-25T17:15:30.191Z
-updated: 2024-10-26T21:37:31.460Z
+date: 2024-12-07T18:23:28.804Z
+updated: 2024-12-13T03:13:20.315Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ab87a22169bd1ee83bccb40922acebabd90c8ffd80a748d176fc7da59b1a6891.jpg
@@ -196,3 +196,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ab87a22169bd1ee83bccb40922aceba
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210521523-9781638605072-am-i-crazy/"><u>Am I Crazy? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521588-9780968682333-clearing-a-path-to-joy/"><u>Clearing a Path to Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521766-9781789045291-healing-plants-of-greek-myth/"><u>Healing Plants of Greek Myth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521490-9781662467967-life-is-hard/"><u>Life is Hard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520932-9781737991564-my-big-gods-masterpiece/"><u>My Big-GOD's Masterpiece | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521632-9781662468728-slept-in-beauty/"><u>Slept in Beauty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521449-9781685703394-something-to-ponder/"><u>Something to Ponder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520826-9780987622839-the-divine-dance-of-the-universe/"><u>The Divine Dance of The Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520907-9781088022153-the-monad-manifesto/"><u>The Monad Manifesto | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

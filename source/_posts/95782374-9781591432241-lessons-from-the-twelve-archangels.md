@@ -1,7 +1,7 @@
 ---
 title: Lessons from the Twelve Archangels | Free Book
-date: 2024-10-25T02:11:12.949Z
-updated: 2024-10-26T16:41:41.090Z
+date: 2024-12-09T04:03:11.269Z
+updated: 2024-12-12T18:43:10.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82793d83013b1dc8a3debff10a3fe53f556b3d7867056c4f2905180ca494eb0b.jpg
@@ -193,3 +193,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82793d83013b1dc8a3debff10a3fe53
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210355469-9781774816141-echoes-from-the-orient/"><u>Echoes from the Orient | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355573-9781908421555-faces-of-the-living-dead/"><u>Faces of the Living Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355344-9781462923168-feng-shui-before-after/"><u>Feng Shui Before & After | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210354987-9781667404912-haz-que-los-desconocidos-se-conviertan-en-tus-amigos/"><u>Haz que los desconocidos se conviertan en tus amigos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355639-9781736959442-letters-to-heaven-and-back/"><u>Letters to Heaven and Back | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355638-9780645132212-our-benevolent-cosmos/"><u>Our Benevolent Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355129-9781662445187-stepping-inside/"><u>Stepping Inside | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355292-9781636308548-who-can-heal-me/"><u>Who Can Heal Me? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355209-9780975912096-why-am-i-stuck/"><u>Why Am I Stuck? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Journeys to the Mythical Past (2nd ed.) | Free Book
-date: 2024-10-20T02:53:26.040Z
-updated: 2024-10-27T02:02:58.860Z
+date: 2024-12-09T18:59:44.588Z
+updated: 2024-12-13T02:59:29.018Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d985aabf13c312282a203fe73c6a7abdc6471ec4b04ebcfdb368b32c37a649ce.jpg
@@ -180,3 +180,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d985aabf13c312282a203fe73c6a7ab
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210302502-9781802868128-ama-il-tuo-corpo/"><u>AMA IL TUO CORPO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210302336-9781638374251-my-window-on-consciousness/"><u>My Window on Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210302559-9781788176460-runes-made-easy/"><u>Runes Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210302712-9781446358504-the-book-of-witches/"><u>The Book of Witches | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

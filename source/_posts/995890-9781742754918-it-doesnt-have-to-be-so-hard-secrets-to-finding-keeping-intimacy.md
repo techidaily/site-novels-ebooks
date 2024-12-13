@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-11-30T04:54:40.821Z
-updated: 2024-12-06T16:52:27.874Z
+date: 2024-12-09T02:33:06.383Z
+updated: 2024-12-13T02:56:15.724Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,18 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209650576-9780757319051-becoming-a-sage/"><u>Becoming a Sage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209650601-9780757318856-connecting-with-coincidence/"><u>Connecting with Coincidence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652300-9781912807086-earth-divination-earth-magic/"><u>Earth Divination, Earth Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652345-9781493040841-haunted-ohio-2nd-ed/"><u>Haunted Ohio (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209653739-9781722522315-magic-of-faith/"><u>Magic of Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652338-9781493040780-spooky-california-2nd-ed/"><u>Spooky California (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652346-9781493040803-spooky-new-york-tales-of-hauntings-strange-happenings-and-other-local-lore-2nd-ed/"><u>Spooky New York: Tales Of Hauntings, Strange Happenings, And Other Local Lore (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649841-9780757391873-the-medium-next-door/"><u>The Medium Next Door | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209650525-9780757397448-the-secrets-and-mysteries-of-hawaii/"><u>The Secrets and Mysteries of Hawaii | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539579-9781447482840-a-dialogue-concerning-witches-and-witchcrafts/"><u>A Dialogue Concerning Witches and Witchcrafts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210538733-9781984861979-how-to-manifest/"><u>How to Manifest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210540101-9781447488583-practical-mysticism-a-little-book-for-normal-people/"><u>Practical Mysticism - A Little Book for Normal People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210541149-9781957869049-queering-psychedelics/"><u>Queering Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539866-9781447499275-recovering-the-ancient-magic/"><u>Recovering the Ancient Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210538707-9781952692345-the-bodhisattva-path/"><u>The Bodhisattva Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539385-9781473385641-the-gypsy-queen-dream-book-and-fortune-teller-divination-series/"><u>The Gypsy Queen Dream Book and Fortune Teller (Divination Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210540356-9781473361843-the-kybalion-a-study-of-the-hermetic-philosophy-of-ancient-egypt-and-greece/"><u>The Kybalion - A Study of the Hermetic Philosophy of Ancient Egypt and Greece | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539279-9781446549483-witchcraft-and-witchcraft-trials-in-orkney-and-shetland-folklore-history-series/"><u>Witchcraft and Witchcraft Trials in Orkney and Shetland (Folklore History Series) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Extra-Planetary Experiences | Free Book
-date: 2024-10-19T21:37:40.739Z
-updated: 2024-10-26T22:02:04.079Z
+date: 2024-12-07T21:35:43.129Z
+updated: 2024-12-13T07:17:43.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d48d6b4d92c31960e442c1849e1cdc5ea1395cfe732f4b1df468337a53b7a6e0.jpg
@@ -186,3 +186,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d48d6b4d92c31960e442c1849e1cdc5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210356013-9781250797421-be-the-love/"><u>Be the Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210356915-9781736640791-beauty-becomes-thee/"><u>Beauty Becomes Thee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210357340-9781636922249-life-stories-life-readings/"><u>Life Stories Life Readings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210356940-9781737783312-living-in-a-time-of-dying/"><u>Living in a Time of Dying | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355946-9781250828767-the-dream-book/"><u>The Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355878-9781250845283-the-secret-of-the-ages-and-other-essential-works/"><u>The Secret of the Ages: And Other Essential Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355974-9781250805058-you-are-psychic/"><u>You Are Psychic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

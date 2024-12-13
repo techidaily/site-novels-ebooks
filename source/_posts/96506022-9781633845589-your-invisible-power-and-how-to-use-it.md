@@ -1,7 +1,7 @@
 ---
 title: Your Invisible Power and How to Use It | Free Book
-date: 2024-12-04T02:40:27.379Z
-updated: 2024-12-06T16:02:30.147Z
+date: 2024-12-07T23:30:53.566Z
+updated: 2024-12-13T02:08:19.128Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035b03b1cc767fa3501b8a4d68e2e51d3180.jpg
@@ -140,14 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209790953-9781071508244-la-meditation-un-puissant-pouvoir-qui-guerit-les-maux-physiques-et-emotionnels/"><u>La Méditation, un Puissant Pouvoir qui Guérit les Maux Physiques et Émotionnels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209794927-9781942125617-love-for-the-future/"><u>Love for the Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209790733-9781071506318-meditacao-guia-de-consciencia-plena-para-aumentar-a-felicidade-meditacao-para-iniciantes/"><u>Meditação: Guia De Consciência Plena Para Aumentar A Felicidade (Meditação Para Iniciantes) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209790925-9781071504123-segundo-yo/"><u>Segundo YO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209794532-9781524856915-the-little-book-of-meditations/"><u>The Little Book of Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632718-9781959018087-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632676-9780760375969-create-your-own-tarot-cards/"><u>Create Your Own Tarot Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632712-9781777791421-operation-who-am-i/"><u>Operation Who Am I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632713-9781959018056-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632550-9780760359068-the-mindfulness-in-knitting/"><u>The Mindfulness in Knitting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632666-9780999547298-the-nature-of-drugs-vol-2/"><u>The Nature of Drugs Vol. 2 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Atlantis and the Coming Ice Age (2nd ed.) | Free Book
-date: 2024-10-24T05:27:28.152Z
-updated: 2024-10-26T22:59:09.933Z
+date: 2024-12-11T23:03:17.545Z
+updated: 2024-12-12T21:58:43.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a3d9477955f258ec5819e090b79837f695c1d026e0b99779da148daa99fd80e.jpg
@@ -186,3 +186,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a3d9477955f258ec5819e090b79837
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210254249-9781398702134-astrosex-capricorn/"><u>Astrosex: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254298-9781398701991-astrosex-gemini/"><u>Astrosex: Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254266-9781398702035-astrosex-leo/"><u>Astrosex: Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254257-9781398702073-astrosex-libra/"><u>Astrosex: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254281-9781398702172-astrosex-pisces/"><u>Astrosex: Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254287-9781398702097-astrosex-scorpio/"><u>Astrosex: Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254263-9781398701977-astrosex-taurus/"><u>Astrosex: Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254383-9781250833334-the-power-of-awareness-and-other-essential-works/"><u>The Power of Awareness: And Other Essential Works | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2024-12-02T05:07:28.148Z
-updated: 2024-12-06T23:33:51.066Z
+date: 2024-12-07T16:22:17.388Z
+updated: 2024-12-13T05:16:03.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,16 +135,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209858537-9788792980540-a-life-changing-journey-with-a-master/"><u>A Life Changing Journey with a Master | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209858595-9781532307560-dare-to-know-who-you-are/"><u>DARE TO KNOW WHO YOU ARE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209858519-9780999494721-dream-a-better-dream/"><u>Dream A Better Dream | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209858430-9780692984741-elhaz-ablaze/"><u>Elhaz Ablaze | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209858426--kundalini-yoga/"><u>Kundalini yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209858509-9781999963002-the-art-of-the-intuitive-healer-volume-2/"><u>The art of the intuitive healer. Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209858546-9780997118582-true-ghost-stories-and-hauntings/"><u>True Ghost Stories and Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685493-9781644117965-libro-de-bolsillo-de-piedras/"><u>Libro de bolsillo de piedras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685491-9781644117088-psychedelic-cults-and-outlaw-churches/"><u>Psychedelic Cults and Outlaw Churches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685494-9781644117941-sage-huntress-lover-queen/"><u>Sage, Huntress, Lover, Queen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685488-9781644117101-soul-journey-through-the-tarot/"><u>Soul Journey through the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685489-9781644117835-the-alchemical-search-for-the-unified-field/"><u>The Alchemical Search for the Unified Field | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685501-9781646045082-the-big-book-of-cryptid-trivia/"><u>The Big Book of Cryptid Trivia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685498-9781644118429-the-female-archangels-2nd-ed/"><u>The Female Archangels (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685490-9781644117217-the-magic-of-the-orphic-hymns/"><u>The Magic of the Orphic Hymns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685487-9781644117170-the-royal-path-of-shakti/"><u>The Royal Path of Shakti | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Man with the Inexplicable Life | Free Book
-date: 2024-12-03T18:45:14.543Z
-updated: 2024-12-07T04:35:06.225Z
+date: 2024-12-07T22:21:31.030Z
+updated: 2024-12-13T01:25:19.577Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090d7a673c820c62b2b8653378e4a7827ca4.jpg
@@ -170,13 +170,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210032632-9781634500111-ghostly-encounters/"><u>Ghostly Encounters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210032445-9781476640266-lucid-dreaming-waking-life/"><u>Lucid Dreaming, Waking Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210032674-9781632201362-strange/"><u>Strange | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210032996-9781628730968-the-complete-book-of-devils-and-demons/"><u>The Complete Book of Devils and Demons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773430-9781685833800-life-simply-a-perspective/"><u>Life: Simply a perspective | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773482-9781649698674-the-extraterrestrial-life/"><u>THE EXTRATERRESTRIAL LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773509-9781922439727-the-floating-world/"><u>The Floating World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773538-9781649696526-the-quarry-event/"><u>The Quarry Event | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773452-9781649697189-the-sound-of-the-stone-being-rolled-away/"><u>The sound of the stone being rolled away | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

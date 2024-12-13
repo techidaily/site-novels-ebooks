@@ -1,7 +1,7 @@
 ---
 title: The Crazy Wisdom of Ganesh Baba | Free Book
-date: 2024-10-21T03:34:01.779Z
-updated: 2024-10-26T21:00:32.862Z
+date: 2024-12-06T08:14:39.736Z
+updated: 2024-12-12T23:42:47.217Z
 categories:
   - Biography & Autobiography
 thumbnail: https://thmb-001-ebook.techidaily.com/2dc904a926695c29ee93903e6b7489d44023c163d624b534b750586a8c1bf579.jpg
@@ -193,3 +193,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2dc904a926695c29ee93903e6b7489d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210526334-9781636925059-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526446-9781662465680-my-blueprint/"><u>My Blueprint | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526652-9798985816815-rise-up/"><u>RISE UP! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526272-9781722527280-the-art-of-power/"><u>The Art of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526271-9781722527297-the-art-of-self-mastery/"><u>The Art of Self-Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526221-9781801520317-the-keys-to-the-temple/"><u>The Keys to the Temple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526222-9781801520355-the-occult-philosophy-workbook/"><u>The Occult Philosophy Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526328-9781638813187-the-unrevealing-shadow-walker/"><u>The Unrevealing Shadow Walker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210526216-9781774817131-the-upanishads/"><u>The Upanishads | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Pleiadian Tantric Workbook | Free Book
-date: 2024-10-24T23:27:50.237Z
-updated: 2024-10-27T03:44:53.659Z
+date: 2024-12-10T03:25:41.966Z
+updated: 2024-12-12T22:42:11.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b7cdfedf9d36453b09ef2aabd545da9435465803038edf9f97a4fc403aba6c28.jpg
@@ -147,3 +147,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b7cdfedf9d36453b09ef2aabd545da9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210398042-9781528970839-double-deuce/"><u>Double Deuce | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398057-9781649790446-interior-consciousness/"><u>Interior Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398350-9781071539071-la-puerta-a-la-eternidad/"><u>La Puerta A La Eternidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398202-9782017165972-le-cadeau/"><u>Le cadeau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398393-9781667414287-mindfulness-pasos-sencillos-para-lograr-el-poder-de-la-atencion-plena/"><u>Mindfulness: Pasos sencillos para lograr el poder de la atención plena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398357-9781667413655-mindfulness-una-nueva-forma-de-atencion-plena-y-meditacion/"><u>Mindfulness: una nueva Forma de Atención Plena y Meditación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398368-9781667414300-plenitud-mental-una-guia-practica-de-plenitud-mental-para-restaurar-la-salud-mental/"><u>Plenitud mental: Una guía práctica de plenitud mental para restaurar la salud mental | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398140-9781784884987-the-garden-apothecary/"><u>The Garden Apothecary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398446-9781667412047-write-to-heal/"><u>Write to Heal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

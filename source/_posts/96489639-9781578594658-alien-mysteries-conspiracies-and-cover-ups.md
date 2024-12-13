@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-12-05T23:20:09.089Z
-updated: 2024-12-07T05:56:20.464Z
+date: 2024-12-08T00:25:21.209Z
+updated: 2024-12-13T00:17:42.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,14 +192,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209929612-9781743586747-heavily-meditated/"><u>Heavily Meditated | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209929474-9781951775131-imps-imps-and-more-whimps/"><u>Imps, Imps, and More Whimps! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209928850-9781925921878-live-fearlessly/"><u>Live Fearlessly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209928853-9784375653245-the-alchemists-handbook/"><u>The Alchemists Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209931864-9781401959654-the-map-of-consciousness-explained/"><u>The Map of Consciousness Explained | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210754420-9798887620428-ayurveda/"><u>Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210752004-9780990879350-deceptions-of-the-ages/"><u>Deceptions of the Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751862-9798886165661-life-is-a-love-story/"><u>Life Is a Love Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210754120-9782017186656-parce-quon-ne-vous-demande-pas-dy-croire/"><u>Parce qu'on ne vous demande pas d'y croire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210752764-9781513276465-the-discovery-of-witches/"><u>The Discovery of Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210754446-9798887620695-the-secret-code-on-your-hands/"><u>The Secret Code on Your Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210753840-9781398830684-wicca-for-self-transformation/"><u>Wicca for Self-Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210754065-9781797208312-wisdom-of-the-wild/"><u>Wisdom of the Wild | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210753984-9789948802303-naaysh-aal-kyd-alaml/"><u>نعيش على قيد الأمل | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

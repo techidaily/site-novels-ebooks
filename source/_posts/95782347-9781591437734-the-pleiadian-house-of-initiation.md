@@ -1,7 +1,7 @@
 ---
 title: The Pleiadian House of Initiation | Free Book
-date: 2024-10-21T02:32:17.044Z
-updated: 2024-10-26T20:49:47.400Z
+date: 2024-12-06T06:14:39.208Z
+updated: 2024-12-13T07:59:52.581Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e83501d5f7c6c5c12d46b0ace1e50fb950c0d92b788483da104fa6225cabdf67.jpg
@@ -197,3 +197,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e83501d5f7c6c5c12d46b0ace1e50fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210346529-9782226451460-dis-moi-comment-aller-chaque-jour-de-mieux-en-mieux/"><u>Dis-moi comment aller chaque jour de mieux en mieux | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346679-9782226447333-faire-face-a-la-perversion/"><u>Faire face à la perversion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346089-9782226465078-il-suffit-parfois-dun-signe/"><u>Il suffit parfois d'un signe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346767-9782226433459-le-grand-livre-de-la-pleine-presence/"><u>Le Grand Livre de la pleine présence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346511-9782226452184-les-racines-de-la-meditation/"><u>Les Racines de la méditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346075-9782226466013-nos-ames-oubliees/"><u>Nos âmes oubliées | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346323-9782807331082-soigner-en-pleine-conscience/"><u>Soigner en pleine conscience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

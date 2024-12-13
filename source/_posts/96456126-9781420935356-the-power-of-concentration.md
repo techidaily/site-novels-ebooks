@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2024-12-02T06:02:17.963Z
-updated: 2024-12-06T22:08:07.910Z
+date: 2024-12-12T04:10:56.675Z
+updated: 2024-12-12T16:38:10.298Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,17 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210065024-9781647849702-001/"><u>生命奧秘全書001：靈魂光之真理實相（靈學篇） | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210065021-9781647849726-003-the-great-tao-of-spiritual-science-series-03-the-great-tao/"><u>生命奧秘全書003：大道─靈性模式的修練（靈修篇）: The Great Tao of Spiritual Science Series 03: The Great Tao | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210065018-9781647849733-004-the-great-tao-of-spiritual-science-series-04-the-third-eye/"><u>生命奧秘全書004：天眼─第三眼進入更高人類精神次元（靈力篇）: The Great Tao of Spiritual Science Series 04: The Third Eye | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210065026-9781647461201-are-you-polished/"><u>Are You Polished? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210065089-9781989838525-bedtime-stories-guided-meditations-for-busy-adults-2-in-1/"><u>Bedtime Stories & Guided Meditations For Busy Adults (2 in 1) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210065087-9781989838518-bedtime-stories-guided-meditations-for-busy-adults/"><u>Bedtime Stories & Guided Meditations for Busy Adults | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210065471-9781982152321-space-nomads-set-a-course-for-mars/"><u>Space Nomads: Set a Course for Mars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210065396-9781982164874-the-house-your-stars-built/"><u>The House Your Stars Built | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210799795-9789357270663-a-golden-and-blessed-casket-of-natures-marvels/"><u>A Golden and Blessed Casket of Nature's Marvels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210799099-9798886543872-dear-molly/"><u>Dear Molly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210799023-9781647495138-the-keys-to-prosperity-manifestation/"><u>The Keys To Prosperity Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210799785-9789357274630-the-master-key/"><u>The Master Key | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210799828-9789356567801-the-power-of-concentration/"><u>The Power Of Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800378-9781739347413-yantra-an-encyclopedia-volume-2/"><u>Yantra - An Encyclopedia - Volume 2 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

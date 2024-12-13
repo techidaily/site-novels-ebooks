@@ -1,7 +1,7 @@
 ---
 title: Dark Light Consciousness | Free Book
-date: 2024-10-20T00:24:02.332Z
-updated: 2024-10-26T22:10:32.835Z
+date: 2024-12-08T17:55:49.207Z
+updated: 2024-12-12T20:19:51.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e5575744cb4db185237b7be94833b726c94b41d5afeb486b901532114bf3439.jpg
@@ -203,3 +203,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e5575744cb4db185237b7be94833b7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210464462-9781646287840-ancient-wisdom-for-modern-needs/"><u>Ancient Wisdom for Modern Needs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210464677-9781639611171-blessings-stresses-and-lessons-from-the-bible/"><u>Blessings, Stresses, and Lessons from the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210464657-9781098084202-healing/"><u>Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465687-9780593541081-how-to-take-care/"><u>How to Take Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210463602-9781638447689-purgatory/"><u>Purgatory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465101-9781639036257-quotes-that-will-inspire-and-encourage-you-in-your-journey/"><u>Quotes That Will Inspire and Encourage You In Your Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465717-9781401969141-the-healing-wisdom-of-dreams/"><u>The Healing Wisdom of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465730-9780593316580-the-ruin-of-all-witches/"><u>The Ruin of All Witches | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

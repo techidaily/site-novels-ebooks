@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2024-12-05T23:44:33.883Z
-updated: 2024-12-07T04:17:35.410Z
+date: 2024-12-06T02:09:11.402Z
+updated: 2024-12-13T07:03:09.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,16 +138,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209730893-9780806539508-candlelight-spells/"><u>Candlelight Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209732445-9781788173605-crystals-for-energy-protection/"><u>Crystals for Energy Protection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209733632-9781722523572-self-mastery-through-conscious-autosuggestion-original-classic-edition/"><u>Self-Mastery Through Conscious Autosuggestion (Original Classic Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209732469-9781984856609-the-new-stone-age/"><u>The New Stone Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209732439-9781401958107-the-universe-always-has-a-plan/"><u>The Universe Always Has a Plan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209733413-9781507212639-the-witchs-book-of-love/"><u>The Witch's Book of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209731435-9780806539607-wicca-candle-magick/"><u>Wicca Candle Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210591795-9798985236712-its-a-tango-not-a-war/"><u>It's a Tango, Not a War | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592377-9798985892680-never-forgotten/"><u>Never Forgotten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210590918-9781786787378-the-aleister-crowley-manual/"><u>The Aleister Crowley Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210591818-9798985991673-when-silence-is-misunderstood/"><u>When Silence is Misunderstood | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

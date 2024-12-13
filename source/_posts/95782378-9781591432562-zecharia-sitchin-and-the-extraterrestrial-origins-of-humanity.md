@@ -1,7 +1,7 @@
 ---
 title: Zecharia Sitchin and the Extraterrestrial Origins of Humanity | Free Book
-date: 2024-10-24T02:01:16.540Z
-updated: 2024-10-27T02:49:32.132Z
+date: 2024-12-07T00:41:41.538Z
+updated: 2024-12-12T19:52:41.056Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ed7a82598063d92ca14a8b1f2edea9bf11d09cb98d950a2efa0feb815810aac.jpg
@@ -198,3 +198,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ed7a82598063d92ca14a8b1f2edea9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210355825-9781644113943-becoming-a-garment-of-isis/"><u>Becoming a Garment of Isis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355820-9781644113011-flower-essences-from-the-witchs-garden/"><u>Flower Essences from the Witch's Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355823-9781644113370-the-path-of-elemental-witchcraft/"><u>The Path of Elemental Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355821-9781644113127-the-twilight-of-pluto/"><u>The Twilight of Pluto | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

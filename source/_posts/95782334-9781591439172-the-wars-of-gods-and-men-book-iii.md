@@ -1,7 +1,7 @@
 ---
 title: The Wars of Gods and Men (Book III) | Free Book
-date: 2024-10-24T02:01:26.177Z
-updated: 2024-10-26T19:01:33.355Z
+date: 2024-12-07T05:20:15.139Z
+updated: 2024-12-13T01:40:23.287Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/202e9cbbc6c782d163d2dbf797072fb1eb878d0219124ce416bf2c4240833fc1.jpg
@@ -190,3 +190,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/202e9cbbc6c782d163d2dbf797072fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210395575-9780811875912-chakra/"><u>Chakra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395967-9781452163659-cosmos-sexy-sutra/"><u>Cosmo's Sexy Sutra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210396412-9781087993331-origin-of-life-by-gods-design/"><u>Origin of Life by God's Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210396191-9780593421666-sacred-sex/"><u>Sacred Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395669-9781452120270-spirit-animals/"><u>Spirit Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210396205-9781952692192-the-admonitions-and-encouraging-words-of-master-guishan/"><u>The Admonitions and Encouraging Words of Master Guishan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395803-9781452158198-the-golden-book-of-fortune-telling/"><u>The Golden Book of Fortune-Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395931-9781452127255-the-little-book-of-angels/"><u>The Little Book of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210396183-9780593538548-the-magick-of-birthdays/"><u>The Magick of Birthdays | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

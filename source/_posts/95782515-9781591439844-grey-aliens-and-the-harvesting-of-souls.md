@@ -1,7 +1,7 @@
 ---
 title: Grey Aliens and the Harvesting of Souls | Free Book
-date: 2024-10-20T16:57:11.387Z
-updated: 2024-10-26T20:41:04.422Z
+date: 2024-12-08T07:15:43.047Z
+updated: 2024-12-13T06:36:58.834Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec4fefa2bb02114b6f8e4c6f3a505b7eb8df19bab81dba43098a1078581ee3e0.jpg
@@ -194,3 +194,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec4fefa2bb02114b6f8e4c6f3a505b7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210206443-9781087885988-100-love-spells/"><u>100 Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207967-9780578833491-the-complete-astrology-and-intuitive-guide-to-2021/"><u>The Complete Astrology and Intuitive Guide To 2021 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207088-9781913816285-the-sacred-revival/"><u>THE SACRED REVIVAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207075-9781722526139-think-and-grow-rich-and-the-richest-man-in-babylon-original-classic-editions/"><u>Think and Grow Rich and The Richest Man in Babylon (Original Classic Editions) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207169-9780593139493-your-intuition-led-you-here/"><u>Your Intuition Led You Here | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

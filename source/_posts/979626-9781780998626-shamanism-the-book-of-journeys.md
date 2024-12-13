@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2024-12-04T05:19:07.326Z
-updated: 2024-12-07T06:34:21.744Z
+date: 2024-12-10T21:49:04.570Z
+updated: 2024-12-12T19:13:46.872Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,17 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209734648-9781787133402-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209738494-9781785358692-ive-never-met-a-dead-person-i-didnt-like/"><u>I've Never Met A Dead Person I Didn't Like | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209739650-9781547574605-liderazgo-mejorar-la-comunicacion-en-los-negocios-e-influir-facilmente-en-los-miembros-del-equipo-para-lograr-el-exito/"><u>Liderazgo : Mejorar La Comunicación En Los Negocios E Influir Fácilmente En Los Miembros Del Equipo Para Lograr El Éxito | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209737952-9781507212653-spellcrafting/"><u>Spellcrafting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209733677-9781609259259-tarot-card-combinations/"><u>Tarot Card Combinations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209735431-9780008353193-the-frozen-river/"><u>The Frozen River | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209739504-9781848668072-this-book-will-make-you-mindful/"><u>This Book Will Make You Mindful | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209738784-9780895566225-trump-is-a-four-letter-word/"><u>Trump Is a Four Letter Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592449-9780760373729-breathe/"><u>Breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593325-9781476644806-ghosted/"><u>Ghosted! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593260-9781524881887-haunted-in-america/"><u>Haunted in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593201-9782017166160-le-garcon-qui-chevauchait-un-ane/"><u>Le garçon qui chevauchait un âne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593482-9781841815312-manifesting-with-crystals/"><u>Manifesting with Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593462-9781399700672-still-points/"><u>Still Points | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Lost Civilization of Lemuria | Free Book
-date: 2024-10-23T21:41:53.162Z
-updated: 2024-10-27T02:56:35.431Z
+date: 2024-12-08T04:59:08.117Z
+updated: 2024-12-13T01:40:04.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee1132921d3ae687a6b69e637eeff3fb45800e56394e504f3f8f2c1348f3459b.jpg
@@ -185,3 +185,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee1132921d3ae687a6b69e637eeff3f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210293340-9781098023485-beyond-physical/"><u>Beyond Physical | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210293337-9781098049027-failure/"><u>Failure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210293768-9781641914826-faith/"><u>Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210293544-9781644164556-god-is-always-in-my-shadow/"><u>God Is Always In My Shadow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210293818-9781644587577-hidden-treasures-in-your-field/"><u>Hidden Treasures in Your Field | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210293562-9781642580471-life-lessons/"><u>Life Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210293041-9781098013110-lifes-torn-fragments-becomes-a-robe-of-many-colors/"><u>Life's Torn Fragments Becomes a Robe of Many Colors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210293813-9781642588743-the-undisputed-champion/"><u>The Undisputed Champion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

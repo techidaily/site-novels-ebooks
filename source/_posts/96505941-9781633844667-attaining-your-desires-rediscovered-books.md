@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-12-04T03:57:26.213Z
-updated: 2024-12-06T16:37:17.195Z
+date: 2024-12-11T07:37:09.398Z
+updated: 2024-12-13T04:28:33.010Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,17 +140,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209780365-9781633411012-existential-kink/"><u>Existential Kink | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780350-9781633411784-futhark/"><u>Futhark | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780357-9781633411630-lunar-alchemy/"><u>Lunar Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780352-9781633411265-orishas-goddesses-and-voodoo-queens/"><u>Orishas, Goddesses, and Voodoo Queens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780351-9781633411548-the-21-divisions/"><u>The 21 Divisions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780353-9781632657619-the-anunnaki-connection/"><u>The Anunnaki Connection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780355-9781633411340-the-handbook-of-yoruba-religious-concepts/"><u>The Handbook of Yoruba Religious Concepts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780364-9781633411814-the-herbal-alchemists-handbook/"><u>The Herbal Alchemist's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619808-9781401970048-365-days-of-divine-feminine-wisdom/"><u>365 Days of Divine Feminine Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619955-9781722527570-free-your-magnificent-mind/"><u>Free Your Magnificent Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619956-9781722527587-modern-occultism/"><u>Modern Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619824-9780744070453-the-book-of-spells/"><u>The Book of Spells | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

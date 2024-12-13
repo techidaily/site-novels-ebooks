@@ -1,7 +1,7 @@
 ---
 title: Numerología, sexo y amor | Free Book
-date: 2024-12-06T02:51:11.296Z
-updated: 2024-12-06T20:51:18.144Z
+date: 2024-12-10T17:08:35.818Z
+updated: 2024-12-13T00:00:06.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e0314e8b2aff624c0dc7b1e4f235a55997ab19a4d32a40c2a41f8fedd46908a.jpg
@@ -134,13 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e0314e8b2aff624c0dc7b1e4f235a5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209641051-9780486838786-by-time-is-everything-revealed/"><u>By Time Is Everything Revealed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209642330-9780750990189-devon-ghost-tales/"><u>Devon Ghost Tales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209641007-9781856754231-the-little-book-of-breathing/"><u>The Little Book of Breathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209641275-9781507211496-the-modern-witchcraft-guide-to-magickal-herbs/"><u>The Modern Witchcraft Guide to Magickal Herbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533591-9781398814578-aquarius/"><u>Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533596-9781398814561-capricorn/"><u>Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533386-9781639701506-creative-visualization/"><u>Creative Visualization | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533597-9781398814530-libra/"><u>Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533394-9781639701476-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533592-9781398814585-pisces/"><u>Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533595-9781398814554-sagittarius/"><u>Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533594-9781398814547-scorpio/"><u>Scorpio | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

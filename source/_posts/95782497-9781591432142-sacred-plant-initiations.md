@@ -1,7 +1,7 @@
 ---
 title: Sacred Plant Initiations | Free Book
-date: 2024-10-24T05:52:54.807Z
-updated: 2024-10-27T00:07:54.488Z
+date: 2024-12-07T18:23:15.830Z
+updated: 2024-12-13T06:04:02.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9f9c94997668ffdc605361c1d4b733dd947784ab8718aa82e546ba20b08928a.jpg
@@ -203,3 +203,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9f9c94997668ffdc605361c1d4b733
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210268022-9781098073480-a-legacy-of-faith/"><u>A Legacy of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210268055-9781098054410-designed-illusions/"><u>Designed Illusions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267439-9781914085857-il-potere-nella-verita/"><u>Il Potere nella Verità | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210268060-9781098065669-laughing-my-way-to-a-better-life/"><u>Laughing My Way to a Better Life! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267402-9781737040309-modern-day-shaman/"><u>Modern Day Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267309-9781528767712-on-the-threshold-of-a-new-world-of-thought-an-examination-of-the-phenomena-of-spiritualism/"><u>On The Threshold of a New World of Thought - An Examination of the Phenomena of Spiritualism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

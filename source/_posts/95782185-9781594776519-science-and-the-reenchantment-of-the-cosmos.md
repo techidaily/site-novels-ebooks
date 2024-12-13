@@ -1,7 +1,7 @@
 ---
 title: Science and the Reenchantment of the Cosmos | Free Book
-date: 2024-10-22T05:23:13.391Z
-updated: 2024-10-27T05:34:06.218Z
+date: 2024-12-06T23:57:43.895Z
+updated: 2024-12-13T08:01:19.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9dc7993b294900aa329c344b396fd77af66fece0980a8b652e9234c975779a1a.jpg
@@ -182,3 +182,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9dc7993b294900aa329c344b396fd77
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210500801-9781644115381-being-nature-4th-ed/"><u>Being Nature (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500802-9781644115466-chakras-en-la-practica-chamanica-2nd-ed/"><u>Chakras en la práctica chamánica (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500805-9781644115527-lecciones-de-los-12-arcangeles/"><u>Lecciones de los 12 Arcángeles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500803-9781644115343-the-dharma-of-direct-experience/"><u>The Dharma of Direct Experience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

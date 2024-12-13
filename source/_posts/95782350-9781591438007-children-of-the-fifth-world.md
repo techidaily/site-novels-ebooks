@@ -1,7 +1,7 @@
 ---
 title: Children of the Fifth World | Free Book
-date: 2024-10-25T04:38:40.394Z
-updated: 2024-10-27T05:37:11.993Z
+date: 2024-12-08T19:11:30.373Z
+updated: 2024-12-13T00:45:16.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70d52faadb61b81d694de53406733cc1f2594745011b163c470dc36b88f51eea.jpg
@@ -200,3 +200,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70d52faadb61b81d694de53406733cc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210347282-9782226427113-apprivoiser-leveil/"><u>Apprivoiser l'éveil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347286-9782226427120-la-voie-de-la-perfection/"><u>La Voie de la perfection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347189-9782807315976-le-chemin-vers-leveil/"><u>Le chemin vers l'éveil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347212-9782226429223-les-portes-de-la-transfiguration/"><u>Les Portes de la transfiguration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347261-9782226427014-mediter/"><u>Méditer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

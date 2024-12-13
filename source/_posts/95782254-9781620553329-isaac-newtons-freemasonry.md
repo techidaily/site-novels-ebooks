@@ -1,7 +1,7 @@
 ---
 title: Isaac Newton's Freemasonry | Free Book
-date: 2024-10-23T04:00:33.507Z
-updated: 2024-10-27T04:15:30.132Z
+date: 2024-12-09T00:23:51.091Z
+updated: 2024-12-13T06:12:47.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/28cd2044ca0d45a18cd7835ff084d8199e9e20cf60043b563885ae72e5957ee9.jpg
@@ -175,3 +175,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/28cd2044ca0d45a18cd7835ff084d81
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210470557-9789692292788-enriching-the-immortal-soul/"><u>Enriching the Immortal Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470836-9789814952897-how-to-do-nothing/"><u>How To Do Nothing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470498-9780578362809-life-is-worth-more-than-just-living/"><u>Life Is Worth More Than Just Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470837-9789814952835-motivation-workbook-positive-mindset-only/"><u>Motivation Workbook: Positive Mindset Only | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470502-9781087891613-now-i-know-my-abcs-life-alphabet/"><u>Now I know my ABC's Life Alphabet | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

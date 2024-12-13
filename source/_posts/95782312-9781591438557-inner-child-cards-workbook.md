@@ -1,7 +1,7 @@
 ---
 title: Inner Child Cards Workbook | Free Book
-date: 2024-10-20T19:45:22.508Z
-updated: 2024-10-27T00:37:32.825Z
+date: 2024-12-08T18:29:20.603Z
+updated: 2024-12-12T18:18:28.304Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84c48ee580d6b72c630831cc3fe036b85244a78a38cd71f2677a903a46a36613.jpg
@@ -177,3 +177,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84c48ee580d6b72c630831cc3fe036b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210367971-9781633412484-liber-null-psychonaut/"><u>Liber Null & Psychonaut | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367974-9781633412569-secrets-of-santa-muerte/"><u>Secrets of Santa Muerte | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367972-9781633412514-twist-your-fate/"><u>Twist Your Fate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367973-9781633412507-witness-to-roswell-75th-anniversary-edition/"><u>Witness to Roswell, 75th Anniversary Edition | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

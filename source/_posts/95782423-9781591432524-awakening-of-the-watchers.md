@@ -1,7 +1,7 @@
 ---
 title: Awakening of the Watchers | Free Book
-date: 2024-10-23T23:48:39.289Z
-updated: 2024-10-26T16:07:19.778Z
+date: 2024-12-12T03:04:18.880Z
+updated: 2024-12-12T17:14:38.613Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f4d3962a72ad3ca71e94a9c5bd1800736a0863dc3de9304759a13e99e46035e2.jpg
@@ -195,3 +195,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f4d3962a72ad3ca71e94a9c5bd18007
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210341278--angels-are-with-you-now/"><u>Angels Are with You Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341745-9781914447181-how-to-really-go-with-the-flow/"><u>How To REALLY Go With The Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341150-9781736591741-life-love-lessons-how-to-discover-confidence-through-your-spiritual-journey/"><u>Life & Love Lessons- How to Discover Confidence Through Your Spiritual Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342625-9781528767682-mind-reading-and-beyond/"><u>Mind-Reading and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341417-9781735624433-stillness-touch/"><u>Stillness Touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340655-9781948626521-the-celestial-code-of-scripture/"><u>The Celestial Code of Scripture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340650-9781948626484-the-illusion-of-life-and-death/"><u>The Illusion of Life and Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342111-9781684039142-the-mindful-college-student/"><u>The Mindful College Student | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341762-9781774816011-the-tao/"><u>The Tao | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

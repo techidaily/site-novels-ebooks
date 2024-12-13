@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Path to Quantum Consciousness | Free Book
-date: 2024-10-22T05:56:38.132Z
-updated: 2024-10-27T04:41:55.579Z
+date: 2024-12-11T02:16:43.808Z
+updated: 2024-12-12T17:20:44.795Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38787f7dec01d9c2cdbefec00b3701eaf9f91e50d283bf38205ddc23413780ba.jpg
@@ -186,3 +186,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38787f7dec01d9c2cdbefec00b3701e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210306659-9781401960971-dying-to-be-me/"><u>Dying to Be Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306658-9781788177207-fk-it-revised-and-updated-edition/"><u>F**k It (Revised and Updated Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306569-9781493045914-haunted-us-battlefields-2nd-ed/"><u>Haunted U.S. Battlefields (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307135-9782019459468-la-vie-avant-la-vie/"><u>La vie avant la vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306951-9781401967192-manifesting-your-magical-life/"><u>Manifesting Your Magical Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307139-9782017140603-secrets-dun-guerisseur-hawaien/"><u>Secrets d'un guérisseur Hawaïen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307131-9782017140641-tresser-les-herbes-sacrees/"><u>Tresser les herbes sacrées | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science and Practice of Humility | Free Book
-date: 2024-10-23T19:57:29.727Z
-updated: 2024-10-27T01:15:41.286Z
+date: 2024-12-09T17:14:18.009Z
+updated: 2024-12-13T04:24:49.274Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f974bb0f15558a43870eb78c7161502b85ff0e105f8dc173c151b061d1f097f5.jpg
@@ -190,3 +190,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f974bb0f15558a43870eb78c7161502
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210490128-9781398702011-astrosex-cancer/"><u>Astrosex: Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210490368-9781507219720-happy-witch/"><u>Happy Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210490138-9780762479214-how-to-study-magic/"><u>How to Study Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210491915-9781786786784-hurt-healing-healed/"><u>Hurt, Healing, Healed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210491393-9781631951343-myrcles/"><u>Myrcles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210492540-9781612437507-real-ghost-stories/"><u>Real Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210490523-9781646044351-the-angel-workbook/"><u>The Angel Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210490137-9780316353441-the-book-of-seances/"><u>The Book of Séances | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

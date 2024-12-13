@@ -1,7 +1,7 @@
 ---
 title: Secret Chamber Revisited (2nd ed.) | Free Book
-date: 2024-10-24T00:17:10.629Z
-updated: 2024-10-26T23:25:23.037Z
+date: 2024-12-10T19:40:51.062Z
+updated: 2024-12-12T18:58:49.467Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/122bc1da0377e79e28d65893b20116f2a137790bebfa34a881f25fd6c1cd4b72.jpg
@@ -205,3 +205,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/122bc1da0377e79e28d65893b20116f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210292585-9781644929643-form-of-sound-words/"><u>Form of Sound Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291933-9781098019129-gods-truthful-truths/"><u>God's Truthful Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292158-9781645690795-healing-the-mind-wound/"><u>Healing the Mind Wound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291917-9781098053406-how-long-the-night/"><u>How Long the Night | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291998-9781645699392-our-fathers-business/"><u>Our Father's Business | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2024-12-01T18:37:05.374Z
-updated: 2024-12-07T05:09:34.319Z
+date: 2024-12-09T06:09:36.351Z
+updated: 2024-12-12T20:20:10.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,16 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209699318-9781547583980-ansiedade-liberte-se-da-ansiedade-e-da-depressao/"><u>Ansiedade : Liberte-se Da Ansiedade E Da Depressão | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699287-9781634242523-black-jack/"><u>Black Jack | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209696572-9781452179902-dangerous-games-to-play-in-the-dark/"><u>Dangerous Games to Play in the Dark | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209695080-9780857719812-englands-first-demonologist/"><u>England's First Demonologist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699340-9781547584598-meditacao-como-meditar-guia-para-iniciantes-para-aumentar-a-energia-live-without-stress/"><u>Meditação : Como Meditar Guia Para Iniciantes Para Aumentar A Energia (Live Without Stress) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699338-9781547586714-meditacao-como-alcancar-a-paz-interior-e-encontrar-a-felicidade-real/"><u>Meditação: Como Alcançar A Paz Interior E Encontrar A Felicidade Real | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699329-9781547584949-meditacao-guia-de-iniciantes-para-alcancar-o-estado-zen-e-se-livrar-do-stress/"><u>Meditação: Guia De Iniciantes Para Alcançar O Estado Zen E Se Livrar Do Stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571881-9798986306209-amada-por-amor/"><u>Amada Por Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571732-9781524869113-be-mindful-and-simplify-your-life/"><u>Be Mindful and Simplify Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571888-9798985515718-ditch-the-boyfriend-and-get-a-life-coach/"><u>Ditch the Boyfriend and Get a Life Coach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571897-9781911134633-el-tarot-del-siglo-xxi-escubre-todos-los-secretos-de-la-adivinacion-cotidiana-y-magica/"><u>El Tarot del Siglo XXI - escubre todos los secretos de la adivinación cotidiana y mágica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571713-9781524855000-kintsugi/"><u>Kintsugi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571711-9781524853044-so-whos-counting/"><u>So Who's Counting? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571717-9781449494827-the-little-book-of-witchcraft/"><u>The Little Book of Witchcraft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

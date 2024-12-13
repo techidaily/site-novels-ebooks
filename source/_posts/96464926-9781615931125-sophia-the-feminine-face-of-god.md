@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2024-12-04T19:24:25.701Z
-updated: 2024-12-07T03:33:42.349Z
+date: 2024-12-10T00:58:49.210Z
+updated: 2024-12-12T18:41:22.606Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,14 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210083609-9781734574142-art-of-magic/"><u>Art of Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210083216-9780958611497-grace-upon-grace/"><u>Grace Upon Grace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210083612-9781734574166-oracle/"><u>Oracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210083188-9781646631353-resonate/"><u>Resonate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210083613-9781734574159-robin/"><u>Robin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809344-9783988312273-declutter-your-mind/"><u>DECLUTTER YOUR MIND | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809341-9798889267041-feminine-reclaimed/"><u>Feminine Reclaimed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809641-9780875168951-just-being-at-the-piano/"><u>JUST BEING AT THE PIANO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809642-9780875169194-living-the-science-of-mind/"><u>LIVING THE SCIENCE OF MIND | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809455-9780993000256-seven-ways-to-lighten-your-life-before-you-kick-the-bucket/"><u>Seven Ways to Lighten Your Life Before You Kick the Bucket | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809562-9780983938798-when-spirits-speak-2nd-ed/"><u>When Spirits Speak (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809610-9781684863921-wired-for-greatness/"><u>Wired For Greatness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809484-9798887312125-yalda/"><u>Yalda | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

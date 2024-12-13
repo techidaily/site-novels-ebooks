@@ -1,7 +1,7 @@
 ---
 title: 14 Steps to Awaken the Sacred Feminine | Free Book
-date: 2024-10-24T03:30:59.112Z
-updated: 2024-10-27T02:04:01.599Z
+date: 2024-12-11T18:34:07.933Z
+updated: 2024-12-12T16:37:03.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eff722a5f87ca65506fce50de0f3ebb52ea4a323d1a7362b27cd5668356a003a.jpg
@@ -190,3 +190,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eff722a5f87ca65506fce50de0f3ebb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210336413-9781784884819-astrobirthdays/"><u>AstroBirthdays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210336408-9781784884536-moon-signs/"><u>Moon Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210336416-9781784884888-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210336586-9780799393255-om-jou-te-vind/"><u>Om jou te vind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Mayan Calendar and the Transformation of Consciousness | Free Book
-date: 2024-10-23T03:39:42.353Z
-updated: 2024-10-26T19:27:05.433Z
+date: 2024-12-09T05:07:09.484Z
+updated: 2024-12-13T00:39:17.479Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/071cb49817c4af40dc8ae84a31f5c39ea78549cfacf313e239795ec9e6e9bb7e.jpg
@@ -185,3 +185,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/071cb49817c4af40dc8ae84a31f5c39
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210279536-9781788174824-consciousness-rising/"><u>Consciousness Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210278911-9781636306940-feelings-and-faith/"><u>Feelings and Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279584-9781922380449-im-positive-2nd-ed/"><u>I'm Positive! (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279723-9781910056844-lifting-the-veils-of-illusion/"><u>Lifting the Veils of Illusion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210279741-9781788600361-the-foundations-of-mastery/"><u>The Foundations of Mastery | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

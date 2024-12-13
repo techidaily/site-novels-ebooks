@@ -1,7 +1,7 @@
 ---
 title: Don Juan and the Art of Sexual Energy | Free Book
-date: 2024-10-23T23:02:19.586Z
-updated: 2024-10-27T05:43:10.387Z
+date: 2024-12-09T08:10:07.799Z
+updated: 2024-12-13T02:18:24.221Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f6c36079d1bec8559c2b4a8973f36d721b5b167d1a118f37b7503d51675fbb2.jpg
@@ -178,3 +178,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f6c36079d1bec8559c2b4a8973f36d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210262871-9781952491108-awaken-to-unconditional-love/"><u>Awaken to Unconditional Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210263145-9781631953859-beyond-the-pale/"><u>Beyond the Pale | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260817-9781801349901-energy-healing-for-beginners/"><u>Energy Healing for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210261012-9781528767668-is-spiritualism-based-on-fraud-the-evidence-given-by-sir-a-c-doyle-and-others-drastically-examined/"><u>Is Spiritualism Based on Fraud? - The Evidence Given by Sir A. C. Doyle and Others Drastically Examined | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260815-9781801346993-practical-numerology-amp-astrology-for-beginners/"><u>Practical Numerology &amp; Astrology For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260806-9781801349550-third-eye-awakening-kundalini-for-beginnersamp-energy-healing-4-in-1/"><u>Third Eye Awakening, Kundalini For Beginners&amp; Energy Healing (4 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260816-9781801349574-third-eye-kundalini-amp-sexuality-awakening-for-beginners/"><u>Third Eye, Kundalini &amp; Sexuality Awakening for Beginners | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Cycle of Cosmic Catastrophes | Free Book
-date: 2024-10-24T19:29:02.050Z
-updated: 2024-10-27T00:53:56.232Z
+date: 2024-12-10T18:11:26.509Z
+updated: 2024-12-12T18:27:23.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6321a449ecd1171925001d38afc06fb6663ec45103470dc54b2a8be51805e990.jpg
@@ -187,3 +187,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6321a449ecd1171925001d38afc06fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210345191-9781940837581-a-taste-of-india/"><u>A Taste of India | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345130-9781940837604-blessings/"><u>Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345368-9781401965501-happy-days/"><u>Happy Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345135-9781940837659-heroes-saints-and-yogis/"><u>Heroes, Saints, and Yogis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345138-9781940837710-merging-with-the-infinite/"><u>Merging with the Infinite | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

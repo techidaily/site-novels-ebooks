@@ -1,7 +1,7 @@
 ---
 title: The King Who Refused to Die | Free Book
-date: 2024-10-19T21:35:02.737Z
-updated: 2024-10-27T03:40:39.115Z
+date: 2024-12-09T08:28:56.113Z
+updated: 2024-12-13T05:29:57.200Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8714953bf5587bf6bb81b19f827348ae418ba0cb318d2dd67e685797c910b51f.jpg
@@ -199,3 +199,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8714953bf5587bf6bb81b19f827348a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210332510-9781401965037-8-secrets-to-powerful-manifesting/"><u>8 Secrets to Powerful Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333040-9781956161007-conversations-with-g/"><u>Conversations with G | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332743-9780525508212-dont-worry/"><u>Don't Worry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333064-9781908421548-jack-webber-physical-medium/"><u>Jack Webber Physical Medium: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333159-9781529382341-journey-to-the-well/"><u>Journey to the Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333058-9788792633729-read-like-the-devil/"><u>Read Like the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332508-9781952692208-we-were-made-for-these-times/"><u>We Were Made for These Times | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-12-04T21:07:24.753Z
-updated: 2024-12-07T05:31:56.937Z
+date: 2024-12-09T03:17:18.433Z
+updated: 2024-12-13T08:11:16.139Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,15 +143,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209789118-9781507213025-how-to-be-an-astrologer/"><u>How to Be an Astrologer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209788882-9781771622349-my-year-of-living-spiritually/"><u>My Year of Living Spiritually | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209788955-9781856754347-silence/"><u>Silence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209789303-9781608686261-the-angel-experiment/"><u>The Angel Experiment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209788243-9781401959609-the-five-element-solution/"><u>The Five-Element Solution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209788914-9780486843889-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630007-9781642504187-a-mothers-courage-to-awaken/"><u>A Mother's Courage to Awaken | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629674-9781957575810-anthem-of-hope/"><u>Anthem of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629517-9783986539221-dark-psychology-and-manipulation-techniques/"><u>Dark Psychology and Manipulation Techniques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630428-9780008518295-out-of-the-woods-a-tale-of-positivity-kindness-and-courage/"><u>Out of the Woods: A tale of positivity, kindness and courage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629980-9781609252595-teens-with-the-courage-to-give/"><u>Teens with the Courage to Give | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629817-9781786787538-the-beauty-of-life/"><u>The Beauty of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630387-9781608688012-the-holy-wild-grimoire/"><u>The Holy Wild Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630649-9780760377093-the-tarot-spellbook/"><u>The Tarot Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629816-9781786787293-the-ultimate-i-ching/"><u>The Ultimate I Ching | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

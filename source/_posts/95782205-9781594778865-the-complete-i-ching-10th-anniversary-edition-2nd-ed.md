@@ -1,7 +1,7 @@
 ---
 title: The Complete I Ching — 10th Anniversary Edition (2nd ed.) | Free Book
-date: 2024-10-19T17:41:04.091Z
-updated: 2024-10-27T00:46:44.397Z
+date: 2024-12-08T07:38:36.809Z
+updated: 2024-12-13T04:48:57.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/978a4f6f48c672c8989f38aeca5e54735212dd80b74aa0a655e6182113d9b087.jpg
@@ -190,3 +190,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/978a4f6f48c672c8989f38aeca5e547
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210518965-9781777476014-beloved-i-can-show-you-heaven/"><u>Beloved, I Can Show You Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210517789-9780241523018-finding-peace/"><u>Finding Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210513866-9781739770457-le-reve-des-anges/"><u>Le Rêve des Anges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518922-9780578352480-little-ideas-for-living-life-well/"><u>Little Ideas For Living Life Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518893-9780760373064-the-big-book-of-tarot-meanings/"><u>The Big Book of Tarot Meanings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518972-9781733301510-the-essential-manifesting-guidebook-2020/"><u>The Essential Manifesting Guidebook 2020 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210515736-9780141923918-the-man-who-sees-dead-people/"><u>The Man Who Sees Dead People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210517009-9780141920740-the-penguin-book-of-ghosts/"><u>The Penguin Book of Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518849-9780578385655-thoughts-and-observations/"><u>Thoughts and Observations | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

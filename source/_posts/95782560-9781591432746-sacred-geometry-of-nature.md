@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry of Nature | Free Book
-date: 2024-10-24T00:52:51.957Z
-updated: 2024-10-27T03:54:48.035Z
+date: 2024-12-09T02:10:04.838Z
+updated: 2024-12-13T03:39:24.812Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3056bf784a7c362e46da33438db8806a3a5b441bcee2d6d1b67e27b3aa0b885.jpg
@@ -196,3 +196,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3056bf784a7c362e46da33438db880
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210245145-9781662416217-animal-tails/"><u>Animal Tails | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245327-9781098066727-heartbeat-of-the-soul/"><u>Heartbeat of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245031-9780645094114-just-being/"><u>Just Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245225-9781662424496-love-letters-to-god/"><u>Love Letters to God!!! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245414-9781098057138-the-days-of-echoes-past/"><u>The Days of Echoes Past | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245372-9781098063924-the-divine-body/"><u>The Divine Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210244783-9781401964245-the-ego-is-not-the-real-you/"><u>The Ego Is Not the Real You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245347-9781098060978-the-five-stressors/"><u>The Five Stressors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245133-9781589239845-the-path-of-the-witch/"><u>The Path of the Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

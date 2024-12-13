@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2024-11-30T16:56:47.611Z
-updated: 2024-12-07T05:45:38.830Z
+date: 2024-12-07T03:18:15.760Z
+updated: 2024-12-12T19:08:34.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,15 +179,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210102657-9781071553459-40-dosis-de-sabiduria/"><u>40 Dosis de Sabiduría | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102919-9781071554289-megan-va-a-navegar-en-yate/"><u>Megan va a navegar en Yate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102822-9781071558683-mindfulness-para-gestantes/"><u>Mindfulness para gestantes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102823-9781071557112-my-last-glass/"><u>My Last Glass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102692-9781071553961-pase-entre-bastidores-al-otro-lado-charlas-con-el-mas-alla-con-jennifer-shaffer-segunda-parte/"><u>Pase entre bastidores al otro lado: Charlas con el más allá con Jennifer Shaffer, Segunda parte. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102840--prohibitted-knowledge/"><u>Prohibitted Knowledge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822430-9798218162627-the-power-of-perspective-and-the-gift-of-gratitude/"><u>The Power of Perspective and the Gift of Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821954-9798987771112-the-ruby-heart-of-the-dragon/"><u>The Ruby Heart of the Dragon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822246-9781638146544-the-worth-of-a-soul/"><u>The Worth of a Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821898-9798887519142-you-can-know-god-personally/"><u>You Can Know God Personally | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821955-9798988097914-your-divine-power-within/"><u>Your Divine Power Within | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

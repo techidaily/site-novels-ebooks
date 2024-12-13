@@ -1,7 +1,7 @@
 ---
 title: The Chalice of Magdalene (2nd ed.) | Free Book
-date: 2024-10-21T17:57:31.087Z
-updated: 2024-10-27T05:50:23.730Z
+date: 2024-12-05T21:51:22.439Z
+updated: 2024-12-12T17:14:59.220Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f8d49fa19ee05bec753eb954d66c7af43ed229328675335e0634410c7de06d8a.jpg
@@ -187,3 +187,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f8d49fa19ee05bec753eb954d66c7af
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210343007-9781908421579-a-journey-of-psychic-discovery/"><u>A Journey of Psychic Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342626-9781528764346-graphology-and-children-a-collection-of-historical-articles-on-the-analysis-and-guidance-of-children-through-handwriting/"><u>Graphology and Children - A Collection of Historical Articles on the Analysis and Guidance of Children Through Handwriting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342701-9781098096618-pieces/"><u>Pieces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342749-9781098087180-remember-to-enjoy-the-journey/"><u>Remember to Enjoy the Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344377-9781648015571-the-girl-in-the-window/"><u>The Girl in the Window | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210343456-9781631599996-the-ultimate-guide-to-shamanism/"><u>The Ultimate Guide to Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342635-9781737648222-unravel-the-thread/"><u>Unravel the Thread | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

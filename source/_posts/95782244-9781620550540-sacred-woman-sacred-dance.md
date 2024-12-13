@@ -1,7 +1,7 @@
 ---
 title: Sacred Woman, Sacred Dance | Free Book
-date: 2024-10-20T18:34:30.306Z
-updated: 2024-10-27T01:02:34.717Z
+date: 2024-12-05T17:56:09.206Z
+updated: 2024-12-12T18:22:33.586Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ed239fd4f1e08ef07cd1138c8e2237fdf8e41411272c59fa7ccc556e5e62d76.jpg
@@ -183,3 +183,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ed239fd4f1e08ef07cd1138c8e2237
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210462392-9781774816684-echoes-from-the-orient/"><u>Echoes from The Orient | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210463570-9780960075744-engaging-my-magic-within/"><u>Engaging My Magic Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210463417-9781638743217-the-flickering-storms-life-support-heavens-door-and-back/"><u>The Flickering Storms, Life Support, Heaven's Door and Back | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210462447-9781737639817-the-tao-of-hoop/"><u>The Tao of Hoop | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

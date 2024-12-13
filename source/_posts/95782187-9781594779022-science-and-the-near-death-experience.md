@@ -1,7 +1,7 @@
 ---
 title: Science and the Near-Death Experience | Free Book
-date: 2024-10-24T17:14:58.168Z
-updated: 2024-10-27T01:43:51.747Z
+date: 2024-12-08T16:56:52.923Z
+updated: 2024-12-12T17:30:03.219Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9eddafb2343b1228a33203dcbb84ac048a40846edf0381f594d53fa9f1e3d9fa.jpg
@@ -180,3 +180,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9eddafb2343b1228a33203dcbb84ac0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210501783-9789464518450-as-tu-brave-ta-nuit-merveille/"><u>As-tu bravé ta nuit, merveille ? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501675-9781957582115-copy-cat-world/"><u>Copy Cat World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501568-9780241987681-luna/"><u>Luna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501674-9798985634815-my-little-town/"><u>My Little Town | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501897-9781774816929-the-gift-of-the-magi/"><u>The Gift of the Magi | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Power of Ecstatic Trance | Free Book
-date: 2024-10-19T19:57:41.969Z
-updated: 2024-10-26T17:04:53.881Z
+date: 2024-12-07T18:10:15.967Z
+updated: 2024-12-12T17:34:01.429Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3d891dbf02e97739a10f6a71e1578a00db85e85a17fdbb28bf3c7db86761235.jpg
@@ -180,3 +180,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3d891dbf02e97739a10f6a71e1578a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210392157-9781504067980-dictionary-of-poisons/"><u>Dictionary of Poisons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393724-9780834844216-pause-rest-be/"><u>Pause, Rest, Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210392018-9781914447273-the-white-witchs-book-of-healing/"><u>The White Witch's Book of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393498-9789948834359-hdyth-alroh/"><u>حديث الروح | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

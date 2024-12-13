@@ -1,7 +1,7 @@
 ---
 title: The Nine Waves of Creation | Free Book
-date: 2024-10-24T21:12:51.699Z
-updated: 2024-10-27T04:48:24.995Z
+date: 2024-12-11T03:23:22.253Z
+updated: 2024-12-12T19:42:07.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abd8e240d03cfe6878b5b8c7487b675b2987b06d8d0bdabab216fbbb36d03133.jpg
@@ -189,3 +189,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abd8e240d03cfe6878b5b8c7487b675
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210241607-9781398810495-10000-dreams-interpreted/"><u>10,000 Dreams Interpreted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210242868-9780648873976-angels-of-truth-we-are/"><u>Angels of Truth We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210241741-9780593329467-the-art-of-sacred-smoke/"><u>The Art of Sacred Smoke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210242953-9781736398210-the-seeker-and-the-teacher-of-light/"><u>The Seeker and The Teacher of Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

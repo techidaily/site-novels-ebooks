@@ -1,7 +1,7 @@
 ---
 title: Astronaut Gods of the Maya | Free Book
-date: 2024-10-25T04:48:09.711Z
-updated: 2024-10-26T23:25:55.002Z
+date: 2024-12-12T00:11:25.771Z
+updated: 2024-12-13T07:09:44.633Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfc23f05e1fdc53acf2700b7c7caafe16ebaf92f4a492594e9278dd28c621b49.jpg
@@ -204,3 +204,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfc23f05e1fdc53acf2700b7c7caafe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210273226-9781736789322-confessions-of-a-preachers-kid/"><u>Confessions Of A Preacher's Kid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273253-9781922380418-karma-couples-2nd-ed/"><u>Karma Couples (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210272624-9781910559642-muddy-mysticism/"><u>Muddy Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273234-9781737105596-staying-power/"><u>Staying Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210272762-9781735855820-the-soul-discovery-journalbook/"><u>The Soul-Discovery Journalbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

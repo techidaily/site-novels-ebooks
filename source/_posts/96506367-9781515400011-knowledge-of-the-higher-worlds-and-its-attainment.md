@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2024-12-01T06:30:32.917Z
-updated: 2024-12-07T02:45:37.312Z
+date: 2024-12-08T19:46:22.336Z
+updated: 2024-12-13T00:55:33.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,15 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209838180-9780991345748-a-journey-of-possibilities/"><u>A Journey of Possibilities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838360-9781495111679-soul-realized-unlocking-the-sacred-keys-to-becoming-a-divine-human/"><u>Soul Realized: Unlocking the Sacred Keys to Becoming a Divine Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838341-9780992843021-the-charge-of-the-goddess-the-poetry-of-doreen-valiente/"><u>The Charge of the Goddess - The Poetry of Doreen Valiente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838270-9780984660445-the-gurus-gift/"><u>The Guru's Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838249-9780692024980-the-kama-sutra-kitchen/"><u>The Kama Sutra Kitchen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838339-9780992843038-where-witchcraft-lives/"><u>Where Witchcraft Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649240-9782384550111-a-suggestive-inquiry-into-the-hermetic-mystery-and-alchemy/"><u>A Suggestive Inquiry into the Hermetic Mystery and Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648330-9782017166184-lastrologie/"><u>L'astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648332-9782017166177-le-corps-messager-de-lame/"><u>Le corps messager de l'âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649112-9780760376379-moon-spells/"><u>Moon Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210650166-9781623177911-new-moon-magic/"><u>New Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648552-9789394701045-river-of-moksha/"><u>River of Moksha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649464-9781685269715-spiritually-defining-seasons/"><u>Spiritually Defining Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649167-9781088063965-the-shift-now-master-fast/"><u>The SHIFT NOW Master Fast | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648841-9798986284019-you-are-deathless/"><u>You Are Deathless | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

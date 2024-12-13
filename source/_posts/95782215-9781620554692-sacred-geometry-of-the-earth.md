@@ -1,7 +1,7 @@
 ---
 title: Sacred Geometry of the Earth | Free Book
-date: 2024-10-21T02:30:39.589Z
-updated: 2024-10-27T03:05:59.976Z
+date: 2024-12-06T21:48:48.045Z
+updated: 2024-12-13T04:09:42.610Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a62a2003d805d826f3aabb672b669753f110cfdbf1120d51629ae9c695f20945.jpg
@@ -196,3 +196,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a62a2003d805d826f3aabb672b66975
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210523297-9781639613595-cracked-pots/"><u>Cracked Pots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521772-9781789049527-creating-real-happiness-a-to-z/"><u>Creating Real Happiness A to Z | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210523194-9781098085186-god-writes-in-short-stories/"><u>God Writes in Short Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210523198-9781639032150-prophesying-to-awaken-the-spirit-to-purpose/"><u>Prophesying to Awaken the Spirit to Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210522775-9781955905091-tarot-for-pregnancy/"><u>Tarot for Pregnancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210522776-9781955905060-the-altar-within/"><u>The Altar Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210523264-9781946005687-the-garden-path/"><u>The Garden Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210523380-9781789044102-why-an-afterlife-obviously-exists/"><u>Why an Afterlife Obviously Exists | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

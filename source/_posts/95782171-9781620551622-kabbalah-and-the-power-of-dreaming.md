@@ -1,7 +1,7 @@
 ---
 title: Kabbalah and the Power of Dreaming | Free Book
-date: 2024-10-25T18:52:32.508Z
-updated: 2024-10-26T17:55:48.969Z
+date: 2024-12-06T18:42:47.016Z
+updated: 2024-12-13T00:01:51.330Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8643745fab00167c9ae8ffcfa5258fbe7eb22fd8a7c4c079344809305aebcae9.jpg
@@ -165,3 +165,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8643745fab00167c9ae8ffcfa5258fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210495264-9780998276588-lsd-my-problem-child-4th-edition/"><u>LSD My Problem Child (4th Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210495433-9780971567481-manifest-your-sacred-ambition/"><u>Manifest Your Sacred Ambition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210495382-9798985352313-tribes-of-light/"><u>Tribes of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210495374-9798985450514-unstuck/"><u>Unstuck | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2024-11-30T07:12:21.502Z
-updated: 2024-12-06T22:35:31.113Z
+date: 2024-12-12T03:57:00.687Z
+updated: 2024-12-12T19:56:07.772Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,15 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209851187-9780648108405-ainslie-meares-on-meditation/"><u>Ainslie Meares on Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851059-9780998870212-aphrodite-emerges/"><u>Aphrodite Emerges | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850928-9781945031014-how-to-live-with-a-psychic/"><u>How to Live with a Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850921-9780983696414-message-for-the-tribe-of-many-colors/"><u>Message for the Tribe of Many Colors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850935-9780997261059-sweat/"><u>Sweat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850936-9780648101710-weird/"><u>Weird | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210669416-9798887620114-growing-consciousness/"><u>Growing Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210670452-9781454946779-healing-your-inner-child/"><u>Healing Your Inner Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210669419-9798887620121-the-buddha-and-the-bard/"><u>The Buddha and the Bard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210669422-9798887620169-the-power-of-crystal-healing/"><u>The Power of Crystal Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

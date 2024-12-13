@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-12-05T16:50:54.869Z
-updated: 2024-12-06T20:14:34.593Z
+date: 2024-12-08T22:39:26.443Z
+updated: 2024-12-12T20:59:56.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,14 +238,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209887458-9781734066395-getting-to-forgiveness/"><u>Getting To Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209887010-9781071507087-meditacao-faca-a-paz-em-sua-vida-reduzindo-o-estresse/"><u>Meditação: Faça A Paz Em Sua Vida, Reduzindo O Estresse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209887191-9781420964523-the-key-of-solomon-the-king/"><u>The Key of Solomon the King | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209887228-9781951742119-the-paranormal-true-stories-and-the-outcomes/"><u>The Paranormal True Stories and the Outcomes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209887240-9781732419520-theres-no-better-friend-jesus/"><u>There's No Better Friend ...Jesus! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727319-9781454946755-animal-intuition/"><u>Animal Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727066-9781685265557-drowning-in-gods-love/"><u>Drowning In God's Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727317-9781454948650-elemental-healing/"><u>Elemental Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727278-9781911134671-ingenium-alchemy-of-the-magical-mind/"><u>Ingenium - Alchemy of the Magical Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727242-9798218022990-pleiadian-master-teachings/"><u>Pleiadian Master Teachings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727488-9780760353646-the-ancient-egyptian-book-of-the-dead/"><u>The Ancient Egyptian Book of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727107-9781638447009-the-four-reasons-why-we-live/"><u>The Four Reasons Why We Live | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

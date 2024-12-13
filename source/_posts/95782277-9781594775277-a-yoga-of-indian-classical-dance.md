@@ -1,7 +1,7 @@
 ---
 title: A Yoga of Indian Classical Dance | Free Book
-date: 2024-10-24T05:18:02.916Z
-updated: 2024-10-27T05:43:55.865Z
+date: 2024-12-10T04:47:28.779Z
+updated: 2024-12-13T06:51:14.437Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08d788308248c3adfea00d662f91dc34c594cd3d8453e6534af7acad1280e495.jpg
@@ -190,3 +190,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08d788308248c3adfea00d662f91dc3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210412046-9781667415406-architettura-dellaldila/"><u>Architettura dell'Aldilà | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412059-9781667417363-juntos/"><u>Juntos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412028-9781667416694-megan-et-la-mairesse/"><u>Megan et la mairesse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411989-9781667416922-megan-fa-unescursione/"><u>Megan Fa Un'Escursione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411994-9781667416717-scrivere-per-guarire/"><u>Scrivere per guarire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411988-9781667416113-una-vida-de-ensueno/"><u>Una vida de ensueño | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412055-9781667416670-44oh44o844ks44oz44gu6kmm6ait/"><u>メーガンの試験 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

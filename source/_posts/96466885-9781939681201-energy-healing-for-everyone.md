@@ -1,7 +1,7 @@
 ---
 title: Energy Healing for Everyone | Free Book
-date: 2024-12-01T00:29:18.164Z
-updated: 2024-12-06T17:26:43.273Z
+date: 2024-12-05T18:40:34.235Z
+updated: 2024-12-13T07:16:40.609Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859a2687327012523ee141028dafe5e3e789.jpg
@@ -175,13 +175,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210103370-9781250790682-chakras-food-and-you/"><u>Chakras, Food, and You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210103373-9781250779991-scientific-christian-mental-practice-also-includes-high-mysticism/"><u>Scientific Christian Mental Practice: Also Includes High Mysticism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210103358-9781250794918-the-edinburgh-lectures-on-mental-science-and-other-essential-works/"><u>The Edinburgh Lectures on Mental Science: And Other Essential Works | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210103345-9781250212634-the-kingdom/"><u>The Kingdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210827668--haunted-old-west-2nd-ed/"><u>Haunted Old West (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210827670-9781493070374-haunted-savannah-2nd-ed/"><u>Haunted Savannah (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210824190-9783988312815-hoodoo-for-beginners/"><u>HOODOO FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823607-9781394208609-knowledge-and-ideation/"><u>Knowledge and Ideation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823670-9781399807371-the-knight-waite-tarot-guidebook/"><u>The Knight-Waite Tarot Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210824571-9781685680398-zakon-uspeha/"><u>Закон успеха | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Dictionary of Ancient Magic Words and Spells | Free Book
-date: 2024-10-21T22:07:02.815Z
-updated: 2024-10-26T22:06:46.869Z
+date: 2024-12-09T17:06:37.015Z
+updated: 2024-12-12T20:48:09.066Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18c3ee5bc92f1c59166e6440abbfce534ac76360aa72abe4059a492eabce4506.jpg
@@ -197,3 +197,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18c3ee5bc92f1c59166e6440abbfce5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210511577-9781910559680-kitchen-witch/"><u>Kitchen Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210513327-9780241448700-lift-your-vibe/"><u>Lift Your Vibe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511620-9781945026942-nature/"><u>Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511246-9781737699200-sensual-intelligence-the-lost-iq/"><u>Sensual Intelligence: The Lost IQ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511621-9781774817070-the-tao/"><u>The Tao | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

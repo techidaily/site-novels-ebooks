@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-11-29T20:06:58.379Z
-updated: 2024-12-07T02:02:35.712Z
+date: 2024-12-07T01:15:22.619Z
+updated: 2024-12-13T02:07:48.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,18 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209974011-9781633412118-ancient-egyptian-magic-for-modern-witches/"><u>Ancient Egyptian Magic for Modern Witches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974005-9780892546794-astrologys-higher-octaves/"><u>Astrology's Higher Octaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974015-9781633411760-earth-energy-meditations/"><u>Earth Energy Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974007-9781633412057-psychic-self-defense/"><u>Psychic Self-Defense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974013-9781633411906-the-extraterrestrial-species-almanac/"><u>The Extraterrestrial Species Almanac | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974006-9781633411982-the-way-of-the-water-priestess/"><u>The Way of the Water Priestess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974008-9781881098751-the-witches-almanac-2021-2022-standard-edition/"><u>The Witches' Almanac 2021-2022 Standard Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974012-9781632657633-war-of-the-gods/"><u>War of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974020-9781633411876-year-of-the-witch/"><u>Year of the Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761750-9781604074567-embrace-release-heal/"><u>Embrace, Release, Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761698-9781683641353-high-magick/"><u>High Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761699-9781683640486-living-an-examined-life/"><u>Living an Examined Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761752-9781591798200-mantra-meditation/"><u>Mantra Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761689-9781683649397-mindfulness-meditation-for-pain-relief/"><u>Mindfulness Meditation for Pain Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761759-9781683649557-psychedelic-revival/"><u>Psychedelic Revival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761685-9781622031627-resurrecting-jesus/"><u>Resurrecting Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761751-9781622034529-walking-in-light/"><u>Walking in Light | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

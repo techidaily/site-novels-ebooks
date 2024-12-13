@@ -1,7 +1,7 @@
 ---
 title: Awakening Higher Consciousness | Free Book
-date: 2024-10-25T01:53:44.411Z
-updated: 2024-10-26T17:38:39.797Z
+date: 2024-12-07T20:34:59.681Z
+updated: 2024-12-12T19:04:34.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80782940df92f8305e5371b6af290f21e806b1f50c779283f068150da0e7fe73.jpg
@@ -191,3 +191,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80782940df92f8305e5371b6af290f2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210528006-9781644114803-aleister-crowley-in-paris/"><u>Aleister Crowley in Paris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528008-9781644115596-american-metaphysical-religion/"><u>American Metaphysical Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528007-9781644115152-initiation-into-dream-mysteries/"><u>Initiation into Dream Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528004-9781644114483-mysteries-of-the-far-north/"><u>Mysteries of the Far North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528005-9781644114193-occult-russia/"><u>Occult Russia | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

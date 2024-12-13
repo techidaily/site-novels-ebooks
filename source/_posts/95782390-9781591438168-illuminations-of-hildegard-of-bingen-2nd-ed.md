@@ -1,7 +1,7 @@
 ---
 title: Illuminations of Hildegard of Bingen (2nd ed.) | Free Book
-date: 2024-10-25T16:47:41.427Z
-updated: 2024-10-26T23:31:02.082Z
+date: 2024-12-11T18:55:41.593Z
+updated: 2024-12-12T17:09:27.011Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4b9fe8393ae108381cce1de7b8f2482f7d886dd9389517b7ae7e4537fea560a.jpg
@@ -179,3 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4b9fe8393ae108381cce1de7b8f248
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210305879-9781907767609-astrology-as-art/"><u>Astrology as Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305925-9781736898802-follow-your-design/"><u>Follow Your Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305934-9781801348744-guided-meditations-breathwork-for-anxiety-deep-sleep/"><u>Guided Meditations & Breathwork For Anxiety & Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306547-9780750994415-the-south-shields-poltergeist/"><u>The South Shields Poltergeist | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

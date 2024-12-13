@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-11-30T21:43:12.801Z
-updated: 2024-12-07T00:10:17.337Z
+date: 2024-12-12T04:45:41.912Z
+updated: 2024-12-13T07:14:54.603Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,13 +130,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209722614-9781510754041-moon-energy/"><u>Moon Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209721139-9781452173658-the-astrology-of-love-sex/"><u>The Astrology of Love & Sex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209722667-9781507212479-the-little-book-of-feng-shui/"><u>The Little Book of Feng Shui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209722645-9781614296171-what-why-how/"><u>What, Why, How | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210580376-9780760374429-crystal-magic/"><u>Crystal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210580387-9781647553104-ghostly-tales-of-mississippi-2nd-ed/"><u>Ghostly Tales of Mississippi (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210580031-9798885405157-prepared-persistent-and-positioned-for-gods-blessing/"><u>Prepared, Persistent, and Positioned for God's Blessing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579991-9781956096590-the-first/"><u>The First | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

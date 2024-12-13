@@ -1,7 +1,7 @@
 ---
 title: Meditations with the Hopi | Free Book
-date: 2024-10-21T01:11:23.757Z
-updated: 2024-10-26T20:37:01.824Z
+date: 2024-12-11T07:25:50.676Z
+updated: 2024-12-13T03:27:27.967Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/768bc4101e4bff3a1ea5f6c9ea7d5694ac9a38e149bed3d757dd03c2e038a2a3.jpg
@@ -138,3 +138,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/768bc4101e4bff3a1ea5f6c9ea7d569
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210367895-9781638148715-angel-eyes/"><u>Angel Eyes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367859-9781736589892-ash-and-spirit/"><u>Ash and Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367692-9781662432866-conscious-exploration-for-the-advanced-soul/"><u>Conscious Exploration for the Advanced Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367898-9781644689042-from-addiction-to-recovery/"><u>From Addiction to Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367961-9781612834764-how-to-live-a-happily-ever-afterlife/"><u>How to Live a Happily Ever Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367962-9781612834818-protect-your-light/"><u>Protect Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367958-9781612834801-the-art-of-breathing/"><u>The Art of Breathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367956-9781612834771-the-tiny-book-of-big-manifesting/"><u>The Tiny Book of Big Manifesting | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: There Were Giants Upon the Earth | Free Book
-date: 2024-10-22T20:42:37.130Z
-updated: 2024-10-26T19:44:35.133Z
+date: 2024-12-06T02:35:10.509Z
+updated: 2024-12-13T02:30:42.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2134ec4671fbba21e41d93173355d2f30dda467e1542230c38f99a005a0a7190.jpg
@@ -189,3 +189,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2134ec4671fbba21e41d93173355d2f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210320333-9780648453628-a-journey-of-self-discovery/"><u>A JOURNEY OF SELF DISCOVERY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210319222-9782019459727-le-secret-de-lalchimiste/"><u>Le secret de l'Alchimiste | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210320435-9781631955181-murphys-dont-quit/"><u>Murphys Don’t Quit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210320806-9781667402727-women-i-love-you/"><u>Women... I Love You | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

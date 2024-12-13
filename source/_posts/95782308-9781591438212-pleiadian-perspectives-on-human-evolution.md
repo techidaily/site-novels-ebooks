@@ -1,7 +1,7 @@
 ---
 title: Pleiadian Perspectives on Human Evolution | Free Book
-date: 2024-10-20T16:29:23.078Z
-updated: 2024-10-27T00:13:29.621Z
+date: 2024-12-07T01:08:16.336Z
+updated: 2024-12-12T18:44:16.001Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1f12775abbac0cbbf1f410707243793c473212fca2ca0c924af3a715066df3a.jpg
@@ -161,3 +161,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1f12775abbac0cbbf1f41070724379
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210365835-9781736939918-aspire/"><u>Aspire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365846-9780983285410-self-belonging/"><u>Self Belonging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367281-9781472948564-the-breathing-revolution/"><u>The Breathing Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367663-9781396320255-the-day-of-wisdom-according-to-number-vibration/"><u>The Day of Wisdom According to Number Vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365829-9781914996214-the-lion-and-the-tiger/"><u>THE LION and THE TIGER | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365843-9781802271652-the-magic-of-healing-touch/"><u>The Magic of Healing Touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365700-9781087984407-unapologetic/"><u>Unapologetic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210366659-9781953806567-wisdom-of-the-silver-sisters-guiding-grace/"><u>Wisdom of the Silver Sisters - Guiding Grace | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

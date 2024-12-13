@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2024-12-01T01:01:45.519Z
-updated: 2024-12-07T02:50:53.534Z
+date: 2024-12-10T16:19:26.156Z
+updated: 2024-12-13T04:38:20.233Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,14 +175,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210002074-9781609253295-a-magical-course-in-tarot/"><u>A Magical Course in Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002081-9781609252168-about-peace/"><u>About Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002068-9781609259389-hedgewitch-book-of-days/"><u>Hedgewitch Book of Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002076-9781609252984-the-weiser-field-guide-to-the-paranormal/"><u>The Weiser Field Guide to the Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002079-9781609259037-under-the-influence/"><u>Under the Influence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768182-9781646999996-curso-de-astrologia-china/"><u>Curso de astrología china | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768181-9781646999989-el-feng-shui-lleve-la-buena-suerte-a-su-hogar/"><u>El Feng Shui. Lleve la buena suerte a su hogar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768207-9781639190058-el-libro-de-los-suenos-conozcase-a-traves-de-sus-suenos/"><u>El libro de los sueños. Conózcase a través de sus sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768203-9781639190133-i-ching-consult-the-oldest-oracle/"><u>I Ching. Consult the oldest oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768200-9781646999958-i-ching-consulte-el-antiguo-oraculo/"><u>I Ching. Consulte el antiguo oráculo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768210-9781639190065-las-runas-consulte-el-antiguo-oraculo/"><u>Las Runas. Consulte el antiguo oráculo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2024-12-05T18:03:09.794Z
-updated: 2024-12-06T19:10:12.558Z
+date: 2024-12-09T18:22:51.591Z
+updated: 2024-12-12T19:39:14.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,16 +148,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209667344-9781547580514-liderazgo-mejora-tu-lenguaje-corporal-para-influenciar-a-otros-a-traves-de-comunicacion-poderosa/"><u>Liderazgo: Mejora Tu Lenguaje Corporal Para Influenciar A Otros A Través De Comunicación Poderosa | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667370-9781547577637-meditacion-activa-tus-chakras-y-reduce-la-ansiedad-y-la-depresion/"><u>Meditación: Activa Tus Chakras Y Reduce La Ansiedad Y La Depresión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667371-9781547576562-meditacion-atencion-plena-para-que-los-principiantes-aumenten-la-confianza-elimine-la-depresion-de-su-vida/"><u>Meditación: Atención Plena Para Que Los Principiantes Aumenten La Confianza (Elimine La Depresión De Su Vida) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667360-9781547576579-meditacion-guia-para-principiantes-para-meditar-y-reducir-estres-logra-la-paz-y-la-espiritualidad/"><u>Meditación: Guía Para Principiantes Para Meditar Y Reducir Estrés (Logra La Paz Y La Espiritualidad) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667349-9781547574551-meditacion-tecnicas-de-meditacion-para-relajarse-y-aliviar-la-ansiedad-meditation/"><u>Meditación: Técnicas De Meditación Para Relajarse Y Aliviar La Ansiedad ( Meditation) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667362-9781547580095-meditacion-tecnicas-para-lograr-la-paz-reducir-el-estres-y-la-depresion/"><u>Meditación: Técnicas Para Lograr La Paz (Reducir El Estrés Y La Depresión) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667644-9781632658166-the-benham-book-of-palmistry-revised/"><u>The Benham Book of Palmistry, Revised | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551667-9798986204802-30-days-of-me/"><u>30 Days of Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551537-9798985224825-chimera-conflict/"><u>Chimera Conflict | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551752-9781662452376-facing-reality/"><u>Facing Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551521-9798985735215-kosmos/"><u>Kosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551674-9798886808605-runes-of-the-mystic-stag/"><u>Runes of the Mystic Stag | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

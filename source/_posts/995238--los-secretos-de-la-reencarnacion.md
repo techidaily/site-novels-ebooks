@@ -1,7 +1,7 @@
 ---
 title: Los secretos de la reencarnación | Free Book
-date: 2024-12-03T02:03:07.506Z
-updated: 2024-12-06T16:55:20.845Z
+date: 2024-12-09T16:54:27.068Z
+updated: 2024-12-13T05:45:04.990Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/879d60b7e0e4edc103dce810f11773e6b8514a45fa104a7b7614fc926cdba03c.jpg
@@ -154,18 +154,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/879d60b7e0e4edc103dce810f11773e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209649137-9781786783165-can-the-mind-be-quiet/"><u>Can The Mind Be Quiet? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649425-9781591432647-denisovan-origins/"><u>Denisovan Origins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209646643-9780876049754-edgar-cayce-on-angels-and-the-angelic-forces/"><u>Edgar Cayce on Angels and the Angelic Forces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645931-9781632658036-exploring-reiki/"><u>Exploring Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649151-9780525504726-nightmareland/"><u>Nightmareland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649426-9781620558454-operative-witchcraft/"><u>Operative Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649424-9781591433590-the-forever-angels/"><u>The Forever Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209645586-9781620559505-the-greater-and-lesser-worlds-of-robert-fludd/"><u>The Greater and Lesser Worlds of Robert Fludd | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649422-9781591433491-the-secret-history-of-the-hell-fire-clubs-4th-ed/"><u>The Secret History of the Hell-Fire Clubs (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210535075-9781447490340-dame-alice-kyteler-the-sorceress-of-kilkenny-ad-1324-folklore-history-series/"><u>Dame Alice Kyteler the Sorceress of Kilkenny A.D. 1324 (Folklore History Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210535881-9781447490708-organisations-of-witches-in-great-britain-folklore-history-series/"><u>Organisations of Witches in Great Britain (Folklore History Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210536023-9781446549544-sympathetic-magic-of-the-ainu-the-native-people-of-japan-folklore-history-series/"><u>Sympathetic Magic of the Ainu - The Native People of Japan (Folklore History Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210535547-9781473381803-the-seven-purposes-an-experience-in-psychic-phenomena/"><u>The Seven Purposes - An Experience in Psychic Phenomena | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

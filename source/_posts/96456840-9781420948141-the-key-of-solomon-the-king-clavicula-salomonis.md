@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2024-12-03T02:59:37.505Z
-updated: 2024-12-06T20:16:20.631Z
+date: 2024-12-09T23:56:15.411Z
+updated: 2024-12-13T04:48:26.762Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,14 +145,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2100754-9780974021676-healing-the-heart-soul/"><u>Healing the Heart & Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210073347-9781682682524-morning-altars-a-7-step-practice-to-nourish-your-spirit-through-nature-art-and-ritual/"><u>Morning Altars: A 7-Step Practice to Nourish Your Spirit through Nature, Art, and Ritual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210077697-9781087896472-the-fight-for-my-life/"><u>THE FIGHT FOR MY LIFE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210077510-9780999864654-through-the-storm/"><u>Through the Storm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210077662-9781945352058-wow-by-junko/"><u>WOW by Junko | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802666-9781953910950-divine-sparks/"><u>Divine Sparks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802240-9781662494451-palabra-de-aliento-para-la-mujer/"><u>Palabra de Aliento para la Mujer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210801824-9781841508832-the-posthuman-condition/"><u>The Posthuman Condition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210801050-9780875169217-the-word-of-neville/"><u>THE WORD OF NEVILLE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802443-9781956019421-untangle/"><u>Untangle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210801051-9798887740799-working-with-the-law/"><u>WORKING WITH THE LAW | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

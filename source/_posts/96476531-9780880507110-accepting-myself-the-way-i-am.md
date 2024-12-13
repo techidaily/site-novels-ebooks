@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2024-12-04T03:22:57.293Z
-updated: 2024-12-07T04:05:43.082Z
+date: 2024-12-10T05:03:52.789Z
+updated: 2024-12-12T19:43:21.299Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,18 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209966770-9781683692041-crystal-clear/"><u>Crystal Clear | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209962956-9781775230069-fear-breakthrough/"><u>Fear Breakthrough | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209962960-9781989840078-its-all-about-energy/"><u>It's All About Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209966785-9781401961251-mind-over-medicine-revised-edition/"><u>Mind Over Medicine - REVISED EDITION | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209966739-9781524749125-philosophy-for-polar-explorers/"><u>Philosophy for Polar Explorers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209963645-9781615649082-the-law-of-attraction/"><u>The Law of Attraction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209966774-9780834842915-the-posture-of-meditation/"><u>The Posture of Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209966743-9780735276833-the-scientist-and-the-psychic/"><u>The Scientist and the Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209962928-9781734688511-what-if-you-were-god/"><u>What If You Were God? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761528-9781622037940-encounters-with-power/"><u>Encounters with Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761518-9781622037476-holy-rascals/"><u>Holy Rascals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761503-9781622031672-polishing-the-mirror/"><u>Polishing the Mirror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761523-9781622037483-the-science-of-enlightenment/"><u>The Science of Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761524-9781622037926-the-way-of-rest/"><u>The Way of Rest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761526-9781622037605-your-power-to-heal/"><u>Your Power to Heal | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

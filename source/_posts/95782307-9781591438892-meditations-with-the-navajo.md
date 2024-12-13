@@ -1,7 +1,7 @@
 ---
 title: Meditations with the Navajo | Free Book
-date: 2024-10-22T05:34:47.567Z
-updated: 2024-10-26T19:23:55.881Z
+date: 2024-12-12T07:54:41.900Z
+updated: 2024-12-13T03:07:22.872Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/656ba1ddcb6a71e6e05836d72ce79ccdd62cac4315fc93e3ac8c11a7595343b9.jpg
@@ -170,3 +170,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/656ba1ddcb6a71e6e05836d72ce79cc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210364420-9780645073263-etica-yogica-per-una-mente-equilibrata/"><u>Etica Yogica per Una Mente Equilibrata | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364074-9781648410963-evergreen-ape/"><u>Evergreen Ape | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364076-9781648410420-kitchen-witch/"><u>Kitchen Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363906-9781638375487-magickal-living-series-volume-one/"><u>Magickal Living Series Volume One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363924-9781637303580-permission-to-create/"><u>Permission to Create | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363304-9781608687534-rituals-of-the-soul/"><u>Rituals of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363910-9781956634037-stay-in-the-boat-devotional-book/"><u>Stay in the Boat Devotional Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363960-9781637305645-stirring-the-pot/"><u>Stirring the Pot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

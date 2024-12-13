@@ -1,7 +1,7 @@
 ---
 title: Time and the Technosphere | Free Book
-date: 2024-10-26T02:38:26.407Z
-updated: 2024-10-26T19:41:25.587Z
+date: 2024-12-08T04:24:27.780Z
+updated: 2024-12-12T22:15:43.299Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/564215306a5db99c134c4d03ad42f739fbf026669193b7cd904887491b8a005b.jpg
@@ -186,3 +186,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/564215306a5db99c134c4d03ad42f73
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210377963-9781801345873-20-guided-meditations-for-deep-sleep-anxiety-2-in-1/"><u>20 Guided Meditations For Deep Sleep & Anxiety (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210378074-9781735104737-our-battle-with-satans-sidekick/"><u>Our Battle With Satan's Sidekick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210378136-9781913590345-the-empaths-guide-to-the-universe/"><u>The Empath's Guide To The Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377960-9781801343992-the-law-of-attraction-manifestations-for-happiness-love-money/"><u>The Law of Attraction& Manifestations for Happiness Love& Money | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377955-9781801343602-third-eye-kundalini-awakening-for-beginners/"><u>THIRD EYE & KUNDALINI AWAKENING FOR BEGINNERS | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

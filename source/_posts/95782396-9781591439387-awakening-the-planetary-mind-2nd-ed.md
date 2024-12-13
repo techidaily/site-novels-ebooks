@@ -1,7 +1,7 @@
 ---
 title: Awakening the Planetary Mind (2nd ed.) | Free Book
-date: 2024-10-21T20:55:38.904Z
-updated: 2024-10-26T21:43:01.697Z
+date: 2024-12-05T22:16:55.183Z
+updated: 2024-12-13T03:35:33.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/164ec3611a5d8f782f8734f890a669c070fe5ba74009f67951ef01de23180a45.jpg
@@ -197,3 +197,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/164ec3611a5d8f782f8734f890a669c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210313430-9781778320125-10-guided-meditations-for-anxiety-depression-deep-sleep/"><u>10 Guided Meditations For Anxiety, Depression & Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313522-9781778320156-20-guided-meditations-for-deep-sleep-anxiety-self-love-2-in-1/"><u>20+ Guided Meditations For Deep Sleep, Anxiety & Self-Love (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313351-9781777619206-anxiety-therapy-at-home/"><u>Anxiety Therapy at Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313645-9781722526672-the-art-of-tithing/"><u>The Art of Tithing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313362-9781801348539-the-law-of-attraction-advanced-manifestation-techniques-2-in-1/"><u>The Law Of Attraction & Advanced Manifestation Techniques (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210319126-9781528956499-the-mastery-of-life/"><u>The Mastery of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313503-9781908421524-the-mediumship-of-arnold-clare/"><u>The Mediumship of Arnold Clare | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313378-9781913590260-the-starseed-sacred-circle/"><u>The Starseed Sacred Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313844-9781401963514-you-are-the-medicine/"><u>You Are the Medicine | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

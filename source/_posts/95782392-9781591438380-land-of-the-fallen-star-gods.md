@@ -1,7 +1,7 @@
 ---
 title: Land of the Fallen Star Gods | Free Book
-date: 2024-10-21T19:14:54.956Z
-updated: 2024-10-27T04:59:14.087Z
+date: 2024-12-08T17:37:42.721Z
+updated: 2024-12-13T04:33:57.476Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/48aea0a0774a2548e0d97f4da698016c4bccffa5a6ad0be4ac60fcae289af496.jpg
@@ -184,3 +184,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/48aea0a0774a2548e0d97f4da698016
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210308959-9781649528506-church-boy-love/"><u>Church Boy Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307156-9782017140764-la-magie-des-anges/"><u>La magie des anges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307562-9781642502978-live-with-intention/"><u>Live with Intention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307561-9781642503128-mindfulness-through-the-stars/"><u>Mindfulness Through the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307576-9781642503739-the-twelve-gifts-from-the-garden/"><u>The Twelve Gifts from the Garden | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

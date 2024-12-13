@@ -1,7 +1,7 @@
 ---
 title: Words from a Man of No Words | Free Book
-date: 2024-12-05T03:05:45.067Z
-updated: 2024-12-06T22:54:10.949Z
+date: 2024-12-11T16:03:36.574Z
+updated: 2024-12-13T02:45:30.610Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8922661ebb155d58a17f6829b124188229258714554edd73ea110ef11459446c.jpg
@@ -173,16 +173,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8922661ebb155d58a17f6829b124188
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209939372-9781982154684-contemporary-prayers-to-whatever-works/"><u>Contemporary Prayers to Whatever Works | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209939413-9781982150273-finding-faeries/"><u>Finding Faeries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209939379-9781982154233-our-moment-of-choice/"><u>Our Moment of Choice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209940611-9781734426533-saying-yes-to-life/"><u>Saying Yes to Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209939416-9781982152208-seasonal-self-care-rituals/"><u>Seasonal Self-Care Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209940676-9788269149494-symbiosis/"><u>Symbiosis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209940375-9780008406332-witch-please-empowerment-and-enlightenment-for-the-modern-mystic/"><u>Witch, Please: Empowerment and Enlightenment for the Modern Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755391-9791028519124-devenez-une-sorciere-cest-malin/"><u>Devenez une sorcière, c'est malin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755436-9791028521295-femme-pretresse/"><u>Femme prêtresse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755364-9791028523855-mon-abecedaire-spirite/"><u>Mon abécédaire spirite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755409-9791028519094-revolution-lunaire/"><u>Révolution lunaire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755415-9791028517212-secrets-de-guerisseuse/"><u>Secrets de guérisseuse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755392-9791028521530-vous-aussi-vous-etes-magnetiseur/"><u>Vous aussi, vous êtes magnétiseur ! | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

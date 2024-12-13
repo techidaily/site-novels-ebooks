@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-12-02T06:41:13.426Z
-updated: 2024-12-07T01:46:55.430Z
+date: 2024-12-06T21:32:42.107Z
+updated: 2024-12-13T04:08:11.714Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,16 +262,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209987732-9781538754139-life-with-the-afterlife/"><u>Life with the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209990155-9781733710497-pray-attention/"><u>Pray Attention | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209991361-9781609883324-the-hidden-power-of-sound/"><u>The Hidden Power of SOund | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209988338-9781641604499-the-power-of-hex/"><u>The Power of Hex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209984323-9781761033209-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209988874-9780989126311-undermind/"><u>UnderMind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209987490-9781734574111-vision-quest/"><u>Vision Quest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762165-9781787833944-365-ways-to-be-confident/"><u>365 Ways to Be Confident | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762167-9781787834453-how-to-find-calm/"><u>How to Find Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762176-9781787831834-pause/"><u>Pause | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762163-9781787833913-spirituality/"><u>Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762173-9781787831742-the-little-book-of-spells/"><u>The Little Book of Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762181-9781787831773-the-little-book-of-tarot/"><u>The Little Book of Tarot | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

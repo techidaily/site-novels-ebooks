@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2024-12-01T05:42:10.768Z
-updated: 2024-12-07T05:30:58.929Z
+date: 2024-12-09T03:02:47.755Z
+updated: 2024-12-13T01:14:08.926Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,14 +181,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209969415-9780578656809-masters-among-us-3rd-ed/"><u>Masters Among Us (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209970148-9781087869636-night-flower/"><u>Night Flower | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209969765-9781646741052-pursuit-of-wisdom/"><u>PURSUIT OF WISDOM | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209968944-9781473389694-the-black-mass-of-the-loves-of-the-incubi-and-succubi-fantasy-and-horror-classics/"><u>The Black Mass - Of the Loves of the Incubi and Succubi (Fantasy and Horror Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209968965-9781473355583-the-werewolf-lycanthropy-fantasy-and-horror-classics/"><u>The Werewolf - Lycanthropy (Fantasy and Horror Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761578-9781683642954-just-so/"><u>Just So | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761574-9781683642077-pause-breathe-smile/"><u>Pause, Breathe, Smile | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761561-9781683641506-the-book-of-ceremony/"><u>The Book of Ceremony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761580-9781683643180-the-deep-heart/"><u>The Deep Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761582-9781683643210-the-karma-of-cats/"><u>The Karma of Cats | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761577-9781683642336-the-way-of-effortless-mindfulness/"><u>The Way of Effortless Mindfulness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

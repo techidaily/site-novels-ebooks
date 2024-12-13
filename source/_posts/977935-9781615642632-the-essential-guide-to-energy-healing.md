@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-12-04T01:37:14.017Z
-updated: 2024-12-07T06:56:48.148Z
+date: 2024-12-08T20:01:01.928Z
+updated: 2024-12-12T18:41:40.236Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,13 +187,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209728898-9780806536422-goth-magick-an-enchanted-grimoire/"><u>Goth Magick: An Enchanted Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727270-9780806539560-phantom-felines-and-other-ghostly-animals/"><u>Phantom Felines and Other Ghostly Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727868-9780806539591-the-wicca-book-of-days/"><u>The Wicca Book of Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727459-9780806539584-wicca-a-to-z/"><u>Wicca A to Z | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582010-9781493045839-haunted-jersey-shore-2nd-ed/"><u>Haunted Jersey Shore (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582108-9781957895369-laughing-your-life-healthy/"><u>Laughing Your Life Healthy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582219-9781647016968-persecution-or-popularity-as-an-individual/"><u>Persecution or Popularity as an Individual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210584252-9780998602394-spend-some-love/"><u>Spend Some Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210584291-9781922499004-strawberry-angel-and-the-bean/"><u>Strawberry Angel and the Bean | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582135-9781957943527-the-me-i-couldnt-see/"><u>The Me I Couldn't See | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210583127-9781507220160-the-modern-witchcraft-book-of-astrology/"><u>The Modern Witchcraft Book of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210584262-9798985827910-try-my-jesus/"><u>Try My Jesus | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

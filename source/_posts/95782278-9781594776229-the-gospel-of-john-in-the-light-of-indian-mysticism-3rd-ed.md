@@ -1,7 +1,7 @@
 ---
 title: The Gospel of John in the Light of Indian Mysticism (3rd ed.) | Free Book
-date: 2024-10-20T01:27:33.923Z
-updated: 2024-10-26T17:22:20.743Z
+date: 2024-12-06T01:59:22.801Z
+updated: 2024-12-13T05:14:42.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d4ad4450cf5900a85fdc42d10996885a1e3bfee26ec213a35350734d66ead04.jpg
@@ -163,3 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d4ad4450cf5900a85fdc42d1099688
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210412095-9781667415499-guia-para-mindfulness-y-manejo-del-estres/"><u>Guía para Mindfulness y Manejo del Estrés | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412098-9781667414638-mindfulness-conoce-la-paz-y-felicidad-que-brindan-la-atencion-plena-y-la-meditacion/"><u>Mindfulness: Conoce la paz y felicidad que brindan la Atención Plena y la Meditación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412074-9781667415321-mindfulness-una-guia-practica-sobre-como-la-atencion-plena-puede-detener-la-ansiedad/"><u>Mindfulness: una guía práctica sobre cómo la atención plena puede detener la ansiedad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412099-9781667417097-trasforma-gli-estranei-in-amici/"><u>Trasforma gli estranei in amici | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

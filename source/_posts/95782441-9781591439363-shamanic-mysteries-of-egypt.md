@@ -1,7 +1,7 @@
 ---
 title: Shamanic Mysteries of Egypt | Free Book
-date: 2024-10-21T22:00:13.972Z
-updated: 2024-10-27T03:20:44.475Z
+date: 2024-12-08T23:23:12.415Z
+updated: 2024-12-12T20:06:23.607Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3533374e0c1052be372d8cd4f140524ce6b5359ed6b353267955e098da668f91.jpg
@@ -193,3 +193,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3533374e0c1052be372d8cd4f140524
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210285691-9781098078287-hope-and-courage/"><u>Hope and Courage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210285668-9781098071219-inspirations/"><u>Inspirations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210285483-9781098079086-shaking-like-a-leaf/"><u>Shaking Like a Leaf | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210285396-9781736884409-the-love-frequency/"><u>The Love Frequency | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

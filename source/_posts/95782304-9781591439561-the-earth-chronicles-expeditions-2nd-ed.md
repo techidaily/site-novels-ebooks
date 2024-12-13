@@ -1,7 +1,7 @@
 ---
 title: The Earth Chronicles Expeditions (2nd ed.) | Free Book
-date: 2024-10-23T19:44:04.199Z
-updated: 2024-10-27T04:04:42.402Z
+date: 2024-12-08T23:35:03.978Z
+updated: 2024-12-13T06:06:32.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0d75fbdc402ae5d0ecea1a2cd51559e9a10580f648bae58bdb0564890a828580.jpg
@@ -180,3 +180,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0d75fbdc402ae5d0ecea1a2cd51559e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210437912-9781250283870-5-minute-morning-magic/"><u>5-Minute Morning Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437970-9781250833785-resurrection-a-channeled-text/"><u>Resurrection: A Channeled Text | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437975-9781250810915-the-contemplative-tarot/"><u>The Contemplative Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437895-9781250852274-the-dhammapada/"><u>The Dhammapada | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437882-9781250852250-the-science-of-mind-the-complete-original-1926-edition-the-classic-handbook-to-a-life-of-possibilities/"><u>The Science of Mind: The Complete Original 1926 Edition -- The Classic Handbook to a Life of Possibilities | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

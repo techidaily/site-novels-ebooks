@@ -1,7 +1,7 @@
 ---
 title: Secrets of Ancient America | Free Book
-date: 2024-10-21T03:05:32.055Z
-updated: 2024-10-26T23:44:29.355Z
+date: 2024-12-09T01:38:20.369Z
+updated: 2024-12-12T17:16:26.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a2e4f849ba29cfc82e64a50e2eac6d9f2aee4dafb53e5fad0ba0ffe31679e0a.jpg
@@ -199,3 +199,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a2e4f849ba29cfc82e64a50e2eac6d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210324129-9782357288485-clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324152-9781802766356-controlla-il-gioco-per-migliorare-la-tua-vita/"><u>CONTROLLA IL GIOCO - Per migliorare la tua vita | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324127-9781087950907-hidden-messages-in-your-birth-chart/"><u>Hidden Messages in Your Birth Chart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324135-9781941328521-purpose/"><u>Purpose | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-12-02T17:37:18.244Z
-updated: 2024-12-06T23:18:43.879Z
+date: 2024-12-11T07:08:37.458Z
+updated: 2024-12-12T20:37:40.419Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,13 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209779133-9781439667903-haunted-el-reno/"><u>Haunted El Reno | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209779130-9781439667897-haunted-southern-maryland/"><u>Haunted Southern Maryland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780327-9781633411746-the-hynek-ufo-report/"><u>The Hynek UFO Report | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780329-9781612834450-the-little-book-of-prosperity/"><u>The Little Book of Prosperity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614586-9781635862393-high-vibe-feng-shui/"><u>High-Vibe Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614512-9781523514021-how-dreams-speak/"><u>How Dreams Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614412-9781648291180-morning-rituals/"><u>Morning Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614415-9781648291173-restorative-rituals/"><u>Restorative Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614770-9781635862133-the-illustrated-bestiary/"><u>The Illustrated Bestiary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614686-9781635862232-the-illustrated-crystallary/"><u>The Illustrated Crystallary | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

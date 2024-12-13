@@ -1,7 +1,7 @@
 ---
 title: Plant Intelligence and the Imaginal Realm | Free Book
-date: 2024-10-25T21:26:44.686Z
-updated: 2024-10-26T17:21:25.937Z
+date: 2024-12-10T06:35:52.894Z
+updated: 2024-12-12T23:47:22.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db8f4e8b8bf40be70c5c93cf5f1fc478b46dc0cb9df526070379d817c0fcadba.jpg
@@ -199,3 +199,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db8f4e8b8bf40be70c5c93cf5f1fc47
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210367967-9781633412415-blackthorns-protection-magic/"><u>Blackthorn's Protection Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367968-9781633412491-predictive-astrology/"><u>Predictive Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367970-9781633412477-the-alchemists-handbook/"><u>The Alchemist's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367969-9781633412446-the-big-book-of-candle-magic/"><u>The Big Book of Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367966-9781633412323-the-creative-pendulum/"><u>The Creative Pendulum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367965-9781633412002-the-magic-of-the-sword-of-moses/"><u>The Magic of the Sword of Moses | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Return of the Children of Light | Free Book
-date: 2024-10-23T01:52:27.569Z
-updated: 2024-10-27T03:51:52.882Z
+date: 2024-12-09T04:27:29.627Z
+updated: 2024-12-12T22:46:07.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5822e2ad5f4d779b81ffb04381164fb81bc45a8ca133a3f991a1f8a846f644c8.jpg
@@ -170,3 +170,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5822e2ad5f4d779b81ffb04381164fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210398544-9781667413624-atencion-plena-navegar-la-vida-diara-usando-la-nueva-ciencia-de-la-salud-y-la-felicidad/"><u>Atención plena: Navegar la vida diara usando la nueva ciencia de la salud y la felicidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398609-9781667414218-consciencia-plena-maneja-tus-emociones-y-calma-tu-mente-con-consciencia/"><u>Consciencia plena - maneja tus emociones y calma tu mente con consciencia. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398529-9781667412016-daring/"><u>Daring | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398457-9781667410401-il-viaggio-di-megan/"><u>Il viaggio di Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398627-9781667414225-mindfulness-el-poder-supremo-de-mindfulness/"><u>Mindfulness: El poder supremo de Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398477-9781667408910-mindfulness-la-atencion-plena-se-hace-mas-presente-a-traves-de-la-meditacion/"><u>Mindfulness: La atención plena se hace más presente a través de la meditación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398476-9781667414263-mindfulness-meditacion-guiada-de-mindfulness-para-principiantes/"><u>Mindfulness: meditación guiada de Mindfulness para principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398622-9781667414232-mindfulness-su-guia-diaria-para-lograr-la-atencion-plena/"><u>Mindfulness: su guía diaria para lograr la atención plena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398449-9781667411996-vozes-do-alem/"><u>Vozes do além | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

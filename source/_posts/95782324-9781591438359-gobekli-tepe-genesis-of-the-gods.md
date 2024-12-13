@@ -1,7 +1,7 @@
 ---
 title: "Gobekli Tepe: Genesis of the Gods | Free Book"
-date: 2024-10-24T17:20:53.666Z
-updated: 2024-10-27T05:26:00.972Z
+date: 2024-12-12T04:41:22.605Z
+updated: 2024-12-13T02:13:47.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3ea8e996096502a98c8c88dd20a1e0d3ef6a2bb299d09db0a2250b174a47c6e.jpg
@@ -196,3 +196,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3ea8e996096502a98c8c88dd20a1e0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210380668-9781493051755-ghosts-of-the-american-revolution/"><u>Ghosts of the American Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210380762-9781398817470-the-book-of-spells/"><u>The Book of Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210380502-9781737410614-the-fun-of-dying/"><u>The Fun of Dying | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210380528-9781737410652-the-fun-of-growing-forever/"><u>The Fun of Growing Forever | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210380404-9781420976908-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

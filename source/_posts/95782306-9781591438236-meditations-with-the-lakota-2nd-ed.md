@@ -1,7 +1,7 @@
 ---
 title: Meditations with the Lakota (2nd ed.) | Free Book
-date: 2024-10-22T01:50:01.863Z
-updated: 2024-10-26T23:14:15.187Z
+date: 2024-12-11T00:53:02.730Z
+updated: 2024-12-13T02:49:25.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d44739c3b790e683873ff4727abb129b62a1444109edd380b276257117aabe0.jpg
@@ -184,3 +184,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d44739c3b790e683873ff4727abb12
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210362383-9781800960701-awaken-your-power-within/"><u>Awaken Your Power Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362173-9781640869882-conexion-con-el-universo/"><u>Conexión con el Universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363175-9780760371848-living-lunarly/"><u>Living Lunarly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362086-9781662415562-summer-haikai/"><u>Summer Haikai | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362138-9781087974781-the-journey-of-discovering-inner-peace/"><u>The Journey of Discovering Inner Peace | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

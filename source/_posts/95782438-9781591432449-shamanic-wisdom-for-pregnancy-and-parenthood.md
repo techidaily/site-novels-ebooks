@@ -1,7 +1,7 @@
 ---
 title: Shamanic Wisdom for Pregnancy and Parenthood | Free Book
-date: 2024-10-20T01:14:54.715Z
-updated: 2024-10-26T22:16:22.091Z
+date: 2024-12-08T03:17:31.111Z
+updated: 2024-12-12T21:16:24.085Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ae3c973a0c1b58b22c07db0885867629cd123b1d4d410631de62d93168954fe.jpg
@@ -187,3 +187,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ae3c973a0c1b58b22c07db08858676
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210284757-9781098077259-a-view-from-the-pew/"><u>A View from the Pew | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284748-9781098075163-growing-the-church/"><u>Growing the Church | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284652-9781913768126-living-witchcraft/"><u>Living WItchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284654-9781735740102-self-empower-using-self-coaching-neuroadaptability-and-ayurveda/"><u>Self Empower: Using Self Coaching, Neuroadaptability, and Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284682-9781774815014-the-initiates-of-the-flame/"><u>The Initiates of the Flame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284667-9780645120516-they-sent-me-forth/"><u>They Sent Me Forth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284224-9781954676039-what-if-anything-is-out-there/"><u>What, If Anything, Is Out There? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

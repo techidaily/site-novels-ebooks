@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2024-12-05T00:20:01.678Z
-updated: 2024-12-07T00:21:36.196Z
+date: 2024-12-05T17:43:29.004Z
+updated: 2024-12-12T19:27:07.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,16 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210004001-9781761035043-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003945-9781761035012-feng-shui/"><u>Feng Shui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003937-9781761034954-magick/"><u>Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003938-9781761034930-magickal-seduction/"><u>Magickal Seduction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003941-9781761034947-sex-magick/"><u>Sex Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003934-9781761034909-thought-symbols/"><u>Thought Symbols | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003935-9781761034923-wealth-magick/"><u>Wealth Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768305-9781639199150-el-eneagrama/"><u>El eneagrama | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768336-9781639199471-los-angeles-como-invocarlos-como-percibir-su-presencia-como-obtener-su-amor-y-su-ayuda/"><u>Los ángeles. Cómo invocarlos cómo percibir su presencia cómo obtener su amor y su ayuda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769672-9781644116227-maps-of-consciousness-3rd-ed/"><u>Maps of Consciousness (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768306-9781639199143-mas-alla-de-la-vida/"><u>Más allá de la vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768314-9781639199167-previsiones-astrologicas-hasta-el-2050/"><u>Previsiones astrológicas hasta el 2050 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769656-9781591434757-the-new-sirian-revelations-2nd-ed/"><u>The New Sirian Revelations (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769658-9781591434979-veneration-rites-of-curanderismo/"><u>Veneration Rites of Curanderismo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

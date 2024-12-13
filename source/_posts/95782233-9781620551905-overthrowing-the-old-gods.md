@@ -1,7 +1,7 @@
 ---
 title: Overthrowing the Old Gods | Free Book
-date: 2024-10-20T05:06:11.056Z
-updated: 2024-10-27T01:39:40.113Z
+date: 2024-12-12T03:24:48.331Z
+updated: 2024-12-12T16:46:08.713Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14c861e29c3ee14f95555ed167387ffa0aced0eb95514dd0d94c7b51a0fd8642.jpg
@@ -190,3 +190,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14c861e29c3ee14f95555ed167387ff
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210451387-9781662439148-at-first-click/"><u>At First Click | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451390-9780762480210-buzzfeed-unsolved-supernatural/"><u>BuzzFeed Unsolved Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451321-9780966137866-imagining-einstein/"><u>Imagining Einstein | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451326-9781945026928-meditation/"><u>Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450304-9781667420349-megan-e-a-radio-um-show-na-estrada/"><u>Megan e a Rádio Um Show na Estrada | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450525-9781504068215-sand-and-foam/"><u>Sand and Foam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450510-9781504067959-the-history-of-spiritualism/"><u>The History of Spiritualism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451087-9780762475681-the-queen-of-wands/"><u>The Queen of Wands | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

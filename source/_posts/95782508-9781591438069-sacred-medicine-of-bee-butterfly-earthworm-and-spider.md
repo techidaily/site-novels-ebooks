@@ -1,7 +1,7 @@
 ---
 title: Sacred Medicine of Bee, Butterfly, Earthworm, and Spider | Free Book
-date: 2024-10-21T04:49:28.093Z
-updated: 2024-10-26T22:54:50.443Z
+date: 2024-12-07T07:57:58.313Z
+updated: 2024-12-12T16:31:23.597Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf607ed331ba9d5be4cc3773ef145f18e22a528e4fb75c7324aad8c3bd722484.jpg
@@ -189,3 +189,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf607ed331ba9d5be4cc3773ef145f1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210275249-9781989838181-guided-meditations-for-anxiety-deep-sleep-and-self-healing/"><u>Guided Meditations for Anxiety, Deep Sleep, and Self Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275257-9781989838259-guided-meditations-for-deep-sleep-overcoming-anxiety-stress-relief/"><u>Guided Meditations For Deep Sleep, Overcoming Anxiety & Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275250-9781989838198-guided-mindfulness-meditation-for-anxiety-stress-and-insomnia/"><u>Guided Mindfulness Meditation for Anxiety, Stress and Insomnia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275251-9781989838204-guided-mindfulness-meditation-for-sleep-overcoming-anxiety-and-stress-relief/"><u>Guided Mindfulness Meditation for Sleep, Overcoming Anxiety and Stress Relief | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

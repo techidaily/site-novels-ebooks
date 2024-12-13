@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-12-03T05:17:04.819Z
-updated: 2024-12-07T01:10:54.311Z
+date: 2024-12-11T19:35:01.288Z
+updated: 2024-12-12T23:26:45.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,16 +179,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209872268-9780996783552-conversations-with-laarkmaa/"><u>Conversations With Laarkmaa | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209873043-9780648527213-gateway-to-the-modern-crone/"><u>Gateway to the Modern Crone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209872247-9780648510611-personal-sovereignty/"><u>Personal Sovereignty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209872269-9781950373024-playful-mindfulness/"><u>Playful Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209872274-9780996783569-remembering-who-we-are-2nd-ed/"><u>Remembering Who We Are (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209872593-9781733500715-the-divine-and-master-zhang/"><u>The Divine and Master Zhang | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209872970-9780987621719-uriels-gift/"><u>Uriel's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708383-9781915393753-happy-birthday-love-keith/"><u>Happy Birthday-Love, Keith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707755-9780645523744-light-ignited-miracles-unleashed/"><u>Light Ignited, Miracles Unleashed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707742-9780645523737-she-energy/"><u>She Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707745-9781956368345-the-wayfarer/"><u>The Wayfarer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

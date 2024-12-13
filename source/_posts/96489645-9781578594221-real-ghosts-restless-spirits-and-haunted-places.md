@@ -1,7 +1,7 @@
 ---
 title: Real Ghosts, Restless Spirits, and Haunted Places | Free Book
-date: 2024-12-05T04:31:07.481Z
-updated: 2024-12-06T16:03:59.621Z
+date: 2024-12-11T00:16:01.787Z
+updated: 2024-12-13T03:06:26.177Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bfc0f058ccbd270756cad3455b75e0de936.jpg
@@ -280,16 +280,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209863352-9780648352181-banyan-trees-gift/"><u>Banyan Tree's Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863348-9780648352198-baobab-trees-gift/"><u>Baobab Tree's Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863081-9780990536154-earth-etudes-for-elul/"><u>Earth Etudes for Elul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863264-9781935214496-empath-empowerment-in-30-days/"><u>Empath Empowerment in 30 Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863178-9781999731939-love-sex-nakedness-and-the-divine/"><u>Love, Sex, Nakedness and the Divine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863095-9780995699922-reversing-the-race-to-global-destruction/"><u>Reversing the Race to Global Destruction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209863028-9780692164259-when-life-hits-the-fan/"><u>When Life Hits the Fan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693070-9781578269891-beyond-domestication/"><u>Beyond Domestication | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693080-9781952692475-cracking-the-walnut/"><u>Cracking the Walnut | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693295-9798887620077-healing-trees/"><u>Healing Trees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693619-9798987183526-isabels-starry-night-the-magical-quest-for-alchemy/"><u>Isabel's Starry Night, The Magical Quest for Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693763-9780983534846-life-after-death-2nd-ed/"><u>Life After Death (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693357-9781954759381-radiate/"><u>Radiate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210693760-9798885049757-the-nonrecipe-book/"><u>The NonRecipe Book | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

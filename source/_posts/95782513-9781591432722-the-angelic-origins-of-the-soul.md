@@ -1,7 +1,7 @@
 ---
 title: The Angelic Origins of the Soul | Free Book
-date: 2024-10-24T23:35:53.059Z
-updated: 2024-10-26T17:59:02.519Z
+date: 2024-12-10T05:37:56.423Z
+updated: 2024-12-12T22:57:46.882Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e90090d3681bf83d08ccca2133c7ee7ad3564b6c1c2f86d416080c4684c21af.jpg
@@ -183,3 +183,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e90090d3681bf83d08ccca2133c7ee
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210204715-9781925816334-a-year-of-loving-kindness-to-myself/"><u>A Year of Loving Kindness to Myself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204515-9781684035731-good-morning-intentions/"><u>Good Morning Intentions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205004-9781528767637-inferences-from-haunted-houses-and-haunted-men/"><u>Inferences from Haunted Houses and Haunted Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204782-9781528767811-the-light-beyond-translated-by-alexander-teixeira-de-mattos/"><u>The Light Beyond - Translated by Alexander Teixeira de Mattos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205150-9781945252952-the-soul-of-america-speaks/"><u>The Soul of America Speaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203698-9781637958810-written-in-the-stars/"><u>Written in the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204337--your-soul-had-a-dream-your-life-is-it/"><u>Your Soul Had a Dream, Your Life Is It | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

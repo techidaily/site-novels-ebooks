@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-11-30T23:06:03.438Z
-updated: 2024-12-06T23:12:37.910Z
+date: 2024-12-09T01:03:43.825Z
+updated: 2024-12-12T20:25:51.585Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,18 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210078444-9781800190900-100-ways-to-be-kind/"><u>100 Ways to Be Kind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210079622-9780813174518-haunts-of-old-louisville/"><u>Haunts of Old Louisville | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210080322-9780648862116-mystic-at-the-edge/"><u>MYSTIC AT THE EDGE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210079477-9780813174488-phantoms-of-old-louisville/"><u>Phantoms of Old Louisville | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210079829-9780963009685-psychedelic-psychotherapy/"><u>Psychedelic Psychotherapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210080029-9780806541075-shamanism-for-every-day/"><u>Shamanism for Every Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210080347-9781734815733-the-antidote/"><u>The Antidote | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210079488-9780813137070-the-mystery-chronicles/"><u>The Mystery Chronicles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210080380-9781948626224-the-shamans-mind/"><u>The Shaman's Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803181-9798822912250-admit-it-youre-god/"><u>Admit It, You're God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802875-9781637511367-bondages/"><u>Bondages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803289-9783988312075-chakras-healing-for-beginners/"><u>CHAKRAS HEALING FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802738-9781957506494-coming-home/"><u>COMING HOME | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803164-9798885057493-my-journey/"><u>My Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802992-9788794430043-the-attack-on-the-ferris-wheel/"><u>THE ATTACK ON THE FERRIS WHEEL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803027-9781957917290-the-heart-of-fear/"><u>The Heart of Fear | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

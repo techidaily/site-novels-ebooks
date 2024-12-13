@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Ralph Waldo Trine | Free Book
-date: 2024-12-06T02:28:17.104Z
-updated: 2024-12-07T04:33:47.605Z
+date: 2024-12-10T01:13:13.697Z
+updated: 2024-12-13T02:35:45.692Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399143e33e364df922e51683bcdc0dfe214d.jpg
@@ -146,14 +146,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209824235-9781683256557-como-interpretar-los-suenos-para-ganar-a-la-primitiva-y-a-la-bonoloto/"><u>Cómo interpretar los sueños para ganar a la primitiva y a la bonoloto | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824253-9781644615218-el-angel-custodio/"><u>El Ángel Custodio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824219-9781683256489-el-lenguaje-secreto-del-rostro/"><u>El lenguaje secreto del rostro | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824230-9781683256564-entre-en-el-mundo-secreto-de-los-tarots/"><u>Entre en... el mundo secreto de los tarots | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824257-9781644615287-i-ching/"><u>I ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642634-9781958921029-ancestors/"><u>Ancestors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210643527-9781608688395-conversations-with-the-zs-book-one/"><u>Conversations with the Z’s, Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642561-9780645361810-directional/"><u>Directional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642558-9781736365120-discovering-your-excellence-within/"><u>Discovering Your Excellence Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642770-9798986491929-mastering-the-art-of-mindfulness/"><u>Mastering the Art of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210643670-9781638145981-the-pen-of-a-soul/"><u>The Pen of A Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642416-9798986346410-the-place-that-keeps-love-alive/"><u>The Place That Keeps Love Alive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642387-9782384550074-the-rosicrucian-cosmo-conception/"><u>The Rosicrucian Cosmo-Conception | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

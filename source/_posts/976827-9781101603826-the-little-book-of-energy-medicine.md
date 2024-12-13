@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2024-12-05T21:43:36.271Z
-updated: 2024-12-06T20:11:11.331Z
+date: 2024-12-11T18:29:36.723Z
+updated: 2024-12-12T20:47:50.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,16 +192,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209719865-9781473572126-astrology-irl/"><u>Astrology IRL | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209719879-9781632658340-becoming-psychic/"><u>Becoming Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209720455-9788472457218-egiptosophia/"><u>Egiptosophia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209721137-9781452176734-high-yoga/"><u>High Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209719127-9781547590841-meditacion-tecnicas-de-meditacion-para-alcanzar-un-estado-zen-y-activar-los-chakras/"><u>Meditación: Técnicas De Meditación Para Alcanzar Un Estado Zen Y Activar Los Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209719149-9781547590315-megan-y-el-gato-perdido/"><u>Megan y el Gato Perdido | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209719104-9781547590322-megan-y-la-alcaldesa/"><u>Megan y la Alcaldesa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579984-9781631957710-a-dream-worth-fighting-for/"><u>A Dream Worth Fighting For | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579859-9798985445718-camino-lessons/"><u>Camino Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579723-9781958150962-carla-vicentini/"><u>Carla Vicentini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579931-9781774341315-guided-meditations-for-deep-sleep/"><u>Guided Meditations for Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210576018-9780982176955-im-beside-myself/"><u>I'm Beside Myself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579973-9781684930821-metaphysical-healing/"><u>Metaphysical Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

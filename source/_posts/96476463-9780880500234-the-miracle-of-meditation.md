@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-12-03T17:21:35.818Z
-updated: 2024-12-06T20:27:07.071Z
+date: 2024-12-07T01:48:13.748Z
+updated: 2024-12-12T19:42:01.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,18 +166,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210003794-9781761034787-astrology/"><u>Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002470-9781452181622-breathwork/"><u>Breathwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003931-9781761034916-create-a-servitor/"><u>Create a Servitor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003876-9780486846798-living-love/"><u>Living Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003801-9781761034848-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002669-9781538135143-mindfulness-in-a-busy-world/"><u>Mindfulness in a Busy World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003804-9781761034794-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003802-9781761034763-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002106-9781633410022-you-dont-have-to-die-to-go-to-heaven/"><u>You Don't Have to Die to Go to Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768302-9781639199129-curso-de-escritura-automatica/"><u>Curso de escritura automática | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768304-9781639199136-el-angel-de-la-guarda/"><u>El ángel de la guarda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768270-9781639190966-el-gran-libro-de-los-suenos/"><u>El gran libro de los sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768255-9781639190836-todo-el-zodiaco-capricornio/"><u>Todo el Zodiaco. Capricornio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768256-9781639190843-todo-el-zodiaco-piscis/"><u>Todo el Zodiaco. Piscis | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

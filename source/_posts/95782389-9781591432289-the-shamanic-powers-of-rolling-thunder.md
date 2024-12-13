@@ -1,7 +1,7 @@
 ---
 title: The Shamanic Powers of Rolling Thunder | Free Book
-date: 2024-10-21T22:20:20.915Z
-updated: 2024-10-26T21:31:12.110Z
+date: 2024-12-08T08:26:02.852Z
+updated: 2024-12-12T21:08:18.128Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4caeb7e4d282f1fd77dd1e20bc6392599d21f68f2e1848e06f5a0569f20f9f8.jpg
@@ -198,3 +198,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4caeb7e4d282f1fd77dd1e20bc6392
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210305595-9781098081331-a-walking-miracle/"><u>A Walking Miracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303874-9781529336269-deliverance/"><u>Deliverance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305877-9781774341056-extreme-weight-loss-hypnosis/"><u>Extreme Weight Loss Hypnosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303228-9781608687374-healing-with-nature/"><u>Healing with Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303808-9781649906953-keeping-your-heart-open/"><u>Keeping Your Heart Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303110-9781647501563-the-fire-that-never-dies/"><u>The Fire That Never Dies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210304126-9781250254245-the-initiates-of-the-flame-the-deluxe-edition/"><u>The Initiates of the Flame: The Deluxe Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210304032-9781914447037-your-life-of-personal-power/"><u>Your Life of Personal Power | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

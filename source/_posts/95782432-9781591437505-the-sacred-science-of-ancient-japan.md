@@ -1,7 +1,7 @@
 ---
 title: The Sacred Science of Ancient Japan | Free Book
-date: 2024-10-23T04:57:49.536Z
-updated: 2024-10-26T16:04:59.471Z
+date: 2024-12-09T01:07:40.973Z
+updated: 2024-12-12T18:38:21.695Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dcb465452ae030fdc176029e9c76dde069b0cfa7016aa5038e1f6fc6dd5b8a11.jpg
@@ -185,3 +185,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dcb465452ae030fdc176029e9c76dde
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210280697-9781615196241-brain-training-with-the-buddha/"><u>Brain Training with the Buddha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210280692-9781615195855-breathe-empower-achieve/"><u>Breathe, Empower, Achieve | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210281099-9781913029838-revolutionary-demonology/"><u>Revolutionary Demonology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210281376-9781841815152-the-crystal-apothecary/"><u>The Crystal Apothecary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210280893-9781612834580-voyage-to-curiositys-father/"><u>Voyage to Curiosity's Father | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

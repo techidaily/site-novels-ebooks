@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-12-04T19:11:56.020Z
-updated: 2024-12-07T03:09:04.938Z
+date: 2024-12-11T23:58:51.190Z
+updated: 2024-12-12T18:45:31.089Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,18 +175,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209690884-9780857838261-ancient-wisdom-for-modern-living/"><u>Ancient Wisdom for Modern Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691039-9781250257741-auras/"><u>Auras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209690048-9780691200620-change/"><u>Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209693660-9781939839053-how-patience-works/"><u>How Patience Works | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209690814-9781916068971-otherworlds/"><u>Otherworlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691091-9781250246455-reconnecting-to-the-source/"><u>Reconnecting to The Source | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691112-9781250253057-soul-magic/"><u>Soul Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691054-9781250250704-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209691105-9781250230591-the-warrior-heart-practice/"><u>The Warrior Heart Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569356-9781399803038-21-day-mindfulness-challenge/"><u>21 Day Mindfulness Challenge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569498-9798985980011-how-the-stars-tell-time/"><u>How the Stars Tell Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569460-9798986216614-lucid-journey/"><u>Lucid Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569220-9781398824393-profeten/"><u>Profeten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210568175-9781493044900-spooky-north-carolina-2nd-ed/"><u>Spooky North Carolina (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

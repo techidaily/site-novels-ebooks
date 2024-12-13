@@ -1,7 +1,7 @@
 ---
 title: Rumi's Four Essential Practices | Free Book
-date: 2024-10-21T22:48:40.261Z
-updated: 2024-10-27T04:59:25.915Z
+date: 2024-12-12T02:41:08.773Z
+updated: 2024-12-13T01:56:05.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b8ff2ac5b94f866044a83084cc6f72f55e173e197dc5fdadc74b092c91332fd.jpg
@@ -190,3 +190,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b8ff2ac5b94f866044a83084cc6f72
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210424932-9781785355806-beneath-the-moon/"><u>Beneath the Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210424923-9781789048476-beyond-sex-and-soup/"><u>Beyond Sex and Soup | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210424930-9781789047523-flowering-into-awareness/"><u>Flowering Into Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210424908-9781000530049-introduction-to-transpersonal-psychology/"><u>Introduction to Transpersonal Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210425290-9781902405957-judy-halls-good-vibrations/"><u>Judy Hall's Good Vibrations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210424924-9781789047141-pagan-portals-sekhmet/"><u>Pagan Portals - Sekhmet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210424928-9781789047103-reiki-a-self-practice-to-live-in-peace-with-self-and-others/"><u>Reiki: A Self-Practice To Live in Peace with Self and Others | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210424922-9781789048087-spirituality-will-save-the-world/"><u>Spirituality Will Save The World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210424931-9781789049992-the-dream-machine/"><u>The Dream Machine | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

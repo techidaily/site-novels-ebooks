@@ -1,7 +1,7 @@
 ---
 title: The Global Mind and the Rise of Civilization (2nd ed.) | Free Book
-date: 2024-10-19T19:52:10.821Z
-updated: 2024-10-26T23:18:29.566Z
+date: 2024-12-12T05:39:47.402Z
+updated: 2024-12-13T05:00:52.871Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2634a42c7c36f830b77f2499235ae25870b0a3bd686fcc23817610c8cf031fd5.jpg
@@ -199,3 +199,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2634a42c7c36f830b77f2499235ae25
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210243117-9780648873990-beautiful-you-within-me/"><u>Beautiful You Within Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243000-9781637529010-convergence/"><u>Convergence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243119-9780648873983-journey-of-the-yellow-feather/"><u>Journey of the Yellow Feather | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243272-9781734920901-journey-to-soul/"><u>Journey to Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243271-9781988387253-lighten-up-youre-eternal/"><u>Lighten Up, You're Eternal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243146-9781952352072-spiritual-as-fck/"><u>Spiritual as F*ck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243061-9781638230045-the-secret-teachings-of-all-ages-an-encyclopedic-outline-of-masonic-hermetic-qabbalistic-and-rosicrucian-symbolical-philosophy/"><u>The Secret Teachings of All Ages: An Encyclopedic Outline of Masonic, Hermetic, Qabbalistic and Rosicrucian Symbolical Philosophy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

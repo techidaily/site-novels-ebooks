@@ -1,7 +1,7 @@
 ---
 title: Encyclopedia of Norse and Germanic Folklore, Mythology, and Magic | Free Book
-date: 2024-10-23T22:13:55.300Z
-updated: 2024-10-26T16:58:53.065Z
+date: 2024-12-08T01:13:39.006Z
+updated: 2024-12-12T23:09:42.267Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d310f4ac13beee740bc3913355d07f877b9f5a24dce9fda68df3d56f1612eba.jpg
@@ -196,3 +196,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d310f4ac13beee740bc3913355d07f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210410912-9781591434429-activate-your-cosmic-dna/"><u>Activate Your Cosmic DNA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410913-9781591434504-grey-aliens-and-artificial-intelligence/"><u>Grey Aliens and Artificial Intelligence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410922-9781644112304-secret-history-of-the-wild-wild-west/"><u>Secret History of the Wild, Wild West | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410914-9781591434542-the-dreaming-circus/"><u>The Dreaming Circus | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

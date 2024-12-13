@@ -1,7 +1,7 @@
 ---
 title: The Three Ages of Atlantis | Free Book
-date: 2024-10-20T21:16:37.944Z
-updated: 2024-10-26T21:44:43.242Z
+date: 2024-12-12T05:32:34.472Z
+updated: 2024-12-13T06:53:51.186Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1205f74db1a650c65d9f6c4232d7f694495e8982c465604509dba21290d5a117.jpg
@@ -185,3 +185,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1205f74db1a650c65d9f6c4232d7f69
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210232455-9781644113035-discover-your-crystal-family/"><u>Discover Your Crystal Family | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232454-9781644112342-dmt-entity-encounters/"><u>DMT Entity Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232448-9781591434085-journeys-with-plant-spirits/"><u>Journeys with Plant Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232449-9781591434221-love-god-and-everything/"><u>Love, God, and Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232228-9780753734827-moon-astrology/"><u>Moon Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232460-9781644111710-tales-of-witchcraft-and-wonder/"><u>Tales of Witchcraft and Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232456-9781644112687-the-path-of-the-warrior-mystic/"><u>The Path of the Warrior-Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232461-9781644113356-the-poison-path-herbal/"><u>The Poison Path Herbal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

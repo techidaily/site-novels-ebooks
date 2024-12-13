@@ -1,7 +1,7 @@
 ---
 title: Transcending the Speed of Light | Free Book
-date: 2024-10-23T19:46:30.069Z
-updated: 2024-10-26T23:45:05.087Z
+date: 2024-12-06T00:27:43.594Z
+updated: 2024-12-12T23:39:16.727Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/180d4b30abf4b9d82de7e7b4b87e75e99a6c28e1f2f45fdaf76fb99c9c5a3243.jpg
@@ -186,3 +186,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/180d4b30abf4b9d82de7e7b4b87e75e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210438565-9781797202921-a-turtles-guide-to-introversion/"><u>A Turtle's Guide to Introversion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210438874-9798985343311-angel-messages-from-the-heart-nebula/"><u>Angel Messages from the Heart Nebula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210438520-9781524877439-close-again/"><u>Close Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210439111-9781789047165-pagan-portals-scrying/"><u>Pagan Portals - Scrying | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

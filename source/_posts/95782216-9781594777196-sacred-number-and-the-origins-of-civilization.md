@@ -1,7 +1,7 @@
 ---
 title: Sacred Number and the Origins of Civilization | Free Book
-date: 2024-10-20T01:49:37.317Z
-updated: 2024-10-27T04:36:30.549Z
+date: 2024-12-10T05:04:42.605Z
+updated: 2024-12-12T23:54:47.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dfe32411c460f9b5643c586f924c21a1ddaf260ab9bb291efd167aea33ee6940.jpg
@@ -176,3 +176,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dfe32411c460f9b5643c586f924c21a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210525227-9781637630891-audaciously-alive/"><u>Audaciously Alive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210524580-9781797221021-desk-yoga-deck/"><u>Desk Yoga Deck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210524540-9781885928368-magic/"><u>Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210525164-9781783255207-manifesting-for-beginners-nine-steps-to-attracting-a-life-you-love/"><u>Manifesting for Beginners: Nine Steps to Attracting a Life You Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210525158-9781841815268-your-crystals-your-journey-your-journal/"><u>Your Crystals, Your Journey, Your Journal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

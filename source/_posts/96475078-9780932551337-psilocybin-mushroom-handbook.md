@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2024-11-30T20:55:25.358Z
-updated: 2024-12-06T21:01:11.516Z
+date: 2024-12-08T17:53:30.925Z
+updated: 2024-12-13T04:50:51.193Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,16 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209995358-9781476635842-fat-talk/"><u>Fat Talk | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209995064-9781476631974-psience-fiction/"><u>Psience Fiction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209995013-9781476631202-the-elements-of-parapsychology/"><u>The Elements of Parapsychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209995254-9781476633688-the-paranormal-surrounds-us/"><u>The Paranormal Surrounds Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209995659-9781476639185-the-spirit-transcendent/"><u>The Spirit Transcendent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209995956-9781476634937-the-star-gate-archives/"><u>The Star Gate Archives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209994817-9781476631714-writing-and-the-body-in-motion/"><u>Writing and the Body in Motion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762239-9781786857361-calm/"><u>Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762244-9781786853875-dont-panic/"><u>Don't Panic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762283-9781786850973-find-calm/"><u>Find Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762238-9781786857392-happiness/"><u>Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762277-9781786850881-project-happiness/"><u>Project Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762257-9781786851307-the-little-book-of-astrology/"><u>The Little Book of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762290-9781783727308-the-little-book-of-comfort/"><u>The Little Book of Comfort | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

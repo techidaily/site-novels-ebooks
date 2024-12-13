@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2024-11-30T23:12:58.157Z
-updated: 2024-12-07T03:24:43.493Z
+date: 2024-12-07T06:04:34.481Z
+updated: 2024-12-12T18:27:41.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,16 +160,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209846480-9780648002338-lucky-astrology-cancer/"><u>Lucky Astrology - Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846481-9780648002376-lucky-astrology-capricorn/"><u>Lucky Astrology - Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846483-9780648002321-lucky-astrology-leo/"><u>Lucky Astrology - Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846476-9780648002390-lucky-astrology-pisces/"><u>Lucky Astrology - Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846474-9780648002345-lucky-astrology-scorpio/"><u>Lucky Astrology - Scorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846478-9780648002307-lucky-astrology-taurus/"><u>Lucky Astrology - Taurus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846472-9780648002352-lucky-astrology-virgo/"><u>Lucky Astrology - Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664005-9781667435374-megan-fait-face-a-la-derision/"><u>Megan fait face à la dérision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663995-9781667435169-modello-di-impresa-di-noe-di-successo/"><u>Modello di Impresa di Noè DI SUCCESSO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663963-9781667439143-samen/"><u>Samen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663956-9781667439358-tipps-fur-mehr-widerstandskraft-in-stressigen-zeiten/"><u>Tipps für mehr Widerstandskraft in stressigen Zeiten | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

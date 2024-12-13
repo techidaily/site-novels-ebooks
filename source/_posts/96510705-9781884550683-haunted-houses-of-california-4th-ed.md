@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-11-30T01:41:46.929Z
-updated: 2024-12-07T00:34:04.947Z
+date: 2024-12-08T02:09:48.311Z
+updated: 2024-12-12T17:29:42.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,14 +171,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209844336-9780692747643-getting-unstuck/"><u>Getting unSTUCK | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844243-9781911159018-life-within-the-entropy-paradigm/"><u>Life Within the Entropy Paradigm: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844642-9780994505224-my-angels-connections/"><u>My Angels Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844547-9781773021225-tormented-by-ghosts/"><u>Tormented By Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844240-9780972749381-your-immortal-self/"><u>Your Immortal Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661228-9781914447624-calm-up/"><u>Calm Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661205-9798985332018-god-is-realyou-dont-even-have-to-wonder/"><u>God is REAL...You Don't Even Have to Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661125-9798885055895-grannyaeurtms-pearls-of-wisdom/"><u>GrannyaEUR(tm)s Pearls of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661060-9781953445278-rebirth/"><u>Rebirth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661179-9783950528428-the-soul-on-fire/"><u>The Soul on Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661002-9781958921081-the-way-of-inanna/"><u>The Way of Inanna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661107-9783986539078-wicca-for-beginners/"><u>WICCA FOR BEGINNERS | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

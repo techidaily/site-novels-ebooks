@@ -1,7 +1,7 @@
 ---
 title: A Traveler's Guide to the Afterlife | Free Book
-date: 2024-10-20T22:34:22.963Z
-updated: 2024-10-27T04:38:38.847Z
+date: 2024-12-07T07:15:56.662Z
+updated: 2024-12-12T22:45:55.002Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2997f5cb977545c3acdc242cbe0e9df82214ba5188dbb3c83f18c42b2aa46267.jpg
@@ -186,3 +186,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2997f5cb977545c3acdc242cbe0e9df
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210411313-9781722526986-awakened-imagination/"><u>Awakened Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411315-9781722526993-seedtime-and-harvest/"><u>Seedtime and Harvest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411314-9781722527006-the-law-and-the-promise/"><u>The Law and the Promise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411312-9781722526979-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411311-9781722526962-your-faith-is-your-fortune/"><u>Your Faith is Your Fortune | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

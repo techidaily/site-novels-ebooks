@@ -1,7 +1,7 @@
 ---
 title: The Invisible History of the Rosicrucians | Free Book
-date: 2024-10-22T16:25:58.269Z
-updated: 2024-10-26T21:28:47.000Z
+date: 2024-12-12T00:51:35.935Z
+updated: 2024-12-12T18:07:20.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4938ab57aaacf613f17e23e625248d7b6f0ac9a49be37cacbe733f85e54eddd8.jpg
@@ -185,3 +185,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4938ab57aaacf613f17e23e625248d7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210529418-9781638747628-armed-with-god/"><u>Armed with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529374-9781685171940-it-takes-two/"><u>It Takes Two | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529388-9781639039258-positives/"><u>Positives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529378-9781639610679-scattered-smothered-and-yet-covered-by-the-grace-of-god/"><u>Scattered, Smothered, and Yet Covered by the Grace of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529435-9781639035960-the-journey/"><u>The Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529162-9798885830058-the-patient-is-wearing-lipstick/"><u>The Patient Is Wearing Lipstick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529402-9781639617524-thy-will-be-done/"><u>Thy Will Be Done | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529309-9780645073287-yama-niyama/"><u>Yama Niyama | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

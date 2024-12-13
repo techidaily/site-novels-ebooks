@@ -1,7 +1,7 @@
 ---
 title: Atlantis and the Cycles of Time | Free Book
-date: 2024-10-25T04:38:24.880Z
-updated: 2024-10-27T02:44:43.024Z
+date: 2024-12-11T18:04:50.541Z
+updated: 2024-12-13T01:03:49.259Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae0d4502e81b47973ad5d50591fa2d65eb26b534a78d3bb5bcb9521cd8e98b9d.jpg
@@ -188,3 +188,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae0d4502e81b47973ad5d50591fa2d6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210500036-9780960075768-ask-the-animals-and-they-shall-teach-thee-harness-the-new-year-with-feng-shui-and-the-chinese-animals/"><u>Ask the Animals and They Shall Teach Thee Harness the New Year with Feng Shui and the Chinese Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500002-9781398818064-cheating-the-ferryman/"><u>Cheating the Ferryman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500168-9788983836328-moon-manifestation-vol-2/"><u>Moon Manifestation Vol. 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500238-9781774816899-siddhartha/"><u>Siddhartha | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Return of the Divine Sophia | Free Book
-date: 2024-10-23T18:52:19.735Z
-updated: 2024-10-27T03:07:18.093Z
+date: 2024-12-09T05:24:32.229Z
+updated: 2024-12-13T05:30:15.141Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a2f6742f00e87a41963fbca2381761d809d352d76b9b3b5ec26867fe876de95.jpg
@@ -201,3 +201,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a2f6742f00e87a41963fbca2381761
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210397538-9781787138148-cosmic-rituals/"><u>Cosmic Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397339-9781955363358-healing-in-the-workplace/"><u>Healing in the Workplace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210396427-9781087996172-on-cue/"><u>On Cue | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210396417-9781737694731-pioneering-greatness/"><u>Pioneering Greatness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397323-9781739920524-sounding-eternity/"><u>Sounding Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397706-9781098096731-the-covid-recovery/"><u>The Covid Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397327-9780645249804-universal-life-lessons-caressing-karma/"><u>UNIVERSAL LIFE LESSONS-CARESSING KARMA | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

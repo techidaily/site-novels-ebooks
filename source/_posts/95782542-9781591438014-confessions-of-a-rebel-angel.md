@@ -1,7 +1,7 @@
 ---
 title: Confessions of a Rebel Angel | Free Book
-date: 2024-10-20T01:22:05.021Z
-updated: 2024-10-26T21:42:40.913Z
+date: 2024-12-08T03:27:37.270Z
+updated: 2024-12-13T02:45:02.490Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e833a4e764c31618c6cc5e25a2f88d12ec4ad82847c1223722ab0eb57e22b93.jpg
@@ -200,3 +200,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e833a4e764c31618c6cc5e25a2f88d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210232463-9781644113172-angels-in-waiting/"><u>Angels in Waiting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232466-9781644113394-psychedelic-cannabis-2nd-ed/"><u>Psychedelic Cannabis (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232462-9781644113233-the-tree-horoscope/"><u>The Tree Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232467-9781644114179-three-books-of-occult-philosophy/"><u>Three Books of Occult Philosophy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

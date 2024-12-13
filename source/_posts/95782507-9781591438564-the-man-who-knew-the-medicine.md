@@ -1,7 +1,7 @@
 ---
 title: The Man Who Knew the Medicine | Free Book
-date: 2024-10-23T22:29:08.823Z
-updated: 2024-10-27T01:19:23.869Z
+date: 2024-12-11T19:05:48.451Z
+updated: 2024-12-12T20:19:33.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59951c02401cfd96651ee2c414073ba65b9f32bb0e5cd57015b1e9855633fded.jpg
@@ -188,3 +188,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59951c02401cfd96651ee2c414073ba
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210273354-9781634243056-a-history-of-the-goddess/"><u>A History of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275245-9781989838143-guided-meditation-for-detachment-from-overthinking-anxiety-and-depression/"><u>Guided Meditation for Detachment from Overthinking, Anxiety, and Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210274300-9781000403251-the-development-of-empathy/"><u>The Development of Empathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275097-9781589239883-the-ultimate-guide-to-astrology/"><u>The Ultimate Guide to Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273334-9781612834566-voyage-beyond-doubt/"><u>Voyage Beyond Doubt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273333-9781612834573-voyages-into-the-afterlife/"><u>Voyages into the Afterlife | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

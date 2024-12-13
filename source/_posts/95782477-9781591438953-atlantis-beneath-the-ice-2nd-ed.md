@@ -1,7 +1,7 @@
 ---
 title: Atlantis beneath the Ice (2nd ed.) | Free Book
-date: 2024-10-20T16:06:13.247Z
-updated: 2024-10-26T18:02:48.647Z
+date: 2024-12-06T21:24:08.791Z
+updated: 2024-12-13T06:02:07.775Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/01996c9c0e0fba50e7ce65e57674dcc233faad62ebf577b93bfb9add4bc07755.jpg
@@ -185,3 +185,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/01996c9c0e0fba50e7ce65e57674dcc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210250964-9781513674155-channeled-human-wisdom-for-modern-times/"><u>Channeled Human Wisdom for Modern Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250947-9781644843345-shenomenal-women/"><u>Shenomenal Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250949-9791029912214-the-corpus-hermeticum-translated/"><u>The Corpus Hermeticum (translated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250976-9781647493325-the-secret-to-perfect-living/"><u>The Secret to Perfect Living | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

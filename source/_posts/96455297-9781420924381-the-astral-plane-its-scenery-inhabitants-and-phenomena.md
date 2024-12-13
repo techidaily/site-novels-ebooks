@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-12-03T23:33:40.411Z
-updated: 2024-12-07T05:25:13.280Z
+date: 2024-12-05T22:03:51.309Z
+updated: 2024-12-12T20:31:26.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,14 +136,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210064361-9781913479213-dear-mam/"><u>Dear Mam | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210064444-9781989838495-guided-meditations-for-deep-sleep-overcoming-anxiety-mindfulness/"><u>Guided Meditations For Deep Sleep, Overcoming Anxiety& Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210064448-9781989838501-guided-meditations-bedtime-stories-hypnosis-for-deep-sleep-self-healing-anxiety-2-in-1/"><u>Guided Meditations, Bedtime Stories & Hypnosis For Deep Sleep, Self-Healing& Anxiety (2 In 1) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210064090-9781071546185-meditacion-tecnicas-de-meditacion-para-incrementar-la-energia/"><u>Meditación: Técnicas de meditación para incrementar la energía | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210064088-9781071545805-through-the-maze-of-chartres-on-the-path-to-yourself/"><u>Through the Maze of Chartres on the Path to Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791602-9780711283268-goddess-stories/"><u>Goddess Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791570-9780711288249-mindfulness-in-baking/"><u>Mindfulness in Baking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791573-9780711288201-mindfulness-in-wild-swimming/"><u>Mindfulness in Wild Swimming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791568-9780760385784-the-complete-book-of-birthdays-gift-edition/"><u>The Complete Book of Birthdays - Gift Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210792117-9780473553609-unwrap-your-dreams/"><u>Unwrap Your Dreams | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
