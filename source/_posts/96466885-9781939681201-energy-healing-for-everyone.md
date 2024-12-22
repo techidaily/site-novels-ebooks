@@ -1,7 +1,7 @@
 ---
 title: Energy Healing for Everyone | Free Book
-date: 2024-12-05T18:40:34.235Z
-updated: 2024-12-13T07:16:40.609Z
+date: 2024-12-21T03:19:52.916Z
+updated: 2024-12-22T03:25:52.772Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859a2687327012523ee141028dafe5e3e789.jpg
@@ -175,15 +175,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210827668--haunted-old-west-2nd-ed/"><u>Haunted Old West (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210827670-9781493070374-haunted-savannah-2nd-ed/"><u>Haunted Savannah (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210824190-9783988312815-hoodoo-for-beginners/"><u>HOODOO FOR BEGINNERS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210823607-9781394208609-knowledge-and-ideation/"><u>Knowledge and Ideation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210823670-9781399807371-the-knight-waite-tarot-guidebook/"><u>The Knight-Waite Tarot Guidebook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210824571-9781685680398-zakon-uspeha/"><u>Закон успеха | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402130-9780307481702-ask-the-dream-doctor/"><u>Ask the Dream Doctor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402147-9780307482495-breathwalk/"><u>Breathwalk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402155-9780307482686-casebook-alien-implants/"><u>Casebook: Alien Implants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402176-9780307483560-dark-object/"><u>Dark Object | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402268-9780307486318-instant-emotional-healing/"><u>Instant Emotional Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402387-9780307490865-she-flies-without-wings/"><u>She Flies Without Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402066-9781416587156-the-gabriel-method/"><u>The Gabriel Method | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

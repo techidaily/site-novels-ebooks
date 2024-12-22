@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Crystals, New Edition | Free Book
-date: 2024-10-20T17:55:24.062Z
-updated: 2024-10-27T04:36:17.719Z
+date: 2024-12-17T13:27:08.277Z
+updated: 2024-12-21T19:37:38.382Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/58e083804c293122a448e3747614b291d96da884af6a06b2bfe5342386970000.jpg
@@ -132,3 +132,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/58e083804c293122a448e3747614b29
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210971289-9781088237236-cadenas-del-destino/"><u>Cadenas del Destino | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971291-9781088237397-de-vuelta-al-pasado/"><u>De Vuelta al Pasado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971292-9781088240946-el-alma-de-las-cosas/"><u>EL ALMA DE LAS COSAS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971294-9781088238998-francisco-de-asis/"><u>Francisco de Asís | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971288-9781088233801-homosexualidad/"><u>Homosexualidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971286-9781088258675-isabel-de-aragon/"><u>Isabel de Aragón | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971285-9781088258903-la-sonrisa-de-piedra/"><u>La Sonrisa de Piedra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971290-9781088237557-pasion-de-primavera/"><u>Pasión de Primavera | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971297-9781088238769-yo-barrabas/"><u>Yo, Barrabás | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

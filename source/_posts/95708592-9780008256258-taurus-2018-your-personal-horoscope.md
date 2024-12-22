@@ -1,7 +1,7 @@
 ---
 title: "Taurus 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-23T16:58:29.001Z
-updated: 2024-10-26T21:31:13.783Z
+date: 2024-12-19T16:33:38.198Z
+updated: 2024-12-21T21:24:05.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3bd064117e69064c947a35d45166e0b3f36c8a89bfe8989dee0175092021525f.jpg
@@ -162,3 +162,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3bd064117e69064c947a35d45166e0b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211032827-9781250886811-enlightened/"><u>Enlightened | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211032721-9781250341617-feeling-is-the-secret/"><u>Feeling Is the Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031859-9781544542195-lovetruth/"><u>Love+Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211032781-9781250332974-the-light-work/"><u>The Light Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031878-9781732546325-the-music-of-emotion/"><u>The Music of Emotion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211032793-9781250345158-wild-willing-and-wise/"><u>Wild, Willing, and Wise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211032794-9781250342386-you-dont-have-to-do-it-alone/"><u>You Don't Have to Do It Alone | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: A Lapidary of Sacred Stones | Free Book
-date: 2024-10-24T18:02:59.541Z
-updated: 2024-10-26T21:20:26.300Z
+date: 2024-12-18T10:48:52.406Z
+updated: 2024-12-21T18:08:26.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82cdc541e8927f9be2c4bbb9d5e557332fa39097641c3f219622ddbaf9bc0900.jpg
@@ -194,3 +194,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82cdc541e8927f9be2c4bbb9d5e5573
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210866784-9780955139956-becoming-the-sexual-athlete/"><u>Becoming the Sexual Athlete | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210864932-9781088166567-greater-exploits-4-el-difunto-profeta-tb-joshua-de-la-scoan-el-difunto-profeta-tb-joshua-de-la-scoan-2nd-ed/"><u>Greater Exploits - 4 - El difunto profeta TB Joshua de la SCOAN: El difunto profeta TB Joshua de la SCOAN (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210864929-9781088167748-greater-exploits-4-o-falecido-profeta-tb-joshua-de-scoan-3rd-ed/"><u>Greater Exploits - 4 O Falecido Profeta TB Joshua de SCOAN - (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210865175-9781088141311-greater-exploits-6-perfect-testimonies-and-images-of-the-father-for-greater-exploits/"><u>Greater Exploits - 6 Perfect Testimonies and Images of The Father for Greater Exploits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210865174-9781088143032-greater-exploits-7-perfect-testimonies-and-images-of-the-son-for-greater-exploits-in-the-secret/"><u>Greater Exploits - 7 Perfect Testimonies and Images of The Son for Greater Exploits in the Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866760-9798218226107-magic-mushroom-seekers-guide-to-the-galaxy/"><u>Magic Mushroom Seekers' Guide to the Galaxy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866712-9781640085015-what-time-is-it-in-your-life-its-time-totake-back-your-power-and-testify/"><u>What Time Is It In Your Life? It's Time to...Take Back Your Power and Testify! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866914-9780008606077-you-must-be-psychic-secrets-to-unlock-your-inner-power-and-reveal-your-future/"><u>You Must Be Psychic: Secrets to unlock your inner power and reveal your future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210865164-9781960466075-koloda-taro-lenorman-znachenie/"><u>Колода Таро Ленорман Значение | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

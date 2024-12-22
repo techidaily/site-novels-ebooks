@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2024-12-05T02:23:52.722Z
-updated: 2024-12-07T05:51:40.072Z
+date: 2024-12-20T03:37:03.955Z
+updated: 2024-12-22T05:09:07.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,14 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210117957-9781632657480-captured-the-betty-and-barney-hill-ufo-experience-60th-anniversary-edition/"><u>Captured! The Betty and Barney Hill UFO Experience (60th Anniversary Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117962-9781612834658-paranormal-confessions/"><u>Paranormal Confessions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117960-9781632657428-the-ancient-alien-question-10th-anniversary-edition/"><u>The Ancient Alien Question, 10th Anniversary Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117956-9781612834665-the-shamans-book-of-living-and-dying/"><u>The Shaman's Book of Living and Dying | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117964-9781612834481-this-life-is-yours/"><u>This Life Is Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447115-9781101133255-the-complete-idiots-guide-to-connecting-with-your-angels/"><u>The Complete Idiot's Guide to Connecting with Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447096-9781101126691-the-complete-idiots-guide-to-feng-shui-3rd-edition/"><u>The Complete Idiot's Guide to Feng Shui, 3rd Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447112-9781101108604-the-secret-doctrine/"><u>The Secret Doctrine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/445261-9780974470658-the-yamas-amp-niyamas/"><u>The Yamas &amp; Niyamas | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

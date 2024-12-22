@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2024-11-29T16:29:44.912Z
-updated: 2024-12-06T22:29:13.747Z
+date: 2024-12-17T08:05:35.559Z
+updated: 2024-12-22T04:06:45.403Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,18 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210146418-9783200071933-50-shades-of-love/"><u>50 Shades of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210147609-9781528762380-a-manual-of-occultism/"><u>A Manual of Occultism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210147631-9780008438494-aries-2022-your-personal-horoscope/"><u>Aries 2022: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210147632-9780008438524-cancer-2022-your-personal-horoscope/"><u>Cancer 2022: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210146767-9781913504328-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210147634-9780008438531-leo-2022-your-personal-horoscope/"><u>Leo 2022: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210146260-9781786785251-raise-your-vibes/"><u>Raise Your Vibes! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210147633-9780008438500-taurus-2022-your-personal-horoscope/"><u>Taurus 2022: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210146657-9780646819150-the-book-of-life/"><u>The Book of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/593511-9781101486474-a-book-of-angels/"><u>A Book of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/591784-9781442998391-eternity-and-me/"><u>Eternity and Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/595924-9781429940658-journey-to-the-light/"><u>Journey to the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/591787-9781458700131-path-of-the-pearl/"><u>Path of the Pearl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/593473-9781101486337-the-art-of-intuition/"><u>The Art of Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/594280-9781451611625-the-book-of-light/"><u>The Book of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/591955-9781442999336-towards-the-light/"><u>Towards the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/592148-9781442998315-why-am-i-so-tired/"><u>Why Am I So Tired? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

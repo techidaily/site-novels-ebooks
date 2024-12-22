@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-12-10T07:07:28.561Z
-updated: 2024-12-12T17:57:38.270Z
+date: 2024-12-21T10:53:38.322Z
+updated: 2024-12-22T00:49:00.731Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,16 +162,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210829648-9781398834682-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210829857-9781722527853-dick-sutphens-wisdom/"><u>Dick Sutphen's Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210829892-9781977234261-riding-with-ghosts-angels-and-the-spirits-of-the-dead/"><u>Riding with Ghosts, Angels, and the Spirits of the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210828084-9781960159786-sigue-adelante/"><u>Sigue Adelante | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210829181-9781623177768-the-road-to-eleusis/"><u>The Road to Eleusis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210827957-9781640285316-voices-bumps-thumps-and-jumps/"><u>Voices, Bumps, Thumps, and Jumps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210828188-9780525507475-when-things-dont-go-your-way/"><u>When Things Don't Go Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/406684-9780307482785-childrens-past-lives/"><u>Children's Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407134-9780307559517-sacred-woman/"><u>Sacred Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407269-9780307553478-the-celtic-way-of-prayer/"><u>The Celtic Way of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402458-9780307484703-the-fatima-secret/"><u>The Fatima Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407149-9780307559555-the-secret-language-of-signs/"><u>The Secret Language of Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402547-9780307492272-ufo-briefing-document/"><u>UFO Briefing Document | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

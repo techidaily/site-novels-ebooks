@@ -1,7 +1,7 @@
 ---
 title: Demons and Spirits of the Land | Free Book
-date: 2024-10-25T21:24:53.471Z
-updated: 2024-10-27T03:58:00.721Z
+date: 2024-12-15T12:08:01.498Z
+updated: 2024-12-22T10:31:01.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cfee89035379a9fd40fb28e17dc963fc00b7c3a2f680997bcf22553056d5d05.jpg
@@ -203,3 +203,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cfee89035379a9fd40fb28e17dc963
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877314-9781632657893-exploring-candle-magick/"><u>Exploring Candle Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877315-9781632657961-raising-witches/"><u>Raising Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877316-9781632658852-the-ghost-studies/"><u>The Ghost Studies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877318-9781632658135-the-mysteries-of-druidry/"><u>The Mysteries of Druidry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877293-9781632657381-the-physics-of-god/"><u>The Physics of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877310-9781632658845-the-secret-language-of-spirit/"><u>The Secret Language of Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877297-9781612834436-wild-wisdom/"><u>Wild Wisdom | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

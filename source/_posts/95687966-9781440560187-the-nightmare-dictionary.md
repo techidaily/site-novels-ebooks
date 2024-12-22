@@ -1,7 +1,7 @@
 ---
 title: The Nightmare Dictionary | Free Book
-date: 2024-10-19T18:23:06.453Z
-updated: 2024-10-26T17:51:35.173Z
+date: 2024-12-17T05:15:17.788Z
+updated: 2024-12-21T21:59:35.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3949dd9c9da9eafdebd3e6221f9a95f02c71d8dc15ba52316bf030c6664e53a.jpg
@@ -158,3 +158,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3949dd9c9da9eafdebd3e6221f9a95
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211165210-9798989500406-aliens-are-with-us/"><u>Aliens Are With Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165297-9781925370379-crossing-the-bridge-to-animal-consciousness/"><u>Crossing the Bridge to Animal Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165224-9781961959002-karmic-astrology/"><u>Karmic Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165231-9798868931642-packing-up/"><u>Packing Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166028-9798989182770-the-bible-30-the-6-commandments-of-the-chosen-life/"><u>The Bible 3.0, The 6 Commandments of the Chosen Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166421-9780760391303-the-crystal-companion/"><u>The Crystal Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165256-9781922954633-the-other-side-of-the-looking-glass/"><u>The Other Side of the Looking Glass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166420-9780760391327-the-wheel-of-the-year-companion/"><u>The Wheel of the Year Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165281-9798985566772-the-willingness-muscle/"><u>The Willingness Muscle | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2024-12-08T07:54:27.162Z
-updated: 2024-12-13T00:00:30.730Z
+date: 2024-12-21T02:44:17.989Z
+updated: 2024-12-22T10:31:04.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,13 +178,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210822908-9781088118030-four-citadels-the-key-of-twelve/"><u>FOUR CITADELS & THE KEY OF TWELVE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210823529-9783988263049-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-rites-and-ist-mysteries/"><u>The History of Magic Including a Clear and Precise Exposition of its Rites and ist Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210822443-9798886857399-what-are-your-hands-doing/"><u>What Are Your Hands Doing? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210822954-9781960466051-budushee/"><u>Будущее | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401530-9780446554596-staying-well-with-guided-imagery/"><u>Staying Well With Guided Imagery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401606-9780316049238-the-dream-book/"><u>The Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401609-9780446549349-the-eagle-and-the-rose/"><u>The Eagle and the Rose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401624-9780316186841-the-gift-of-nothing/"><u>The Gift of Nothing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401632-9780316045667-the-good-spell-book/"><u>The Good Spell Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401658-9780316055017-the-love-magic-book/"><u>The Love Magic Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401662-9780446549486-the-merciful-god-of-prophecy/"><u>The Merciful God of Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401749-9780446554695-unsolved-ufo-mysteries/"><u>Unsolved UFO Mysteries | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2024-12-08T00:43:03.224Z
-updated: 2024-12-13T07:46:47.346Z
+date: 2024-12-17T03:59:10.738Z
+updated: 2024-12-21T18:37:31.609Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,14 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210648160-9781631958397-a-book-about-you/"><u>A Book About YOU | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210646868-9781608688449-hagitude/"><u>Hagitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648314-9781087748085-lo-que-dios-dice-sobre-nuestros-cuerpos/"><u>Lo que Dios dice sobre nuestros cuerpos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648003-9781684931033-the-man-who-tapped-the-secrets-of-the-universe/"><u>The Man Who Tapped the Secrets of the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210646477-9781493063420-witches-and-warlocks-of-new-york/"><u>Witches and Warlocks of New York | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388774-9781763606517-a-mediums-story/"><u>A Medium's Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211387637-9783964465412-beaucoup-beaucoup-de-vie/"><u>Beaucoup, beaucoup de Vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211387682-9783689442132-beginners-guide-to-chakras/"><u>BEGINNER'S GUIDE TO CHAKRAS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388676-9781778310577-dreams-dangers/"><u>Dreams & Dangers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211387800--pure-human/"><u>Pure Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388691-9798894581071-subconscious-mind/"><u>Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388232-9781446312193-the-healing-power-of-sound/"><u>The Healing Power of Sound | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

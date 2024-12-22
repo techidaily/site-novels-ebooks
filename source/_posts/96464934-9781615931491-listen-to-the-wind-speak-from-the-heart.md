@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2024-12-10T19:48:08.873Z
-updated: 2024-12-13T05:15:49.395Z
+date: 2024-12-20T19:32:45.388Z
+updated: 2024-12-22T07:19:43.351Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,13 +147,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210812691-9781803411590-atlantis-and-gaia/"><u>Atlantis and Gaia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210812257-9780593496688-on-thriving/"><u>On Thriving | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210812692-9781803412306-pagan-portals-where-fairies-meet/"><u>Pagan Portals - Where Fairies Meet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210812696-9781803411521-the-afterlife-a-journey-to/"><u>The Afterlife - A Journey to | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339707-9780307414755-christmas-conversation-piece/"><u>Christmas Conversation Piece | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339630-9780307415202-everyday-karma/"><u>Everyday Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339623-9780307415417-have-you-ever/"><u>Have You Ever... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/339615-9780307415646-if-volume-4/"><u>If..., Volume 4 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

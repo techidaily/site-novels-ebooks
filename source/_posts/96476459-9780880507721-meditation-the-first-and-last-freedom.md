@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2024-12-10T16:19:26.156Z
-updated: 2024-12-13T04:38:20.233Z
+date: 2024-12-20T18:37:21.697Z
+updated: 2024-12-21T17:44:13.006Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,15 +175,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210768182-9781646999996-curso-de-astrologia-china/"><u>Curso de astrología china | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768181-9781646999989-el-feng-shui-lleve-la-buena-suerte-a-su-hogar/"><u>El Feng Shui. Lleve la buena suerte a su hogar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768207-9781639190058-el-libro-de-los-suenos-conozcase-a-traves-de-sus-suenos/"><u>El libro de los sueños. Conózcase a través de sus sueños | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768203-9781639190133-i-ching-consult-the-oldest-oracle/"><u>I Ching. Consult the oldest oracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768200-9781646999958-i-ching-consulte-el-antiguo-oraculo/"><u>I Ching. Consulte el antiguo oráculo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768210-9781639190065-las-runas-consulte-el-antiguo-oraculo/"><u>Las Runas. Consulte el antiguo oráculo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260638-9781101218945-phenomenon/"><u>Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260660-9781101210321-prophecy/"><u>Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2608950-9780553419627-surviving-death/"><u>Surviving Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260769-9781101209738-sylvia-brownes-book-of-dreams/"><u>Sylvia Browne's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260773-9781101217313-taming-the-tiger-within/"><u>Taming the Tiger Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260865-9781101210550-the-new-american-dream-dictionary/"><u>The New American Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260889-9781101204238-the-science-of-vampires/"><u>The Science of Vampires | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

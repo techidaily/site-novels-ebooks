@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2024-12-05T17:01:09.743Z
-updated: 2024-12-13T02:47:50.215Z
+date: 2024-12-15T11:11:09.635Z
+updated: 2024-12-22T13:48:18.521Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,14 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210668449-9781948302463-anthroposophical-guidelines/"><u>Anthroposophical Guidelines | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668473-9781684931064-the-sacred-magic-of-the-qabbalah/"><u>The Sacred Magic of the Qabbalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668472-9781684931118-the-ways-of-the-lonely-ones/"><u>The Ways of the Lonely Ones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668761-9780578920917-what-would-love-say-today/"><u>What Would Love Say Today? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668774-9798885830744-you-are-more-than-your-score/"><u>You Are More Than Your Score | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433433-9781250237019-hundred/"><u>Hundred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433934-9781803410272-pagan-portals-sulis/"><u>Pagan Portals - Sulis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433350-9781466835870-the-presidents-and-ufos/"><u>The Presidents and UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433613-9781429924580-trucker-ghost-stories/"><u>Trucker Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433718-9781429953962-ufo-hunters-hoax-or-history/"><u>UFO Hunters: Hoax or History? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433699-9781466882553-zodiac-spells/"><u>Zodiac Spells | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

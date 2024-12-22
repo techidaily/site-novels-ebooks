@@ -1,7 +1,7 @@
 ---
 title: The James Allen Collection | Free Book
-date: 2024-10-22T03:21:38.257Z
-updated: 2024-10-26T23:52:13.686Z
+date: 2024-12-16T11:40:56.000Z
+updated: 2024-12-22T12:06:06.821Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e223d0b046cad8fd848c6d69fa4462cd2151e0c95ae751b6107c667db892472a.jpg
@@ -141,3 +141,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e223d0b046cad8fd848c6d69fa4462c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932922-9781855843448-breathing-the-spirit/"><u>Breathing the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932933-9781855844667-concerning-the-affinity-of-the-living-and-the-dead/"><u>Concerning The Affinity of The Living And The Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932934-9781855843103-manifestations-of-karma/"><u>Manifestations of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932932-9781855843578-nature-spirits/"><u>Nature Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932938-9781912992133-nature-spirits-and-what-they-say/"><u>Nature Spirits and What They Say | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932928-9781855842922-on-fear/"><u>On Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932939-9781855842809-strengthening-the-will/"><u>Strengthening the Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932923-9781912992249-the-lucifer-deception/"><u>The Lucifer Deception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932941-9781855844308-transforming-the-soul-volume-1/"><u>Transforming The Soul: Volume 1 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

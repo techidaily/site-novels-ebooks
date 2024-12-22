@@ -1,7 +1,7 @@
 ---
 title: "Pisces 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-23T20:26:13.025Z
-updated: 2024-10-27T03:23:00.341Z
+date: 2024-12-15T02:58:04.274Z
+updated: 2024-12-21T17:29:17.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b7f1e3746a7dd4be9a73cf19e5f2a27ac66ab710746e6551d70a61020e7a8b4c.jpg
@@ -162,3 +162,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b7f1e3746a7dd4be9a73cf19e5f2a27
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211066240-9789359043739-new-lands/"><u>New Lands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066241-9789359043531-the-book-of-dreams-and-ghosts/"><u>The Book of Dreams and Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066228-9789359043333-the-omega-file/"><u>The Omega File | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066234-9789359046501-the-voice-of-eros/"><u>The Voice of Eros | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066207-9789359043692-the-voice-of-venus/"><u>The Voice of Venus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066202-9789359046563-through-the-gates-of-death/"><u>Through the Gates of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066221-9789358059939-witchcraft-of-new-england-explained-by-modern-spiritualism/"><u>Witchcraft of New England Explained by Modern Spiritualism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

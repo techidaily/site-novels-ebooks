@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-10-22T00:30:00.468Z
-updated: 2024-10-27T05:52:38.172Z
+date: 2024-12-19T11:41:12.361Z
+updated: 2024-12-22T01:48:21.807Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8d911b8984c7f66b77502078cc88c8b4a13fcd1013b1e12092af58918bd1872.jpg
@@ -141,3 +141,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8d911b8984c7f66b77502078cc88c8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211256860-9798890613424-do-you-know-who-you-really-are/"><u>Do You Know Who You Really Are? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211256560--everyday-awakening/"><u>Everyday Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211256054--mindfulness-in-reading/"><u>Mindfulness in Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211256052--practical-symbols/"><u>Practical Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211255848-9798890417411-the-sacred-cow-free-devotionals-volume-5/"><u>The Sacred Cow Free Devotionals Volume 5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211256126-9798869228000-vedic-hymns/"><u>Vedic Hymns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211257227-9789948764816-rsal-ln-tsl/"><u>رسائل لن تصل | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

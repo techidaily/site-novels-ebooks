@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - By Wolfsbane & Mandrake Root | Free Book
-date: 2024-10-20T05:28:05.362Z
-updated: 2024-10-26T20:11:35.623Z
+date: 2024-12-16T04:24:30.910Z
+updated: 2024-12-22T08:12:12.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03ed8a4a4906618a4f150ce8127b2c512246fe62616d41b4539e68564f5b10cd.jpg
@@ -132,3 +132,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03ed8a4a4906618a4f150ce8127b2c5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211122628-9782889702084-lamour-est-dans-les-lignes-de-la-main-decouvrir-la-chiromancie/"><u>L'amour est dans les lignes de la main : Découvrir la chiromancie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122653-9782889702091-sepanouir-avec-la-lune/"><u>S'épanouir avec la lune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122822-9781684987061-soma/"><u>Soma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211115698-9781837822430-the-joy-of-actually-giving-a-fck/"><u>The Joy of Actually Giving a F*ck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211120296-9781952943287-the-peaceful-warriors-path/"><u>The Peaceful Warriors Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211115701--the-sun-my-heart/"><u>The Sun My Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122682-9781398838130-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

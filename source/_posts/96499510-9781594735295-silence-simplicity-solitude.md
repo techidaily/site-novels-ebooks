@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2024-12-11T18:51:02.909Z
-updated: 2024-12-13T08:31:16.967Z
+date: 2024-12-17T10:49:11.690Z
+updated: 2024-12-22T09:26:23.385Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,15 +145,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210662631-9781633412958-heal-the-witch-wound/"><u>Heal the Witch Wound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662633-9781633412934-the-complete-enochian-dictionary/"><u>The Complete Enochian Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662638-9781633412941-the-evil-eye/"><u>The Evil Eye | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662635-9781633413009-the-treadwells-book-of-plant-magic/"><u>The Treadwell's Book of Plant Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662636-9781633412903-the-ufo-experience/"><u>The UFO Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662634-9781633412965-uncharted/"><u>Uncharted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211420177-9781763601116-from-pain-to-possibility/"><u>From Pain To Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211419457-9798330301133-the-next-step/"><u>The Next Step | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211420118-9798822949546-the-tao-of-ufo/"><u>The Tao of UFO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211419397-9798987674925-the-third-part/"><u>The Third Part | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

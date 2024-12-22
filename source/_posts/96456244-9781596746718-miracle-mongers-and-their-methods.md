@@ -1,7 +1,7 @@
 ---
 title: Miracle Mongers and Their Methods | Free Book
-date: 2024-12-07T23:19:36.312Z
-updated: 2024-12-12T18:33:33.193Z
+date: 2024-12-17T10:19:13.602Z
+updated: 2024-12-22T10:58:11.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e18e749e6e3e5ddec50f37fe4245221bc77.jpg
@@ -148,16 +148,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210800695-9781955811408-born-to-rise/"><u>Born to Rise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800693-9783988312037-crystals-healing-for-beginners/"><u>Crystals Healing for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800701-9781399949569-fear-not-the-spiritual-truth/"><u>Fear not the Spiritual Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800686-9781958082416-gods-gracious-glory/"><u>God's Gracious Glory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800683-9781958434826-musings-of-a-mad-scientist/"><u>Musings of a Mad Scientist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800704-9781959682547-outrageous-fortune/"><u>Outrageous Fortune | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800396-9781959254010-present-moment-awareness-4th-ed/"><u>Present Moment Awareness (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/295380--buddhism-for-busy-people-2nd-ed/"><u>Buddhism for Busy People (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/295843-9780553904505-cosmic-love/"><u>Cosmic Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/296566-9781416565420-epiphanies/"><u>Epiphanies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/297427-9780553904925-new-moon-astrology/"><u>New Moon Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/302310-9781416565437-ocean-oracle/"><u>Ocean Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/301647--tarot-masterclass/"><u>Tarot Masterclass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/301300-9781416545224-the-energy-healing-experiments/"><u>The Energy Healing Experiments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/292630-9781416561958-the-heart-of-the-soul/"><u>The Heart of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/295024-9781416561934-the-seat-of-the-soul/"><u>The Seat of the Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

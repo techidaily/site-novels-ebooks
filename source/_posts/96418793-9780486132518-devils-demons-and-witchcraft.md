@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2024-11-30T00:55:54.909Z
-updated: 2024-12-07T01:44:31.218Z
+date: 2024-12-20T02:50:38.425Z
+updated: 2024-12-21T21:40:13.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,14 +164,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210127780-9781761035470-desarrollo-de-las-habilidades-psiquicas/"><u>Desarrollo de las Habilidades Psíquicas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127374-9781789046373-how-to-lead-a-badass-business-from-your-heart/"><u>How to Lead a Badass Business From Your Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127709-9782824633855-les-secrets-du-voyage-astral/"><u>Les secrets du voyage astral | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127370-9781506460468-the-ancient-way-discoveries-on-the-path-of-celtic-christianity/"><u>The Ancient Way: Discoveries on the Path of Celtic Christianity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127799-9781087915005-to-hell-with-corona/"><u>TO HELL WITH CORONA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/480049-9781101195840-conquer-the-cosmos/"><u>Conquer the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484469-9780307555342-conscious-dreaming/"><u>Conscious Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484204-9780307555571-how-to-defend-yourself-against-alien-abduction/"><u>How to Defend Yourself Against Alien Abduction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/480123-9781580911993-the-big-little-book-of-magick/"><u>The Big Little Book of Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/483989-9780307433787-the-feminine-face-of-god/"><u>The Feminine Face of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484156-9780307434524-the-other-90/"><u>The Other 90% | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484149-9780307560797-true-balance/"><u>True Balance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475346-9781458711359-understanding-our-mind/"><u>Understanding Our Mind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

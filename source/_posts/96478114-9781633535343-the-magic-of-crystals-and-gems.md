@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2024-12-09T03:02:47.755Z
-updated: 2024-12-13T01:14:08.926Z
+date: 2024-12-17T00:24:55.406Z
+updated: 2024-12-21T18:37:04.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,15 +181,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761578-9781683642954-just-so/"><u>Just So | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761574-9781683642077-pause-breathe-smile/"><u>Pause, Breathe, Smile | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761561-9781683641506-the-book-of-ceremony/"><u>The Book of Ceremony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761580-9781683643180-the-deep-heart/"><u>The Deep Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761582-9781683643210-the-karma-of-cats/"><u>The Karma of Cats | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761577-9781683642336-the-way-of-effortless-mindfulness/"><u>The Way of Effortless Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2529743-9780811743082-haunted-northern-california/"><u>Haunted Northern California | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2529808-9780811759021-haunted-oregon/"><u>Haunted Oregon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2529734-9780811741941-monsters-of-new-jersey/"><u>Monsters of New Jersey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2529773-9780811745789-new-jersey-ghost-towns/"><u>New Jersey Ghost Towns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2529807-9781493043996-the-big-book-of-west-virginia-ghost-stories/"><u>The Big Book of West Virginia Ghost Stories | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

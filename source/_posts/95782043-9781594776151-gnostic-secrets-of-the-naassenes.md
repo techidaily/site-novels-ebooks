@@ -1,7 +1,7 @@
 ---
 title: Gnostic Secrets of the Naassenes | Free Book
-date: 2024-10-20T00:40:20.595Z
-updated: 2024-10-26T18:58:42.749Z
+date: 2024-12-20T19:56:53.524Z
+updated: 2024-12-21T21:40:31.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d53f75ce2d9104cac5d1b9c264b0f8ce14126c80ede894323ae498f08f0490ae.jpg
@@ -181,3 +181,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d53f75ce2d9104cac5d1b9c264b0f8c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932682-9781855843202-calendar-of-the-soul/"><u>Calendar of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932678-9781912230631-experiences-from-the-threshold-and-beyond/"><u>Experiences from the Threshold and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932683-9781905570539-light-beyond-the-darkness/"><u>Light Beyond the Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932671-9781855844650-on-the-connection-of-the-living-and-the-dead/"><u>On The Connection of The Living And The Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932681-9781855844773-the-electronic-doppelganger/"><u>The Electronic Doppelganger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932631-9781855844292-the-karma-of-anthroposophy/"><u>The Karma of Anthroposophy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The World Is Great, and I Am Small | Free Book
-date: 2024-10-24T02:47:34.841Z
-updated: 2024-10-27T01:15:16.465Z
+date: 2024-12-15T07:25:27.891Z
+updated: 2024-12-22T11:33:06.778Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/670a18cdf1959bd9bdbb75f6ee4bad8074b55211fafb6d371fa3f95f615642d8.jpg
@@ -142,3 +142,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/670a18cdf1959bd9bdbb75f6ee4bad8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211107425-9781667463254-7-super-maneiras-de-moldar-a-realidade/"><u>7 Super Maneiras de Moldar a Realidade | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107214-9782017230281-attendez-vous-a-un-miracle/"><u>Attendez-vous à un miracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107309-9781667463087-ayurveda/"><u>Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107406-9781667462530-la-genese-hermetique/"><u>La Genèse Hermétique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107452-9781667463261-ovnis-na-biblia/"><u>Ovnis na Bíblia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107230-9782017229810-prieres-des-anges/"><u>Prières des Anges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107348-9781667463513-ufos-in-der-bibel/"><u>UFOs in der Bibel | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

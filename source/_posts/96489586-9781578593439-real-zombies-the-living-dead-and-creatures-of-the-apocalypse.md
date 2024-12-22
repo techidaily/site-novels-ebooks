@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-12-05T17:20:53.126Z
-updated: 2024-12-12T16:52:50.478Z
+date: 2024-12-20T09:07:47.980Z
+updated: 2024-12-22T08:13:30.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,14 +236,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210718636-9781784979744-calling-us-home/"><u>Calling Us Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717976-9781789048063-simply-be-more/"><u>Simply Be More | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717977-9781803410111-surfing-the-galactic-highways/"><u>Surfing the Galactic Highways | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717974-9781803410456-the-ripple-of-awakening/"><u>The Ripple of Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210717980-9781803410753-to-sing-with-bards-and-angels/"><u>To Sing with Bards and Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2209040-9780007348534-an-angel-held-my-hand/"><u>An Angel Held My Hand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2209433-9780007372164-an-angel-saved-my-life/"><u>An Angel Saved My Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208868-9780007343775-an-angel-set-me-free/"><u>An Angel Set Me Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2209197-9780007357086-the-element-encyclopedia-of-20000-dreams/"><u>The Element Encyclopedia of 20,000 Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2209083-9780007350674-unlocking-the-masonic-code-the-secrets-of-the-solomon-key/"><u>Unlocking the Masonic Code: The Secrets of the Solomon Key | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208857-9780007374823-your-chinese-horoscope-2011/"><u>Your Chinese Horoscope 2011 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208771-9780007330737-your-personal-horoscope-2010-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2010: Month-by-month Forecasts for Every Sign | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

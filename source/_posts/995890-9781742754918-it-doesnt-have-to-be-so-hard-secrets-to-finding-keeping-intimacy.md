@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-12-09T02:33:06.383Z
-updated: 2024-12-13T02:56:15.724Z
+date: 2024-12-17T22:29:11.288Z
+updated: 2024-12-21T20:51:34.911Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,18 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210539579-9781447482840-a-dialogue-concerning-witches-and-witchcrafts/"><u>A Dialogue Concerning Witches and Witchcrafts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210538733-9781984861979-how-to-manifest/"><u>How to Manifest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210540101-9781447488583-practical-mysticism-a-little-book-for-normal-people/"><u>Practical Mysticism - A Little Book for Normal People | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210541149-9781957869049-queering-psychedelics/"><u>Queering Psychedelics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210539866-9781447499275-recovering-the-ancient-magic/"><u>Recovering the Ancient Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210538707-9781952692345-the-bodhisattva-path/"><u>The Bodhisattva Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210539385-9781473385641-the-gypsy-queen-dream-book-and-fortune-teller-divination-series/"><u>The Gypsy Queen Dream Book and Fortune Teller (Divination Series) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210540356-9781473361843-the-kybalion-a-study-of-the-hermetic-philosophy-of-ancient-egypt-and-greece/"><u>The Kybalion - A Study of the Hermetic Philosophy of Ancient Egypt and Greece | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210539279-9781446549483-witchcraft-and-witchcraft-trials-in-orkney-and-shetland-folklore-history-series/"><u>Witchcraft and Witchcraft Trials in Orkney and Shetland (Folklore History Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333818-9781803414393-crystal-creed/"><u>Crystal Creed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332763-9789362619792-divine-timing-oracle-guidebook-unlocking-the-tapestry-of-time/"><u>Divine Timing Oracle Guidebook (Unlocking the Tapestry of Time! ) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211334066-9798893331561-god-doesnt-do-evil-that-good-may-come/"><u>God Doesn't Do Evil That Good May Come | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332780-9798893810240-just-when-you-thought-you-knew/"><u>Just When You Thought You Knew | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333826-9781803418094-kitchen-witchcraft-moon-magic/"><u>Kitchen Witchcraft & Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333815-9781803412139-sacred-bones-magic-bones/"><u>Sacred Bones, Magic Bones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333816-9781803413143-the-science-of-sound/"><u>The Science of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332902-9789362610744-yeshustan-living-a-heavenly-life/"><u>Yeshustan Living A Heavenly Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332532-9798869177605-hvkhrz-khmt-l-45-dkvt-mh-hv-rh-vykh-zh-ynh-t-hyyv-lntsh-hvvyh-l-krvv-lmvvt-nde/"><u>הוכרז כמת ל -45 דקות - מה שהוא ראה ואיך זה שינה את חייו לנצח - חוויה של קרוב למוות (NDE) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

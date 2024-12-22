@@ -1,7 +1,7 @@
 ---
 title: The Supernatural Guide to the Other Side | Free Book
-date: 2024-10-21T01:10:06.478Z
-updated: 2024-10-26T19:18:57.584Z
+date: 2024-12-17T22:59:55.552Z
+updated: 2024-12-22T08:48:37.079Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bd7bbfef3432b92185e069493dae555dadd2006a9b5f28b8ab3b75cb5268878.jpg
@@ -167,3 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bd7bbfef3432b92185e069493dae55
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211013581-9781644119181-astrology-of-the-shadow-self/"><u>Astrology of the Shadow Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013582-9781644119228-coma-and-near-death-experience/"><u>Coma and Near-Death Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013579-9781644118917-healing-wisdom-from-the-afterlife/"><u>Healing Wisdom from the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013584-9781644119419-lessons-from-the-afterlife/"><u>Lessons from the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013578-9781644118634-the-occult-sylvia-plath/"><u>The Occult Sylvia Plath | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Strong Eye of Shamanism | Free Book
-date: 2024-10-23T05:20:54.854Z
-updated: 2024-10-27T03:57:31.344Z
+date: 2024-12-21T03:00:12.988Z
+updated: 2024-12-21T18:22:23.516Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62311d2cc79e9f78315879d09e842c338218e713b2c13254cac26d34f19c4833.jpg
@@ -211,3 +211,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62311d2cc79e9f78315879d09e842c3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877094-9781601635662-celtic-lore-legend/"><u>Celtic Lore & Legend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877106-9781601635327-pleiadian-principles-for-living/"><u>Pleiadian Principles for Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877080-9781601634399-the-akashic-records/"><u>The Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877100-9781601635822-the-lost-civilization-enigma/"><u>The Lost Civilization Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877101-9781601635808-this-book-is-from-the-future/"><u>This Book is from the Future | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

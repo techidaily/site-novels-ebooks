@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2024-12-08T17:53:30.925Z
-updated: 2024-12-13T04:50:51.193Z
+date: 2024-12-20T07:27:58.490Z
+updated: 2024-12-21T23:18:51.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,16 +170,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762239-9781786857361-calm/"><u>Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762244-9781786853875-dont-panic/"><u>Don't Panic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762283-9781786850973-find-calm/"><u>Find Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762238-9781786857392-happiness/"><u>Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762277-9781786850881-project-happiness/"><u>Project Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762257-9781786851307-the-little-book-of-astrology/"><u>The Little Book of Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762290-9781783727308-the-little-book-of-comfort/"><u>The Little Book of Comfort | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593832-9781683250234-aries/"><u>Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593836-9781683250272-cancer/"><u>Cáncer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593840-9781683250319-escorpio/"><u>Escorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593835-9781683250265-geminis/"><u>Géminis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593837-9781683250289-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593810-9781683250012-nombres-signos-zodiacales/"><u>Nombres & signos zodiacales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2591651-9780861717330-now/"><u>NOW! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593838-9781683250296-virgo/"><u>Virgo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

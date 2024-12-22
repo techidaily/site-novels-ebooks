@@ -1,7 +1,7 @@
 ---
 title: In the Company of Sages (2nd ed.) | Free Book
-date: 2024-10-22T20:16:39.154Z
-updated: 2024-10-27T02:52:02.180Z
+date: 2024-12-17T08:20:53.129Z
+updated: 2024-12-22T06:47:17.116Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38412d7841c101b541b7279a28ad027e8ed606d3602979afec2198fa1b3dabda.jpg
@@ -195,3 +195,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38412d7841c101b541b7279a28ad027
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877161-9781609251437-qbl/"><u>Q.B.L. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877168-9781609250225-serpent-of-light/"><u>Serpent of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877166-9781609252366-spirit-allies/"><u>Spirit Allies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877171-9781609252915-the-demon-lover/"><u>The Demon Lover | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877162-9781609251772-the-golden-builders/"><u>The Golden Builders | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877175-9781609253936-the-luminaries/"><u>The Luminaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877169-9781609253592-the-secrets-of-doctor-taverner/"><u>The Secrets of Doctor Taverner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877164-9781609252359-twenty-five-doors-to-meditation/"><u>Twenty-Five Doors to Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877167-9781609252267-vedic-astrology/"><u>Vedic Astrology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

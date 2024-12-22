@@ -1,7 +1,7 @@
 ---
 title: "Love Astrology: Sagittarius | Free Book"
-date: 2024-10-22T21:44:12.342Z
-updated: 2024-10-26T17:12:32.606Z
+date: 2024-12-20T08:14:11.306Z
+updated: 2024-12-21T19:16:37.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/258e4909192f8dd5a7aa2d93714c9320fc0102d13f390ac552a4fb9e5e9a080c.jpg
@@ -146,3 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/258e4909192f8dd5a7aa2d93714c932
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211111938-9781088094778-el-aprendiz-de-la-ley-del-amor/"><u>El Aprendiz de la Ley del Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211111965-9798988507000-innermore/"><u>Innermore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211111803-9783988318985-the-art-of-self-control/"><u>The Art Of Self Control | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211111976-9798989232208-the-innerground-railroad/"><u>The InnerGround Railroad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211111906-9781544544410-your-brain-weighs-500-pounds/"><u>Your Brain Weighs 500 Pounds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112006-9781088104194-your-life-in-heaven-marriage-family-sex-work/"><u>Your Life in Heaven. Marriage, Family, Sex, Work | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

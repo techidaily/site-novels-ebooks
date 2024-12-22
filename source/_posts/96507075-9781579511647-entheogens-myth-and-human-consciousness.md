@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-12-09T19:24:52.230Z
-updated: 2024-12-12T23:10:40.771Z
+date: 2024-12-20T01:30:01.260Z
+updated: 2024-12-22T13:20:27.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,16 +246,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210655605-9781454942160-1001-tarot-spreads/"><u>1001 Tarot Spreads | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655610-9781454942566-the-holistic-witch/"><u>The Holistic Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655590-9781454940838-wicca-book-of-spells/"><u>Wicca Book of Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655596-9781454941019-wicca-crystal-magic/"><u>Wicca Crystal Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655591-9781454941033-wicca-essential-oils-magic/"><u>Wicca Essential Oils Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655597-9781454941064-wicca-herbal-magic/"><u>Wicca Herbal Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655599-9781454941101-wicca-year-of-magic/"><u>Wicca Year of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400637-9798894581354-dating/"><u>Dating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211401434-9781786851031-live-better/"><u>Live Better | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403675-9781396326332-max-heindels-letters-to-students/"><u>Max Heindel's Letters to Students | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211402844-9783989734258-the-case-against-spiritualism/"><u>The Case Against Spiritualism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403960-9781958997826-the-disciples-manual/"><u>The Disciples Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403202--the-golden-grimoire/"><u>The Golden Grimoire | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

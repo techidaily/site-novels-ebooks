@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2024-12-08T01:49:35.605Z
-updated: 2024-12-13T06:41:38.966Z
+date: 2024-12-21T10:18:41.642Z
+updated: 2024-12-22T11:57:40.687Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,14 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210670779-9798218075217-12-ancient-doorways-to-freedom/"><u>12 Ancient Doorways to Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210672683-9781608688135-angel-wealth-magic/"><u>Angel Wealth Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210672286-9782226475763-les-cles-de-lesoterisme-divination/"><u>Les Clés de l'ésotérisme - Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210670535-9781958066072-light-of-the-desert/"><u>Light Of The Desert | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210670490-9781958678930-morning-star/"><u>Morning Star | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436143-9780990363156-calamitys-compass/"><u>Calamity's Compass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436288-9781800653931-crystals-for-everyday-living/"><u>Crystals for Everyday Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435748-9798893910254-know-his-word-bible-study/"><u>Know His Word Bible Study | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436289-9781800653948-magick-for-transformation/"><u>Magick for Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436863-9782017289739-oracle-de-lame/"><u>Oracle de l'âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436055-9798330284610-pearls-on-a-string/"><u>Pearls On A String | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436637-9798330338979-quien-mas-sabe-puede-mucho-quien-puede-ama-mas/"><u>Quien más sabe puede mucho. Quien puede ama más. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436114-9781396325656-the-rosicrucian-mysteries/"><u>The Rosicrucian Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436107-9781958997987-walking-on-water/"><u>Walking on Water | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

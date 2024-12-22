@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-12-10T05:04:12.040Z
-updated: 2024-12-13T04:44:04.830Z
+date: 2024-12-16T01:09:12.059Z
+updated: 2024-12-22T03:51:20.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,18 +143,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210534602-9781667426839-donneio-vi-amo/"><u>Donne...io vi amo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534085-9781638605171-finding-the-right-direction-4-success/"><u>Finding the Right Direction 4 Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534905-9781447482116-fortune-telling-by-playing-cards-containing-information-on-card-reading-divination-the-tarot-and-other-aspects-of-fortune-telling/"><u>Fortune Telling by Playing Cards - Containing Information on Card Reading, Divination, the Tarot and Other Aspects of Fortune Telling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534056-9781638855651-phineas-parkhurst-quimby/"><u>PHINEAS PARKHURST QUIMBY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534058-9781684810802-quiet-mind/"><u>Quiet Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534146-9781644845295-regenerate-your-reality/"><u>Regenerate Your Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534169-9781761038358-the-dream-dictionary/"><u>The Dream Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534028-9781637107553-thom-jons/"><u>Thom Jons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534472-9781667426433-una-vita-di-sogni/"><u>Una vita di sogni | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211331498-9782385640613-cheminer-vers-le-bonheur-avec-bouddha/"><u>Cheminer vers le bonheur avec Bouddha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211331924-9783964461735-ich-kam-woher-ich-gehe-wohin/"><u>Ich kam - woher? Ich gehe - wohin? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211331920-9783964462046-lesprit-libre-dieu-en-nous/"><u>L'Esprit libre - Dieu en nous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211331467-9782017289760-les-sept-voies-de-layurveda/"><u>Les Sept Voies de l'Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211331437-9781608689255-the-intuition-bible/"><u>The Intuition Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211331787--the-witchs-guide-to-animal-familiars/"><u>The Witch's Guide to Animal Familiars | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Secret Practices of the Sufi Freemasons | Free Book
-date: 2024-10-20T04:46:34.387Z
-updated: 2024-10-27T01:45:35.728Z
+date: 2024-12-20T03:01:52.469Z
+updated: 2024-12-22T12:03:52.440Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc1cee03fdc1c62f001f6c821721dbe49da36882f20919deaa811c7ccb65c18d.jpg
@@ -196,3 +196,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc1cee03fdc1c62f001f6c821721dbe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210851891-9781761038921-adivinacion/"><u>Adivinación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210852098-9798889269885-closure/"><u>Closure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851995-9780645249248-decoding-the-laws-of-the-universe/"><u>DECODING THE LAWS OF THE UNIVERSE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851998-9798988311010-mm-publication/"><u>MM Publication | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210852167-9781761038853-numerologia/"><u>Numerología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851883-9781761038983-suenos-lucidos/"><u>Sueños Lúcidos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851801-9798218147051-the-grand-solar-flash/"><u>The Grand Solar Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210852019-9783988313539-the-mind-power-system/"><u>THE MIND POWER SYSTEM | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

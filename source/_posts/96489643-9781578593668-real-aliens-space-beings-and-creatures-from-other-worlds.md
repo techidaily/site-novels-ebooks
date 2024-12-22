@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-12-09T07:18:47.557Z
-updated: 2024-12-12T23:47:40.179Z
+date: 2024-12-21T05:50:51.947Z
+updated: 2024-12-22T10:42:57.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,15 +262,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210692923-9780008589332-aries-2024-your-personal-horoscope/"><u>Aries 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692926-9780008589363-cancer-2024-your-personal-horoscope/"><u>Cancer 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692924-9780008589370-leo-2024-your-personal-horoscope/"><u>Leo 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692767-9781685708726-my-damascus-road-experience/"><u>My Damascus Road Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692927-9780008589349-taurus-2024-your-personal-horoscope/"><u>Taurus 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692922-9780008589325-your-personal-horoscope-2024/"><u>Your Personal Horoscope 2024 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448711-9798991143417-afterlife-bonds/"><u>Afterlife Bonds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448712-9798991327572-falling-up/"><u>Falling Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448842-9781998813940-rising-above/"><u>Rising Above | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211450762--stuff-your-astrologer-should-have-told-you/"><u>Stuff Your Astrologer Should Have Told You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211450266-9781955413282-the-art-of-your-energy-ii/"><u>The Art of Your Energy II | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

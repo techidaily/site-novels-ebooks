@@ -1,7 +1,7 @@
 ---
 title: Meetings with Remarkable People | Free Book
-date: 2024-10-24T17:24:34.637Z
-updated: 2024-10-26T23:53:40.192Z
+date: 2024-12-16T09:37:00.090Z
+updated: 2024-12-21T19:46:10.449Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b2b372d2928d4acfce179db232a902bb7c411858533e63738e4e16811448bb3.jpg
@@ -153,3 +153,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b2b372d2928d4acfce179db232a902
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210945638-9798888191057-bigger-pete/"><u>Bigger Pete | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210963929-9798887519920-oh-death-where-was-thou-sting/"><u>Oh Death, Where Was Thou Sting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210963454-9789357488440-the-mind-and-the-brain-being-the-authorised-translation-of-lame-et-le-corps/"><u>The Mind And The Brain Being The Authorised Translation Of L'Âme Et Le Corps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210963450-9789357488938-the-religion-of-the-samurai/"><u>The Religion Of The Samurai | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210945659-9781454950868-walking-through-darkness/"><u>Walking through Darkness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

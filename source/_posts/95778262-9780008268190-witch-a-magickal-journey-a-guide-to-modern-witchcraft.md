@@ -1,7 +1,7 @@
 ---
 title: "Witch: a Magickal Journey: A Guide to Modern Witchcraft | Free Book"
-date: 2024-10-23T20:33:59.510Z
-updated: 2024-10-26T19:55:16.929Z
+date: 2024-12-20T21:29:57.737Z
+updated: 2024-12-21T23:39:42.569Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26ce5f4a11a81be32e7d79b9342457cb63b92ab5dd6c78aacc14d3cb2da73598.jpg
@@ -185,3 +185,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26ce5f4a11a81be32e7d79b9342457c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210968379-9781088225271-a-diary-through-time/"><u>A DIARY THROUGH TIME | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968396-9781088225943-apenas-comenzando/"><u>Apenas Comenzando | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968393-9781088227572-dieu-etait-avec-lui/"><u>Dieu Était Avec Lui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968395-9781088227381-encuentros-con-la-verdad/"><u>Encuentros con la Verdad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968394-9781088227428-es-necesario-algo-mas/"><u>Es Necesario algo más | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968374-9781088235829-esmeralda/"><u>Esmeralda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968389-9781088227602-just-beginning/"><u>JUST BEGINNING | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

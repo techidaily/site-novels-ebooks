@@ -1,7 +1,7 @@
 ---
 title: "Aquarius 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-22T21:56:27.868Z
-updated: 2024-10-26T21:13:05.558Z
+date: 2024-12-20T16:22:37.924Z
+updated: 2024-12-21T20:34:21.945Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2aa97309012e0bd10fe5c1efd666f69fd40883b1872f567c6860bb8de1659d0e.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2aa97309012e0bd10fe5c1efd666f69
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211066188-9789359040059-irish-witchcraft-and-demonology/"><u>Irish Witchcraft and Demonology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066169-9789359043395-paradise-found/"><u>Paradise Found | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066189-9789359043418-the-history-of-spiritualism-vol-ii/"><u>The History of Spiritualism, Vol. II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066183-9789359043678-wild-talents/"><u>Wild Talents | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Canticle of the Soul and the Bridegroom Christ | Free Book
-date: 2024-10-22T18:02:25.830Z
-updated: 2024-10-26T18:04:24.265Z
+date: 2024-12-18T09:34:07.943Z
+updated: 2024-12-22T10:25:13.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/594cb5c2531d2cf2e8cdcd43a5200ad1f9eba4dad75e3c5e7284963e8581dab6.jpg
@@ -137,3 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/594cb5c2531d2cf2e8cdcd43a5200ad
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211261270-9798887637884-at-your-core/"><u>At Your Core | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211261030-9798990307919-flip-the-script/"><u>Flip the Script | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211261089-9780719831638-lifting-the-veil/"><u>Lifting the Veil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211261007-9781775392729-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211261018-9781739443078-the-testament/"><u>The Testament | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211260936-9798987586037-the-weighted-feather-vol-2/"><u>The Weighted Feather Vol. 2 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-12-11T07:08:37.458Z
-updated: 2024-12-12T20:37:40.419Z
+date: 2024-12-17T13:46:16.510Z
+updated: 2024-12-22T02:22:55.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,15 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210614586-9781635862393-high-vibe-feng-shui/"><u>High-Vibe Feng Shui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614512-9781523514021-how-dreams-speak/"><u>How Dreams Speak | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614412-9781648291180-morning-rituals/"><u>Morning Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614415-9781648291173-restorative-rituals/"><u>Restorative Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614770-9781635862133-the-illustrated-bestiary/"><u>The Illustrated Bestiary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614686-9781635862232-the-illustrated-crystallary/"><u>The Illustrated Crystallary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372563-9781925429749-always-with-you/"><u>Always With You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372514-9781923009257-crystal-grids/"><u>Crystal Grids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372593-9781925924121-journey-through-the-chakras/"><u>Journey Through The Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372581-9781925682403-mindful-living/"><u>Mindful Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372561-9781925429725-monsters-and-creatures/"><u>Monsters and Creatures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372512-9781923009233-oracle-card-companion/"><u>Oracle Card Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372583-9781925682465-past-lives-unveiled/"><u>Past Lives Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372513-9781923009240-psychic/"><u>Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372519-9781925017205-spellbound/"><u>Spellbound | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

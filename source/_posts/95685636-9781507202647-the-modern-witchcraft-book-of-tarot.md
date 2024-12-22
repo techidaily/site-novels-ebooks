@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Book of Tarot | Free Book
-date: 2024-10-26T02:46:10.488Z
-updated: 2024-10-27T01:39:01.322Z
+date: 2024-12-18T19:04:31.129Z
+updated: 2024-12-21T22:55:36.455Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc8d06455886b3dc5518d6aed64481078ea3e7600d813cdfb36c5acd1a6eac93.jpg
@@ -179,3 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc8d06455886b3dc5518d6aed644810
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211152150-9781739495657-5th-dimensional-earth/"><u>5th Dimensional Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152067-9789493359017-de-symboliek-van-dieren-en-boodschappen-van-het-orakel/"><u>De symboliek van dieren en boodschappen van het orakel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152068-9798868978692-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152070-9798868978739-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

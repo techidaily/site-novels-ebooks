@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2024-12-06T23:21:53.904Z
-updated: 2024-12-13T05:30:17.282Z
+date: 2024-12-19T16:40:38.764Z
+updated: 2024-12-21T23:54:23.815Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,16 +219,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210711808-9781454936718-a-little-bit-of-goddess/"><u>A Little Bit of Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711809-9781454936770-a-little-bit-of-intuition/"><u>A Little Bit of Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711823-9781454942856-a-little-bit-of-lucid-dreaming/"><u>A Little Bit of Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711802-9781454936121-a-little-bit-of-numerology/"><u>A Little Bit of Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711791-9781454933694-a-little-bit-of-reiki/"><u>A Little Bit of Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711794-9781454934691-the-crystal-witch/"><u>The Crystal Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711810-9781454936053-the-witchs-way/"><u>The Witch's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173160-9781848588752-fascinating-facts-and-curious-questions/"><u>Fascinating Facts and Curious Questions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173167-9781848587960-greatest-mysteries-of-the-unexplained/"><u>Greatest Mysteries of the Unexplained | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173200-9781784040970-sasquatch/"><u>Sasquatch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173168-9781848589506-the-nazis-and-the-occult/"><u>The Nazis and the Occult | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-12-11T19:35:01.288Z
-updated: 2024-12-12T23:26:45.396Z
+date: 2024-12-18T16:37:37.853Z
+updated: 2024-12-22T01:41:52.805Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,13 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210708383-9781915393753-happy-birthday-love-keith/"><u>Happy Birthday-Love, Keith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707755-9780645523744-light-ignited-miracles-unleashed/"><u>Light Ignited, Miracles Unleashed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707742-9780645523737-she-energy/"><u>She Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707745-9781956368345-the-wayfarer/"><u>The Wayfarer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472629-9781637776421-born-again-to-serve-with-love/"><u>Born Again to Serve with Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211473257--flamingo-estate-the-guide-to-becoming-alive/"><u>Flamingo Estate: The Guide to Becoming Alive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472963-9781964959139-melchizedek-frequencies/"><u>Melchizedek Frequencies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472925-9798893305401-recovery-happens-through-christ-my-story-of-abuse-alcoholism-and-adultery/"><u>Recovery Happens Through Christ (My Story of Abuse, Alcoholism, and Adultery) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472921-9798330457786-shadows-of-a-secret/"><u>Shadows of a Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472983-9781397665225-the-flying-saucers-are-real/"><u>The Flying Saucers Are Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472977-9781951879198-the-spiritual-design-wave-4/"><u>The Spiritual Design Wave 4 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

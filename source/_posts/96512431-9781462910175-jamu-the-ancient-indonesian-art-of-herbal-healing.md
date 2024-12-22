@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-12-11T23:58:51.190Z
-updated: 2024-12-12T18:45:31.089Z
+date: 2024-12-19T06:39:27.874Z
+updated: 2024-12-21T23:52:11.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,14 +175,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210569356-9781399803038-21-day-mindfulness-challenge/"><u>21 Day Mindfulness Challenge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569498-9798985980011-how-the-stars-tell-time/"><u>How the Stars Tell Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569460-9798986216614-lucid-journey/"><u>Lucid Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569220-9781398824393-profeten/"><u>Profeten | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210568175-9781493044900-spooky-north-carolina-2nd-ed/"><u>Spooky North Carolina (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352882-9798869369734-57k56we6imy5b2p5yk5yw25osp5lmjic0g5zyo5zyj54g15a2m5qchic0g5paw5lit5pah54mi/"><u>精神色彩及其意义 - 在圣灵学校 - 新中文版 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352278-9791223001424-die-zwolf-seelen/"><u>Die zwölf Seelen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352664-9781685681197-en-el-santuario-del-alma/"><u>En el santuario del alma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352286-9791223001431-estrelas-e-personalidades/"><u>Estrelas e Personalidades | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352663-9781685681258-leve-fryktlost/"><u>Leve fryktløst | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352885-9798869369772-aathhayatamaka-raga-oura-unaka-aratha-hal-ghasata-sakal-ma-naya-hatha-sasakaranae/"><u>आध्यात्मिक रंग और उनके अर्थ - होली घोस्ट स्कूल में - नया हिंदी संस्करण | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

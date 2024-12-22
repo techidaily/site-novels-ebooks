@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-12-11T07:37:09.398Z
-updated: 2024-12-13T04:28:33.010Z
+date: 2024-12-18T05:13:16.289Z
+updated: 2024-12-22T04:14:43.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,13 +140,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210619808-9781401970048-365-days-of-divine-feminine-wisdom/"><u>365 Days of Divine Feminine Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619955-9781722527570-free-your-magnificent-mind/"><u>Free Your Magnificent Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619956-9781722527587-modern-occultism/"><u>Modern Occultism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619824-9780744070453-the-book-of-spells/"><u>The Book of Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373425-9781646494194-mysteries-prophecies-and-the-hollow-earth/"><u>Mysteries, Prophecies, and the Hollow Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373465-9780648510635-taotuning/"><u>TaoTuning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373372-9781646494255-the-book-of-manifesting/"><u>The Book of Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373445-9781646494217-the-lightness-of-being/"><u>The Lightness of Being | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

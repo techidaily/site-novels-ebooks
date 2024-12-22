@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-12-11T21:00:16.470Z
-updated: 2024-12-13T03:41:03.759Z
+date: 2024-12-20T01:02:40.499Z
+updated: 2024-12-21T22:28:09.707Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,14 +131,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210581446-9781493047963-haunted-lighthouses-2nd-ed/"><u>Haunted Lighthouses (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210581447-9781493045815-haunted-maine-2nd-ed/"><u>Haunted Maine (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210582009-9781493044924-spooky-wisconsin-2nd-ed/"><u>Spooky Wisconsin (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580518-9781638371144-the-2020-birthday-book-of-message/"><u>The 2020 Birthday Book of Message | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580983-9781780993447-the-mysteries-of-the-twelfth-astrological-house-fallen-angels/"><u>The Mysteries of the Twelfth Astrological House: Fallen Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360577-9791223023853-despertando-a-consciencia-interior/"><u>Despertando a Consciência Interior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211363968--intuition/"><u>Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211363330-9782017289807-le-mont-des-oliviers/"><u>Le Mont des Oliviers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211361585-9781529936933-let-the-light-in/"><u>Let the Light In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360706--mindful-moments/"><u>Mindful Moments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360647-9788090910997-paralelni-svety/"><u>Paralelní světy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364017-9781800319554-spiritual-currency/"><u>Spiritual Currency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360569-9791223023860-podsoznanie/"><u>Подсознание | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

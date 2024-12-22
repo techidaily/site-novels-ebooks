@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-12-07T01:57:42.716Z
-updated: 2024-12-13T06:25:31.109Z
+date: 2024-12-18T05:36:38.691Z
+updated: 2024-12-22T05:12:58.556Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,13 +153,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761772-9781649631350-a-year-in-practice/"><u>A Year in Practice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761770-9781591798361-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761763-9781622030736-saint-francis-of-assisi/"><u>Saint Francis of Assisi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761760-9781604073348-tibetan-sound-healing/"><u>Tibetan Sound Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543815-9781786780027-deep-awake/"><u>Deep Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543812-9781780289915-john-the-baptist-and-the-last-gnostics/"><u>John the Baptist and the Last Gnostics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543814-9781786780010-opening-the-doors-of-perception/"><u>Opening the Doors of Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543810-9781780289786-radical-awakening/"><u>Radical Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543811-9781780289830-the-illuminati/"><u>The Illuminati | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543817-9781786780041-the-secret-american-destiny/"><u>The Secret American Destiny | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Why Is Communication So Difficult, Particularly Between Lovers? | Free Book
-date: 2024-12-09T01:31:59.469Z
-updated: 2024-12-12T23:00:53.174Z
+date: 2024-12-17T23:47:21.407Z
+updated: 2024-12-21T22:37:45.821Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba02d0595eef03cefab50e725b75bcb8401.jpg
@@ -173,13 +173,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210772869-9781649698490-a-difference-of-ability/"><u>A Difference of Ability | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772921-9781649699046-breaking-free-from-angers-cage/"><u>Breaking Free from Anger's Cage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772866-9781922439642-extra-ordinary/"><u>Extra Ordinary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772871-9781649691262-on-love-life-pain/"><u>On Love, Life & Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645010-9780752462387-haunted-aberdeen-district/"><u>Haunted Aberdeen & District | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645011-9780752462394-haunted-cotswolds/"><u>Haunted Cotswolds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2644879-9780752481494-haunted-dundee/"><u>Haunted Dundee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2644209-9781449478520-hello-sunshine/"><u>Hello Sunshine | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2024-12-05T17:43:29.004Z
-updated: 2024-12-12T19:27:07.319Z
+date: 2024-12-14T23:43:50.779Z
+updated: 2024-12-21T18:57:31.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,16 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210768305-9781639199150-el-eneagrama/"><u>El eneagrama | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768336-9781639199471-los-angeles-como-invocarlos-como-percibir-su-presencia-como-obtener-su-amor-y-su-ayuda/"><u>Los ángeles. Cómo invocarlos cómo percibir su presencia cómo obtener su amor y su ayuda | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210769672-9781644116227-maps-of-consciousness-3rd-ed/"><u>Maps of Consciousness (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768306-9781639199143-mas-alla-de-la-vida/"><u>Más allá de la vida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768314-9781639199167-previsiones-astrologicas-hasta-el-2050/"><u>Previsiones astrológicas hasta el 2050 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210769656-9781591434757-the-new-sirian-revelations-2nd-ed/"><u>The New Sirian Revelations (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210769658-9781591434979-veneration-rites-of-curanderismo/"><u>Veneration Rites of Curanderismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/261484-9781101215395-blessings-from-the-other-side/"><u>Blessings From the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2615720-9780752472027-brigid/"><u>Brigid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616218-9780752481814-haunted-carlisle/"><u>Haunted Carlisle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616214-9780752481715-haunted-chatham/"><u>Haunted Chatham | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616216-9780752481753-haunted-hull/"><u>Haunted Hull | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616215-9780752481739-haunted-wigan/"><u>Haunted Wigan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2613504-9781442676275-into-the-daylight/"><u>Into the Daylight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612860-9781612833620-tarot-mysteries/"><u>Tarot Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612260-9781623171131-the-genius-of-being/"><u>The Genius of Being | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

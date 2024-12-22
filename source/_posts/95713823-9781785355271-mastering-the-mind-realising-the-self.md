@@ -1,7 +1,7 @@
 ---
 title: Mastering the Mind, Realising the Self | Free Book
-date: 2024-10-25T21:18:50.743Z
-updated: 2024-10-27T01:17:20.110Z
+date: 2024-12-15T13:25:27.963Z
+updated: 2024-12-22T02:35:50.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad5f4cf725751196549238602012ad85befe5184c7a59f49ad38400eef42bc0c.jpg
@@ -149,3 +149,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad5f4cf725751196549238602012ad8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2110943-9781910027097-a-universal-guide-to-happiness/"><u>A Universal Guide to Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211083373-9781608688937-bones-honey/"><u>Bones & Honey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211085312-9781852408497-discover-healing-and-freedom/"><u>Discover Healing and Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211083630-9781401977450-from-imagination-to-reality/"><u>From Imagination to Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082733-9781647395667-holistic-wellness/"><u>Holistic Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082774-9798886503845-protection-spells-for-new-witches/"><u>Protection Spells for New Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082831-9781633413283-tarot/"><u>Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-12-11T20:07:35.578Z
-updated: 2024-12-12T21:33:40.546Z
+date: 2024-12-17T02:13:36.583Z
+updated: 2024-12-22T08:54:25.921Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,13 +134,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210626157-9780645416510-body-wisdom/"><u>Body Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210626096-9798986573632-from-clutter-to-cleanlinessthe-renewal-of-a-mind/"><u>From Clutter To Cleanliness:The Renewal Of A Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210626160-9781684930913-god-man/"><u>God-Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210626126-9781087963686-on-my-way-to-greatness/"><u>On My Way to Greatness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375384-9781800652446-crystal-connections/"><u>Crystal Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375457-9780062913357-madame-clairevoyants-guide-to-the-stars/"><u>Madame Clairevoyant's Guide to the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375385-9781800652453-mindful-homes/"><u>Mindful Homes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375438-9780061748950-papal-magic/"><u>Papal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375465-9780061741890-the-dark-sacrament/"><u>The Dark Sacrament | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

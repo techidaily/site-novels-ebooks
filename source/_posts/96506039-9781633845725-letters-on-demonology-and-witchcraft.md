@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2024-12-10T08:24:26.542Z
-updated: 2024-12-13T07:42:48.380Z
+date: 2024-12-20T18:27:17.382Z
+updated: 2024-12-22T03:55:04.830Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,15 +155,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210635076-9781945642166-a-sacred-journey/"><u>A Sacred Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210635067-9781735014029-be-you/"><u>Be You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210639927-9781637772799-born-to-serve-with-love/"><u>Born to Serve with Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210639835-9781959018148-crystal-grids/"><u>Crystal Grids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210639847-9798885830669-high-on-being/"><u>High on Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640256-9781639035496-i-promise-youre-healed/"><u>I Promise You're Healed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383047-9798330230761-27/"><u> "27 " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383014-9798330229857-5/"><u>如何解读上帝的声音 - 5 种方法 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383049-9781957811048-discourses-volume-4-2017/"><u>Discourses Volume 4, 2017 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383051-9781957811086-discourses-volume-6-2019/"><u>Discourses Volume 6, 2019 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383019-9781950460472-sorry-not-sorry/"><u>Sorry, Not Sorry | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

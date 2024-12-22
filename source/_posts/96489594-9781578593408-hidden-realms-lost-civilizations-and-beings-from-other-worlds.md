@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-12-10T19:59:11.612Z
-updated: 2024-12-12T20:36:07.765Z
+date: 2024-12-15T10:25:16.144Z
+updated: 2024-12-22T05:12:49.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,15 +227,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210723311-9780760377130-astrology-for-the-cosmic-soul/"><u>Astrology for the Cosmic Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723464-9780486851600-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723569-9781662480256-escaping-out-of-the-matrix/"><u>Escaping Out of the Matrix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210722981-9781645678335-its-just-fucking-meditation/"><u>It’s Just Fucking Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723178-9781788179478-the-book-of-runic-astrology/"><u>The Book of Runic Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723312-9781578598144-the-witches-almanac/"><u>The Witches Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211454-9780007478514-aries-2013-your-personal-horoscope/"><u>Aries 2013: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2210478-9780007428977-freaky-dreams/"><u>Freaky Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211456-9780007478538-gemini-2013-your-personal-horoscope/"><u>Gemini 2013: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2210601-9780007434893-guided-by-angels-there-are-no-goodbyes-my-tour-of-the-spirit-world/"><u>Guided By Angels: There Are No Goodbyes, My Tour of the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211455-9780007478521-taurus-2013-your-personal-horoscope/"><u>Taurus 2013: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211086-9780007461028-your-chinese-horoscope-2013-what-the-year-of-the-snake-holds-in-store-for-you/"><u>Your Chinese Horoscope 2013: What the year of the snake holds in store for you | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2210681-9780007438037-your-personal-horoscope-2012-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2012: Month-by-month forecasts for every sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211085-9780007461011-your-personal-horoscope-2013-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2013: Month-by-month forecasts for every sign | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

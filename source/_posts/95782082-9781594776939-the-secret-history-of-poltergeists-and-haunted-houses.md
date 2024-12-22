@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Poltergeists and Haunted Houses | Free Book
-date: 2024-10-19T19:47:51.286Z
-updated: 2024-10-26T16:49:13.191Z
+date: 2024-12-19T07:14:27.241Z
+updated: 2024-12-22T09:56:29.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b10c7d2c1e9096d5776c25236c7e4f212e12be24af1fbbda9b5bd0bb7a2e0826.jpg
@@ -189,3 +189,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b10c7d2c1e9096d5776c25236c7e4f2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877181-9781601639714-grimoire-for-the-apprentice-wizard/"><u>Grimoire For The Apprentice Wizard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877178-9781609254278-the-book-of-black-magic/"><u>The Book of Black Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877176-9781609254018-the-history-of-magic/"><u>The History of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877183-9781609254056-the-tree-of-life/"><u>The Tree of Life | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

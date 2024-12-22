@@ -1,7 +1,7 @@
 ---
 title: The Sufi Path of Annihilation | Free Book
-date: 2024-10-22T01:25:46.786Z
-updated: 2024-10-26T22:26:51.421Z
+date: 2024-12-21T03:34:00.775Z
+updated: 2024-12-22T13:49:03.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7eee5ecd33a484fcfa38fdd1918cdc6cdcdc74489e7e18fe6c992dc6599e8aa8.jpg
@@ -188,3 +188,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7eee5ecd33a484fcfa38fdd1918cdc6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932833-9781912230327-jerusalem/"><u>Jerusalem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932830-9781855844261-karmic-relationships-volume-5/"><u>Karmic Relationships: Volume 5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932831-9781855843172-mystery-knowledge-and-mystery-centres/"><u>Mystery Knowledge and Mystery Centres | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932832-9781912230686-the-spiritual-foundations-of-beekeeping/"><u>The Spiritual Foundations of Beekeeping | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: I Don't Know What to Believe | Free Book
-date: 2024-12-01T17:25:45.767Z
-updated: 2024-12-07T00:24:24.405Z
+date: 2024-12-20T20:20:13.617Z
+updated: 2024-12-22T04:27:46.298Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152bb6c16e86aeec1f648f85b672402b361fa.jpg
@@ -205,15 +205,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210106514-9781771368964-fransesca/"><u>Fransesca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106622-9781608687053-growing-big-dreams/"><u>Growing Big Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106930-9781722526252-riches-now/"><u>Riches Now! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210107075-9780648695790-the-art-of-accompanying/"><u>The Art of Accompanying | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106914-9781608687138-the-clear-light/"><u>The Clear Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106935-9780648946007-the-natural-high/"><u>THE NATURAL HIGH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/433998-9781775567820-all-these-things-added/"><u>All These Things Added | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/432323-9781775567158-in-tune-with-the-infinite/"><u>In Tune with the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/431761-9781439102541-mystic-cool/"><u>Mystic Cool | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/433976--star-parenting/"><u>Star Parenting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/434013-9781775567844-the-life-of-buddha-and-its-lessons/"><u>The Life of Buddha and Its Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/432356-9781775567349-the-silence/"><u>The Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/432368-9781775567530-the-story-of-my-heart/"><u>The Story of My Heart | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

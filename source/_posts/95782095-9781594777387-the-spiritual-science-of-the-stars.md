@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Science of the Stars | Free Book
-date: 2024-10-25T19:59:02.928Z
-updated: 2024-10-27T04:08:39.067Z
+date: 2024-12-19T00:58:34.206Z
+updated: 2024-12-22T05:37:03.492Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/392a03b577634dd04920fe8b3c5162de3bed3b8aac54dc4580a8d94c22169eaa.jpg
@@ -172,3 +172,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/392a03b577634dd04920fe8b3c5162d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877283-9781612833996-color-therapy-plain-simple/"><u>Color Therapy Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877284-9781612834092-dreaming-on-both-sides-of-the-brain/"><u>Dreaming on Both Sides of the Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877274-9781612832821-impossible-realities/"><u>Impossible Realities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877292-9781632657640-roswell/"><u>Roswell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877288-9781612834269-spirit-clans/"><u>Spirit Clans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877275-9781612833316-the-et-chronicles/"><u>The E.T. Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877271-9781612833293-unconventional-flying-objects/"><u>Unconventional Flying Objects | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

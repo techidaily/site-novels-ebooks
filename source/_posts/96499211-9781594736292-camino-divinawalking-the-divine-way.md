@@ -1,7 +1,7 @@
 ---
 title: Camino Divina—Walking the Divine Way | Free Book
-date: 2024-12-11T16:30:24.676Z
-updated: 2024-12-13T08:12:11.586Z
+date: 2024-12-18T17:51:00.279Z
+updated: 2024-12-22T10:11:30.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71c04a16164549d13f634357b99c0191c170a082ca2f8893e3a0e9e0f4945431.jpg
@@ -139,18 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71c04a16164549d13f634357b99c019
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210710626-9780349429427-daily-awakening/"><u>Daily Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710313-9781642507751-magical-trees/"><u>Magical Trees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711137-9781786787934-on-alchemy/"><u>On Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710343-9781684810802-quiet-mind/"><u>Quiet Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711003-9798887620312-rumi-tales-of-the-spirit/"><u>Rumi: Tales of the Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711138-9781786787774-the-little-guide-to-palmistry/"><u>The Little Guide to Palmistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711139-9781786788030-the-sacred-numbers-of-initiation/"><u>The Sacred Numbers of Initiation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710320-9781642508680-the-witchs-book-of-candle-magic/"><u>The Witch's Book of Candle Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710328-9781642508840-the-womans-book-of-strength/"><u>The Woman's Book of Strength | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2130000-9781493012381-haunted-chicago/"><u>Haunted Chicago | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2140119--praanas-divine-links-auras-volume-ii/"><u>Praanas, Divine-Links, & Auras Volume II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2137052-9781783946600-sadhana/"><u>Sadhana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2129387--sun-signs/"><u>Sun Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2130380-9780748110292-the-soul-connection/"><u>The Soul Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2129456-9780349404646-working-with-spirit-guides/"><u>Working With Spirit Guides | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

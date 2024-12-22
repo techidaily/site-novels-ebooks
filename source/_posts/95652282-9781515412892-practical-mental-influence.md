@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-10-24T05:41:27.085Z
-updated: 2024-10-27T01:52:59.830Z
+date: 2024-12-15T12:06:06.442Z
+updated: 2024-12-21T20:33:51.620Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c27767abc6d672090da1dbedef24b257d45ed75c8d86beb47b61b00f30dce7c3.jpg
@@ -140,3 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c27767abc6d672090da1dbedef24b25
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211253637-9798891940222-dream-whispers/"><u>Dream Whispers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253715-9781958997505-guia-de-iniciacion-a-la-meditacion-cristiana/"><u>GUÍA DE INICIACIÓN A LA MEDITACIÓN CRISTIANA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253533-9798869057990-nothing-is-by-chance/"><u>Nothing is by Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253660-9798988340331-the-cognative-fitness-workbook/"><u>The Cognative Fitness Workbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

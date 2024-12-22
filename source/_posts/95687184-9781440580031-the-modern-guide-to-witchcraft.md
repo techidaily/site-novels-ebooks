@@ -1,7 +1,7 @@
 ---
 title: The Modern Guide to Witchcraft | Free Book
-date: 2024-10-21T00:15:05.297Z
-updated: 2024-10-26T20:38:02.009Z
+date: 2024-12-18T11:56:53.041Z
+updated: 2024-12-21T21:34:19.014Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0474a615366cd9687b728bba150cc08c5364424c16e690bc6f2a4bf88801b2b.jpg
@@ -156,3 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0474a615366cd9687b728bba150cc0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211159410-9780062455406-ancient-aliens/"><u>Ancient Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159636-9781639458035-evolve-love/"><u>Evolve Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159508-9780062092120-fringe-ology/"><u>Fringe-ology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159426-9780062299499-motherpeace/"><u>Motherpeace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159334-9780062403865-siddharthas-brain/"><u>Siddhartha's Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159894-9780062484185-the-close-encounters-man/"><u>The Close Encounters Man | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

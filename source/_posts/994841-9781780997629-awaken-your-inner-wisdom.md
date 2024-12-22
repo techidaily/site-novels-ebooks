@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2024-12-11T02:06:21.102Z
-updated: 2024-12-12T18:39:26.114Z
+date: 2024-12-18T00:56:21.306Z
+updated: 2024-12-22T03:54:44.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,18 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210531616-9781788179195-21-days-to-decode-your-dreams/"><u>21 Days to Decode Your Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210530965-9780593236161-a-map-to-your-soul/"><u>A Map to Your Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210532549-9781989531358-inspirational-calendar-book/"><u>Inspirational Calendar Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210531593-9781784886080-meditate-yourself-happy/"><u>Meditate Yourself Happy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210531613-9789391067335-s-for-sufi/"><u>S for Sufi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210531428-9781638853503-taming-my-wild-soul/"><u>Taming My Wild Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210531987-9781438092959-the-book-of-spells-vintage-edition-2nd-ed/"><u>The Book of Spells: Vintage Edition (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210531496-9798985902211-the-theologians-of-orion/"><u>The Theologians of Orion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210532520-9798985607109-zodiac-hacks-2nd-ed/"><u>Zodiac Hacks (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327318-9780061840944-adventures-beyond-the-body/"><u>Adventures Beyond the Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327129-9780062029058-angel-courage/"><u>Angel Courage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327040-9780061871863-do-dead-people-walk-their-dogs/"><u>Do Dead People Walk Their Dogs? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211326677-9781913738143-hindu-astrology/"><u>Hindu Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211326730-9781915776174-meeting-michael/"><u>Meeting Michael | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211326729-9781912992614-meeting-spirit-beings/"><u>Meeting Spirit Beings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327032-9780062031921-the-four-fold-way/"><u>The Four-Fold Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327190-9780061968082-the-secret-of-the-soul/"><u>The Secret of the Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

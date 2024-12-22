@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Vampires | Free Book
-date: 2024-10-26T02:47:18.112Z
-updated: 2024-10-27T04:46:41.212Z
+date: 2024-12-19T07:30:07.153Z
+updated: 2024-12-21T20:27:08.272Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/024723ffe16ea9fd6074668a3f476160b76a3d93ee95968569de6d2c4730f62c.jpg
@@ -174,3 +174,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/024723ffe16ea9fd6074668a3f47616
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210867840-9781622034239-7-treasures-of-awakening/"><u>7 Treasures of Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867670-9781638298304-brain-shift/"><u>Brain Shift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867552-9781398444409-conversations-with-ghosts/"><u>Conversations with Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867662-9798886930016-more-than-just-bird-poop-on-my-windshield/"><u>More Than Just Bird Poop on my Windshield | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867319-9781524890797-the-7-chakra-crystals/"><u>The 7 Chakra Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867454-9781582709284-ufocontact-from-the-pleiades-45th-anniversary-edition/"><u>UFO...Contact from the Pleiades (45th Anniversary Edition) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

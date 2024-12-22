@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-12-12T03:02:47.856Z
-updated: 2024-12-13T02:15:28.841Z
+date: 2024-12-15T23:41:06.999Z
+updated: 2024-12-22T00:27:25.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,15 +264,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210696308-9781647842710-heideggers-philosophy-of-life-metamorphosis-the-reality-of-existence-and-sublimation-of-life-volume-4/"><u>Heidegger's Philosophy of Life: Metamorphosis: The Reality of Existence and Sublimation of Life (Volume 4) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696347-9780876129531-meditationen-zur-selbst-verwirklichung/"><u>Meditationen zur SELBST-Verwirklichung | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696240--the-awakening-of-existentialism/"><u>The Awakening of Existentialism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696312-9781951966423-the-end-of-madness/"><u>The End of Madness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696241-9781647842703-the-life-philosophy-of-the-master-of-existentialism/"><u>The Life Philosophy of the Master of Existentialism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696239-9781647842680-the-unsolved-mystery-of-life-and-death/"><u>The Unsolved Mystery of Life and Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455886-9782017230335-les-17-cles-du-succes/"><u>Les 17 clés du succès | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455878-9782017289883-les-72-vibrations-divines/"><u>Les 72 vibrations divines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456039-9781837994632-my-shadow-work-workbook/"><u>My Shadow Work Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211456043-9781837992324-stories-of-the-occult/"><u>Stories of the Occult | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

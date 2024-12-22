@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2024-12-04T21:18:36.783Z
-updated: 2024-12-07T03:41:23.086Z
+date: 2024-12-20T00:06:21.192Z
+updated: 2024-12-22T00:17:23.267Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,16 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210123885-9781789046397-everything-you-never-learned-about-sex/"><u>Everything You Never Learned About Sex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123670-9780993911446-medicine-buddhamedicine-mind/"><u>Medicine Buddha/Medicine Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123887-9781789044331-medicine-of-the-imagination-dwelling-in-possibility/"><u>Medicine of the Imagination: Dwelling in Possibility | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123902-9781797200378-moon-bath/"><u>Moon Bath | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210122951-9780648873945-my-heart-speaks/"><u>My Heart Speaks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123412-9780744043044-tarot/"><u>Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124120-9781475857238-teach-like-a-human/"><u>Teach Like a Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/462529-9780446566674-cowboy-wisdom/"><u>Cowboy Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/463105-9780446571067-creating-a-life-of-joy/"><u>Creating a Life of Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/462236-9781439178225-dile-adios-a-tus-temores-how-to-overcome-fear/"><u>Dile adiós a tus temores (How to Overcome Fear) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/463491-9781101159545-does-your-love-life-add-up/"><u>Does Your Love Life Add Up? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/463106-9780446570206-lessons-from-the-light/"><u>Lessons From the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/462157-9781439165980-the-intuitive-way/"><u>The Intuitive Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/463141-9780446571203-the-simple-abundance-companion/"><u>The Simple Abundance Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/462563-9780446567107-your-thoughts-can-change-your-life/"><u>Your Thoughts Can Change Your Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

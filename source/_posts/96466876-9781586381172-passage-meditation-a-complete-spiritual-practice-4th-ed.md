@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2024-12-07T03:18:15.760Z
-updated: 2024-12-12T19:08:34.604Z
+date: 2024-12-20T16:41:45.653Z
+updated: 2024-12-22T08:09:04.709Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,14 +179,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210822430-9798218162627-the-power-of-perspective-and-the-gift-of-gratitude/"><u>The Power of Perspective and the Gift of Gratitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210821954-9798987771112-the-ruby-heart-of-the-dragon/"><u>The Ruby Heart of the Dragon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210822246-9781638146544-the-worth-of-a-soul/"><u>The Worth of a Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210821898-9798887519142-you-can-know-god-personally/"><u>You Can Know God Personally | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210821955-9798988097914-your-divine-power-within/"><u>Your Divine Power Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/390895-9781775564294-joy/"><u>Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401379-9780446548960-messages-from-the-masters/"><u>Messages from the Masters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/390855-9781775564256-practical-mental-influence/"><u>Practical Mental Influence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401487-9780446554053-second-sight/"><u>Second Sight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401523-9780446550840-soul-survivor/"><u>Soul Survivor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/390919-9781775564799-think-and-grow-rich/"><u>Think and Grow Rich | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

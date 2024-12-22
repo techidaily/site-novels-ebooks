@@ -1,7 +1,7 @@
 ---
 title: T'ai Chi According to the I Ching | Free Book
-date: 2024-10-24T17:30:07.295Z
-updated: 2024-10-27T04:35:39.406Z
+date: 2024-12-17T05:43:44.699Z
+updated: 2024-12-22T02:55:06.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba2d05dbc8d0f7adcb65d419e95ce9e61c860c2d1b92ddbad3f2a7c4b02e558.jpg
@@ -173,3 +173,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba2d05dbc8d0f7adcb65d419e95ce9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210909675-9784016249073-a-promise-40/"><u>A Promise @ 40 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909633-9781761039225-aceites-esenciales/"><u>Aceites Esenciales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909700-9781952491580-can-i-be-honest/"><u>Can I Be Honest? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909588-9781088178935-prayer-the-christians-airpower/"><u>Prayer - The Christian's Airpower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909702-9781088199589-sengager-dans-une-conversation-intime-avec-dieu-dieu-est-desireux-de-vous-engager/"><u>S'engager dans une conversation intime avec Dieu Dieu est désireux de vous engager | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

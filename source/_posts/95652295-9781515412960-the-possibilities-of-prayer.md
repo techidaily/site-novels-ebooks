@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-10-23T19:47:43.547Z
-updated: 2024-10-26T17:42:50.751Z
+date: 2024-12-20T01:55:07.833Z
+updated: 2024-12-22T03:34:57.890Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4662c4fa03ef2d013e3cc84278560d3108947f226446deef02f94325083d6e99.jpg
@@ -137,3 +137,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4662c4fa03ef2d013e3cc84278560d3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211254076-9798218387846-angel-timelines/"><u>Angel Timelines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253974-9788110087814-mastering-mindfulness-from-anxiety-to-zen/"><u>Mastering Mindfulness - From Anxiety To Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211254085-9798869220103-palmistry-for-all/"><u>Palmistry for All | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211254022-9798869219206-redencion/"><u>Redención | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211254029-9798869213440-the-life/"><u>The Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211254001-9781962570497-the-path-is-the-way-to-self-mastery/"><u>The Path Is The Way To Self-Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253933-9781960007391-the-prayer-of-moses/"><u>The Prayer of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211254088-9798988605331-whispers-of-rebellion/"><u>Whispers Of Rebellion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

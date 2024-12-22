@@ -1,7 +1,7 @@
 ---
 title: The Everything Guide to Evidence of the Afterlife | Free Book
-date: 2024-10-26T00:00:21.041Z
-updated: 2024-10-26T22:33:30.287Z
+date: 2024-12-15T12:58:18.070Z
+updated: 2024-12-22T07:42:13.427Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bae17d54dbe128cbfeec7ad2c599c80a6c8cb143951d46e534405b0fc4273791.jpg
@@ -145,3 +145,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bae17d54dbe128cbfeec7ad2c599c80
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239545-9781633413450-a-confluence-of-witches/"><u>A Confluence of Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239550--anubisancient-egypts-lord-of-death-and-protection/"><u>Anubis—Ancient Egypt’s Lord of Death and Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239544-9781633413443-baphomet-revealed/"><u>Baphomet Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239543--essence-of-tarot/"><u>Essence of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239549--how-to-read-and-interpret-a-birth-chart/"><u>How to Read and Interpret a Birth Chart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239548--magick-for-all-seasons/"><u>Magick for All Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239551--my-good-friend-the-rattlesnake/"><u>My Good Friend the Rattlesnake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239547-9781633413566-secrets-of-romani-fortune-telling/"><u>Secrets of Romani Fortune-Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239552-9781950253548-the-shamans-book-of-extraordinary-practices/"><u>The Shaman's Book of Extraordinary Practices | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Origins of Psychic Phenomena | Free Book
-date: 2024-10-23T17:20:11.556Z
-updated: 2024-10-26T16:43:07.631Z
+date: 2024-12-16T21:55:15.687Z
+updated: 2024-12-22T05:23:46.163Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/291371577d0b1b73d43436d9f4c80246b7f1d6c1d3af2a2c6a65a2cb1038096f.jpg
@@ -182,3 +182,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/291371577d0b1b73d43436d9f4c8024
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877374-9781633411753-asatru/"><u>Asatru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877363-9781633411579-enochian-vision-magick/"><u>Enochian Vision Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877369-9781633411517-extraterrestrial-contact/"><u>Extraterrestrial Contact | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877371-9781633410442-fairies-pookas-and-changelings/"><u>Fairies, Pookas, and Changelings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877365-9781633411432-grimoire-of-aleister-crowley/"><u>Grimoire of Aleister Crowley | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877364-9781934708590-hidden-wisdom/"><u>Hidden Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877368-9781633411531-sacred-smoke/"><u>Sacred Smoke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877437-9781685680459-vnutrennij-pokoj/"><u>Внутренний покой | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

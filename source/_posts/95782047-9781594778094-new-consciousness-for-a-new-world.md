@@ -1,7 +1,7 @@
 ---
 title: New Consciousness for a New World | Free Book
-date: 2024-10-21T02:47:12.343Z
-updated: 2024-10-26T20:13:11.747Z
+date: 2024-12-17T06:27:14.775Z
+updated: 2024-12-21T17:41:22.613Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5243d6e000d60932f3b5569e6932e853ebd765a14d970e6ef5b74a4da1f8d3e0.jpg
@@ -182,3 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5243d6e000d60932f3b5569e6932e85
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932730-9781855843639-butterflies/"><u>Butterflies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932734-9781912230662-learning-to-experience-the-etheric-world/"><u>Learning to Experience the Etheric World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932732-9781855843516-meditation/"><u>Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932727-9781855844971-the-three-wise-men/"><u>The Three Wise Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932733-9781855844605-the-working-of-karma-in-life-after-death/"><u>The Working of Karma In Life After Death | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

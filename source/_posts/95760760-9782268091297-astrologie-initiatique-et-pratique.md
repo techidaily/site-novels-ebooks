@@ -1,7 +1,7 @@
 ---
 title: Astrologie initiatique et pratique | Free Book
-date: 2024-10-22T19:26:22.813Z
-updated: 2024-10-26T23:21:41.475Z
+date: 2024-12-18T18:05:26.417Z
+updated: 2024-12-22T06:56:02.600Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/baad2a6898579d22b314a48c702365fa65f786993ca895f7c3dd760e23406e4e.jpg
@@ -154,3 +154,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/baad2a6898579d22b314a48c702365f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211010393-9780968676295-dying-to-live-learn-to-live-a-full-life-from-your-lived-experiences-learn-to-live-a-full-life-from-your-lived-experiences-learn-to-live-a-full-life-from-your-li/"><u>Dying to Live: Learn to Live a Full Life From Your Lived Experiences: Learn to Live A Full Life From Your Lived Experiences: Learn to Live a Full Life From Your Lived Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010333-9781088234891-frente-a-la-eternidad/"><u>Frente a la Eternidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010337-9781088257388-la-roca-de-los-amantes/"><u>LA ROCA DE LOS AMANTES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010384-9781088240625-le-vol-de-la-mouette/"><u>Le Vol De La Mouette | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-12-05T22:03:51.309Z
-updated: 2024-12-12T20:31:26.484Z
+date: 2024-12-15T03:18:12.381Z
+updated: 2024-12-22T02:52:05.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,14 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210791602-9780711283268-goddess-stories/"><u>Goddess Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791570-9780711288249-mindfulness-in-baking/"><u>Mindfulness in Baking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791573-9780711288201-mindfulness-in-wild-swimming/"><u>Mindfulness in Wild Swimming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210791568-9780760385784-the-complete-book-of-birthdays-gift-edition/"><u>The Complete Book of Birthdays - Gift Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210792117-9780473553609-unwrap-your-dreams/"><u>Unwrap Your Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/271969-9781598759822-dream-psychology/"><u>Dream Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/273009-9781602562226-the-last-passage/"><u>The Last Passage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2700029-9781623171476-the-secret-nature-of-matter/"><u>The Secret Nature of Matter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2707603-9781449426897-wear-sunscreen/"><u>Wear Sunscreen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2708434-9781608683970-whispers-from-the-wild/"><u>Whispers from the Wild | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2708333-9780750956451-whos-there/"><u>Who's There? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

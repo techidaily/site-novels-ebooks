@@ -1,7 +1,7 @@
 ---
 title: The Transformative Power of Near-Death Experiences | Free Book
-date: 2024-10-19T17:30:52.436Z
-updated: 2024-10-27T00:01:20.170Z
+date: 2024-12-15T08:18:21.302Z
+updated: 2024-12-22T05:18:33.564Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02574efffbb31c731db97fca56560e6ad4915185e466ebcb5c81c909fccd89d1.jpg
@@ -212,3 +212,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02574efffbb31c731db97fca56560e6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211017941-9798987021910-calmly-centered/"><u>Calmly Centered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211018038-9781088235836-meditations-for-the-superhuman-mage/"><u>Meditations for the Superhuman Mage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211018012-9781734989892-symbol-synchronicity/"><u>Symbol & Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211017948-9798986780375-undertorah/"><u>Undertorah | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

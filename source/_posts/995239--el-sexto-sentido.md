@@ -1,7 +1,7 @@
 ---
 title: El sexto sentido | Free Book
-date: 2024-12-05T21:05:12.210Z
-updated: 2024-12-12T19:42:53.921Z
+date: 2024-12-18T18:57:18.084Z
+updated: 2024-12-22T03:44:58.527Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09e2abe6fe2dde841353c63363ca1d5ff45c3c3432104cb171cc31f65f5e4227.jpg
@@ -142,17 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09e2abe6fe2dde841353c63363ca1d5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210536716-9781473353619-a-beginners-guide-to-reading-tarot-cards-a-helpful-guide-for-anybody-with-an-interest-in-reading-cards/"><u>A Beginner's Guide to Reading Tarot Cards - A Helpful Guide for Anybody with an Interest in Reading Cards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210536556-9781473356412-a-guide-to-birthstones-a-collection-of-historical-articles-on-the-gemstones-linked-to-astrology/"><u>A Guide to Birthstones - A Collection of Historical Articles on the Gemstones Linked to Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210536347-9781473358447-fun-astrology-teach-yourself-the-signs-of-the-zodiac-and-what-they-mean/"><u>Fun Astrology - Teach Yourself the Signs of the Zodiac and What They Mean | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210537378-9781473340442-heliocentric-astrology-or-essentials-of-astronomy-and-solar-mentality-with-tables-of-ephemeris-to-1913/"><u>Heliocentric Astrology or Essentials of Astronomy and Solar Mentality with Tables of Ephemeris to 1913 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210536627-9781473346888-indian-palmistry/"><u>Indian Palmistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210538355-9782017166023-reveillez-le-creatif-qui-dort-en-vous/"><u>Réveillez le créatif qui dort en vous | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210537245-9781473357358-the-occult-sciences-oniromancy-or-the-study-of-dreams/"><u>The Occult Sciences - Oniromancy or the Study of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210537181-9781446548622-the-tarot-folklore-history-series/"><u>The Tarot (Folklore History Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332522-9798869177285-45-minuten-dood-verklaard/"><u>45 minuten dood verklaard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332524-9798869177094-45-minuten-fur-tot-erklart/"><u>45 Minuten für tot erklärt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332526-9798869177308-declarado-morto-por-45-minutos/"><u>Declarado morto por 45 minutos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332528-9798869177148-declarado-muerto-durante-45-minutos-lo-que-vio-y-como-cambio-su-vida-para-siempre/"><u>Declarado muerto durante 45 minutos: lo que vio y cómo cambió su vida para siempre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332527-9798869176653-pronounced-dead-for-45-minutes/"><u>Pronounced Dead for 45 Minutes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332525-9798869177377-obuyavlen-mertvym-na-45-minut/"><u>Объявлен мертвым на 45 минут | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

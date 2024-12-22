@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-12-06T20:53:17.306Z
-updated: 2024-12-12T19:46:07.146Z
+date: 2024-12-19T21:25:26.978Z
+updated: 2024-12-22T13:36:41.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,13 +136,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210533357-9798985500547-aim-high-the-heart-of-god-volume-1/"><u>Aim High - The Heart of God Volume 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533227-9781743588437-the-womens-circle/"><u>The Women's Circle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533034-9781912085088-trauma-healing-in-the-yoga-zone/"><u>Trauma Healing in the Yoga Zone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533110-9781250285287-whats-your-fcking-destiny/"><u>What's Your F*cking Destiny? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329361-9798869331427-astrological-numerology/"><u>Astrological Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329472-9798869333995-guarigione-vibrazionale/"><u>GUARIGIONE VIBRAZIONALE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329464-9798869333988-guerison-vibrationnelle/"><u>GUÉRISON VIBRATIONNELLE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329317-9789362619426-me-destination-vs-destination/"><u>Me - Destination vs. Destination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329475-9798869332684-sanacion-vibracional/"><u>SANACIÓN VIBRACIONAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329434-9798869305169-the-art-of-erotic-magic/"><u>The Art of Erotic Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329556-9798869303769-the-art-of-womanhood/"><u>THE ART OF WOMANHOOD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329177-9780061915949-unfinished-business/"><u>Unfinished Business | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329477-9798869333964-vibrations-heilung/"><u>VIBRATIONS HEILUNG | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

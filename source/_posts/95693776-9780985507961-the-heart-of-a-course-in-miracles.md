@@ -1,7 +1,7 @@
 ---
 title: The Heart of A Course in Miracles | Free Book
-date: 2024-10-20T16:55:37.423Z
-updated: 2024-10-26T17:32:04.293Z
+date: 2024-12-15T09:30:10.584Z
+updated: 2024-12-21T16:51:21.836Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14d62992de654a9fe42ffa834c37d1402137163f9899bf499bb4ef63f4a6dc92.jpg
@@ -171,3 +171,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14d62992de654a9fe42ffa834c37d14
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211124671-9781739286033-a-healing-journey/"><u>A Healing Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124832-9798889602972-conquering-mental-illness-a-practical-approach-for-children-and-adults-the-cause-and-solution/"><u>Conquering Mental Illness: A Practical Approach for Children and Adults: The Cause and Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124916-9781732378865-listen/"><u>LISTEN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124901-9789198209273-pilgrim-puzzle-of-symbols/"><u>PILGRIM; Puzzle of Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124722-9781087970240-spirit-gift/"><u>Spirit Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124667-9798988854111-switching-to-analog/"><u>Switching to Analog | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124818-9781662431685-time-tags/"><u>Time Tags | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

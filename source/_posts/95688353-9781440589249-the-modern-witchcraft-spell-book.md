@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Spell Book | Free Book
-date: 2024-10-24T04:14:20.548Z
-updated: 2024-10-27T03:39:10.160Z
+date: 2024-12-20T16:43:54.070Z
+updated: 2024-12-22T02:16:59.129Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1643d8e94295c3d8ffdbd5b2eab4ed45d3638f75911c62ee325b60734f56db73.jpg
@@ -176,3 +176,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1643d8e94295c3d8ffdbd5b2eab4ed4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211175276-9781615193578-breathe-mama-breathe-5-minute-mindfulness-for-busy-moms/"><u>Breathe, Mama, Breathe: 5-Minute Mindfulness for Busy Moms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211175736-9798218330750-cherished/"><u>Cherished | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211175338-9781615199082-dont-forget-to-breathe-5-minute-mindfulness-for-busy-women-beat-stress-and-find-calm-anytime-anywhere/"><u>Don't Forget to Breathe: 5-Minute Mindfulness for Busy Women - Beat Stress and Find Calm Anytime, Anywhere! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211174645-9781250360557-shadow-work/"><u>Shadow Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211175770-9781665899871-the-lords-prayer-truly-knowing-him/"><u>The Lord's Prayer. Truly Knowing Him | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

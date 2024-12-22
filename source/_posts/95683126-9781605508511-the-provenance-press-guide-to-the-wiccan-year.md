@@ -1,7 +1,7 @@
 ---
 title: The Provenance Press Guide to the Wiccan Year | Free Book
-date: 2024-10-22T22:50:01.130Z
-updated: 2024-10-26T22:36:07.474Z
+date: 2024-12-17T22:01:57.797Z
+updated: 2024-12-22T00:20:00.696Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbabcbdcf1d087729bc24dc8a3161d2c896206f347cef04487058561dcd34b98.jpg
@@ -146,3 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbabcbdcf1d087729bc24dc8a3161d2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211222758-9780593958414-a-history-of-ghosts-spirits-and-the-supernatural/"><u>A History of Ghosts, Spirits and the Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224350-9781529438963-spells-for-love/"><u>Spells for Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224272--starlore-of-the-constellations/"><u>Starlore of the Constellations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224139-9781668070703-the-369-journal/"><u>The 369 Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211223786--the-green-witch-illustrated/"><u>The Green Witch Illustrated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224140-9781668070727-the-lucky-girl-journal/"><u>The Lucky Girl Journal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

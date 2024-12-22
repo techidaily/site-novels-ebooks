@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-12-10T18:57:16.470Z
-updated: 2024-12-13T05:19:37.195Z
+date: 2024-12-15T08:40:55.137Z
+updated: 2024-12-22T09:29:26.291Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,16 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210665960-9780645426212-a-practical-guide-for-self-change/"><u>A Practical Guide for Self Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666007-9783986538637-dark-psychology-101/"><u>DАRK PSYCHOLOGY 101 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666017-9798986536606-my-twin-flame-journey-of-separation-surrender-and-release/"><u>My Twin Flame Journey of Separation, Surrender, and Release | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665283-9780740790546-reasons-to-be-happy/"><u>Reasons to Be Happy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665981-9781088067000-todo-comienza-con-amor/"><u>Todo Comienza Con Amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665287-9780740786815-when-they-were-22/"><u>When They Were 22 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665284-9781449408022-where-angels-tread/"><u>Where Angels Tread | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211426497-9781631528415-a-delightful-little-book-on-aging/"><u>A Delightful Little Book On Aging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424941-9781631521294-change-maker/"><u>Change Maker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424918-9781631520785-falling-together/"><u>Falling Together | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211425017-9781631523052-hidden-treasure/"><u>Hidden Treasure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211425094-9781631524707-memories-in-dragonflies/"><u>Memories in Dragonflies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424997-9781631522499-the-book-of-calm/"><u>The Book of Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424920-9781631520822-the-way-of-the-mysterial-woman/"><u>The Way of the Mysterial Woman | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

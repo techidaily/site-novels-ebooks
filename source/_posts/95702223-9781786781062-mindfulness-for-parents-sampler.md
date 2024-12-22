@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Parents Sampler | Free Book
-date: 2024-10-20T17:23:37.319Z
-updated: 2024-10-27T04:13:18.834Z
+date: 2024-12-21T02:23:40.206Z
+updated: 2024-12-22T13:34:02.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e85048c297c341474908cdb9c1b988ef724e62764b3a5f6da4d04b137b3e5c4d.jpg
@@ -169,3 +169,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e85048c297c341474908cdb9c1b988e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211146990-9781777279660-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211146846-9781638448662-bunsology-body/"><u>Bunsology Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211146862-9798889436867-discovering-me-365/"><u>Discovering Me 365 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211146985-9789395460422-eternal-youth/"><u>Eternal Youth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145924-9798218255534-living-a-spiritual-life-in-a-material-world/"><u>Living a Spiritual Life in a Material World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211146170-9781958481271-slaying-tampa-bay/"><u>Slaying Tampa Bay | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145920-9798889267539-yin-yang/"><u>Yin Yang | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

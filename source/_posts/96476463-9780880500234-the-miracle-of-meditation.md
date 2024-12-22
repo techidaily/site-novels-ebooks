@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-12-07T01:48:13.748Z
-updated: 2024-12-12T19:42:01.423Z
+date: 2024-12-19T08:40:13.497Z
+updated: 2024-12-21T22:07:12.496Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,14 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210768302-9781639199129-curso-de-escritura-automatica/"><u>Curso de escritura automática | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768304-9781639199136-el-angel-de-la-guarda/"><u>El ángel de la guarda | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768270-9781639190966-el-gran-libro-de-los-suenos/"><u>El gran libro de los sueños | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768255-9781639190836-todo-el-zodiaco-capricornio/"><u>Todo el Zodiaco. Capricornio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768256-9781639190843-todo-el-zodiaco-piscis/"><u>Todo el Zodiaco. Piscis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2610306-9781459737884-haunted-hospitals/"><u>Haunted Hospitals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2610148-9781250066947-kindness-boomerang/"><u>Kindness Boomerang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2610445-9780007394180-shine-on-visions-of-life/"><u>Shine On: Visions of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2610658-9780007374328-the-infinite-mind/"><u>The Infinite Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2609963-9781841814650-the-qigong-bible/"><u>The Qigong Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612029-9780892546305-the-sworn-book-of-honorius/"><u>The Sworn Book of Honorius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612237-9781101905371-unplug/"><u>Unplug | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

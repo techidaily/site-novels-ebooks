@@ -1,7 +1,7 @@
 ---
 title: Paranormal and Transcendental Experience | Free Book
-date: 2024-12-03T05:02:15.698Z
-updated: 2024-12-06T21:35:54.628Z
+date: 2024-12-14T17:50:21.062Z
+updated: 2024-12-21T21:59:19.061Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858be456feab2af71507ceb8cba5237ffe9a.jpg
@@ -138,16 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210128582-9781401962951-african-goddess-initiation/"><u>African Goddess Initiation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127817-9781735539355-breathing-with-orisha/"><u>Breathing With Orisha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210129042-9781420970159-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210128301-9780691221991-doctor-illuminatus/"><u>Doctor Illuminatus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210129044-9781420970791-in-tune-with-the-infinite/"><u>In Tune with the Infinite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210129031-9781420970814-the-edinburgh-lectures-on-mental-science/"><u>The Edinburgh Lectures on Mental Science | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210129000-9781420970319-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484685-9780307556035-extraordinary-guidance/"><u>Extraordinary Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/488426-9780759525474-gay-astrology/"><u>Gay Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/488387-9780446569675-god-never-blinks/"><u>God Never Blinks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484580-9780307556608-heal-thy-self/"><u>Heal Thy Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/485980-9780226642031-the-place-of-enchantment/"><u>The Place of Enchantment | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

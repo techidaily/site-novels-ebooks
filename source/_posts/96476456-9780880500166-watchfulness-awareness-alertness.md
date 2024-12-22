@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-12-05T19:06:14.281Z
-updated: 2024-12-12T23:32:07.365Z
+date: 2024-12-16T20:40:16.554Z
+updated: 2024-12-22T00:14:58.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,17 +164,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210768056-9781646998708-curso-de-cartomancia-como-leer-las-cartas-para-predecir-el-futuro/"><u>Curso de Cartomancia - Cómo leer las cartas para predecir el futuro | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768067-9781646998777-el-extraordinario-mundo-de-lo-paranormal/"><u>El extraordinario mundo de lo paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768054-9781646998661-el-lenguaje-secreto-del-tarot/"><u>El lenguaje secreto del tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768062-9781646998739-el-poder-magico-de-las-velas/"><u>El poder mágico de las velas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768063-9781646998685-interpretar-el-tarot/"><u>Interpretar el tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768065-9781646998388-la-kundalini/"><u>La Kundalini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768059-9781646998647-nostradamus-las-profecias-desde-hoy-hasta-el-ano-2200/"><u>Nostradamus - Las profecías desde hoy hasta el año 2200 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210767938-9781803411798-pagan-portals-dream-analysis-made-easy/"><u>Pagan Portals - Dream Analysis Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2602710-9780007378418-a-free-spirit/"><u>A Free Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260193-9781101190470-beyond-these-four-walls/"><u>Beyond These Four Walls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2603840-9781785353352-mediumship-within/"><u>Mediumship Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2598278-9780811745772-monsters-of-west-virginia/"><u>Monsters of West Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2596131-9781785352638-more/"><u>More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2603841-9781785353239-pagan-portals-the-cailleach/"><u>Pagan Portals - The Cailleach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2596132-9781785353413-the-human-experience-is-the-dance-of-heaven-and-earth/"><u>The Human Experience Is The Dance Of Heaven And Earth | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-12-12T00:21:23.394Z
-updated: 2024-12-12T18:35:20.495Z
+date: 2024-12-19T20:35:52.891Z
+updated: 2024-12-22T04:08:43.376Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,16 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210772295-9781088121924-fearfully-forward-success/"><u>Fearfully Forward Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772834-9781922405081-full-ideals/"><u>Full Ideals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772841-9781649694669-reflections/"><u>Reflections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772827-9781925939040-the-grass-root-friend/"><u>The Grass-Root Friend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772825-9781925819571-twenty-three-years-of-lessons/"><u>Twenty Three Years of Lessons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772858-9781649699800-what-if/"><u>WHAT IF | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772303-9781088123065-word-to-the-wise-20-108-days-of-power/"><u>Word to the Wise 2.0 - 108 Days of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641139-9780750957823-haunted-kirkcaldy/"><u>Haunted Kirkcaldy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2643813-9781785353390-insights-from-the-masters/"><u>Insights From the Masters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2643812-9781785353697-natural-born-shamans-a-spiritual-toolkit-for-life/"><u>Natural Born Shamans - A Spiritual Toolkit for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2643811-9781785351860-no-time-and-nowhere/"><u>No Time and Nowhere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641429-9780750957793-the-little-book-of-ghosts/"><u>The Little Book of Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2643806-9781785355776-the-way/"><u>The Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2643463-9781250134776-your-story-in-the-stars/"><u>Your Story in the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2644199-9781449475178-zen-penguins/"><u>Zen Penguins | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

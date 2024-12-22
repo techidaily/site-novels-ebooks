@@ -1,7 +1,7 @@
 ---
 title: The Dreamlife of Families (2nd ed.) | Free Book
-date: 2024-10-22T03:21:28.226Z
-updated: 2024-10-26T18:08:57.988Z
+date: 2024-12-17T21:30:12.873Z
+updated: 2024-12-21T18:01:49.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a4ed53646bbb92e5078894e83a84116e2a8b4db10ffd7a84b2e03a543264db2.jpg
@@ -193,3 +193,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a4ed53646bbb92e5078894e83a8411
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210926297-9781903353387-astro-mind-maps-101-astrology-questions/"><u>Astro Mind Maps & 101 Astrology Questions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926296-9781903353684-astrological-time/"><u>Astrological Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926302-9781903353622-charts-are-like-passports/"><u>Charts are Like Passports | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926303-9781903353721-the-astrology-of-love-sex-and-attraction/"><u>The Astrology of Love, Sex and Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926295-9781903353486-the-astrology-quartet/"><u>The Astrology Quartet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926301-9781903353257-the-contemporary-astrologers-handbook/"><u>The Contemporary Astrologer's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926298-9781903353608-the-devil-in-the-detail/"><u>The Devil in the Detail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926299-9781903353707-the-midheaven/"><u>The Midheaven | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

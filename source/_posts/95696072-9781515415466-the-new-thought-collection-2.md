@@ -1,7 +1,7 @@
 ---
 title: The New Thought Collection #2 | Free Book
-date: 2024-10-23T18:54:02.712Z
-updated: 2024-10-27T02:36:57.693Z
+date: 2024-12-20T04:23:20.266Z
+updated: 2024-12-22T01:22:49.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b439ce4127d1f00f133ce9c6c14e240836833817808baa83922a9913cc97732d.jpg
@@ -152,3 +152,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b439ce4127d1f00f133ce9c6c14e240
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211140235-9781088082669-awakening-the-souls-vibration/"><u>Awakening the Soul's Vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140333-9781988842042-druidism/"><u>Druidism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140243-9781958082768-here-and-hereafter/"><u>Here and Hereafter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211139224-9782017229759-magie-des-rituels-sacres-et-sauvages-dun-druide-actuel/"><u>Magie des rituels sacrés et sauvages d'un druide actuel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211139877-9781642587494-walking-with-god/"><u>Walking with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140344-9781961364073-women-who-dream/"><u>Women Who Dream | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

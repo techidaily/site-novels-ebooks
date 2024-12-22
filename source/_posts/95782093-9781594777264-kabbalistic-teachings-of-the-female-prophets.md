@@ -1,7 +1,7 @@
 ---
 title: Kabbalistic Teachings of the Female Prophets | Free Book
-date: 2024-10-21T01:23:28.035Z
-updated: 2024-10-26T16:27:53.639Z
+date: 2024-12-14T21:45:06.732Z
+updated: 2024-12-22T13:47:30.579Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bf8bb632187cfc6e96a705cde32c6616793e670522f6ddc4d37828d5e04bffbc.jpg
@@ -182,3 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bf8bb632187cfc6e96a705cde32c661
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877265-9781612831251-god-is-not-dead/"><u>God Is Not Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877262-9781612832876-mental-radio/"><u>Mental Radio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877269-9781612833156-out-of-body-experiences/"><u>Out of Body Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877266-9781612833231-the-future-is-yours/"><u>The Future Is Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877270-9781612833088-ufos-ets-and-alien-abductions/"><u>UFOs, ETs, and Alien Abductions | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

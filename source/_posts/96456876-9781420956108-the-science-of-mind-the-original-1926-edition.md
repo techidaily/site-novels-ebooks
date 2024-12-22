@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-12-09T01:03:43.825Z
-updated: 2024-12-12T20:25:51.585Z
+date: 2024-12-15T23:11:57.598Z
+updated: 2024-12-22T12:28:18.451Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,16 +156,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210803181-9798822912250-admit-it-youre-god/"><u>Admit It, You're God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210802875-9781637511367-bondages/"><u>Bondages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210803289-9783988312075-chakras-healing-for-beginners/"><u>CHAKRAS HEALING FOR BEGINNERS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210802738-9781957506494-coming-home/"><u>COMING HOME | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210803164-9798885057493-my-journey/"><u>My Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210802992-9788794430043-the-attack-on-the-ferris-wheel/"><u>THE ATTACK ON THE FERRIS WHEEL | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210803027-9781957917290-the-heart-of-fear/"><u>The Heart of Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/320677-9780973418613-conscious-women-conscious-lives/"><u>Conscious Women - Conscious Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/320678-9780973670509-conscious-women-conscious-lives/"><u>Conscious Women - Conscious Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/320676-9780968340202-dream-yourself-awake/"><u>Dream Yourself Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/319418-9781416580102-the-28-laws-of-attraction/"><u>The 28 Laws of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/317941-9781101213827-the-passion-test/"><u>The Passion Test | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

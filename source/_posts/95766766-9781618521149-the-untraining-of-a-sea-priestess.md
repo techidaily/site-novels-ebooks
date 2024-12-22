@@ -1,7 +1,7 @@
 ---
 title: The Untraining of a Sea Priestess | Free Book
-date: 2024-10-23T02:09:25.984Z
-updated: 2024-10-26T20:31:05.941Z
+date: 2024-12-18T09:30:44.960Z
+updated: 2024-12-22T12:31:41.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/31293a600aaccad80d995515576cfad48d926b8f28e87a17ffb467f174a5dfac.jpg
@@ -175,3 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/31293a600aaccad80d995515576cfad
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932944-9781912230938-child-of-the-cosmos/"><u>Child of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932942-9781912230600-demons-and-healing/"><u>Demons and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932953-9781855844445-good-and-evil-spirits/"><u>Good and Evil Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932947-9781855842946-knowledge-of-the-higher-worlds/"><u>Knowledge of the Higher Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932949-9781912992034-love-love-love/"><u>Love, Love, Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932946-9781912230945-the-three-meetings/"><u>The Three Meetings | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2024-11-30T18:28:44.375Z
-updated: 2024-12-06T22:56:09.279Z
+date: 2024-12-15T05:40:26.909Z
+updated: 2024-12-22T12:44:33.659Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,17 +149,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210107076-9781735059020-awakening-the-soul-of-power/"><u>Awakening the Soul of Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210107532-9781989838785-bedtime-stories-for-adults-collection-relaxing-sleep-stories-hypnosis-guided-meditations-for-deep-sleep-mindfulness-overcoming-anxiety-panic-attacks-insomnia-st/"><u>Bedtime Stories for Adults Collection Relaxing Sleep Stories, Hypnosis & Guided Meditations for Deep Sleep, Mindfulness, Overcoming Anxiety, Panic Attacks, Insomnia & Stress Relief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210107396-9781473581326-find-your-flow/"><u>Find Your Flow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210107130-9781734719901-from-shy-to-oh-my-the-shy-introverts-guide-to-being-sexy-expressive-and-whole/"><u>From Shy to Oh My! The Shy Introvert's Guide to Being Sexy, Expressive and Whole | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210108711-9788499887074-la-ciencia-y-las-practicas-espirituales/"><u>La ciencia y las prácticas espirituales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210107887-9781645319740-personal-quotes-on-my-bipolar-life/"><u>Personal Quotes on My Bipolar Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210107456-9780994359339-when-eve-walked/"><u>When Eve Walked | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210108529-9781735471020-you-are-intuitive/"><u>You Are Intuitive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435092-9781402220593-complete-dream-book/"><u>Complete Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435848-9781775568421-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/434016-9781775568025-how-to-read-the-crystal/"><u>How to Read the Crystal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/435849-9781775568513-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/434015-9781775568032-the-joyful-heart/"><u>The Joyful Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/434018-9781775567837-your-word-is-your-wand/"><u>Your Word is Your Wand | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

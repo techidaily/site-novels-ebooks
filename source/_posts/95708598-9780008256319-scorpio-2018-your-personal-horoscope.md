@@ -1,7 +1,7 @@
 ---
 title: "Scorpio 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-20T21:05:53.441Z
-updated: 2024-10-27T05:59:29.290Z
+date: 2024-12-15T18:26:38.524Z
+updated: 2024-12-22T05:27:41.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f49e4034211eeb8ec798d8ac7500734c47747d0ee85928bf995953ed5e77eb01.jpg
@@ -162,3 +162,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f49e4034211eeb8ec798d8ac7500734
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211058387-9781960748676-astrologie/"><u>Astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053739-9780760388822-indian-spirituality/"><u>Indian Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211054237-9781841815756-past-life-astrology/"><u>Past Life Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058650-9781961347076-the-dead-call-upon-me/"><u>The Dead Call Upon Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058507-9781916775145-the-republic-of-the-soul/"><u>The Republic of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058512-9781916775114-the-republic-of-the-soul/"><u>The Republic of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058575-9783988314888-third-eye-awakening/"><u>THIRD EYE AWAKENING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058517-9798885832243-who-told-you-that/"><u>Who Told You That? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

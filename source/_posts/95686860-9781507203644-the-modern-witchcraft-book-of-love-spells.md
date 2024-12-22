@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Book of Love Spells | Free Book
-date: 2024-10-19T21:33:51.100Z
-updated: 2024-10-26T21:21:43.684Z
+date: 2024-12-18T11:48:22.166Z
+updated: 2024-12-22T06:11:56.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/524f6d7c131b6667348237341a4caf32353d571f43b46d2f9e42f2978bf6312b.jpg
@@ -174,3 +174,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/524f6d7c131b6667348237341a4caf3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211156400-9798986608723-100-questions-about-hooponopono/"><u>100 Questions about Ho'oponopono | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211156160-9798889431060-christian-mystical-theology/"><u>Christian Mystical Theology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211156389-9798868999239-rosa-azul/"><u>Rosa Azul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211156156-9798888322154-victory-in-apparent-defeat/"><u>Victory in Apparent Defeat | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

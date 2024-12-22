@@ -1,7 +1,7 @@
 ---
 title: Real Miracles, Divine Intervention, and Feats of Incredible Survival | Free Book
-date: 2024-12-11T06:35:07.404Z
-updated: 2024-12-12T17:24:01.269Z
+date: 2024-12-21T08:26:00.476Z
+updated: 2024-12-22T07:37:52.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57ea7dfd2cda2089bb353ab39f65ecb5d50.jpg
@@ -203,15 +203,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762045-9781800077324-affirmations-for-every-day/"><u>Affirmations for Every Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761877-9781591798903-awakening-to-the-spirit-world/"><u>Awakening to the Spirit World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762021-9780857654144-master-your-inner-critic/"><u>Master Your Inner Critic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761872-9781622036332-the-re-enchantment/"><u>The Re-Enchantment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761884-9781622032228-the-shaman-within/"><u>The Shaman Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761876-9781591799030-what-to-do-when-you-cant-decide/"><u>What to Do When You Can't Decide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563544-9781780282534-cracking-the-symbol-code/"><u>Cracking the Symbol Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563551-9781780284255-intervention/"><u>Intervention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563552-9781780284279-new-revolutions-for-a-small-planet/"><u>New Revolutions for a Small Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2562573-9781782797784-the-art-of-ritual/"><u>The Art of Ritual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2562575-9781785350061-the-gift-of-an-angel/"><u>The Gift of an Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563547-9781780284095-the-psychics-handbook/"><u>The Psychic's Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: 365 Ways to Live the Law of Attraction | Free Book
-date: 2024-10-22T21:47:05.435Z
-updated: 2024-10-27T05:16:49.188Z
+date: 2024-12-21T07:39:10.981Z
+updated: 2024-12-22T11:26:50.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3fd7f468f68f90ffe751f6aef87c93a2b392d4a4794837293ef6e098b7db6c8.jpg
@@ -158,3 +158,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3fd7f468f68f90ffe751f6aef87c93
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211231303-9781784887803-everyday-magic/"><u>Everyday Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232252-9781649631084-im-mindful-now-what/"><u>I'm Mindful, Now What? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211231353-9782017229988-la-roue/"><u>La Roue | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211231378-9782385640354-le-retournement-interieur-les-questions-essentielles-a-se-poser-quand-le-mental-devient-envahis/"><u>Le retournement intérieur : Les questions essentielles à se poser quand le mental devient envahis... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211231382-9782889702282-medium-tarologue-astrologue-comment-vivre-de-la-spiritualite/"><u>Médium, tarologue, astrologue... comment vivre de la spiritualité | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232546-9781667460703-sepanouir-en-expatriation/"><u>S'épanouir en expatriation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232257-9781649632647-sex-and-your-stars/"><u>Sex and Your Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232261-9781649631527-the-way-of-virtue/"><u>The Way of Virtue | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

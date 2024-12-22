@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2024-12-12T02:39:37.158Z
-updated: 2024-12-13T00:12:35.670Z
+date: 2024-12-20T05:39:57.173Z
+updated: 2024-12-21T19:29:47.246Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,14 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210692733-9781959561088-cosmic-christ-transmissions/"><u>Cosmic Christ Transmissions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692674-9780760380147-moon-energy-for-beginners/"><u>Moon Energy for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692731-9781959561125-path-of-awakening/"><u>Path of Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210691424-9780760380086-the-beginners-guide-to-crystal-healing/"><u>The Beginner's Guide to Crystal Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692657-9781801520331-the-tree-of-life-and-death/"><u>The Tree of Life and Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448272-9798368815367-moon-man-4/"><u>Moon Man #4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448601-9798991070317-queen-of-the-nile/"><u>Queen of the Nile | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448615-9780645830989-the-practicing-witch-diary-book-of-shadows-2025-northern-hemisphere/"><u>The Practicing Witch Diary - Book of Shadows - 2025 - Northern Hemisphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447816-9781763682818-the-practicing-witch-diary-book-of-shadows-2025-southern-hemisphere/"><u>The Practicing Witch Diary - Book of Shadows - 2025 - Southern Hemisphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447817-9798330381081-enas-neos-tropos-ypar3hs/"><u>Ένας νέος τρόπος ύπαρξης | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

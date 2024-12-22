@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2024-12-08T01:01:14.951Z
-updated: 2024-12-12T22:16:03.918Z
+date: 2024-12-18T13:14:13.828Z
+updated: 2024-12-22T11:00:30.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,13 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210661284-9798985526776-gratitude/"><u>Gratitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661767-9781956108033-soul-warrior/"><u>Soul Warrior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661301-9798218009137-the-book-of-proverbs/"><u>The Book of Proverbs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661783-9798986875514-the-real-you/"><u>The Real You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211417365-9781649632210-78-acts-of-liberation/"><u>78 Acts of Liberation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211416270-9781684351275-a-guide-to-sky-monsters/"><u>A Guide to Sky Monsters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414929-9798987674949-journey-to-true-self/"><u>Journey to True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211416901-9783964464989-open-up-and-find-yourself/"><u>Open Up and Find Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211416777-9781964959030-russian-edition-operating-in-abundance/"><u>Russian Edition - Operating in Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211415123-9781964959078-russian-edition-treasures-of-darkness-volume-2/"><u>Russian Edition - Treasures of Darkness: Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211416306-9781797225562-tarot-for-creativity/"><u>Tarot for Creativity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211416759-9780645484632-the-practice-of-journaling-prayer-testimony-and-gratitude/"><u>The Practice of Journaling Prayer, Testimony, and Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211415170-9781964959061-traversing-the-pathways/"><u>Traversing the Pathways | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

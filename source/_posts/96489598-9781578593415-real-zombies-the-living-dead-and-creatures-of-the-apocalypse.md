@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-12-08T22:39:26.443Z
-updated: 2024-12-12T20:59:56.079Z
+date: 2024-12-17T07:41:46.527Z
+updated: 2024-12-21T21:32:43.240Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,16 +238,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210727319-9781454946755-animal-intuition/"><u>Animal Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727066-9781685265557-drowning-in-gods-love/"><u>Drowning In God's Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727317-9781454948650-elemental-healing/"><u>Elemental Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727278-9781911134671-ingenium-alchemy-of-the-magical-mind/"><u>Ingenium - Alchemy of the Magical Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727242-9798218022990-pleiadian-master-teachings/"><u>Pleiadian Master Teachings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727488-9780760353646-the-ancient-egyptian-book-of-the-dead/"><u>The Ancient Egyptian Book of the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727107-9781638447009-the-four-reasons-why-we-live/"><u>The Four Reasons Why We Live | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211476-9780007478668-the-dog-in-2013-your-chinese-horoscope/"><u>The Dog in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211474-9780007478712-the-monkey-in-2013-your-chinese-horoscope/"><u>The Monkey in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211477-9780007478651-the-pig-in-2013-your-chinese-horoscope/"><u>The Pig in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211475-9780007478682-the-rooster-in-2013-your-chinese-horoscope/"><u>The Rooster in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211499-9780007479566-your-personal-horoscope-2014-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2014: Month-by-month forecasts for every sign | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

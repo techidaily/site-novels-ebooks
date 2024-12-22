@@ -1,7 +1,7 @@
 ---
 title: The Intelligence of the Cosmos | Free Book
-date: 2024-10-22T16:17:27.569Z
-updated: 2024-10-27T03:56:56.755Z
+date: 2024-12-15T19:25:39.029Z
+updated: 2024-12-22T03:59:09.015Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b1a1d9bc0d469b7e99a77a0fc5df73766e11c0a9ebfa786e22ebf532f2dcc39.jpg
@@ -186,3 +186,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b1a1d9bc0d469b7e99a77a0fc5df73
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210845656-9781454952602-a-little-bit-of-angel-numbers/"><u>A Little Bit of Angel Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845903-9781761039010-ayurveda/"><u>Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845836-9798889269755-discover-use-your-greatest-superpower/"><u>Discover & Use Your Greatest Superpower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845725--gods-itinerary/"><u>God's Itinerary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845803-9781761038884-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845780-9781088157619-the-prophet-daniel/"><u>The Prophet Daniel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845657-9781454950042-your-blueprint-for-pleasure/"><u>Your Blueprint for Pleasure | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

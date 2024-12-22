@@ -1,7 +1,7 @@
 ---
 title: The Dalai Lama’s Book of Transformation | Free Book
-date: 2024-10-22T03:28:13.731Z
-updated: 2024-10-26T19:53:22.178Z
+date: 2024-12-15T22:34:28.937Z
+updated: 2024-12-22T03:29:38.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2e1731c95c52814e91702a9c2957341bab8dd2dc5d4753052fd6f12dbd8eca46.jpg
@@ -165,3 +165,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2e1731c95c52814e91702a9c2957341
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211130896-9782385640231-entrez-dans-lere-du-verseau/"><u>Entrez dans l'ère du Verseau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130890-9782385640217-karma-mode-demploi-karmatherapie/"><u>Karma, mode d'emploi (karmathérapie...) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131650-9781454952459-metaphysical-af/"><u>Metaphysical AF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130950-9782355992728-n-73-le-cantique-des-cantiques-rituel-initiatique/"><u>N. 73 Le cantique des cantiques, rituel initiatique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130948-9782355992674-n69-les-lieux-initiatiques-de-la-maitrise/"><u>N.69 Les lieux initiatiques de la maîtrise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130944-9782355992704-n71-les-dix-offices-de-la-loge-et-lhomme-univers/"><u>N.71 Les dix offices de la loge et l'homme univers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130954-9782355992735-n72-le-grand-maitre-architecte-la-maitrise-de-letui-de-mathematiques/"><u>N.72 Le grand maître architecte, la maîtrise de l'étui de mathématiques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131713-9798889265160-the-7-secrets-to-creating-a-life-you-love/"><u>The 7 Secrets to Creating a Life You Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131618-9781837963034-when-therapy-doesnt-work/"><u>When Therapy Doesn't Work | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

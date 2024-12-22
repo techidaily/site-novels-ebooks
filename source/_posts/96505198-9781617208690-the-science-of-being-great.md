@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2024-12-12T03:57:00.687Z
-updated: 2024-12-12T19:56:07.772Z
+date: 2024-12-20T05:03:59.178Z
+updated: 2024-12-22T11:57:02.933Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,13 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210669416-9798887620114-growing-consciousness/"><u>Growing Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210670452-9781454946779-healing-your-inner-child/"><u>Healing Your Inner Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669419-9798887620121-the-buddha-and-the-bard/"><u>The Buddha and the Bard | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669422-9798887620169-the-power-of-crystal-healing/"><u>The Power of Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435718-9798330330973-a-good-fight-of-faith/"><u>A Good Fight of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434956-9781648414688-cooking-with-magic-mushrooms/"><u>Cooking with Magic Mushrooms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435308-9781068848902-decode-the-deck/"><u>Decode the Deck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435707-9788412856330-die-wahl-der-seele-teil-1/"><u>Die Wahl der Seele. Teil 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435708-9788412856354-die-wahl-der-seele-teil-2/"><u>Die Wahl der Seele. Teil 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435706-9798894650548-our-spiritual-being-above-and-beyond-our-human-condition-spirit-form/"><u>Our Spiritual Being Above and Beyond our Human Condition: Spirit & Form | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435042--pain-free/"><u>Pain Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435582-9798218474614-spell-jars-and-pouches/"><u>Spell Jars and Pouches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435021--truth-demands/"><u>Truth Demands | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

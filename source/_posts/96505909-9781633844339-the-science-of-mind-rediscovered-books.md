@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2024-12-11T20:53:09.367Z
-updated: 2024-12-12T19:26:16.268Z
+date: 2024-12-18T07:22:34.454Z
+updated: 2024-12-22T03:45:10.614Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,13 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210614965-9781523505159-an-invitation-to-dream/"><u>An Invitation to Dream | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210615384-9781612125121-joy-in-every-moment/"><u>Joy in Every Moment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210615132-9781523502141-the-tiny-book-of-tiny-pleasures/"><u>The Tiny Book of Tiny Pleasures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614910-9781579659264-whole-beauty-meditation-mindfulness/"><u>Whole Beauty: Meditation & Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372601-9781925924848-clearing/"><u>CLEARING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372598-9781925924817-magickal-mermaids/"><u>MAGICKAL MERMAIDS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372599-9781925924824-magickal-unicorns/"><u>MAGICKAL UNICORNS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372594-9781925924138-the-art-of-witch/"><u>The Art of Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372595-9781925924145-the-book-of-faerie-spells/"><u>The Book of Faerie Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372596-9781925924152-the-book-of-tree-spells/"><u>The Book of Tree Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372597-9781925924169-you-are-clairvoyant/"><u>You Are Clairvoyant | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

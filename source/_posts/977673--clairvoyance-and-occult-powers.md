@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2024-12-09T22:11:40.494Z
-updated: 2024-12-13T00:56:59.209Z
+date: 2024-12-16T18:54:51.803Z
+updated: 2024-12-21T16:03:38.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,18 +133,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210580514-9780578299112-awakening-new-life/"><u>Awakening New Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580394-9781647553043-ghostly-tales-of-iowa-2nd-ed/"><u>Ghostly Tales of Iowa (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580397-9781647553067-ghostly-tales-of-michigan-2nd-ed/"><u>Ghostly Tales of Michigan (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580395-9781647553081-ghostly-tales-of-minnesota-2nd-ed/"><u>Ghostly Tales of Minnesota (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580391-9781647553128-ghostly-tales-of-wisconsin-2nd-ed/"><u>Ghostly Tales of Wisconsin (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580390-9781647553180-minnesota-hauntings-2nd-ed/"><u>Minnesota Hauntings (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580392-9781647553203-monsters-of-the-midwest-2nd-ed/"><u>Monsters of the Midwest (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580447-9781954047273-sacred-medicine/"><u>Sacred Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580396-9781647553227-the-mysterious-north-shore-of-lake-superior-2nd-ed/"><u>The Mysterious North Shore of Lake Superior (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360565-9791223023846-die-macht-des-unterbewusstseins/"><u>Die Macht des Unterbewusstseins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360546-9798218435134-healed-to-healer-a-womans-transformation-through-christian-shamanism-and-the-power-of-spirit/"><u>Healed to Healer A Woman's Transformation through Christian Shamanism and the Power of Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360563-9791223023464-la-puissance-du-subconscient/"><u>La Puissance du Subconscient | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360566-9791223023839-mente-subconsciente-vida-consciente/"><u>Mente Subconsciente, Vida Consciente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360137--the-buddhas-gift-to-the-world/"><u>The Buddha's Gift to the World | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2024-12-09T23:56:15.411Z
-updated: 2024-12-13T04:48:26.762Z
+date: 2024-12-18T23:10:54.579Z
+updated: 2024-12-22T02:41:55.374Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,15 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210802666-9781953910950-divine-sparks/"><u>Divine Sparks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210802240-9781662494451-palabra-de-aliento-para-la-mujer/"><u>Palabra de Aliento para la Mujer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210801824-9781841508832-the-posthuman-condition/"><u>The Posthuman Condition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210801050-9780875169217-the-word-of-neville/"><u>THE WORD OF NEVILLE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210802443-9781956019421-untangle/"><u>Untangle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210801051-9798887740799-working-with-the-law/"><u>WORKING WITH THE LAW | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/316791-9780974274904-5-gifts-for-an-abundant-life/"><u>5 Gifts for an Abundant Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/315110-9781881165200-angels-among-us/"><u>Angels Among Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/315660-9781416571513-ghost-hunting/"><u>Ghost Hunting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/313023-9781416571612-secrets-of-the-monarch/"><u>Secrets of the Monarch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/315664-9781416571483-soul-to-soul/"><u>Soul to Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/313025-9781416554400-the-5-rules-of-thought/"><u>The 5 Rules of Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/313032-9781416571629-the-new-science-of-getting-rich/"><u>The New Science of Getting Rich | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/317457-9781101212004-the-two-marys/"><u>The Two Marys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/317380-9781416575610-the-way-of-the-fertile-soul/"><u>The Way of the Fertile Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

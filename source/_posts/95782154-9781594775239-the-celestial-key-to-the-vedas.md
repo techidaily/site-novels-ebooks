@@ -1,7 +1,7 @@
 ---
 title: The Celestial Key to the Vedas | Free Book
-date: 2024-10-24T05:12:19.115Z
-updated: 2024-10-27T00:13:00.191Z
+date: 2024-12-14T17:10:16.841Z
+updated: 2024-12-22T08:08:39.996Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba429b5354c41a600d55825c3b644593effef16c0810f2c2f00567c9a620bf4c.jpg
@@ -172,3 +172,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba429b5354c41a600d55825c3b64459
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210850025-9781446359211-jungian-spirituality/"><u>Jungian Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850964-9781398832169-moon-signs/"><u>Moon Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850553-9798886859300-the-arrow-of-a-second-chance/"><u>The Arrow of a Second Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850094-9781504085694-the-sorcerers-handbook/"><u>The Sorcerer's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850963-9781398831957-the-wiccan-guide-to-self-care/"><u>The Wiccan Guide to Self-care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850024-9781446359198-your-dark-side/"><u>Your Dark Side | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

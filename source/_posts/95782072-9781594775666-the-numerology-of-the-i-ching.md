@@ -1,7 +1,7 @@
 ---
 title: The Numerology of the I Ching | Free Book
-date: 2024-10-21T03:43:21.312Z
-updated: 2024-10-26T16:05:31.152Z
+date: 2024-12-19T21:02:00.729Z
+updated: 2024-12-22T07:57:21.672Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d41a92588d628342abc1aaddefa2a4b6c54c1f749d1a4caf2d8581350dae0fd5.jpg
@@ -175,3 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d41a92588d628342abc1aaddefa2a4b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210867990-9780811749688-big-book-of-new-jersey-ghost-stories/"><u>Big Book of New Jersey Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867998-9780811752657-big-book-of-ohio-ghost-stories/"><u>Big Book of Ohio Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210868005-9780811758598-big-book-of-west-virginia-ghost-stories/"><u>Big Book of West Virginia Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210868230-9781088164877-engaging-in-intimate-conversation-with-god/"><u>Engaging in Intimate Conversation with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210868153-9781524891473-tiny-joys/"><u>Tiny Joys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210868182-9798886444919-walking-is-overrated/"><u>Walking is Overrated | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

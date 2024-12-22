@@ -1,7 +1,7 @@
 ---
 title: A Complete Book of Reiki Healing | Free Book
-date: 2024-12-07T19:15:59.785Z
-updated: 2024-12-13T06:17:23.896Z
+date: 2024-12-16T02:49:47.433Z
+updated: 2024-12-22T06:28:35.752Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b7d87f2f8a05264db45a314eb9ae845e59.jpg
@@ -138,15 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210710070-9781959143123-todo-era-mentira/"><u>¡TODO ERA MENTIRA! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210708604-9780349433264-the-little-book-of-love-magic/"><u>The Little Book of Love Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709921-9780645602814-the-meditation-activists-travel-guide/"><u>The Meditation Activist's Travel Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709974-9780876127551-the-science-of-religion/"><u>The Science of Religion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710040-9781958895474-thrusting-against-negative-forces/"><u>Thrusting Against Negative Forces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709837-9780834845008-we-heal-together/"><u>We Heal Together | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476316--close-encounters/"><u>Close Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476671-9781907767494-prophecy-and-power-2nd-ed/"><u>Prophecy and Power (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476485-9781839388712-rosicrucianism/"><u>Rosicrucianism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476413-9781839388699-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211475891-9781397665270-the-call-of-kumayl/"><u>The Call of Kumayl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476238-9781397665300-the-sixth-book-of-moses-and-the-seventh-book-of-moses/"><u>The Sixth Book of Moses and The Seventh Book of Moses | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

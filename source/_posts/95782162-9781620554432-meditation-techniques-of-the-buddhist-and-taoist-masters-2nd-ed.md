@@ -1,7 +1,7 @@
 ---
 title: Meditation Techniques of the Buddhist and Taoist Masters (2nd ed.) | Free Book
-date: 2024-10-25T19:50:58.686Z
-updated: 2024-10-26T18:43:25.252Z
+date: 2024-12-18T04:08:33.306Z
+updated: 2024-12-22T00:00:22.576Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/806cb746450a8e7f27db3cc3d5879b7706e0a635c36a0113e85af7d595c9b988.jpg
@@ -180,3 +180,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/806cb746450a8e7f27db3cc3d5879b7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210859158-9781738981519-dismantling-the-3rd-dimension/"><u>Dismantling the 3rd Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859102-9798988410812-god-said-to-me-your-job-is-to-love/"><u>God Said to Me, Your Job is to Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859172-9783988313638-mindfulness-for-beginners/"><u>MINDFULNESS FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859192-9783988313614-nlp-manipulation/"><u>NLP MANIPULATION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859194-9798987668214-stand-in-your-brilliance/"><u>Stand in Your Brilliance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210858937-9780316353656-the-book-of-ancestors/"><u>The Book of Ancestors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859167-9798987663318-the-holy-grail/"><u>The Holy Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859023-9798822917231-when-big-dogs-die/"><u>When Big Dogs Die | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

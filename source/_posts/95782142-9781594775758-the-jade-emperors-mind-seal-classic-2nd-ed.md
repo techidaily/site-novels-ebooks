@@ -1,7 +1,7 @@
 ---
 title: The Jade Emperor's Mind Seal Classic (2nd ed.) | Free Book
-date: 2024-10-23T02:49:59.008Z
-updated: 2024-10-27T00:44:06.345Z
+date: 2024-12-15T17:01:53.339Z
+updated: 2024-12-22T08:56:42.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/568f090958b68f9f0d8ce9f501b703676e198da1eca24993d649c7671a0e3ab8.jpg
@@ -182,3 +182,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/568f090958b68f9f0d8ce9f501b7036
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210842052-9781401976347-111-oracle-spreads-for-every-day/"><u>111 Oracle Spreads for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210842060-9781837821150-21-days-to-jump-start-your-intuition/"><u>21 Days to Jump-Start Your Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210840692-9781634243995-cannabis/"><u>Cannabis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210842871-9780761158271-do-more-great-work/"><u>Do More Great Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210843107-9781797222097-let-it-burn/"><u>Let It Burn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210840534-9781544536149-my-miserable-search-for-enlightenment/"><u>My Miserable Search for Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210840588-9798218201104-song-of-the-self/"><u>Song of the Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210842725-9781579659714-the-crystal-workshop/"><u>The Crystal Workshop | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210840602-9798988121015-who-am-i/"><u>Who Am I? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

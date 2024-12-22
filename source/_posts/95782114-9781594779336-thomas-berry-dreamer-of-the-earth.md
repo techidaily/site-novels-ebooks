@@ -1,7 +1,7 @@
 ---
 title: Thomas Berry, Dreamer of the Earth | Free Book
-date: 2024-10-21T00:19:17.012Z
-updated: 2024-10-26T20:20:36.531Z
+date: 2024-12-15T11:21:27.557Z
+updated: 2024-12-22T10:41:10.536Z
 categories:
   - Nature
 thumbnail: https://thmb-001-ebook.techidaily.com/31e9b6721168225c6017956d5275f8282336fa9476b4333b92c02074ba0f9c66.jpg
@@ -191,3 +191,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/31e9b6721168225c6017956d5275f82
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210882704-9781734853575-a-book-of-verses/"><u>A Book of Verses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882842-9781088161166-break-free-daily-revival-prayers-may-towards-national-transformation/"><u>Break-free - Daily Revival Prayers - MAY - Towards NATIONAL TRANSFORMATION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882843-9781088163634-break-free-daily-revival-prayers-november-towards-selfless-service/"><u>Break-free Daily Revival Prayers - November - Towards SELFLESS SERVICE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882719-9783988313881-declutter-your-mind/"><u>DECLUTTER YOUR MIND | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882482-9781685550134-dreaming-on-the-page/"><u>Dreaming on the Page | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210879107-9783988313829-gaslighting/"><u>GASLIGHTING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882811-9781088186596-source-and-interpretation-of-dreams-with-fasting-prayer-for-fulfilment-of-good-dreams/"><u>Source And Interpretation Of Dreams With Fasting & Prayer For Fulfilment Of Good Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210878623-9798887639697-the-tree-of-enlightenment/"><u>THE TREE OF ENLIGHTENMENT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882828-9781737357742-the-world-is-louder-than-we-think/"><u>The World is Louder than we think | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

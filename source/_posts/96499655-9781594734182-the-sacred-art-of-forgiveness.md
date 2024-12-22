@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2024-12-07T06:04:34.481Z
-updated: 2024-12-12T18:27:41.211Z
+date: 2024-12-20T13:46:39.545Z
+updated: 2024-12-22T01:37:21.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,13 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210664005-9781667435374-megan-fait-face-a-la-derision/"><u>Megan fait face à la dérision | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210663995-9781667435169-modello-di-impresa-di-noe-di-successo/"><u>Modello di Impresa di Noè DI SUCCESSO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210663963-9781667439143-samen/"><u>Samen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210663956-9781667439358-tipps-fur-mehr-widerstandskraft-in-stressigen-zeiten/"><u>Tipps für mehr Widerstandskraft in stressigen Zeiten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422644--connecting-to-create/"><u>Connecting to Create | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422698-9781800796768-death-in-the-21st-century/"><u>Death in the 21st Century | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422699-9781800796751-death-in-the-21st-century/"><u>Death in the 21st Century | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422783-9788090922037-parallel-worlds/"><u>Parallel Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211422727-9781068860256-the-messiah/"><u>THE MESSIAH | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

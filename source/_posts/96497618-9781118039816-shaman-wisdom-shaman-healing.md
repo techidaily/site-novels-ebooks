@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-12-08T06:57:46.984Z
-updated: 2024-12-12T23:04:58.656Z
+date: 2024-12-16T02:57:30.852Z
+updated: 2024-12-22T10:25:24.114Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,14 +182,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210705156-9780760379998-angel-numbers/"><u>Angel Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705161-9780760379974-candle-magic/"><u>Candle Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705153-9780760376393-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705157-9780760377697-moon-meditations/"><u>Moon Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705150-9780760379981-pendulum-magic/"><u>Pendulum Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211467300--breathing-mindfulness/"><u>Breathing Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466722--harney-sons-how-to-read-tea-leaves/"><u>Harney & Sons How to Read Tea Leaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466459-9781684869077-in-the-beginning/"><u>IN THE BEGINNING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211467292--leaves-falling-gently/"><u>Leaves Falling Gently | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466993--mindfulness/"><u>Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466256-9798330434206-minding-less/"><u>Minding Less | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211468010-9798330439478-psaumes-de-la-redemption/"><u>PSAUMES DE LA RÉDEMPTION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211468035-9781839388613-remote-viewing/"><u>Remote Viewing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211467958-9781977265715-the-illumination-practice/"><u>The Illumination Practice | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

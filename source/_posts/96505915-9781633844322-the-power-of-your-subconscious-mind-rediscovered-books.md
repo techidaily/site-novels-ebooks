@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2024-12-08T02:42:48.362Z
-updated: 2024-12-13T05:55:12.515Z
+date: 2024-12-19T02:13:04.463Z
+updated: 2024-12-22T04:21:32.736Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,18 +153,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210615615-9781616203993-acorn/"><u>Acorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619393-9781737357728-are-you-the-living-dead-or-are-you-alive/"><u>Are You the Living dead, or are you Alive? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210615835-9781612122014-dorm-room-feng-shui/"><u>Dorm Room Feng Shui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210615756-9781603422277-incense/"><u>Incense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210616342-9781788177962-return-to-source/"><u>Return to Source | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619201-9781398704206-saturn-returns/"><u>Saturn Returns | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619299-9780646861623-the-keepers-of-the-light-codes/"><u>The Keepers Of The Light Codes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619330-9781914166303-the-testament-of-solomon/"><u>The Testament of Solomon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210616778-9781685706173-you-dont-live-in-my-house/"><u>You Don't Live in My House | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373364-9789083246123-de-tien-geboden-van-god-de-bergrede/"><u>De Tien Geboden van God & De Bergrede | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372604-9781925924909-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372605-9781925924923-essential-oils/"><u>Essential Oils | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373359-9783964461018-woorden-des-levens-voor-de-gezondheid-van-ziel-en-lichaam-dit-boek-is-gebaseerd-op-de-christus-openbaring/"><u>Woorden des levens voor de gezondheid van ziel en lichaam: Dit boek is gebaseerd op de Christus-openbaring | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373365-9783964463487-o-dromos-ths-lhthhs/"><u>Ο δρόμος της λήθης | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Seven Steps into Angel Light | Free Book
-date: 2024-10-19T21:44:55.212Z
-updated: 2024-10-26T18:49:00.560Z
+date: 2024-12-20T00:15:56.183Z
+updated: 2024-12-21T19:45:45.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a47f13d72221a89699e1de1ca6efaae6c4c4377d8d8063e653f3f86d0e27240b.jpg
@@ -179,3 +179,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a47f13d72221a89699e1de1ca6efaae
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211264371-9780062402332-37-seconds/"><u>37 Seconds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264317-9780062028938-magick-made-easy/"><u>Magick Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211263801-9780062116567-return-of-the-bird-tribes/"><u>Return of the Bird Tribes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264340-9780062029096-the-conscious-universe/"><u>The Conscious Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264012-9780062116574-the-starseed-transmissions/"><u>The Starseed Transmissions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211263887-9780062122773-the-third-millennium/"><u>The Third Millennium | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

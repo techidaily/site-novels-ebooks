@@ -1,7 +1,7 @@
 ---
 title: Consciousness Becomes You | Free Book
-date: 2024-10-21T23:15:48.057Z
-updated: 2024-10-26T23:32:16.265Z
+date: 2024-12-15T09:04:34.225Z
+updated: 2024-12-21T16:31:32.617Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73aa15b773030d5c42330da5177e599c000bcdc7f8091feeb1be857baae117c9.jpg
@@ -157,3 +157,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73aa15b773030d5c42330da5177e599
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211249717-9781950921379-creepy-paranormal-stories/"><u>Creepy Paranormal Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249692-9781638128472-gods-paintbrush-at-dawn/"><u>God's Paintbrush at Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249681-9781088014301-mastering-your-mindset-the-journal-to-self-discovery/"><u>Mastering Your Mindset, The Journal to Self-Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249609-9781956353457-speaking-against-fear-and-limiting-beliefs/"><u>Speaking Against Fear and Limiting Beliefs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249616-9781951694944-the-encyclopedia-of-quantum-human-design/"><u>The Encyclopedia of Quantum Human Design | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

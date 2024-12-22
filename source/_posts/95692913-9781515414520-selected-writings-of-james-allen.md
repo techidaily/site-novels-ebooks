@@ -1,7 +1,7 @@
 ---
 title: Selected Writings of James Allen | Free Book
-date: 2024-10-23T02:33:10.346Z
-updated: 2024-10-26T18:43:45.021Z
+date: 2024-12-21T06:27:07.067Z
+updated: 2024-12-22T09:54:43.814Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ea222969bc3d2c9bc411d1181c1a489cc38d6d49bb9cf51a20de793e2bdf4ba.jpg
@@ -141,3 +141,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ea222969bc3d2c9bc411d1181c1a48
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211122981-9783988319029-dark-psychology-secrets/"><u>DARK PSYCHOLOGY SECRETS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123000-9781088253328-feeling-in-your-skin/"><u>FEELING IN YOUR SKIN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122872-9781685265168-jackson-brownspot/"><u>Jackson Brownspot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123014-9781088250495-la-actriz/"><u>La Actriz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122968-9781685221928-maximizing-your-potential-increase-your-mental-capacity-to-become-the-person-youve-always-wanted-to-be-in-life-with-nothing-standing-in-your-way/"><u>Maximizing Your Potential: Increase Your Mental Capacity To Become The Person You've Always Wanted To Be In Life, With Nothing Standing In Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122952-9781088072639-meditation-for-a-healing-soul/"><u>Meditation For a Healing Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122960-9798218144616-rebond-generatif/"><u>Rebond Génératif | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122991-9781952491450-the-ultimate-quest/"><u>The Ultimate Quest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122864-9798886447002-unlived-lives/"><u>Unlived Lives | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

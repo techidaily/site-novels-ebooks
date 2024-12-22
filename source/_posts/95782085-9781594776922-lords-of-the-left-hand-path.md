@@ -1,7 +1,7 @@
 ---
 title: Lords of the Left-Hand Path | Free Book
-date: 2024-10-21T02:20:54.063Z
-updated: 2024-10-27T05:31:54.531Z
+date: 2024-12-20T07:00:09.186Z
+updated: 2024-12-22T01:56:33.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/37364d60195d7b5c91f084f1b2f2546b8e885a3af8f53c82ca0bcbe2c36eacc8.jpg
@@ -181,3 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/37364d60195d7b5c91f084f1b2f2546
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877186-9781609254896-esoteric-orders-and-their-work/"><u>Esoteric Orders and Their Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877187-9781609254360-the-magicians-workbook/"><u>The Magician's Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877191-9781609254599-the-vision-of-the-nazarene/"><u>The Vision of the Nazarene | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877185-9781609253912-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

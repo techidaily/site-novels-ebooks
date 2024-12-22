@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2024-12-03T01:11:24.255Z
-updated: 2024-12-07T00:45:41.833Z
+date: 2024-12-16T05:27:56.714Z
+updated: 2024-12-22T10:09:40.110Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,16 +151,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210125795-9780648831228-a-single-flower/"><u>A Single Flower | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210126584-9780578769325-caring/"><u>Caring | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210125864-9781936012930-falling-open-in-a-world-falling-apart/"><u>Falling Open in a World Falling Apart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127151-9781087909561-positive-affirmations-for-women/"><u>Positive Affirmations For Women | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210125846-9781935413233-the-essentials-of-buddhist-meditation/"><u>The Essentials of Buddhist Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127143-9781950241835-the-gift-of-courage-3rd-ed/"><u>The Gift of Courage (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124738-9781838537104-vipassana/"><u>Vipassana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475339-9781458711304-breathe-you-are-alive/"><u>Breathe, You Are Alive! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475342-9781458711410-calming-the-fearful-mind/"><u>Calming the Fearful Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475344-9781458711250-for-a-future-to-be-possible/"><u>For a Future to Be Possible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475333-9781458711441-happiness/"><u>Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/472974-9781101173831-secrets-of-the-i-ching/"><u>Secrets of the I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475345-9781458711281-teachings-on-love/"><u>Teachings on Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/473389-9781101173640-the-amazing-laws-of-cosmic-mind-power/"><u>The Amazing Laws of Cosmic Mind Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/475330-9781458711311-the-world-we-have/"><u>The World We Have | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

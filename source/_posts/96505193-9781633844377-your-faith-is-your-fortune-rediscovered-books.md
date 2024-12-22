@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2024-12-10T00:39:32.731Z
-updated: 2024-12-12T20:47:13.866Z
+date: 2024-12-19T05:03:48.611Z
+updated: 2024-12-21T20:07:00.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,18 +144,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210669103-9780008536503-empower-your-inner-psychic-how-to-harness-your-intuition-and-manifest-your-dream-life/"><u>Empower Your Inner Psychic: How to harness your intuition and manifest your dream life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668830-9781838197186-i-only-have-beautiful-experiences/"><u>I only have beautiful experiences | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669144-9782017186571-le-guide-complet-du-pendule/"><u>Le guide complet du pendule | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669126--le-pouvoir-des-anges/"><u>Le pouvoir des anges | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669123-9782017186786-les-12-soins-de-transformation-interieure/"><u>Les 12 soins de transformation intérieure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669148-9782226475770-les-cles-de-lesoterisme-runes/"><u>Les Clés de l'ésotérisme - Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668791-9780578675251-neviah-gwen/"><u>Neviah Gwen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669113-9782017186540-trouvez-votre-chemin-de-vie-avec-lastrologie/"><u>Trouvez votre chemin de vie avec l'astrologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668825-9781739950026-your-soul-awakens-the-sunset/"><u>Your Soul Awakens the Sunset | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434152-9781507303801-land-healing/"><u>Land Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434118-9781507303788-new-directions-in-tarot/"><u>New Directions in Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433936-9781803415260-paranormal-perspectives-a-jungian-understanding-of-transcendent-experiences/"><u>Paranormal Perspectives: A Jungian Understanding of Transcendent Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434022-9781507303771-plus-one/"><u>Plus One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434032-9781507303795-soul/"><u>Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434136-9781507303818-the-magick-of-lenormand-card-reading/"><u>The Magick of Lenormand Card Reading | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

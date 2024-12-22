@@ -1,7 +1,7 @@
 ---
 title: Restoring the Soul of the World | Free Book
-date: 2024-10-22T21:16:11.773Z
-updated: 2024-10-27T02:54:39.498Z
+date: 2024-12-15T22:15:00.505Z
+updated: 2024-12-22T10:53:53.654Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d5317105c0d3771be0f28ec9ad6ef567285b39c3c771570b6a13cf2c1a6f2c6d.jpg
@@ -191,3 +191,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d5317105c0d3771be0f28ec9ad6ef56
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932816-9781855842861-an-exercise-for-karmic-insight/"><u>An Exercise for Karmic Insight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932812-9781855842731-angels/"><u>Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932825-9781855844384-karmic-relationships-volume-2/"><u>Karmic Relationships: Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932827-9781912230679-rudolf-steiner/"><u>Rudolf Steiner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932818-9781855842878-the-dead-are-with-us/"><u>The Dead Are With Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932814-9781855843158-the-evolution-of-consciousness/"><u>The Evolution of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932817-9781912230792-the-temple-and-the-grail/"><u>The Temple and the Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932815-9781855843608-verses-and-meditations/"><u>Verses and Meditations | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

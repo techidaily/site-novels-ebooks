@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2024-12-09T16:40:12.487Z
-updated: 2024-12-13T05:54:11.302Z
+date: 2024-12-20T20:30:10.769Z
+updated: 2024-12-21T17:34:13.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,18 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210793337-9798886161731-and-you-shall-be-free/"><u>And You Shall Be Free | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210797597-9788411482950-arcana-mundi/"><u>Arcana Mundi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210792711-9781616406240-astrology-and-the-art-of-healing/"><u>Astrology and the Art of Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210796592-9780008603632-black-women-always-conversations-on-life-culture-and-creativity/"><u>Black Women Always: Conversations on life, culture and creativity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210794864-9781510778382-emerging-from-darkness/"><u>Emerging from Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210794129-9789355944269-kya-kahati-haim-hatha-ki-rekhaem/"><u>Kya Kahati Haim Hatha Ki Rekhaem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210792915-9781925442076-out-of-this-world/"><u>Out Of This World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210795740-9781507221556-the-modern-witchcraft-introductory-boxed-set/"><u>The Modern Witchcraft Introductory Boxed Set | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210795739-9781507221532-the-modern-witchcraft-natural-magick-boxed-set/"><u>The Modern Witchcraft Natural Magick Boxed Set | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/275314--bad-hair-days-rainy-days-and-mondays/"><u>Bad Hair Days, Rainy Days and Mondays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/275418-9781101211045-insight/"><u>Insight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/280255-9781416545354-sunshines/"><u>SunShines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/279909-9780759521797-the-fortune-telling-book/"><u>The Fortune-Telling Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/283133-9781416548263-the-intention-experiment/"><u>The Intention Experiment | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

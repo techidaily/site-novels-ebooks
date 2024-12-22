@@ -1,7 +1,7 @@
 ---
 title: The Brother of Jesus and the Lost Teachings of Christianity | Free Book
-date: 2024-10-26T03:25:36.643Z
-updated: 2024-10-26T17:05:28.029Z
+date: 2024-12-19T20:55:12.276Z
+updated: 2024-12-22T04:17:59.926Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16685a598ea3f2f9e52f55a756d93024bda56bb8c7f9fcf7214ce35b75533e8f.jpg
@@ -181,3 +181,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16685a598ea3f2f9e52f55a756d9302
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210847675-9781801520713-a-commentary-on-the-cosmic-doctrine/"><u>A Commentary on 'The Cosmic Doctrine' | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847671-9781801520744-concentration/"><u>Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847406-9798889452393-heaven-knows-why/"><u>HEAVEN KNOWS WHY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847628-9781988387260-human-nature/"><u>Human Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847422-9781685680862-la-paz-interior/"><u>La paz interior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847543-9780996510387-living-the-deepest-truth-you-know/"><u>Living the Deepest Truth You Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847650-9798987504673-moments-of-edification-volume-1/"><u>Moments of Edification: Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847625-9781958356210-the-hills-we-climb-love-it-hate-it-embrace-itlifes-journey/"><u>The Hills We Climb Love It, Hate It, Embrace It...Life's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847421-9781685681067-vive-sin-miedo/"><u>Vive sin miedo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Esoteric Secrets of Surrealism | Free Book
-date: 2024-10-26T02:21:51.247Z
-updated: 2024-10-26T18:01:29.793Z
+date: 2024-12-20T16:53:58.876Z
+updated: 2024-12-21T22:45:35.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bab47246cfdc6cc43352beced281aa6800210a470f10258bd377ed8737270c8d.jpg
@@ -209,3 +209,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bab47246cfdc6cc43352beced281aa6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210930296-9781841815664-how-to-manifest-anything/"><u>How to Manifest Anything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930172-9780717179152-michael-murphys-book-of-dreams/"><u>Michael Murphy's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930108-9780717191802-mind-full/"><u>Mind Full | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930329-9780717151776-the-courage-to-be-happy/"><u>The Courage to Be Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930166-9780717181230-the-source/"><u>The Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929873-9780717190416-this-is-it/"><u>This Is It | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

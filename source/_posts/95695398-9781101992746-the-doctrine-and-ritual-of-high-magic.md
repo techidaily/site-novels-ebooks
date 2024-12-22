@@ -1,7 +1,7 @@
 ---
 title: The Doctrine and Ritual of High Magic | Free Book
-date: 2024-10-21T01:05:14.022Z
-updated: 2024-10-26T19:48:56.045Z
+date: 2024-12-19T04:28:18.336Z
+updated: 2024-12-21T16:12:03.427Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/914cfe0c1b07a04dac12b1e3c58f7cc772a1ae0c2873e38768321fea688afe25.jpg
@@ -175,3 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/914cfe0c1b07a04dac12b1e3c58f7cc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211128795-9798868930041-el-ultimo-pasajero/"><u>El Último Pasajero | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211129447-9781761187940-everyday-folklore/"><u>Everyday Folklore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130213-9781914271502-hot-erotic-short-stories-3-in-1naughty-adult-collection/"><u>Hot Erotic Short Stories 3 in 1Naughty Adult Collection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130477-9781604736649-shadows-and-cypress/"><u>Shadows and Cypress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130085-9781454949848-the-rainbow-witch/"><u>The Rainbow Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128752-9781739394530-the-transformation-keys-unleash-your-best-self/"><u>The Transformation Keys: Unleash Your Best Self | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

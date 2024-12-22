@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-12-11T17:36:13.699Z
-updated: 2024-12-12T20:55:27.109Z
+date: 2024-12-21T05:54:29.441Z
+updated: 2024-12-22T06:57:31.764Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,15 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210664941-9782889052561-les-neuf-lecons-du-guerrier-maasai/"><u>Les neuf leçons du guerrier maasaï | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664781-9782889054787-les-quatre-nobles-verites-et-loctuple-sentier-du-bouddha/"><u>Les quatre Nobles Vérités et l'Octuple Sentier du Bouddha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664838-9782889054015-par-don-damour/"><u>Par don d'amour | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664967-9782889051465-petites-fleurs-du-coeur-pour-grandir-au-fil-des-jours/"><u>Petites fleurs du coeur pour grandir au fil des jours | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664452-9782889058648-vibrations-se-reconnecter-a-nos-pouvoirs-invisibles/"><u>Vibrations : Se reconnecter à nos pouvoirs invisibles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665139-9782889114221-vivre-ma-spiritualite-au-quotidien/"><u>Vivre ma spiritualité au quotidien | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424357-9798330316915-5yib5am5a6e6kd/"><u>创富实话 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424413-9798330318261-know-me-as-i-am/"><u>KNOW ME AS I AM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424281-9781963851236-room-within-the-heart/"><u>Room Within The Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424274-9798330314409-the-art-of-balance/"><u>THE ART OF BALANCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424318-9781964744254-the-covenant-between-the-king-of-devils-and-death-and-victory-over-death/"><u>The Covenant Between the King of Devils and Death and Victory Over Death | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

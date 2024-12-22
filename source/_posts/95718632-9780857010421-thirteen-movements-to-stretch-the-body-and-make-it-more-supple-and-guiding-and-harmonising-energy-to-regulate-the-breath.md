@@ -1,7 +1,7 @@
 ---
 title: Thirteen Movements to Stretch the Body and Make it More Supple, and Guiding and Harmonising Energy to Regulate the Breath | Free Book
-date: 2024-10-20T17:39:09.658Z
-updated: 2024-10-26T18:21:10.281Z
+date: 2024-12-19T07:01:41.225Z
+updated: 2024-12-21T22:09:54.335Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c56fc8426955eedd50b9d16d6df6dfed71f4348fee266398c5c07c34ec9ca79d.jpg
@@ -175,3 +175,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c56fc8426955eedd50b9d16d6df6dfe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210970027-9781088232378-conexion-galilea/"><u>Conexión Galilea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970024-9781088235133-ellos-continuan-entre-nosotros-volumen-i-y-ii/"><u>Ellos Continúan entre Nosotros. Volumen I y II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970022-9781088231715-esculpiendo-su-propio-destino/"><u>Esculpiendo su propio destino | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970026-9781088232569-jornada-de-los-angeles/"><u>Jornada de los Ángeles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970023-9781088231913-la-fuerza-de-la-bondad/"><u>La Fuerza de la Bondad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970025-9781088232064-los-penascos-son-de-arena/"><u>Los Peñascos son de Arena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970028-9781088232682-renacer-de-la-esperanza/"><u>Renacer de la Esperanza | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

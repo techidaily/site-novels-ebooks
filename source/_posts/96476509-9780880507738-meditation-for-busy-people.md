@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2024-12-10T23:36:28.694Z
-updated: 2024-12-13T05:24:45.884Z
+date: 2024-12-18T05:43:58.928Z
+updated: 2024-12-22T00:53:24.217Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -178,14 +178,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210780136-9781633413207-a-tea-witchs-grimoire/"><u>A Tea Witch's Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780138-9781633413122-magical-tarot/"><u>Magical Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780135-9781633413092-scott-cunninghamthe-path-taken/"><u>Scott Cunningham—The Path Taken | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780137-9781633413153-the-marie-laveau-voodoo-grimoire/"><u>The Marie Laveau Voodoo Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780140-9781633413177-unlocking-the-secret-language-of-tarot/"><u>Unlocking the Secret Language of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/267091-9780767927154-apocalypse-2012/"><u>Apocalypse 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671534-9780752481692-haunted-bodmin-moor/"><u>Haunted Bodmin Moor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671528-9780752481531-haunted-peterborough/"><u>Haunted Peterborough | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671535-9780752481579-haunted-spalding/"><u>Haunted Spalding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671531-9780752481678-haunted-st-andrews/"><u>Haunted St. Andrews | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671529-9780752481630-haunted-staffordshire/"><u>Haunted Staffordshire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670460-9781515409953-natural-law-in-the-spiritual-world/"><u>Natural Law in the Spiritual World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671536-9780752481852-paranormal-cumbria/"><u>Paranormal Cumbria | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-12-09T05:09:21.815Z
-updated: 2024-12-12T18:28:08.662Z
+date: 2024-12-15T18:59:59.561Z
+updated: 2024-12-22T05:17:09.187Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,15 +148,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210668093-9781662454295-chortle/"><u>Chortle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668034-9780876128015-finding-the-joy-within-you/"><u>Finding the Joy Within You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668160-9780648776161-guide-to-the-new-age/"><u>Guide to the New Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668400-9798218072049-my-blue-cells/"><u>My Blue Cells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668095-9781662484346-such-a-journey/"><u>Such a Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668038-9798886168594-the-power-of-gods-consciousness/"><u>The Power of God's Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211432845-9780988115750-30-things/"><u>30 Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211432544-9783964460813-a-minha-vida-que-eu-mesmo-escolhi/"><u>A minha vida que eu mesmo escolhi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211432612-9798330323722-los-reckenstein/"><u>Los Reckenstein | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433098-9788197384509-the-complete-book-of-ayurvedic-home-remedies/"><u>The Complete Book Of Ayurvedic Home Remedies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433289-9781466828032-the-haunting-of-twenty-first-century-america/"><u>The Haunting of Twenty-First-Century America | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

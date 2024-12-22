@@ -1,7 +1,7 @@
 ---
 title: Natural Law in the Spiritual World | Free Book
-date: 2024-12-07T21:27:27.370Z
-updated: 2024-12-13T05:32:10.481Z
+date: 2024-12-17T18:21:43.551Z
+updated: 2024-12-21T21:12:27.446Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf6958958cca10e64f647f82e013fd8bf669c9.jpg
@@ -143,16 +143,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf695
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210620550-9781446380864-100-plants-that-heal/"><u>100 Plants That Heal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210620137-9781733073837-brave-healing-2nd-ed/"><u>Brave Healing (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210622573-9798986194714-fill-the-gap/"><u>Fill The Gap | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619957-9781722527259-it-works-deluxe-edition/"><u>It Works Deluxe Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210619960-9781722527563-seven-games-of-life/"><u>Seven Games of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210620577-9780711264892-the-chakra-fix/"><u>The Chakra Fix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210620090-9781954920255-winks-from-above/"><u>Winks from Above | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374283-9781528799881-aradia-queen-of-witchcraft/"><u>Aradia, Queen of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373624-9781503639843-global-ayahuasca/"><u>Global Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373539-9798330204366-hes-not-gone/"><u>He's Not Gone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373540-9791029916458-histeria-e-fenomenos-psiquicos/"><u>Histeria e Fenômenos Psíquicos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373526-9798990783232-liberandote-de-libro-de-ejercicio/"><u>Liberándote de... libro de ejercicio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374282-9781528799874-malleus-maleficarum-hammer-of-the-witches/"><u>Malleus Maleficarum: Hammer of the Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374281-9781528799898-the-magus/"><u>The Magus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373519-9798990195226-yoga-sutras-of-patanjali-part-one-pada-one-sutras-11-129/"><u>Yoga Sutras of Patanjali Part One, Pada One Sutras 1.1 - 1.29 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

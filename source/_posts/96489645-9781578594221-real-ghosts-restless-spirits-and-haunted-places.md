@@ -1,7 +1,7 @@
 ---
 title: Real Ghosts, Restless Spirits, and Haunted Places | Free Book
-date: 2024-12-11T00:16:01.787Z
-updated: 2024-12-13T03:06:26.177Z
+date: 2024-12-20T22:48:41.735Z
+updated: 2024-12-21T18:49:40.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bfc0f058ccbd270756cad3455b75e0de936.jpg
@@ -280,16 +280,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210693070-9781578269891-beyond-domestication/"><u>Beyond Domestication | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210693080-9781952692475-cracking-the-walnut/"><u>Cracking the Walnut | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210693295-9798887620077-healing-trees/"><u>Healing Trees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210693619-9798987183526-isabels-starry-night-the-magical-quest-for-alchemy/"><u>Isabel's Starry Night, The Magical Quest for Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210693763-9780983534846-life-after-death-2nd-ed/"><u>Life After Death (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210693357-9781954759381-radiate/"><u>Radiate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210693760-9798885049757-the-nonrecipe-book/"><u>The NonRecipe Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455009-9781961959262-an-introduction-to-the-study-of-the-tarot/"><u>An Introduction to the Study of The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455179-9781956198324-conscious-choices/"><u>Conscious Choices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455024-9798330388974-ensename-a-hablar-de-amor/"><u>Enséñame a Hablar de Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454958-9798218498870-listening-circles-seeding-life/"><u>Listening Circles, Seeding Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454987-9788412856378-matrice-je-zakladem-duse/"><u>Matrice je základem duše | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455057-9781951879259-memoarer-fran-andra-dimensionen-del-2/"><u>Memoarer Från Andra Dimensionen, Del 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455010-9781961959224-the-pineal-eye/"><u>The Pineal Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454959-9798218497255-the-trigger-warnings-of-caramelized-butterflies/"><u>the trigger warnings of caramelized butterflies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455034-9781963956665-the-writings-of-austin-osman-spare/"><u>The Writings of Austin Osman Spare | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

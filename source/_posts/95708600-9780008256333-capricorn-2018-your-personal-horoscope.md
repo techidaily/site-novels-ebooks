@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2018: Your Personal Horoscope | Free Book"
-date: 2024-10-25T00:36:28.608Z
-updated: 2024-10-27T00:31:21.528Z
+date: 2024-12-18T06:28:08.623Z
+updated: 2024-12-22T09:15:09.087Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c5a498b64f27ca1ad63919f5576af096a77011707b1020268856e48c0fb5fbe.jpg
@@ -162,3 +162,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c5a498b64f27ca1ad63919f5576af0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211064679-9789359392172-ancient-and-modern-initiation/"><u>Ancient And Modern Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211065233-9789359392189-gleanings-of-a-mystic/"><u>Gleanings Of A Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211063922-9781401975494-starcodes/"><u>Starcodes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211063840-9781841815633-the-crystal-almanac/"><u>The Crystal Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211064084-9781732636750-the-springboard-method/"><u>The Springboard Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211064818-9789358593440-the-worlds-sixteen-crucified-saviors-or-christianity-before-christ/"><u>The World'S Sixteen Crucified Saviors Or, Christianity Before Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211064314-9781088280096-worshiping-in-the-wilderness/"><u>Worshiping in the Wilderness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

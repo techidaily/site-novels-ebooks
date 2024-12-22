@@ -1,7 +1,7 @@
 ---
 title: The Cosmic Power Within You | Free Book
-date: 2024-10-23T02:05:54.321Z
-updated: 2024-10-26T22:46:46.842Z
+date: 2024-12-21T01:14:49.456Z
+updated: 2024-12-22T08:46:00.212Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/490e96a2b47025ebc45c64216accec2dee5c376498bd120c5eab6d8defd1a43c.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/490e96a2b47025ebc45c64216accec2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211114278-9798987016480-ancient-sky-watchers-mythic-themes/"><u>Ancient Sky Watchers & Mythic Themes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114131-9798885402774-hidden-treasures-ii/"><u>Hidden Treasures II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114167-9798822931657-light-truth-power/"><u>Light Truth Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114254-9780645912111-shine/"><u>SHINE | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

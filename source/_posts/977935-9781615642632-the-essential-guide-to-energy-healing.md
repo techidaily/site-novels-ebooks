@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-12-08T20:01:01.928Z
-updated: 2024-12-12T18:41:40.236Z
+date: 2024-12-19T02:26:34.680Z
+updated: 2024-12-22T03:48:39.702Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,17 +187,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210582010-9781493045839-haunted-jersey-shore-2nd-ed/"><u>Haunted Jersey Shore (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210582108-9781957895369-laughing-your-life-healthy/"><u>Laughing Your Life Healthy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210582219-9781647016968-persecution-or-popularity-as-an-individual/"><u>Persecution or Popularity as an Individual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210584252-9780998602394-spend-some-love/"><u>Spend Some Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210584291-9781922499004-strawberry-angel-and-the-bean/"><u>Strawberry Angel and the Bean | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210582135-9781957943527-the-me-i-couldnt-see/"><u>The Me I Couldn't See | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210583127-9781507220160-the-modern-witchcraft-book-of-astrology/"><u>The Modern Witchcraft Book of Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210584262-9798985827910-try-my-jesus/"><u>Try My Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364298-9781528799638-astrology-made-easy/"><u>Astrology Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364304-9781528799669-english-witchcraft-from-the-beginning-to-the-present-day-fantasy-and-horror-classics/"><u>English Witchcraft - From the Beginning to the Present Day (Fantasy and Horror Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364303-9781528799812-occultism-two-essays-from-the-hibbert-journal/"><u>Occultism - Two Essays from the Hibbert Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364296-9781528799676-the-psychological-meaning-of-the-single-characteristics-in-handwriting-a-historical-article-on-the-analysis-and-interpretation-of-handwriting/"><u>The Psychological Meaning of the Single Characteristics in Handwriting - A Historical Article on the Analysis and Interpretation of Handwriting | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

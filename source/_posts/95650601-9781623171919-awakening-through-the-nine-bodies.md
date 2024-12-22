@@ -1,7 +1,7 @@
 ---
 title: Awakening through the Nine Bodies | Free Book
-date: 2024-10-21T04:42:18.422Z
-updated: 2024-10-26T23:41:40.253Z
+date: 2024-12-16T10:49:20.597Z
+updated: 2024-12-21T21:45:18.719Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fffb54a48a66179a9da7bf3bf96840484781e3afa5a4ab420635415a1761a8db.jpg
@@ -229,3 +229,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fffb54a48a66179a9da7bf3bf968404
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211252830-9798868994579-dominar-la-sabiduria/"><u>Dominar la sabiduría | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252850-9798868994654-mastering-wisdom/"><u>Mastering Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252856-9798868994609-padroneggiare-la-saggezza/"><u>Padroneggiare la saggezza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252853-9798868994630-wijsheid-beheersen/"><u>Wijsheid beheersen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252857-9798868994593-ovladenie-mudrostyu/"><u>Овладение мудростью | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Cosmological Origins of Myth and Symbol | Free Book
-date: 2024-10-21T04:52:58.774Z
-updated: 2024-10-26T17:15:17.178Z
+date: 2024-12-20T17:03:06.541Z
+updated: 2024-12-21T19:27:46.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/013296d73a3f956803164434f74a91e46984ec59beb600ad68edf59ad816d425.jpg
@@ -195,3 +195,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/013296d73a3f956803164434f74a91e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210847311-9781960752758-at-the-feet-of-the-master/"><u>At the Feet of the Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847281-9781841815527-find-your-power-crystals/"><u>Find Your Power: Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847278-9781841815565-find-your-power-mindfulness/"><u>Find Your Power: Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847192-9781788178020-the-psychic-psychologist/"><u>The Psychic Psychologist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847324-9798988315711-who-are-you-exploration-of-your-souls-journeys/"><u>Who Are You ? Exploration of Your Soul's Journeys | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

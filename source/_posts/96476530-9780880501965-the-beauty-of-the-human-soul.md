@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-12-07T18:28:42.265Z
-updated: 2024-12-13T01:07:14.986Z
+date: 2024-12-19T00:09:30.439Z
+updated: 2024-12-21T22:48:00.497Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,13 +183,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761501-9781622034208-a-lamp-in-the-darkness/"><u>A Lamp in the Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761494-9781622031702-awaken-the-inner-shaman/"><u>Awaken the Inner Shaman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761491-9781622030750-how-to-meditate/"><u>How to Meditate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761493-9781622031115-red-hot-and-holy/"><u>Red Hot and Holy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2528003-9780811745727-haunted-indiana/"><u>Haunted Indiana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527971-9780811740692-haunted-maryland/"><u>Haunted Maryland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527972-9780811740746-haunted-north-carolina/"><u>Haunted North Carolina | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527933-9780811752978-haunted-western-pennsylvania/"><u>Haunted Western Pennsylvania | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527934-9780811753074-monsters-of-new-york/"><u>Monsters of New York | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527980-9781493043897-the-big-book-of-maryland-ghost-stories/"><u>The Big Book of Maryland Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527931-9781493043910-the-big-book-of-ohio-ghost-stories/"><u>The Big Book of Ohio Ghost Stories | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

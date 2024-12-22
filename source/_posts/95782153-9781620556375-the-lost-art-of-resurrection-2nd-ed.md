@@ -1,7 +1,7 @@
 ---
 title: The Lost Art of Resurrection (2nd ed.) | Free Book
-date: 2024-10-21T18:19:15.723Z
-updated: 2024-10-27T04:10:22.000Z
+date: 2024-12-19T17:27:32.473Z
+updated: 2024-12-21T21:42:54.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff1018833b6994a3852df45c4d19876e5c919457c68b383b26b06994fb6a9eb1.jpg
@@ -195,3 +195,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff1018833b6994a3852df45c4d19876
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210850010-9781446358405-mediumship-and-survival/"><u>Mediumship and Survival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850003-9781446357927-music-witchcraft-and-the-paranormal/"><u>Music, Witchcraft and the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850004-9781446357767-psychical-research-and-survival/"><u>Psychical Research and Survival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850015-9781446358443-secret-societies-of-the-middle-ages/"><u>Secret Societies of the Middle Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850012-9781446358481-telepathy/"><u>Telepathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850005-9781446358382-the-coming-of-the-fairies/"><u>The Coming of the Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850016-9781446358542-tree-lore/"><u>Tree Lore | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

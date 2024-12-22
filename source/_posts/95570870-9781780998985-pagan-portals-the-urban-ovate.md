@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - The Urban Ovate | Free Book
-date: 2024-10-25T19:35:56.680Z
-updated: 2024-10-27T04:26:05.308Z
+date: 2024-12-16T12:41:12.640Z
+updated: 2024-12-22T01:36:15.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c36f3a0a0e86e57344e5634863e29392d9797429a841d9bdaddf5190e835fbce.jpg
@@ -143,3 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c36f3a0a0e86e57344e5634863e2939
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211279181-9781667471167-dall-altro-lato-della-luna/"><u>Dall' altro lato della luna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211279185-9781667471075-gor-framlingar-till-vanner/"><u>Gör främlingar till vänner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211278204-9781667470627-la-therapie-de-lame/"><u>La Thérapie de l'Âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211279048-9781399071840-witches-and-witch-hunts-through-the-ages/"><u>Witches and Witch Hunts Through the Ages | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

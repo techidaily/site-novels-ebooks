@@ -1,7 +1,7 @@
 ---
 title: La caja de pandora | Free Book
-date: 2024-12-06T19:07:17.880Z
-updated: 2024-12-12T16:21:49.529Z
+date: 2024-12-19T04:44:27.968Z
+updated: 2024-12-22T05:14:12.594Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e93143498e8986258009c90315cbf22a586286.jpg
@@ -147,17 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e9314
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210533603-9781398814486-aries/"><u>Aries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533598-9781398814516-cancer/"><u>Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533601-9781398814509-gemini/"><u>Gemini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533604-9781398814479-leo/"><u>Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533602-9781398814493-taurus/"><u>Taurus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533925-9780645088717-the-new-angel-messages/"><u>The New Angel Messages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533872-9781739722913-the-triple-c-method/"><u>The Triple C Method® | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533600-9781398814523-virgo/"><u>Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211330064-9780062041685-afterlives-of-the-rich-and-famous/"><u>Afterlives of the Rich and Famous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329918-9780061997914-consciousness-beyond-life/"><u>Consciousness Beyond Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211330707-9780061743375-do-dead-people-watch-you-shower/"><u>Do Dead People Watch You Shower? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211330467-9780063014589-good-mourning/"><u>Good Mourning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211331013-9780062937308-still-life/"><u>Still Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211330944-9780062036407-tarot-in-ten-minutes/"><u>Tarot in Ten Minutes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211330318-9780062689641-where-did-you-go/"><u>Where Did You Go? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

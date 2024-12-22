@@ -1,7 +1,7 @@
 ---
 title: The Ghost That Closed Down The Town | Free Book
-date: 2024-10-21T20:39:13.104Z
-updated: 2024-10-26T17:25:07.016Z
+date: 2024-12-17T02:25:24.986Z
+updated: 2024-12-21T18:20:07.397Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14abed541367d847f90affc753fefa36e3cde904401269078a4bf0d2b2a21fbc.jpg
@@ -150,3 +150,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14abed541367d847f90affc753fefa3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210970011-9781088232958-connexion-galileenne/"><u>Connexion Galileenne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970012-9781088233221-cuando-es-necesario-regresar/"><u>Cuando es necesario regresar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969992-9781088233061-revival-of-hope/"><u>Revival Of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970002-9781088239124-un-veritable-amour/"><u>Un véritable amour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969993-9781088239582-when-the-time-comes/"><u>WHEN THE TIME COMES | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

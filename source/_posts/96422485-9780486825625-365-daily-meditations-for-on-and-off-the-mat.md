@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-12-04T03:22:06.979Z
-updated: 2024-12-07T00:31:22.475Z
+date: 2024-12-14T23:48:33.864Z
+updated: 2024-12-21T22:35:14.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,18 +169,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210133159-9781591434016-alien-intelligence-and-the-pathway-to-mars/"><u>Alien Intelligence and the Pathway to Mars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133163-9781644110393-animal-spirit-wisdom/"><u>Animal Spirit Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133166-9781644112151-answering-the-call-of-the-elementals/"><u>Answering the Call of the Elementals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133168-9781644112090-crazy-wisdom-of-the-yogini/"><u>Crazy Wisdom of the Yogini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133160-9781620557204-introduction-to-magic-volume-iii/"><u>Introduction to Magic, Volume III | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133164-9781644110799-mysteries-of-the-werewolf/"><u>Mysteries of the Werewolf | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133167-9781644111666-the-ancient-language-of-sacred-sound-2nd-ed/"><u>The Ancient Language of Sacred Sound (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133161-9781620559789-the-fall-of-spirituality/"><u>The Fall of Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133158-9781591434146-the-mystery-tradition-of-miraculous-conception/"><u>The Mystery Tradition of Miraculous Conception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/538354-9781439187067-como-controlar-el-mundo-desde-tu-sofa/"><u>Como controlar el mundo desde tu sofá | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/538355-9781439146576-looking-beyond/"><u>Looking Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/538425-9781439196083-manifesting-change/"><u>Manifesting Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/538250-9781416583561-the-mindful-child/"><u>The Mindful Child | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

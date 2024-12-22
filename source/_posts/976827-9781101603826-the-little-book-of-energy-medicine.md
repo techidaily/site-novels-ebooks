@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2024-12-11T18:29:36.723Z
-updated: 2024-12-12T20:47:50.541Z
+date: 2024-12-14T22:38:21.201Z
+updated: 2024-12-22T01:05:16.825Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,15 +192,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210579984-9781631957710-a-dream-worth-fighting-for/"><u>A Dream Worth Fighting For | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210579859-9798985445718-camino-lessons/"><u>Camino Lessons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210579723-9781958150962-carla-vicentini/"><u>Carla Vicentini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210579931-9781774341315-guided-meditations-for-deep-sleep/"><u>Guided Meditations for Deep Sleep | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210576018-9780982176955-im-beside-myself/"><u>I'm Beside Myself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210579973-9781684930821-metaphysical-healing/"><u>Metaphysical Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359630-9798869397485-embracing-the-elements/"><u>Embracing the Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359591-9798330200085-hexes-and-hauntings/"><u>Hexes and Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359581--mindfulness-and-presence/"><u>Mindfulness and Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359590-9798869375155-the-mystical-connection/"><u>The Mystical Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359602-9798330200290-the-ultimate-book-of-witchcraft-spells/"><u>The Ultimate Book of Witchcraft Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359636-9798869397607-witches-grimoire-a-comprehensive-collection-of-powerful-spells-for-wicca-practitioners-master-the-art-of-witchcraft-and-spellcasting-enhance-your-magical-skills/"><u>Witches' Grimoire: A Comprehensive Collection of Powerful Spells for Wicca Practitioners - Master the Art of Witchcraft and Spellcasting - Enhance Your Magical Skills | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

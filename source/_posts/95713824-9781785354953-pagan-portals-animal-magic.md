@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Animal Magic | Free Book
-date: 2024-10-23T19:26:09.158Z
-updated: 2024-10-27T05:43:35.466Z
+date: 2024-12-18T03:22:23.506Z
+updated: 2024-12-22T12:46:28.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0af1023c947a04a3f8008194fa35e6a44cb740353fa6a52612794c976c7a6e6f.jpg
@@ -140,3 +140,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0af1023c947a04a3f8008194fa35e6a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211098909-9781685176686-body-mind-heart-and-soul/"><u>Body, Mind, Heart and Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099507-9781803413495-by-no-means-equal/"><u>By No Means Equal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099496-9781615195367-in-tune/"><u>In Tune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099228-9781685269609-mary-dear-mary-whats-growing-in-your-garden/"><u>Mary, Dear Mary (What's Growing in Your Garden?) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099466-9781615192595-mindfulness-is-better-than-chocolate/"><u>Mindfulness Is Better Than Chocolate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099372-9798887315386-my-not-so-christian-walk-with-the-holy-spirit/"><u>My NOT-SO-CHRISTIAN Walk with The Holy Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099513-9781785359347-pagan-portals-rounding-the-wheel-of-the-year/"><u>Pagan Portals - Rounding the Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099512-9781803413105-the-10-principles-of-the-feminine/"><u>The 10 Principles of the Feminine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099474-9781615192571-the-foundations-of-mindfulness/"><u>The Foundations of Mindfulness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

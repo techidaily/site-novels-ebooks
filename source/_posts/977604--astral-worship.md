@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-12-12T04:45:41.912Z
-updated: 2024-12-13T07:14:54.603Z
+date: 2024-12-16T17:43:55.377Z
+updated: 2024-12-22T08:05:04.722Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,13 +130,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210580376-9780760374429-crystal-magic/"><u>Crystal Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580387-9781647553104-ghostly-tales-of-mississippi-2nd-ed/"><u>Ghostly Tales of Mississippi (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580031-9798885405157-prepared-persistent-and-positioned-for-gods-blessing/"><u>Prepared, Persistent, and Positioned for God's Blessing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210579991-9781956096590-the-first/"><u>The First | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360118--a-heart-as-wide-as-the-world/"><u>A Heart as Wide as the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359775-9781923238732-nighttime-narratives/"><u>Nighttime Narratives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360115--rest-is-sacred/"><u>Rest Is Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359643-9798869397362-the-green-witchs-guide-to-growing-magic-herbalism-for-kitchen-witches-unlock-the-secrets-of-nature-to-enrich-your-culinary-and-magical-practices/"><u>The Green Witch's Guide to Growing Magic: Herbalism for Kitchen Witches - Unlock the Secrets of Nature to Enrich Your Culinary and Magical Practices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359638-9798869397874-the-ultimate-guide-to-runes/"><u>The Ultimate Guide to Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359695-9798869396815-whispers-of-the-druids/"><u>Whispers of the Druids | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

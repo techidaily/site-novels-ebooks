@@ -1,7 +1,7 @@
 ---
 title: The Dimensions of Paradise (3rd ed.) | Free Book
-date: 2024-10-22T20:40:23.964Z
-updated: 2024-10-26T22:41:23.481Z
+date: 2024-12-16T17:02:58.208Z
+updated: 2024-12-21T22:47:02.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/714320ad3d401f065a25d9720c7cd52d5e47c2cc6db79787cc17539245910ac5.jpg
@@ -172,3 +172,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/714320ad3d401f065a25d9720c7cd52
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210909852-9781960995056-estelles/"><u>Estelles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210912763-9780645739671-guide-to-consciousness-and-the-unseen-universe/"><u>Guide to Consciousness and the Unseen Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210912761-9780994304858-paths-to-infinity/"><u>Paths to Infinity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909896-9781684931873-the-history-of-magic/"><u>The History of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210912640-9798888515365-what-dying-taught-me-about-living/"><u>What Dying Taught Me About Living | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

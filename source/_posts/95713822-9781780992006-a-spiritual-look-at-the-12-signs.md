@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Look at the 12 Signs | Free Book
-date: 2024-10-21T17:54:41.039Z
-updated: 2024-10-27T01:54:56.393Z
+date: 2024-12-16T21:25:06.982Z
+updated: 2024-12-22T01:45:55.329Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51d983ff89367e346823e0710fbb963eff770d0c90ada7a7e649fe8b5d35d9b9.jpg
@@ -134,3 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51d983ff89367e346823e0710fbb963
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211082522-9781623154981-meditation-now/"><u>Meditation Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082504-9781638783206-shadow-work-journal-and-guide-for-beginners/"><u>Shadow Work Journal and Guide for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082620-9781646112050-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082696-9781647394790-the-mindfulness-workbook-for-depression/"><u>The Mindfulness Workbook for Depression | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

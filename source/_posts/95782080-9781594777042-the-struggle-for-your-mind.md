@@ -1,7 +1,7 @@
 ---
 title: The Struggle for Your Mind | Free Book
-date: 2024-10-24T18:59:30.412Z
-updated: 2024-10-26T22:01:14.917Z
+date: 2024-12-20T04:47:21.095Z
+updated: 2024-12-21T20:31:22.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e80c867f6ba18bec40c1af1f1330e955ec2063d097fa12a50050850808cca797.jpg
@@ -183,3 +183,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e80c867f6ba18bec40c1af1f1330e95
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877159-9781609252151-between-the-gates/"><u>Between the Gates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877152-9781601639882-conversations-with-the-children-of-now/"><u>Conversations With the Children of Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877156-9781601639738-gnosis/"><u>Gnosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877153-9781601639660-indigo-adults/"><u>Indigo Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877151-9781601639615-learning-from-the-light/"><u>Learning from the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877160-9781601639547-northern-tradition-for-the-solitary-practitioner/"><u>Northern Tradition for the Solitary Practitioner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877145-9781601639301-walking-with-the-green-man/"><u>Walking With the Green Man | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

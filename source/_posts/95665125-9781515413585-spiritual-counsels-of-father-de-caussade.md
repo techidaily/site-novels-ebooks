@@ -1,7 +1,7 @@
 ---
 title: Spiritual Counsels of Father de Caussade | Free Book
-date: 2024-10-25T23:51:22.486Z
-updated: 2024-10-26T20:50:05.960Z
+date: 2024-12-20T16:12:58.877Z
+updated: 2024-12-22T09:12:19.954Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9fae7e4914a968ac399300306d713b894a58cdd3bc1ba6a9ca9a928f47a1361.jpg
@@ -138,3 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9fae7e4914a968ac399300306d713b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211266852-9798893566994-apples-of-gold-in-settings-of-silver/"><u>Apples of Gold in Settings of Silver | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266838-9798869266798-cosmic-cannabis/"><u>Cosmic Cannabis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266843-9798893305333-fifty-words-of-encouragement-just-for-you/"><u>Fifty Words of Encouragement Just For You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211267617-9782017230342-la-sirene-et-le-papillon/"><u>La Sirène et le Papillon | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

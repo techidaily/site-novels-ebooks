@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-12-06T21:32:42.107Z
-updated: 2024-12-13T04:08:11.714Z
+date: 2024-12-14T19:16:52.692Z
+updated: 2024-12-22T05:30:41.232Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,15 +262,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762165-9781787833944-365-ways-to-be-confident/"><u>365 Ways to Be Confident | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762167-9781787834453-how-to-find-calm/"><u>How to Find Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762176-9781787831834-pause/"><u>Pause | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762163-9781787833913-spirituality/"><u>Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762173-9781787831742-the-little-book-of-spells/"><u>The Little Book of Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762181-9781787831773-the-little-book-of-tarot/"><u>The Little Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581659-9780008205447-the-dragon-in-2017-your-chinese-horoscope/"><u>The Dragon in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581661-9780008205461-the-horse-in-2017-your-chinese-horoscope/"><u>The Horse in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581656-9780008205416-the-ox-in-2017-your-chinese-horoscope/"><u>The Ox in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581658-9780008205430-the-rabbit-in-2017-your-chinese-horoscope/"><u>The Rabbit in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581660-9780008205454-the-snake-in-2017-your-chinese-horoscope/"><u>The Snake in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581657-9780008205423-the-tiger-in-2017-your-chinese-horoscope/"><u>The Tiger in 2017: Your Chinese Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-04T17:44:36.247Z
-updated: 2024-12-06T19:10:46.838Z
+date: 2024-12-18T16:51:14.374Z
+updated: 2024-12-22T11:55:39.056Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac07a38be5866ac3c050132f9f679e6b03a3.jpg
@@ -141,18 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210117973-9781633412231-american-brujeria/"><u>American Brujeria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117971-9781633412156-ancestral-tarot/"><u>Ancestral Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117974-9781633412088-doctoring-the-devil/"><u>Doctoring the Devil | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117967-9781633411852-four-elements-of-the-wise/"><u>Four Elements of the Wise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117972-9781633411913-hekate/"><u>Hekate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117968-9781633412163-manifestation-magic/"><u>Manifestation Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117976-9781633411975-seasons-of-a-magical-life/"><u>Seasons of a Magical Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117966-9781632657459-ufos-and-the-deep-state/"><u>UFOs and the Deep State | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117969-9781633412132-wild-soul-runes/"><u>Wild Soul Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447568-9781101128114-healing-grief/"><u>Healing Grief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447732-9781439165744-la-sabiduria-del-alma-soul-wisdom-spanish-edition/"><u>La Sabiduria del Alma (Soul Wisdom; Spanish edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447902-9780307570079-seduction-by-the-stars/"><u>Seduction by the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447348-9781101133118-testimony-of-light/"><u>Testimony of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447885-9780307489722-the-power-of-birthdays-stars-numbers/"><u>The Power of Birthdays, Stars & Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447491-9781101127735-the-stargate-conspiracy/"><u>The Stargate Conspiracy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/447146-9781101127384-the-witchs-magical-handbook/"><u>The Witch's Magical Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

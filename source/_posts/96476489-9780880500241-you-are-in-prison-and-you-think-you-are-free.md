@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-12-11T18:14:30.443Z
-updated: 2024-12-13T05:47:04.604Z
+date: 2024-12-20T22:40:56.598Z
+updated: 2024-12-22T11:17:15.412Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,18 +170,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210773258-9781685830212-a-journey-of-self-healing/"><u>A Journey of Self-Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773234-9781649691958-brilliant-minds-in-captivity/"><u>Brilliant Minds in Captivity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773211-9781922405012-living-in-the-light/"><u>Living in the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773223-9781649699299-married-but-single-wives-without-husbands/"><u>Married, But Single; Wives Without Husbands | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773169-9781685834586-pilgrimage/"><u>PILGRIMAGE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773204-9781649697240-struggles-with-my-mental-health/"><u>Struggles With My Mental Health | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773166-9781925880496-the-battle-of-faith/"><u>The Battle of Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773250-9781649691040-the-path-to-freedom/"><u>THE PATH TO FREEDOM | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773216-9781922381736-wholly-phool/"><u>Wholly Phool | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2648519-9780752489568-extreme-hauntings/"><u>Extreme Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2648050-9780752493046-haunted-farnham/"><u>Haunted Farnham | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647613-9780750954389-haunted-plymouth/"><u>Haunted Plymouth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647645-9780750956444-haunted-stirling/"><u>Haunted Stirling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647688-9780750959926-paranormal-kent/"><u>Paranormal Kent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2648035-9780752492599-shadows-on-the-sea/"><u>Shadows on the Sea | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

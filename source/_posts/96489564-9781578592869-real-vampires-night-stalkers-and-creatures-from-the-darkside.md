@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-12-08T00:20:59.168Z
-updated: 2024-12-12T20:20:14.935Z
+date: 2024-12-14T19:50:35.454Z
+updated: 2024-12-21T23:15:02.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,15 +213,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762046-9781837990405-365-days-of-calm/"><u>365 Days of Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762061-9781800075245-365-days-of-mindful-meditations/"><u>365 Days of Mindful Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762091-9781800073531-the-art-of-simple-living/"><u>The Art of Simple Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762067-9781800073265-the-secret-to-happiness/"><u>The Secret to Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762075-9781800073296-you-can-totally-do-this/"><u>You Can Totally Do This | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762062-9781800078253-you-got-this/"><u>You Got This | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581645-9780008205287-aries-2017-your-personal-horoscope/"><u>Aries 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2568323-9781317177791-astrology-and-popular-religion-in-the-modern-west/"><u>Astrology and Popular Religion in the Modern West | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581410-9781786780089-every-breath-you-take/"><u>Every Breath You Take | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/257804-9780307352279-life-after-death/"><u>Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581646-9780008205294-taurus-2017-your-personal-horoscope/"><u>Taurus 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563553-9781780284293-ten-eternal-questions/"><u>Ten Eternal Questions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2571359-9781626256972-the-world-is-my-mirror/"><u>The World is My Mirror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2568821-9781626257023-words-out-of-silence/"><u>Words Out of Silence | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

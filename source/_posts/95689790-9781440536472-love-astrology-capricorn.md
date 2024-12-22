@@ -1,7 +1,7 @@
 ---
 title: "Love Astrology: Capricorn | Free Book"
-date: 2024-10-20T03:22:52.318Z
-updated: 2024-10-27T05:38:37.238Z
+date: 2024-12-19T07:45:51.605Z
+updated: 2024-12-22T09:25:48.696Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/03ff42d98bbc8b39481ee1d481ec3bec5821847cf39f132b2a7c358cc6213584.jpg
@@ -146,3 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/03ff42d98bbc8b39481ee1d481ec3be
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211110965-9781544537207-all-is-well/"><u>All Is Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211111166-9781003811190-mind-over-matter/"><u>Mind Over Matter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211110670-9781837992171-nature-therapy/"><u>Nature Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211111003-9783988315328-yoga-nidra/"><u>YOGA NIDRA | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

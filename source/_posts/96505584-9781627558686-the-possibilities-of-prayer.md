@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-12-07T00:41:17.975Z
-updated: 2024-12-12T21:20:00.619Z
+date: 2024-12-17T01:18:44.804Z
+updated: 2024-12-21T18:19:59.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,16 +140,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210681914-9781734687118-awaken-in-nature/"><u>Awaken In Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210682553-9781956914573-five-hundred-miles-from-help-and-i-heard/"><u>Five Hundred Miles From Help And I Heard... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210682211-9781662482458-on-earth-as-it-is-in-heaven/"><u>On Earth, as it is in Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210682142-9788293791676-the-power-of-silence/"><u>The Power of Silence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210681885-9781736787472-the-vision-partner-journal/"><u>The Vision Partner Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210682176-9780983938736-when-spirits-speak/"><u>When Spirits Speak | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210682200-9781646283026-where-are-your-angels/"><u>Where Are Your Angels? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211440833-9781476653389-cultural-encyclopedia-of-lsd-2d-ed/"><u>Cultural Encyclopedia of LSD, 2d ed. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441229-9798330354313-head-heart-crotch-connections/"><u>Head, Heart, Crotch Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441440-9798330358267-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441040-9781910559932-the-witch-and-the-wildwood/"><u>The Witch and the Wildwood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211440706--thinking-about-thinking/"><u>Thinking About Thinking | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

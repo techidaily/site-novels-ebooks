@@ -1,7 +1,7 @@
 ---
 title: Music and Its Secret Influence (5th ed.) | Free Book
-date: 2024-10-23T03:00:34.929Z
-updated: 2024-10-26T17:09:16.505Z
+date: 2024-12-16T03:44:01.076Z
+updated: 2024-12-22T13:21:42.233Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/502274ffb99b83ce7b5cee44b69e12e704f44b144a9a8a8f9700da464910d75f.jpg
@@ -176,3 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/502274ffb99b83ce7b5cee44b69e12e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210930406-9780717165964-between-death-and-life-conversations-with-a-spirit/"><u>Between Death and Life – Conversations with a Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932236-9781849942454-ingrid-pitt-bedside-companion-for-ghosthunters/"><u>Ingrid Pitt Bedside Companion for Ghosthunters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931797-9781782819141-learn-tarot/"><u>Learn Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930444-9780717184392-mind-body-soul-journal/"><u>Mind, Body, Soul Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931708-9780859658652-the-handbook-of-palmistry/"><u>The Handbook of Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931284-9780719822155-way-into-faerie/"><u>Way into Faerie | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

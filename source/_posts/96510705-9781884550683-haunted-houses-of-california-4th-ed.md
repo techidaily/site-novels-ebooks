@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-12-08T02:09:48.311Z
-updated: 2024-12-12T17:29:42.384Z
+date: 2024-12-17T16:37:12.599Z
+updated: 2024-12-21T18:39:21.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,16 +171,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210661228-9781914447624-calm-up/"><u>Calm Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661205-9798985332018-god-is-realyou-dont-even-have-to-wonder/"><u>God is REAL...You Don't Even Have to Wonder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661125-9798885055895-grannyaeurtms-pearls-of-wisdom/"><u>GrannyaEUR(tm)s Pearls of Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661060-9781953445278-rebirth/"><u>Rebirth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661179-9783950528428-the-soul-on-fire/"><u>The Soul on Fire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661002-9781958921081-the-way-of-inanna/"><u>The Way of Inanna | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661107-9783986539078-wicca-for-beginners/"><u>WICCA FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414909-9783892016366-da-dove-vengo-dove-vado-il-viaggio-della-tua-anima/"><u>Da dove vengo? Dove vado? Il viaggio della tua anima | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414873--healing-the-liminal/"><u>Healing the Liminal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414307-9781634244534-my-cosmic-trigger/"><u>My Cosmic Trigger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414911-9791280027016-riconosci-e-guarisci-te-stesso-tramite-la-forza-dello-spirito/"><u>Riconosci e guarisci te stesso tramite la forza dello Spirito | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414832--the-healing-nature-of-trees/"><u>The Healing Nature of Trees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414926-9781396326158-the-realness-of-witch-craft-in-america/"><u>The Realness of Witch-craft in America | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2024-12-09T06:09:36.351Z
-updated: 2024-12-12T20:20:10.550Z
+date: 2024-12-20T19:41:36.346Z
+updated: 2024-12-22T10:23:08.481Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,16 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210571881-9798986306209-amada-por-amor/"><u>Amada Por Amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571732-9781524869113-be-mindful-and-simplify-your-life/"><u>Be Mindful and Simplify Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571888-9798985515718-ditch-the-boyfriend-and-get-a-life-coach/"><u>Ditch the Boyfriend and Get a Life Coach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571897-9781911134633-el-tarot-del-siglo-xxi-escubre-todos-los-secretos-de-la-adivinacion-cotidiana-y-magica/"><u>El Tarot del Siglo XXI - escubre todos los secretos de la adivinación cotidiana y mágica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571713-9781524855000-kintsugi/"><u>Kintsugi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571711-9781524853044-so-whos-counting/"><u>So Who's Counting? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571717-9781449494827-the-little-book-of-witchcraft/"><u>The Little Book of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211353699--activating-our-12-stranded-dna/"><u>Activating Our 12-Stranded DNA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352898-9798869368980-colores-espirituales-y-sus-significados-en-colegio-del-espiritu-santo-nueva-edicion-en-espanol/"><u>COLORES ESPIRITUALES y sus significados - En COLEGIO DEL ESPÍRITU SANTO - Nueva Edición en Español | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211353698--crystals-for-psychic-self-defense/"><u>Crystals for Psychic Self-Defense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352933-9798869364401-dont-image-sont-toi-edition-francaise/"><u>DONT IMAGE SONT TOI? Édition française | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352930-9798869363725-initiation-to-wicca/"><u>Initiation to Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211354346--the-queens-path/"><u>The Queen's Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352900-9798869369703-duhovnye-cveta-i-ih-znachenie-v-shkole-svyatogo-duha-novoe-russkoe-izdanie/"><u>ДУХОВНЫЕ ЦВЕТА и их значение - В ШКОЛЕ СВЯТОГО ДУХА - Новое русское издание | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Precessional Time and the Evolution of Consciousness | Free Book
-date: 2024-10-21T19:38:04.817Z
-updated: 2024-10-27T01:56:09.526Z
+date: 2024-12-17T21:27:59.214Z
+updated: 2024-12-22T08:01:10.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38b96d5354d6f3848f524b0680ff05ac67e883a83af6ef259e4cde5d4084617b.jpg
@@ -189,3 +189,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38b96d5354d6f3848f524b0680ff05a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932785-9781855844919-happiness/"><u>Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932789-9781855844704-karmic-relationships-volume-8/"><u>Karmic Relationships: Volume 8 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932790-9781855842977-the-four-seasons-and-the-archangels/"><u>The Four Seasons and the Archangels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932791-9781912230693-the-tree-of-life-and-the-holy-grail/"><u>The Tree of Life and the Holy Grail | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

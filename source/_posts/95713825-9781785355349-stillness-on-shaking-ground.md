@@ -1,7 +1,7 @@
 ---
 title: Stillness on Shaking Ground | Free Book
-date: 2024-10-22T05:38:29.558Z
-updated: 2024-10-26T19:33:26.957Z
+date: 2024-12-15T19:49:20.292Z
+updated: 2024-12-21T23:25:09.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b24162e1e00090b6d5468984b57020f5014621b9c52ab456f6d73eeaff2b066b.jpg
@@ -145,3 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b24162e1e00090b6d5468984b57020f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211099520-9781803412849-50-years-50-lessons/"><u>50 Years - 50 Lessons! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103688-9782354321666-etre-et-vibration/"><u>Etre et vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099516-9781803412443-life-is-a-song-of-love/"><u>Life Is a Song of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103559-9782355995385-n-103-le-verbe-createur-et-la-formulation-de-linitiation/"><u>N. 103 Le Verbe créateur et la formulation de l'initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103561-9782355995378-n102-franc-maconnerie-traditionnelle-et-monde-moderne/"><u>N.102 Franc-Maçonnerie traditionnelle et monde moderne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103908-9780875169507-time-for-hope/"><u>Time for Hope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

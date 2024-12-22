@@ -1,7 +1,7 @@
 ---
 title: 20 Difficult Things to Accomplish in this World | Free Book
-date: 2024-12-06T19:42:44.413Z
-updated: 2024-12-13T03:54:10.946Z
+date: 2024-12-17T07:12:27.896Z
+updated: 2024-12-21T18:41:00.642Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/52aa36d5cd7fa9d998b712b75da8a025ac1203a091a99bab8ecedae5682e6a70.jpg
@@ -163,15 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/52aa36d5cd7fa9d998b712b75da8a02
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210780016-9798218166977-love-imponderable-love/"><u>Love, Imponderable Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780126-9781633413030-the-cards-youre-dealt/"><u>The Cards You're Dealt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780123-9781633412750-the-sorcery-of-solomon/"><u>The Sorcery of Solomon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780127-9780892546985-where-dragons-dance/"><u>Where Dragons Dance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780124-9780892546978-working-with-midpoints/"><u>Working with Midpoints | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780083-9781960466013-bozhestvennoe-tvorenie/"><u>Божественное Творение | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670399-9781515410393-mental-chemistry/"><u>Mental Chemistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670397-9781515410089-metaphysical-bible-dictionary/"><u>Metaphysical Bible Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670417-9781515407348-the-ascent-of-man/"><u>The Ascent of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670432-9781515408666-the-christian-book-of-mystical-verse/"><u>The Christian Book of Mystical Verse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670429-9781515408581-the-complete-works-of-e-m-bounds/"><u>The Complete Works of E. M. Bounds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670424-9781515407614-the-creative-process-in-the-individual/"><u>The Creative Process in the Individual | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

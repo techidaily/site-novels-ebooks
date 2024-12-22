@@ -1,7 +1,7 @@
 ---
 title: The Girl's Guide to Werewolves | Free Book
-date: 2024-10-24T00:50:46.200Z
-updated: 2024-10-26T21:26:10.243Z
+date: 2024-12-17T23:38:34.789Z
+updated: 2024-12-22T03:49:19.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c2ebb560fecceadf2a485c16abc6ff84929c5acd4c28899a3b29a33e2f52e361.jpg
@@ -157,3 +157,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c2ebb560fecceadf2a485c16abc6ff8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211232925-9798888518595-a-journey-of-hope/"><u>A Journey of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232682-9798891124400-a-touch-of-love/"><u>A Touch of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232699-9798218340858-good-is-powerful-beyond-measure/"><u>GOOD IS POWERFUL BEYOND MEASURE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234323--in-love-and-trust/"><u>In Love and Trust | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232594-9781667467573-megan-et-le-cycliste/"><u>Megan et le Cycliste | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234136-9780008696023-the-element-encyclopedia-of-5000-spells/"><u>The Element Encyclopedia of 5000 Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234325--the-evolution-of-consciousness/"><u>The Evolution of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211233012-9780975180136-updating-planetary-consciousness/"><u>Updating Planetary Consciousness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

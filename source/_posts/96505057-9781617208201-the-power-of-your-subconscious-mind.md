@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-06T02:11:03.992Z
-updated: 2024-12-12T19:59:42.551Z
+date: 2024-12-18T22:57:18.715Z
+updated: 2024-12-22T08:09:47.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,14 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210664400-9782889059645-loracle-de-la-balance/"><u>L'Oracle de la Balance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664403-9782889059621-loracle-de-la-vierge/"><u>L'Oracle de la Vierge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664398-9782889059669-loracle-du-capricorne/"><u>L'Oracle du Capricorne | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664401-9782889059652-loracle-du-scorpion/"><u>L'Oracle du Scorpion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664397-9782889059683-loracle-du-verseau/"><u>L'Oracle du Verseau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424088-9781398848221-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424266-9781738971336-sounds-necessity/"><u>Sounds Necessity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424250-9781945875762-the-biss-tribe/"><u>The Biss Tribe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423895--the-healing-nature-of-water/"><u>The Healing Nature of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424085-9781398841987-true-tales-of-the-paranormal/"><u>True Tales of the Paranormal | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: You Were Not Born to Suffer Sampler | Free Book
-date: 2024-10-21T19:48:16.175Z
-updated: 2024-10-27T05:14:30.006Z
+date: 2024-12-16T20:06:32.755Z
+updated: 2024-12-22T12:45:00.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8e223574b1b40f31b6d0dbe36df9b093c654a1b8dd5f46ee0835d7ae9b7a9674.jpg
@@ -153,3 +153,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8e223574b1b40f31b6d0dbe36df9b09
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211147006-9780645997118-a-proof-on-star-signs/"><u>A Proof On Star Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147750-9780762487707-an-introduction-to-magic/"><u>An Introduction to Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211146995-9780645990508-decoding-extra-terrestrial-intelligence/"><u>DECODING EXTRA-TERRESTRIAL INTELLIGENCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147270-9781985900981-haint-country/"><u>Haint Country | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147793-9781915089977-interpreting-dreams/"><u>Interpreting Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147057-9781998754380-writing-herstory/"><u>Writing HERstory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211147884-9798888518731-years-of-tears/"><u>Years of Tears | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

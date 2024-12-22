@@ -1,7 +1,7 @@
 ---
 title: The Essential Ernest Holmes | Free Book
-date: 2024-10-25T02:19:57.965Z
-updated: 2024-10-26T22:11:02.256Z
+date: 2024-12-16T07:51:01.941Z
+updated: 2024-12-22T08:30:18.041Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ffa649e801a6ec47ee430313a5c9cc51fd1b25bde5aa6a2a062138e294aa0dc.jpg
@@ -155,3 +155,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ffa649e801a6ec47ee430313a5c9cc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932884-9781855842991-biography-freedom-and-destiny/"><u>Biography: Freedom and Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932894-9781855844803-cosmic-christianity-and-the-impulse-of-michael/"><u>Cosmic Christianity and the Impulse of Michael | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932880-9781855844926-good-health/"><u>Good Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932877-9781912992386-journeying-into-spirit-worlds/"><u>Journeying Into Spirit Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932886-9781855844360-karmic-relationships-volume-1/"><u>Karmic Relationships: Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932883-9781855844377-karmic-relationships-volume-3/"><u>Karmic Relationships: Volume 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932890-9781912230587-the-coronavirus-pandemic/"><u>The Coronavirus Pandemic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932897-9781855843257-the-goddess/"><u>The Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932888-9781855844254-the-interior-of-the-earth/"><u>The Interior of the Earth | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Guide to the Wheel of the Year | Free Book
-date: 2024-10-19T21:45:46.288Z
-updated: 2024-10-26T20:02:55.876Z
+date: 2024-12-16T08:15:04.093Z
+updated: 2024-12-22T00:19:05.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4d61d57d911c69d8a94919e703bf92c1261992f38ecac8d2f9b5cb00d4d6b96.jpg
@@ -185,3 +185,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4d61d57d911c69d8a94919e703bf92
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210934648-9781782497561-44-ways-to-talk-to-your-angels/"><u>44 Ways to Talk to Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934352-9781782492726-crystal-energy/"><u>Crystal Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934635-9781782496229-discovering-signs-and-symbols/"><u>Discovering Signs and Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934646-9781782496236-meditation-made-easy/"><u>Meditation Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934657-9781782497578-mindfulness-on-the-go/"><u>Mindfulness On The Go | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

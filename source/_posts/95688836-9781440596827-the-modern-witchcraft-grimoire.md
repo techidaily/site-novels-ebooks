@@ -1,7 +1,7 @@
 ---
 title: The Modern Witchcraft Grimoire | Free Book
-date: 2024-10-20T03:04:28.604Z
-updated: 2024-10-27T05:34:18.888Z
+date: 2024-12-18T21:03:02.641Z
+updated: 2024-12-22T07:39:35.011Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d58a39f769eff2777a716c31e03399827be7aca5450b4a0516387b9e6a4a609d.jpg
@@ -173,3 +173,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d58a39f769eff2777a716c31e033998
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211194457-9798889822349-postmortem-life-continuation-and-compelling-evidence/"><u>Postmortem Life Continuation and Compelling Evidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211192944-9780811752633-the-big-book-of-missouri-ghost-stories/"><u>The Big Book of Missouri Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211192937-9780811746267-the-big-book-of-new-york-ghost-stories/"><u>The Big Book of New York Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211192945-9780811752657-the-big-book-of-ohio-ghost-stories/"><u>The Big Book of Ohio Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211192941-9780811748537-the-big-book-of-texas-ghost-stories/"><u>The Big Book of Texas Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211192947-9780811758598-the-big-book-of-west-virginia-ghost-stories/"><u>The Big Book of West Virginia Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211193669-9781958655122-what-is-happy-science/"><u>What Is Happy Science? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211193307--your-home-is-a-vision-board/"><u>Your Home Is a Vision Board | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "The Kybalion: Centenary Edition | Free Book"
-date: 2024-10-21T18:06:44.995Z
-updated: 2024-10-27T04:52:16.696Z
+date: 2024-12-15T00:54:35.761Z
+updated: 2024-12-21T21:37:08.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8156f8926101cb77027ab9e94113d9a3e6559ea568d144725a78afa5100dade.jpg
@@ -150,3 +150,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8156f8926101cb77027ab9e94113d9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932876-9781855844353-karmic-relationships-volume-4/"><u>Karmic Relationships: Volume 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932875-9781855842939-on-meditation/"><u>On Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932860-9781912230921-the-future-of-ahriman-and-the-awakening-of-souls/"><u>The Future of Ahriman and the Awakening of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932863-9781855844315-transforming-the-soul-volume-2/"><u>Transforming The Soul: Volume 2 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

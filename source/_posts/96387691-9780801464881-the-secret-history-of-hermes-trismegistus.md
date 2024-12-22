@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2024-12-04T18:34:27.853Z
-updated: 2024-12-07T06:49:44.969Z
+date: 2024-12-17T07:25:02.491Z
+updated: 2024-12-21T17:28:56.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -214,14 +214,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210152139-9781913479633-awaken-the-guru-in-you/"><u>Awaken the Guru in You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210152114-9781646548880-self-reboot-365/"><u>SELF REBOOT 365 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210150654-9781409181071-talking-with-angels-of-wealth/"><u>Talking with Angels of Wealth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210151567-9780999547229-the-nature-of-drugs-vol-1/"><u>The Nature of Drugs Vol. 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210151558-9781913504441-the-ufo-chronicles/"><u>The UFO Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/601386-9780307777331-ask-your-angels/"><u>Ask Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/599110-9781451629019-cell-level-healing/"><u>Cell-Level Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/604516-9781101478165-its-up-to-you/"><u>It's Up to You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/606579-9781409005957-mind-and-movement/"><u>Mind And Movement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/599113-9781439181867-the-power/"><u>The Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/604517-9781101478196-think-your-troubles-away/"><u>Think Your Troubles Away | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

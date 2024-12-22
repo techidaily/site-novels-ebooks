@@ -1,7 +1,7 @@
 ---
 title: Thriving Through Uncertainty | Free Book
-date: 2024-10-20T04:21:20.144Z
-updated: 2024-10-26T21:27:56.395Z
+date: 2024-12-20T11:19:21.625Z
+updated: 2024-12-21T19:44:34.190Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bdbca5f588562ab6ad060cb7c5edd488e5d65707825118f11c20ceafe83069c7.jpg
@@ -238,3 +238,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bdbca5f588562ab6ad060cb7c5edd48
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210971281-9781088241103-amor-y-odio/"><u>Amor y Odio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971284-9781088235324-en-nombre-de-kardec/"><u>En Nombre de Kardec | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971277-9781088235898-eustaquio/"><u>Eustáquio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971279-9781088235584-madame-kardec/"><u>MADAME KARDEC | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

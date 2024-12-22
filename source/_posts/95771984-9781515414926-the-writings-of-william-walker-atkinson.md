@@ -1,7 +1,7 @@
 ---
 title: The Writings of William Walker Atkinson | Free Book
-date: 2024-10-23T19:41:56.319Z
-updated: 2024-10-27T01:44:26.098Z
+date: 2024-12-18T23:12:56.436Z
+updated: 2024-12-22T09:50:25.979Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b14e2c7479ab35925306888b3e7b3670e066da7dd5fc8d5e7aef796a105acfde.jpg
@@ -141,3 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b14e2c7479ab35925306888b3e7b367
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210941343-9781847175052-a-bewitched-land/"><u>A Bewitched Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210941204-9781788492232-a-cocoon-with-a-view/"><u>A Cocoon With A View | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210941252-9781847175069-a-haunted-land/"><u>A Haunted Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210941914-9781912262694-life-after-death-beyond-doubt/"><u>Life After Death Beyond Doubt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210940767-9781912690435-seven-stars/"><u>Seven Stars | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

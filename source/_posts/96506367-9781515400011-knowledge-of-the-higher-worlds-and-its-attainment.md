@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2024-12-08T19:46:22.336Z
-updated: 2024-12-13T00:55:33.049Z
+date: 2024-12-20T13:55:13.231Z
+updated: 2024-12-21T21:58:51.643Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,18 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210649240-9782384550111-a-suggestive-inquiry-into-the-hermetic-mystery-and-alchemy/"><u>A Suggestive Inquiry into the Hermetic Mystery and Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648330-9782017166184-lastrologie/"><u>L'astrologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648332-9782017166177-le-corps-messager-de-lame/"><u>Le corps messager de l'âme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210649112-9780760376379-moon-spells/"><u>Moon Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650166-9781623177911-new-moon-magic/"><u>New Moon Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648552-9789394701045-river-of-moksha/"><u>River of Moksha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210649464-9781685269715-spiritually-defining-seasons/"><u>Spiritually Defining Seasons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210649167-9781088063965-the-shift-now-master-fast/"><u>The SHIFT NOW Master Fast | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648841-9798986284019-you-are-deathless/"><u>You Are Deathless | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389000-9798330249893-quien-soy-las-diez-preguntas-definitivas-sobre-identidad-para-adolescentes-y-preadolescentes/"><u>¿Quién soy? Las DIEZ preguntas definitivas sobre IDENTIDAD para ADOLESCENTES y PREADOLESCENTES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389005-9798330249992-5oir5piv6lcb77yfiomdkuwwkew5towsjomdkuwwkew5toeahowngewkpe7ioaegei6qs7vemxrumimcdpnzlmmkxmnjliy3vvjog6lqr5lu95pcc57si5oml5yam/"><u>我是谁？ 青少年和青少年的十大终极身份问题 青春期前： 身份搜索手册 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388988-9798989454150-be-love/"><u>be. love. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388909-9781088179420-journeying-through-wiccan-mysticism-the-sacred-dance/"><u>Journeying through Wiccan Mysticism: The Sacred Dance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388973-9798330250301-sexo-sublime-tesoro/"><u>Sexo Sublime Tesoro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388869-9798894581200-subconscious-mind/"><u>Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388870-9798894581217-ufo-sightings/"><u>Ufo Sightings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389017-9798330249886-wer-bin-ich-die-zehn-ultimativen-identitatsfragen-fur-teens-und-vorpubertierende/"><u>Wer bin ich? Die ZEHN ultimativen IDENTITÄTSFRAGEN für TEENS und Vorpubertierende | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211388999-9798330249589-who-am-i-the-ten-ultimate-identity-questions-for-teens-and-preteens/"><u>Who am I? The TEN Ultimate IDENTITY Questions for TEENS and PreTEENS | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

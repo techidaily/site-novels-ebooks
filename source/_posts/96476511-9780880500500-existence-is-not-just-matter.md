@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2024-12-07T01:52:21.699Z
-updated: 2024-12-13T05:06:52.265Z
+date: 2024-12-18T02:49:28.065Z
+updated: 2024-12-22T00:56:43.892Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,13 +164,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210780143-9781633413160-healing-pluto-problems/"><u>Healing Pluto Problems | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780147-9781950253463-the-cauldron-and-the-drum/"><u>The Cauldron and the Drum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780145-9781633413221-the-edge-of-reality/"><u>The Edge of Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780141-9781633413184-wanderers-tarot-guidebook/"><u>Wanderer's Tarot Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2681985-9781942253266-i-married-a-mystic/"><u>I Married a Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682469-9781515408420-the-door-of-everything/"><u>The Door of Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682470-9781515408413-the-dore-lectures-on-mental-science/"><u>The Dore Lectures on Mental Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682473-9781515408369-the-edinburgh-and-dore-lectures-on-mental-science/"><u>The Edinburgh and Dore Lectures on Mental Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2681925-9780752471303-the-little-book-of-the-paranormal/"><u>The Little Book of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2678585-9781498528924-the-psychic-immune-system/"><u>The Psychic Immune System | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2678628-9781881098409-the-witches-almanac-issue-36-spring-2017-to-2018/"><u>The Witches' Almanac: Issue 36, Spring 2017 to 2018 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2678630-9781938289569-when-heaven-touches-earth/"><u>When Heaven Touches Earth | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
