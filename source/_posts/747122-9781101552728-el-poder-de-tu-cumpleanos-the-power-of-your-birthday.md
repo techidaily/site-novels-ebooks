@@ -1,7 +1,7 @@
 ---
 title: El poder de tu cumpleaños (The Power of Your Birthday) | Free Book
-date: 2024-10-21T03:42:47.780Z
-updated: 2024-10-27T03:40:26.631Z
+date: 2024-12-23T19:33:04.937Z
+updated: 2024-12-27T21:40:53.161Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/293689d337272aa893566a39ebdc5f65fd4310dbb597e8108afef8f9ea2a37ee.jpg
@@ -141,3 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/293689d337272aa893566a39ebdc5f6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95881463-9781786781550-a-course-in-mastering-alchemy/"><u>A Course in Mastering Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95881524-9781787131965-crystals/"><u>Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95876043-9780525504436-infinite-possibility/"><u>Infinite Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95882109-9781785355943-the-art-of-freedom/"><u>The Art of Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95881452-9781786781505-the-gate-of-light/"><u>The Gate of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95876103-9780525619314-the-signs/"><u>The Signs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-12-16T20:40:16.554Z
-updated: 2024-12-22T00:14:58.970Z
+date: 2024-12-25T03:13:53.663Z
+updated: 2024-12-27T16:09:41.851Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,16 +164,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2602710-9780007378418-a-free-spirit/"><u>A Free Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260193-9781101190470-beyond-these-four-walls/"><u>Beyond These Four Walls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2603840-9781785353352-mediumship-within/"><u>Mediumship Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2598278-9780811745772-monsters-of-west-virginia/"><u>Monsters of West Virginia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2596131-9781785352638-more/"><u>More | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2603841-9781785353239-pagan-portals-the-cailleach/"><u>Pagan Portals - The Cailleach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2596132-9781785353413-the-human-experience-is-the-dance-of-heaven-and-earth/"><u>The Human Experience Is The Dance Of Heaven And Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1918496-9781583949825-a-search-in-secret-egypt/"><u>A Search in Secret Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924704-9780698408753-angels/"><u>Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1918552-9780804152181-psychic-children/"><u>Psychic Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1920844-9780786487523-the-conscious-mind-and-the-material-world/"><u>The Conscious Mind and the Material World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/191952-9780767910934-the-feng-shui-of-abundance/"><u>The Feng Shui of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924732-9780698137226-the-secret-teachers-of-the-western-world/"><u>The Secret Teachers of the Western World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924696-9780698408067-the-simple-road/"><u>The Simple Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/191953-9780767910972-witch-crafting/"><u>Witch Crafting | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

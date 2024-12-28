@@ -1,7 +1,7 @@
 ---
 title: How to Cheer Up a Capricorn | Free Book
-date: 2024-10-24T00:32:15.982Z
-updated: 2024-10-26T23:34:28.344Z
+date: 2024-12-22T21:54:21.525Z
+updated: 2024-12-27T23:20:52.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d1c24d76caf49d4f98e2dba47b9c59d1f2282ce1d21d6cc981474b43db1a31f0.jpg
@@ -138,3 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d1c24d76caf49d4f98e2dba47b9c59d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782728-9781620552780-advanced-spiritual-intimacy-3rd-ed/"><u>Advanced Spiritual Intimacy (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782729-9781620551288-esoteric-astrology/"><u>Esoteric Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782725-9781620556108-the-accidental-shaman/"><u>The Accidental Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782724-9781594777592-vodou-love-magic/"><u>Vodou Love Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

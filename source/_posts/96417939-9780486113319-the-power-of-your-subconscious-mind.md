@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-18T16:51:14.374Z
-updated: 2024-12-22T11:55:39.056Z
+date: 2024-12-24T21:42:57.505Z
+updated: 2024-12-27T16:58:16.899Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac07a38be5866ac3c050132f9f679e6b03a3.jpg
@@ -141,16 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/447568-9781101128114-healing-grief/"><u>Healing Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447732-9781439165744-la-sabiduria-del-alma-soul-wisdom-spanish-edition/"><u>La Sabiduria del Alma (Soul Wisdom; Spanish edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447902-9780307570079-seduction-by-the-stars/"><u>Seduction by the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447348-9781101133118-testimony-of-light/"><u>Testimony of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447885-9780307489722-the-power-of-birthdays-stars-numbers/"><u>The Power of Birthdays, Stars & Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447491-9781101127735-the-stargate-conspiracy/"><u>The Stargate Conspiracy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/447146-9781101127384-the-witchs-magical-handbook/"><u>The Witch's Magical Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2096410-9780835631785-a-most-unusual-life/"><u>A Most Unusual Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209641051-9780486838786-by-time-is-everything-revealed/"><u>By Time Is Everything Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638214-9781547573219-meditacao-poucos-passos-para-o-sucesso-em-sua-vida/"><u>Meditação : Poucos Passos Para O Sucesso Em Sua Vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638212-9781547573233-meditacao-guia-de-atencao-plena-para-autodisciplina-e-sucesso/"><u>Meditação: Guia De Atenção Plena Para Autodisciplina E Sucesso | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638226-9781547571321-meditacion-guia-para-sanar-el-alma-y-encontrar-la-paz-espiritualidad-para-principiantes/"><u>Meditación: Guía Para Sanar El Alma Y Encontrar La Paz (Espiritualidad Para Principiantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209638221-9781547571338-meditacion-tecnicas-para-mejorar-el-sueno-mindfulness-para-principiantes/"><u>Meditación. Técnicas Para Mejorar El Sueño (Mindfulness Para Principiantes). | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209641007-9781856754231-the-little-book-of-breathing/"><u>The Little Book of Breathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209641275-9781507211496-the-modern-witchcraft-guide-to-magickal-herbs/"><u>The Modern Witchcraft Guide to Magickal Herbs | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

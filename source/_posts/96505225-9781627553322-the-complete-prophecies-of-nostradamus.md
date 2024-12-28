@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2024-12-21T10:18:41.642Z
-updated: 2024-12-22T11:57:40.687Z
+date: 2024-12-26T18:08:54.809Z
+updated: 2024-12-28T02:04:55.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,18 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211436143-9780990363156-calamitys-compass/"><u>Calamity's Compass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436288-9781800653931-crystals-for-everyday-living/"><u>Crystals for Everyday Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435748-9798893910254-know-his-word-bible-study/"><u>Know His Word Bible Study | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436289-9781800653948-magick-for-transformation/"><u>Magick for Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436863-9782017289739-oracle-de-lame/"><u>Oracle de l'âme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436055-9798330284610-pearls-on-a-string/"><u>Pearls On A String | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436637-9798330338979-quien-mas-sabe-puede-mucho-quien-puede-ama-mas/"><u>Quien más sabe puede mucho. Quien puede ama más. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436114-9781396325656-the-rosicrucian-mysteries/"><u>The Rosicrucian Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436107-9781958997987-walking-on-water/"><u>Walking on Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588413-9781462039951-a-new-order-of-the-ages/"><u>A New Order of the Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588140-9781475906806-it-will-be-all-right-in-the-morning/"><u>It Will Be All Right in the Morning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588498-9781475915983-mending-the-heart-tending-the-soul/"><u>Mending the Heart, Tending the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588186-9781452544342-no-longer-lonely/"><u>No Longer Lonely | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588476-9781452543482-recognizing-a-gift-from-god/"><u>Recognizing a Gift from God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588442-9781475964141-saturdays-child/"><u>Saturday's Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588180-9781452544106-spirited-clearings/"><u>Spirited Clearings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138588353-9781452542751-whispers-of-a-heart-from-the-other-side/"><u>Whispers of a Heart from the Other Side | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

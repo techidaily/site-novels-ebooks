@@ -1,7 +1,7 @@
 ---
 title: Belief, Doubt, and Fanaticism | Free Book
-date: 2024-10-23T20:19:08.617Z
-updated: 2024-10-26T19:08:05.843Z
+date: 2024-12-24T19:26:12.303Z
+updated: 2024-12-27T17:42:18.568Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f396a05465615913297156abaf8c8266c3983f35b0ed6f6b815572ea308e225.jpg
@@ -178,3 +178,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f396a05465615913297156abaf8c82
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95841706-9781881098454-dame-fortunes-wheel-tarot/"><u>Dame Fortune's Wheel Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842528-9781788284554-discover-meditation-mindfulness/"><u>Discover Meditation & Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841442-9781683253914-el-jardin-feng-shui/"><u>El jardin Feng shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841466-9781683254164-entre-en-los-misterios-de-la-numerologia/"><u>Entre en… los misterios de la numerología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842086-9781936012374-humanitys-spiritual-crisis/"><u>Humanity's Spiritual Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841471-9781683254218-mejora-tu-autoestima/"><u>Mejora tu autoestima | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842069-9781888729832-modern-esoteric/"><u>Modern Esoteric | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Hidden Secrets of a Modern Seer | Free Book
-date: 2024-10-25T17:13:49.636Z
-updated: 2024-10-27T04:17:02.819Z
+date: 2024-12-27T02:27:57.309Z
+updated: 2024-12-27T17:48:21.088Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5902c10fa6920ced3674db712df9ecb51661721a4d1bf984dfe8c87f535f4b52.jpg
@@ -133,3 +133,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5902c10fa6920ced3674db712df9ecb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95865818-9781623172299-consciousness-dialogues/"><u>Consciousness Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95868942-9782268095646-du-chevalier-dorient-au-chevalier-kadosch/"><u>Du chevalier d'Orient... au chevalier Kadosch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95859784-9781921497834-enjoy-emotional-freedom/"><u>Enjoy Emotional Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95860303-9781507190050-enriqueca-na-caminhada-para-o-mundo-da-era-de-ouro-com-comentarios-de-meditacao/"><u>Enriqueça na caminhada para o Mundo da Era de Ouro (com Comentários de Meditação) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866143-9780316521970-falling-awake/"><u>Falling Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866140-9780316522021-meditation-is-not-what-you-think/"><u>Meditation Is Not What You Think | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95869683-9781507191101-o-livro-das-afirmacoes/"><u>O Livro das Afirmações | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866482-9780857013477-practical-zen-for-health-wealth-and-mindfulness/"><u>Practical Zen for Health, Wealth and Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866141-9780316522052-the-healing-power-of-mindfulness/"><u>The Healing Power of Mindfulness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

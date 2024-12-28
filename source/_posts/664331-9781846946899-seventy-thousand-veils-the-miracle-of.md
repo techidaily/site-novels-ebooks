@@ -1,7 +1,7 @@
 ---
 title: "Seventy Thousand Veils: The Miracle Of | Free Book"
-date: 2024-10-21T16:32:12.900Z
-updated: 2024-10-26T20:07:38.419Z
+date: 2024-12-20T16:00:06.823Z
+updated: 2024-12-28T00:15:04.907Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20b3685f43d82db09b2d6ee3f24c1227c95ec6f9c63e7f4f88da1be2986a16bb.jpg
@@ -130,3 +130,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20b3685f43d82db09b2d6ee3f24c122
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96464955-9781611250268-a-shamans-tale/"><u>A Shaman's Tale | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96465819-9781614481997-courage-for-the-rest-of-us/"><u>Courage For The Rest Of US | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96465695-9781600378836-encouragementors/"><u>EncourageMentors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464936-9781615931507-energy-warriors/"><u>Energy Warriors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96465792-9781614480785-escape-from-zoomanity/"><u>Escape From Zoomanity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464939-9781615931521-ilahinoor/"><u>Ilahinoor | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

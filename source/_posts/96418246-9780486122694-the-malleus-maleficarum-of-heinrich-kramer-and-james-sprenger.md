@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2024-12-19T06:39:01.845Z
-updated: 2024-12-22T08:02:54.114Z
+date: 2024-12-20T23:50:59.717Z
+updated: 2024-12-27T21:39:37.328Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,18 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/471317-9781848033122-77-ways-to-improve-your-wellbeing/"><u>77 Ways to Improve Your Wellbeing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466282-9781101176931-accept-this-gift/"><u>Accept This Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/467553-9780761842132-citizens-gone-wild/"><u>Citizens Gone Wild | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/472965-9781101173824-magic-power-of-white-witchcraft/"><u>Magic Power of White Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/467546-9780761842842-pause-now/"><u>Pause Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466584-9781101177204-ritual/"><u>Ritual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/471580-9781402215704-the-astrotwins-love-zodiac/"><u>The AstroTwins' Love Zodiac | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/471698-9781402228612-the-ghost-chronicles/"><u>The Ghost Chronicles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/467259-9780761842903-your-creative-power/"><u>Your Creative Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209653873-9780857013415-chinese-shamanic-tiger-qigong/"><u>Chinese Shamanic Tiger Qigong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652300-9781912807086-earth-divination-earth-magic/"><u>Earth Divination, Earth Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652345-9781493040841-haunted-ohio-2nd-ed/"><u>Haunted Ohio (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209653739-9781722522315-magic-of-faith/"><u>Magic of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652338-9781493040780-spooky-california-2nd-ed/"><u>Spooky California (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652346-9781493040803-spooky-new-york-tales-of-hauntings-strange-happenings-and-other-local-lore-2nd-ed/"><u>Spooky New York: Tales Of Hauntings, Strange Happenings, And Other Local Lore (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209653878-9781787750449-taiji-as-moving-meditation/"><u>Taiji As Moving Meditation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2024-12-19T10:30:47.407Z
-updated: 2024-12-22T07:09:45.190Z
+date: 2024-12-22T02:10:38.734Z
+updated: 2024-12-27T20:55:26.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,15 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/284921-9781101215630-everyday-grace/"><u>Everyday Grace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/291071-9781416560661-matrix-energetics/"><u>Matrix Energetics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/291754-9781416539445-mysterious-america/"><u>Mysterious America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284785-9789240681330-sex-rar/"><u>SEX-RAR | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/287904-9780307396143-sundays-with-vlad/"><u>Sundays with Vlad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/285326-9781416554998-the-secret/"><u>The Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547536-9781609256418-consult-your-inner-psychic/"><u>Consult Your Inner Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547074-9781632658227-hollands-grimoire-of-magickal-correspondence/"><u>Holland's Grimoire of Magickal Correspondence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209548350-9781785356100-living-space/"><u>Living Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209545957-9781528786430-myths-and-dreams/"><u>Myths and Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547537-9781609255978-quantum-affirmations/"><u>Quantum Affirmations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547538-9781609252809-they-dont-see-what-i-see/"><u>They Don't See What I See | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

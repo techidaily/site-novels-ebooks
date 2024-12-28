@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2024-12-18T12:51:37.386Z
-updated: 2024-12-21T21:37:30.568Z
+date: 2024-12-20T20:08:22.630Z
+updated: 2024-12-27T22:55:53.356Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,18 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/439116-9780553907261-awakening-joy/"><u>Awakening Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/442093-9781101076125-chariots-of-the-gods/"><u>Chariots of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/441581-9781101077016-jaguar-woman/"><u>Jaguar Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435894-9781775568544-lessons-in-gnani-yoga/"><u>Lessons in Gnani Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435895-9781775568537-lessons-in-raja-yoga/"><u>Lessons in Raja Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/441212-9781775569329-sacred-books-of-the-east/"><u>Sacred Books of the East | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/441231-9781775568629-the-breath-of-life/"><u>The Breath of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/441832-9781101099247-the-hidden-power-of-the-bible/"><u>The Hidden Power of the Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/444290-9781442945562-the-history-of-spiritualism/"><u>The History of Spiritualism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636665-9781547573196-meditacao-guia-iniciante-para-meditacao-e-tecnicas-para-reducao-do-estresse-e-ansiedade/"><u>Meditação : Guia Iniciante Para Meditação E Técnicas Para Redução Do Estresse E Ansiedade | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636671-9781547571345-meditacion-atencion-plena-para-que-los-principiantes-eliminen-el-estres/"><u>Meditación: Atención Plena Para Que Los Principiantes Eliminen El Estrés | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636327-9781633411494-tarot-for-your-self/"><u>Tarot for Your Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636323-9781612834443-the-encyclopedia-of-wealth/"><u>The Encyclopedia of Wealth | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

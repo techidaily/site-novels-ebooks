@@ -1,7 +1,7 @@
 ---
 title: The Afterlife Unveiled | Free Book
-date: 2024-10-23T02:05:49.316Z
-updated: 2024-10-26T18:53:39.635Z
+date: 2024-12-27T00:26:56.979Z
+updated: 2024-12-27T17:59:01.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f2355bdff80cb5e56c0d32bb0ef643a136e26fd3346fca4dbe851fc88db5d708.jpg
@@ -141,3 +141,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f2355bdff80cb5e56c0d32bb0ef643a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95935358-9781844093687-choosing-to-be-2nd-ed/"><u>Choosing to Be (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935359-9781844093038-clearing/"><u>Clearing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935363-9781844093977-dreams-of-the-reiki-shaman/"><u>Dreams of the Reiki Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935360-9781844093991-earth-alchemy/"><u>Earth Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935357-9781844098088-facing-darkness-finding-light/"><u>Facing Darkness, Finding Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935356-9781844093816-the-order-of-melchizedek/"><u>The Order of Melchizedek | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935364-9781844093908-the-path-of-synchronicity/"><u>The Path of Synchronicity | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

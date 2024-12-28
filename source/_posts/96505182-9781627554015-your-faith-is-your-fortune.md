@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2024-12-15T11:11:09.635Z
-updated: 2024-12-22T13:48:18.521Z
+date: 2024-12-21T23:29:38.846Z
+updated: 2024-12-27T17:31:22.881Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,15 +142,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211433433-9781250237019-hundred/"><u>Hundred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433934-9781803410272-pagan-portals-sulis/"><u>Pagan Portals - Sulis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433350-9781466835870-the-presidents-and-ufos/"><u>The Presidents and UFOs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433613-9781429924580-trucker-ghost-stories/"><u>Trucker Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433718-9781429953962-ufo-hunters-hoax-or-history/"><u>UFO Hunters: Hoax or History? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433699-9781466882553-zodiac-spells/"><u>Zodiac Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584078-9781462037124-beyond-cell-memory/"><u>Beyond Cell Memory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584093-9781452532981-from-fear-to-freedom/"><u>From Fear to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585086-9781452538716-journey-with-gwen/"><u>Journey with Gwen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584366-9781452540627-post-cards-from-the-void/"><u>Post Cards from the Void | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584808-9781462033850-psychic-beauty-energy-cords-psychic-exercises/"><u>Psychic Beauty ~ Energy Cords & Psychic Exercises ~ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584290-9781450286015-shadow-place/"><u>Shadow Place | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585305-9781475940237-the-acts-of-creation/"><u>The Acts of Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584409-9781450294010-tribute-to-a-common-man/"><u>Tribute to a Common Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584552-9781449743642-your-destiny-and-your-palace/"><u>Your Destiny and Your Palace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

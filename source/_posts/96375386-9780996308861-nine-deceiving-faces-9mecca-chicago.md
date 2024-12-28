@@ -1,7 +1,7 @@
 ---
 title: "Nine Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2024-11-29T17:53:23.304Z
-updated: 2024-12-07T04:04:31.130Z
+date: 2024-12-23T18:32:25.346Z
+updated: 2024-12-27T22:22:51.713Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439b6cbc62534ca76a09f60f54167ecc003e.jpg
@@ -140,15 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210198346-9781631593987-being-with-flowers/"><u>Being with Flowers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198394-9780760367384-in-focus-numerology/"><u>In Focus Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198326-9781782407126-secrets-of-crystals/"><u>Secrets of Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198405-9781631594816-the-crystal-seer/"><u>The Crystal Seer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198532-9780760365076-the-joy-of-forest-bathing/"><u>The Joy of Forest Bathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198321-9781627889568-witchcraft/"><u>Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845687-9781936470679-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845730-9780996776028-easy-tarot/"><u>Easy Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845682-9781936470471-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846210-9780995395213-messages-from-the-spirit-realm/"><u>Messages From The Spirit Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845824-9781938962257-my-little-cowboy/"><u>My Little Cowboy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846077-9780994505293-the-journey/"><u>The Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846035-9789186613303-the-tale-of-the-truth/"><u>the Tale of the Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846091-9780997699210-travels-with-the-earth-oracle-book-one/"><u>Travels with the Earth Oracle - Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845916-9780692792971-wake-up-the-universe-is-speaking-to-you/"><u>Wake Up! The Universe Is Speaking To You | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

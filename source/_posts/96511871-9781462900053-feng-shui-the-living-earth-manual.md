@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2024-12-18T06:46:22.458Z
-updated: 2024-12-22T08:54:11.118Z
+date: 2024-12-26T16:38:30.621Z
+updated: 2024-12-28T02:35:00.246Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,17 +148,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211345511-9798869373014-archangels/"><u>Archangels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211345820-9783892017578-der-innere-weg-zum-kosmischen-bewusstsein/"><u>Der Innere Weg zum kosmischen Bewusstsein | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211345626-9783964460936-deus-cura/"><u>DEUS Cura | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211345648-9781963397024-dont-be-pissed-when-you-learn-the-benefits-of-urine-therapy/"><u>Don't Be Pissed When You Learn The Benefits Of Urine Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211345498-9798869375414-el-gobernador/"><u>El Gobernador | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211345822-9783892014010-moi-moi-moi-laraignee-dans-sa-toile/"><u>Moi, moi, moi, l'araignée dans sa toile | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211345494-9798869322623-pearls-on-a-string/"><u>Pearls On A String | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211345530-9798869367358-synchronicity-unveiled/"><u>Synchronicity Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1142781-9780857010056-chen/"><u>Chen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144298-9780810875128-historical-dictionary-of-witchcraft-2nd-ed/"><u>Historical Dictionary of Witchcraft (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144064-9781118456446-mindfulness-workbook-for-dummies/"><u>Mindfulness Workbook For Dummies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1142783-9780857010070-seeking-the-spirit-of-the-book-of-change/"><u>Seeking the Spirit of The Book of Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1143533-9781608822935-the-tao-of-bipolar/"><u>The Tao of Bipolar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1142784-9780857010087-traditional-chinese-medicine-approaches-to-cancer/"><u>Traditional Chinese Medicine Approaches to Cancer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

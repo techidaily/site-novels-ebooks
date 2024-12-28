@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2024-12-21T11:03:35.330Z
-updated: 2024-12-22T11:34:33.613Z
+date: 2024-12-24T00:07:46.493Z
+updated: 2024-12-28T01:38:32.160Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,15 +134,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2593843-9781683250340-acuario/"><u>Acuario | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593842-9781683250333-capricornio/"><u>Capricornio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593854-9781683250456-el-tarot/"><u>El tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593845-9781683250364-guia-para-interpretar-los-suenos/"><u>Guía para interpretar los sueños | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593844-9781683250357-piscis/"><u>Piscis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593841-9781683250326-sagitario/"><u>Sagitario | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865611-9780983346647-brigit/"><u>Brigit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865622-9781782797647-carry-the-rock/"><u>Carry the Rock | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865624-9781782797906-crystal-prescriptions/"><u>Crystal Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1863937-9781476617947-evidence-for-psi/"><u>Evidence for Psi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865631-9781782798347-pagan-portals-the-morrigan/"><u>Pagan Portals - The Morrigan | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

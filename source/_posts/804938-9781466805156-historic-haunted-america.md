@@ -1,7 +1,7 @@
 ---
 title: Historic Haunted America | Free Book
-date: 2024-10-20T18:23:03.105Z
-updated: 2024-10-26T23:09:24.741Z
+date: 2024-12-24T00:04:57.906Z
+updated: 2024-12-27T20:24:16.781Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92e70431e7a9532c5c23114a970c451b40786bdf7a108e8ff7ece7a38159c1e.jpg
@@ -167,3 +167,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92e70431e7a9532c5c23114a970c45
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782523-9781591438274-entering-the-mind-of-the-tracker/"><u>Entering the Mind of the Tracker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782521-9781591437772-esoteric-egypt/"><u>Esoteric Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782526-9781591439196-the-12th-planet-book-i/"><u>The 12th Planet (Book I) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782524-9781591439875-the-8-calendars-of-the-maya/"><u>The 8 Calendars of the Maya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782527-9781591439325-the-cherokee-full-circle/"><u>The Cherokee Full Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782520-9781591439882-the-purposeful-universe/"><u>The Purposeful Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782519-9781591438700-the-toltec-path-of-recapitulation/"><u>The Toltec Path of Recapitulation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782525-9781591438632-the-tutankhamun-prophecies/"><u>The Tutankhamun Prophecies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: You Are a Spiritual Being Having a Human Experience | Free Book
-date: 2024-10-19T22:37:15.905Z
-updated: 2024-10-26T22:25:40.633Z
+date: 2024-12-24T02:08:52.411Z
+updated: 2024-12-27T16:12:47.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/584f86f38cee67394988e0d668007a6cbbc0e00b177a97180d6e923e468d35a8.jpg
@@ -163,3 +163,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/584f86f38cee67394988e0d668007a6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782811-9781620554289-emotion-and-healing-in-the-energy-body/"><u>Emotion and Healing in the Energy Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782789-9781620554081-norse-goddess-magic-2nd-ed/"><u>Norse Goddess Magic (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782788-9781594775512-nostradamus-the-lost-manuscript-2nd-ed/"><u>Nostradamus: The Lost Manuscript (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782827-9781620552537-seiki-jutsu/"><u>Seiki Jutsu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782825-9781620550045-self-healing-with-breathwork/"><u>Self-Healing with Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782793-9781620555620-tantric-jesus/"><u>Tantric Jesus | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

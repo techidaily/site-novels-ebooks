@@ -1,7 +1,7 @@
 ---
 title: The Secrets Of Nostradamus | Free Book
-date: 2024-10-21T18:48:19.538Z
-updated: 2024-10-27T02:42:11.736Z
+date: 2024-12-24T01:14:55.818Z
+updated: 2024-12-27T22:33:47.923Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0f81cee71accdc78b55c51030e72069b96d03e0b0a56dde5688ffc9a866d73ff.jpg
@@ -138,3 +138,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0f81cee71accdc78b55c51030e72069
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783093-9781620556436-into-the-mystic/"><u>Into the Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783090-9781620553671-magic-mushroom-explorer/"><u>Magic Mushroom Explorer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783088-9781620554623-teachings-of-the-peyote-shamans/"><u>Teachings of the Peyote Shamans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783100-9781620551424-the-new-science-of-psychedelics/"><u>The New Science of Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783103-9781594777073-the-presence-of-the-past-4th-ed/"><u>The Presence of the Past (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783098-9781594778711-the-prophets-way/"><u>The Prophet's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783094-9781594779374-the-psilocybin-solution/"><u>The Psilocybin Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783097-9781594779367-the-psychedelic-explorers-guide/"><u>The Psychedelic Explorer's Guide | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

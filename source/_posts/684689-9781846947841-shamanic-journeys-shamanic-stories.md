@@ -1,7 +1,7 @@
 ---
 title: Shamanic Journeys, Shamanic Stories | Free Book
-date: 2024-10-20T19:04:11.767Z
-updated: 2024-10-27T04:39:07.545Z
+date: 2024-12-23T21:09:58.353Z
+updated: 2024-12-27T21:47:24.623Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10d8ce0fc6fe8fd1bd3b04ff7264da5ed43daeb8e9f2b1574a5db875d501c4ed.jpg
@@ -127,3 +127,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10d8ce0fc6fe8fd1bd3b04ff7264da5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96164931-9781591433224-eden-in-the-altai-3rd-ed/"><u>Eden in the Altai (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164925-9781620557181-introduction-to-magic-volume-ii/"><u>Introduction to Magic, Volume II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164927-9781620557754-nightside-of-the-runes/"><u>Nightside of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164932-9781620557570-runic-lore-and-legend-2nd-ed/"><u>Runic Lore and Legend (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164928-9781591433279-soul-dog/"><u>Soul Dog | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164930-9781591433026-the-egyptian-origins-of-king-david-and-the-temple-of-solomon/"><u>The Egyptian Origins of King David and the Temple of Solomon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96164924-9781620557938-the-mother-mantra/"><u>The Mother Mantra | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Living with Parkinson's | Free Book
-date: 2024-10-24T16:27:53.538Z
-updated: 2024-10-27T05:53:09.462Z
+date: 2024-12-27T02:37:08.059Z
+updated: 2024-12-28T00:37:27.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c576ad6e24fc24ee33a2163cd09f15c217a351f4523e005bc0373a392a7ec02e.jpg
@@ -133,3 +133,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c576ad6e24fc24ee33a2163cd09f15c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95917954-9781591432944-ancient-giants/"><u>Ancient Giants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918121-9781683255222-como-predecir-el-futuro-con-las-cartas-de-la-sibila/"><u>Como predecir el futuro con las cartas de la Sibila | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917957-9781620557488-dmt-dialogues/"><u>DMT Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918122-9781683255239-entre-en-el-prodigioso-mundo-de-los-suenos/"><u>Entre en… el prodigioso mundo de los sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918123-9781683255246-entre-en-los-secretos-del-viaje-astral/"><u>Entre en... los secretos del viaje astral | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918135-9781683255369-interprete-usted-mismo-sus-suenos/"><u>Interprete usted mismo sus sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918138-9781683255390-las-cartas-adivinatorias-del-karma/"><u>Las cartas adivinatorias del karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917953-9781620557228-the-fraternitas-saturni-5th-ed/"><u>The Fraternitas Saturni (5th ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

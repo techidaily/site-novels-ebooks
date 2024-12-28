@@ -1,7 +1,7 @@
 ---
 title: Divine Therapy and Addiction | Free Book
-date: 2024-10-20T00:35:45.452Z
-updated: 2024-10-27T02:31:10.821Z
+date: 2024-12-22T18:01:51.909Z
+updated: 2024-12-27T22:49:00.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b643f4e4533b74883c1661dcb620831e291af050a2f8718dbad8c0e26d0d0853.jpg
@@ -133,3 +133,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b643f4e4533b74883c1661dcb620831
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782689-9781594776656-darkness-visible/"><u>Darkness Visible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782688-9781594778568-decoding-the-enochian-secrets/"><u>Decoding the Enochian Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782691-9781594778513-healing-light-of-the-tao-2nd-ed/"><u>Healing Light of the Tao (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782683-9781594779459-karsai-nei-tsang/"><u>Karsai Nei Tsang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782684-9781594777899-the-vaastu-workbook/"><u>The Vaastu Workbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

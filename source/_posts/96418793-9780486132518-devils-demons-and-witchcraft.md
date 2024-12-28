@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2024-12-20T02:50:38.425Z
-updated: 2024-12-21T21:40:13.605Z
+date: 2024-12-24T02:06:08.378Z
+updated: 2024-12-27T19:19:06.334Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,17 +164,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/480049-9781101195840-conquer-the-cosmos/"><u>Conquer the Cosmos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484469-9780307555342-conscious-dreaming/"><u>Conscious Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484204-9780307555571-how-to-defend-yourself-against-alien-abduction/"><u>How to Defend Yourself Against Alien Abduction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/480123-9781580911993-the-big-little-book-of-magick/"><u>The Big Little Book of Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/483989-9780307433787-the-feminine-face-of-god/"><u>The Feminine Face of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484156-9780307434524-the-other-90/"><u>The Other 90% | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/484149-9780307560797-true-balance/"><u>True Balance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475346-9781458711359-understanding-our-mind/"><u>Understanding Our Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660732-9781547573103-a-vida-em-annwn/"><u>A Vida Em Annwn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209659129-9780762494576-buddhas-office/"><u>Buddha's Office | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209658114-9782824632124-ce-que-lau-dela-leur-a-appris/"><u>Ce que l'au-delà leur a appris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209657959-9781493040889-haunted-north-carolina-2nd-ed/"><u>Haunted North Carolina (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660753-9781547574575-meditacao-guia-passo-a-passo-para-iniciantes-para-a-atencao-plena-e-uma-conexao-mais-profunda-consigo-mesmo/"><u>Meditação: Guia Passo A Passo Para Iniciantes Para A Atenção Plena E Uma Conexão Mais Profunda Consigo Mesmo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660873-9781547579648-meditacion-aprenda-a-meditar-para-una-experiencia-espiritual-felicidad-y-exito/"><u>Meditación: Aprenda A Meditar Para Una Experiencia Espiritual (Felicidad Y Éxito) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209659105-9780738285313-stop-missing-your-life/"><u>Stop Missing Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209658641-9781401949358-the-wisdom-codes/"><u>The Wisdom Codes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660756-9781547578757-una-mente-plena-a-traves-de-la-guia-de-meditacion-diaria/"><u>Una Mente Plena a Través de la Guía de Meditación Diaria | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

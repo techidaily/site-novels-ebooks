@@ -1,7 +1,7 @@
 ---
 title: A New Mind | Free Book
-date: 2024-10-25T22:21:35.905Z
-updated: 2024-10-26T19:30:12.158Z
+date: 2024-12-21T18:09:16.730Z
+updated: 2024-12-27T21:00:07.922Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0feb18c7ab5bf457e9efc98d1441f5c35e191cda08c20427eff947478775b28.jpg
@@ -153,3 +153,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0feb18c7ab5bf457e9efc98d1441f5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782134-9781620553954-awakening-higher-consciousness/"><u>Awakening Higher Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782133-9781594779893-quantum-shift-in-the-global-brain/"><u>Quantum Shift in the Global Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782132-9781594779541-the-crazy-wisdom-of-ganesh-baba/"><u>The Crazy Wisdom of Ganesh Baba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782127-9781594776427-the-cry-of-the-huna/"><u>The Cry of the Huna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782137-9781594779312-the-invisible-history-of-the-rosicrucians/"><u>The Invisible History of the Rosicrucians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782135-9781620554166-the-john-michell-reader-2nd-ed/"><u>The John Michell Reader (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782123-9781594777226-the-kingdom-of-agarttha/"><u>The Kingdom of Agarttha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782136-9781594776298-the-sacred-embrace-of-jesus-and-mary/"><u>The Sacred Embrace of Jesus and Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782126-9781594777578-twelve-tribe-nations-3rd-ed/"><u>Twelve-Tribe Nations (3rd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

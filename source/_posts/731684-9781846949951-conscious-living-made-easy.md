@@ -1,7 +1,7 @@
 ---
 title: Conscious Living Made Easy | Free Book
-date: 2024-10-22T00:27:26.730Z
-updated: 2024-10-26T22:26:44.512Z
+date: 2024-12-25T17:33:22.153Z
+updated: 2024-12-27T21:52:24.737Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b61dacab3b21d222387aebcee2ab3c0a51c14cc33e3e1831b71d9e0e70db551c.jpg
@@ -139,3 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b61dacab3b21d222387aebcee2ab3c0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96037668-9781633410732-blackthorns-botanical-magic/"><u>Blackthorn's Botanical Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96039702-9781937866020-the-medical-cannabis-guidebook/"><u>The Medical Cannabis Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037671-9781938289835-the-seven-secrets-to-healthy-happy-relationships/"><u>The Seven Secrets to Healthy, Happy Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037670-9781881098478-the-witches-almanac-issue-38-spring-2019-to-spring-2020/"><u>The Witches' Almanac: Issue 38, Spring 2019 to Spring 2020 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037667-9781633410695-working-conjure/"><u>Working Conjure | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

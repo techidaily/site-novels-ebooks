@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-12-14T19:16:52.692Z
-updated: 2024-12-22T05:30:41.232Z
+date: 2024-12-23T20:56:53.468Z
+updated: 2024-12-27T16:47:34.205Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,15 +262,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2581659-9780008205447-the-dragon-in-2017-your-chinese-horoscope/"><u>The Dragon in 2017: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2581661-9780008205461-the-horse-in-2017-your-chinese-horoscope/"><u>The Horse in 2017: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2581656-9780008205416-the-ox-in-2017-your-chinese-horoscope/"><u>The Ox in 2017: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2581658-9780008205430-the-rabbit-in-2017-your-chinese-horoscope/"><u>The Rabbit in 2017: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2581660-9780008205454-the-snake-in-2017-your-chinese-horoscope/"><u>The Snake in 2017: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2581657-9780008205423-the-tiger-in-2017-your-chinese-horoscope/"><u>The Tiger in 2017: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818255-9781782796701-collecting-feathers/"><u>Collecting Feathers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818257-9781782797081-death-the-last-god/"><u>Death, the Last God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1813720-9781594748363-field-guide-to-luck/"><u>Field Guide to Luck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1815859-9780970711779-got-ghost/"><u>Got Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818259-9781782797166-of-course/"><u>Of Course! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1816015-9781776586905-practical-psychomancy-and-crystal-gazing/"><u>Practical Psychomancy and Crystal Gazing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

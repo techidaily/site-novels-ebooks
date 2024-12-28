@@ -1,7 +1,7 @@
 ---
 title: The Ancient Art of Faery Magick | Free Book
-date: 2024-10-24T01:46:09.205Z
-updated: 2024-10-27T03:04:40.451Z
+date: 2024-12-27T02:41:18.427Z
+updated: 2024-12-28T00:39:48.041Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/48d92f9ce4de9363c43bc60f46621a960c0708e35d01baa297a5e9b605926fa1.jpg
@@ -153,3 +153,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/48d92f9ce4de9363c43bc60f46621a9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1124246-9781619400061-mrs-piper-and-the-society-for-psychical-research/"><u>Mrs. Piper and the Society for Psychical Research | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124254-9781619400412-psychic-investigations-in-early-america/"><u>Psychic Investigations in Early America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124255-9781619400962-psychic-phenomena-the-appearance-of-light/"><u>Psychic Phenomena: The Appearance of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124256-9781619400665-psychic-phenomena-the-movement-of-objects/"><u>Psychic Phenomena: The Movement of Objects | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124257-9781619400856-psychic-phenomena-the-production-of-sound/"><u>Psychic Phenomena: The Production of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124258-9781619400160-psychometric-portraiture-of-the-victorian-era/"><u>Psychometric Portraiture of the Victorian Era | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124259-9781619400467-the-repairer-of-reputations/"><u>The Repairer of Reputations | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

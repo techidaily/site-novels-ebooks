@@ -1,7 +1,7 @@
 ---
 title: Jungle Medicine | Free Book
-date: 2024-10-21T03:00:41.206Z
-updated: 2024-10-27T00:08:09.082Z
+date: 2024-12-21T23:28:33.725Z
+updated: 2024-12-27T18:24:26.155Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f2424dcabd286100320e03c26937d416b5aa44d6113c31512de98501e0de190.jpg
@@ -133,3 +133,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f2424dcabd286100320e03c26937d4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95935414-9781844098392-become-an-earth-angel/"><u>Become an Earth Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935426-9781844098590-digestive-intelligence/"><u>Digestive Intelligence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935422-9781844093458-footprints-on-the-path-3rd-ed/"><u>Footprints on the Path (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935427-9781844098293-get-your-life-back/"><u>Get Your Life Back | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935424-9781844097685-god-spoke-to-me-3rd-ed/"><u>God Spoke to Me (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935418-9781844093052-healing-plants-and-animals-from-a-distance/"><u>Healing Plants and Animals from a Distance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935416-9781844097722-healing-with-angels-for-personal-transformation/"><u>Healing with Angels for Personal Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935423-9781844098729-healing-with-past-life-therapy/"><u>Healing with Past Life Therapy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

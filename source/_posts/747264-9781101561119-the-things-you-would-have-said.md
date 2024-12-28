@@ -1,7 +1,7 @@
 ---
 title: The Things You Would Have Said | Free Book
-date: 2024-10-24T19:31:01.411Z
-updated: 2024-10-26T23:31:33.518Z
+date: 2024-12-25T17:52:23.995Z
+updated: 2024-12-27T20:48:52.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b91e82e288270900bacd51468f51a63977c9a109a37ee185c0aa3c504d4c3391.jpg
@@ -189,3 +189,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b91e82e288270900bacd51468f51a63
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95888594-9780399562310-alone-time/"><u>Alone Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95885077-9781459742147-ghosts-of-niagara-on-the-lake-2nd-ed/"><u>Ghosts of Niagara-on-the-Lake (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95888613-9780525558941-how-to-change-your-mind/"><u>How to Change Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95887576-9781507194522-quello-che-e-una-scorciatoia-all-altro-mondo/"><u>Quello che É - Una scorciatoia all' Altro Mondo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95884856-9780998688718-the-recognition-sutras/"><u>The Recognition Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95888625-9780525504719-the-road-to-walden/"><u>The Road to Walden | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

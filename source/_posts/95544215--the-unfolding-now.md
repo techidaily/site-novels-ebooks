@@ -1,7 +1,7 @@
 ---
 title: The Unfolding Now | Free Book
-date: 2024-10-20T22:29:54.371Z
-updated: 2024-10-26T17:05:02.397Z
+date: 2024-12-27T02:03:14.253Z
+updated: 2024-12-27T17:22:32.827Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/6510c87fecc476a2212678dd7d285ee31510280a85f427ae9c88e850f4b5af21.jpg
@@ -167,3 +167,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6510c87fecc476a2212678dd7d285ee
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/670799-9781846947278-2013/"><u>2013 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/670512-9780307795434-angel-energy/"><u>Angel Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/670800-9781846947285-dreamer/"><u>Dreamer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/670801-9781846947292-generational-patterns-using-astrology/"><u>Generational Patterns Using Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/670802-9781846947308-healing-this-wounded-earth/"><u>Healing This Wounded Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/670803-9781846947315-how-to-bond-with-an-aquarius/"><u>How to Bond with An Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/670806-9781846947346-poppies-from-heaven/"><u>Poppies From Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/670788-9781446447895-the-wheel-of-the-wiccan-year/"><u>The Wheel Of The Wiccan Year | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Transcendent Wisdom of the Maya | Free Book
-date: 2024-12-04T19:38:19.151Z
-updated: 2024-12-06T19:01:32.061Z
+date: 2024-12-24T22:28:25.835Z
+updated: 2024-12-28T02:44:47.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8fe342fd625e873a2ea83a159fafc7d7dd.jpg
@@ -208,13 +208,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210163661-9781640828179-got-inspiration-365-days-of-inspiration-for-you/"><u>Got Inspiration? 365 Days of Inspiration for You! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163917-9781646282203-higher-learning-for-higher-activities/"><u>Higher Learning for Higher Activities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163650-9781644240205-i-am-the-thorn-in-satans-side/"><u>I Am The Thorn In Satan's Side! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163728-9781644628126-the-team/"><u>The Team | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699346-9781547584901-meditacion-guia-de-principiantes-para-llegar-al-estado-zen-y-librarse-del-estres/"><u>Meditación : Guía De Principiantes Para Llegar Al Estado Zen Y Librarse Del Estrés | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699345-9781547585601-meditacion-meditacion-para-principiantes-guiada-para-lograr-la-espiritualidad-del-estado-zen/"><u>Meditación : Meditación Para Principiantes Guiada Para Lograr La Espiritualidad Del Estado Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703215-9781623174521-rune-reading-your-life/"><u>Rune Reading Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2097026-9781583949986-sky-shamans-of-mongolia/"><u>Sky Shamans of Mongolia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703387-9780753733974-the-art-of-simple-living/"><u>The Art of Simple living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703216-9781401959265-the-big-book-of-angel-tarot/"><u>The Big Book of Angel Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703718-9781524854454-the-blue-day-book-illustrated-edition/"><u>The Blue Day Book Illustrated Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703230-9781623174835-the-twelve-gates/"><u>The Twelve Gates | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-12-17T02:13:36.583Z
-updated: 2024-12-22T08:54:25.921Z
+date: 2024-12-20T17:08:00.192Z
+updated: 2024-12-27T21:24:39.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,14 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211375384-9781800652446-crystal-connections/"><u>Crystal Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375457-9780062913357-madame-clairevoyants-guide-to-the-stars/"><u>Madame Clairevoyant's Guide to the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375385-9781800652453-mindful-homes/"><u>Mindful Homes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375438-9780061748950-papal-magic/"><u>Papal Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375465-9780061741890-the-dark-sacrament/"><u>The Dark Sacrament | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566268-9781401947057-adventures-of-the-soul/"><u>Adventures of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566273-9781401954499-charge-and-the-energy-body/"><u>Charge and the Energy Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566249-9781401954031-the-7-secrets-of-sound-healing-revised-edition/"><u>The 7 Secrets of Sound Healing Revised Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566267-9781401948207-the-abundance-loop/"><u>The Abundance Loop | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566263-9781401930257-the-complete-book-of-numerology/"><u>The Complete Book of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566261-9781401951382-wisdom-from-your-spirit-guides/"><u>Wisdom from Your Spirit Guides | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

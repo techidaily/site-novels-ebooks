@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-12-17T01:18:44.804Z
-updated: 2024-12-21T18:19:59.245Z
+date: 2024-12-22T19:40:32.447Z
+updated: 2024-12-28T02:50:29.527Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,14 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211440833-9781476653389-cultural-encyclopedia-of-lsd-2d-ed/"><u>Cultural Encyclopedia of LSD, 2d ed. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441229-9798330354313-head-heart-crotch-connections/"><u>Head, Heart, Crotch Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441440-9798330358267-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441040-9781910559932-the-witch-and-the-wildwood/"><u>The Witch and the Wildwood | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211440706--thinking-about-thinking/"><u>Thinking About Thinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590533-9781452542706-bound-by-destiny/"><u>Bound by Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590691-9781452536279-conscious-mastery/"><u>Conscious Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590480-9781452539287-dial-love-divine-intelligence-almighty-love-light-omnipresent-vibrational-energy/"><u>Dial Love: Divine Intelligence Almighty Love, Light Omnipresent Vibrational Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590599-9781452550930-inspired-by-reiki-energy/"><u>Inspired by Reiki Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590522-9781452551388-the-great-spirit-says/"><u>The Great Spirit Says | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590314-9781462031207-the-path/"><u>The Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138590357-9781452545738-want-your-dreams/"><u>Want Your Dreams | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

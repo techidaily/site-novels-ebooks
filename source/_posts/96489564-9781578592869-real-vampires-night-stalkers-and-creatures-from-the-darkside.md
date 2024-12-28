@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-12-14T19:50:35.454Z
-updated: 2024-12-21T23:15:02.571Z
+date: 2024-12-26T23:50:34.997Z
+updated: 2024-12-27T22:09:59.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,17 +213,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2581645-9780008205287-aries-2017-your-personal-horoscope/"><u>Aries 2017: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2568323-9781317177791-astrology-and-popular-religion-in-the-modern-west/"><u>Astrology and Popular Religion in the Modern West | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2581410-9781786780089-every-breath-you-take/"><u>Every Breath You Take | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/257804-9780307352279-life-after-death/"><u>Life After Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2581646-9780008205294-taurus-2017-your-personal-horoscope/"><u>Taurus 2017: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2563553-9781780284293-ten-eternal-questions/"><u>Ten Eternal Questions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2571359-9781626256972-the-world-is-my-mirror/"><u>The World is My Mirror | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2568821-9781626257023-words-out-of-silence/"><u>Words Out of Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1801211-9781476789774-change-me-prayers/"><u>Change Me Prayers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1799006-9781612833361-freedom-and-resolve/"><u>Freedom and Resolve | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1791925-9781780288604-how-to-find-your-spirit-animal/"><u>How to Find Your Spirit Animal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1791396-9781782795254-life-without-elgar/"><u>Life Without Elgar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1791741-9780786484461-parapsychology-in-the-twenty-first-century/"><u>Parapsychology in the Twenty-First Century | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1791401-9781782796138-the-case-of-the-disappearing-cancer/"><u>The Case of the Disappearing Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1791402-9781782795278-the-heart-of-the-hereafter/"><u>The Heart of the Hereafter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1791407-9781782795414-the-woven-word/"><u>The Woven Word | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

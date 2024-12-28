@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-12-20T19:29:16.775Z
-updated: 2024-12-22T07:34:19.761Z
+date: 2024-12-23T03:11:57.752Z
+updated: 2024-12-27T18:45:17.010Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,18 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211374428-9798990318106-a-beginners-guide-to-kabbalah/"><u>A Beginner's Guide to Kabbalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374811-9782889702602-faire-evoluer-son-ame-grace-aux-messages-caches-des-contes/"><u>Faire évoluer son âme grâce aux messages cachés des contes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375204--just-ask-spirit/"><u>Just Ask Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374448-9798218349325-kabbalah-and-the-mystical-hebrew-alphabet/"><u>Kabbalah and the Mystical Hebrew Alphabet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374825-9782017230069-lastrologie-des-maitres-de-linde/"><u>L'astrologie des maîtres de l'Inde | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374360--the-grounding-companion/"><u>The Grounding Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374437-9798990318113-the-mystical-hebrew-alphabet/"><u>The Mystical Hebrew Alphabet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374314--the-witch-of-the-forests-guide-to-folklore-magick/"><u>The Witch of the Forest's Guide to Folklore Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374403-9798893305807-your-response-could-make-a-difference/"><u>Your Response Could Make A Difference!! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566230-9781401922634-adventures-of-a-psychic/"><u>Adventures of a Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566229-9781401932114-an-autobiography-of-george-washington/"><u>An Autobiography of George Washington | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566228-9781401922603-astrology-through-a-phychics-eyes/"><u>Astrology Through a Phychic's Eyes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566237-9781401946807-conversations-with-history/"><u>Conversations with History | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138565813-9780880500937-falling-in-love-with-darkness/"><u>Falling in Love With Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138560203-9781939681874-order-of-the-sacred-earth/"><u>Order of the Sacred Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138559107-9781789502770-poltergeists/"><u>Poltergeists | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138561271-9780281078059-see-love-be/"><u>See, Love, Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138564923-9780880504553-the-psychology-of-the-esoteric-2nd-ed/"><u>The Psychology of the Esoteric (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

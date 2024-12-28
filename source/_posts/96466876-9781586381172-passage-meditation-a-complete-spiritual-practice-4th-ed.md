@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2024-12-20T16:41:45.653Z
-updated: 2024-12-22T08:09:04.709Z
+date: 2024-12-24T21:29:46.769Z
+updated: 2024-12-27T17:22:00.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,15 +179,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/390895-9781775564294-joy/"><u>Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401379-9780446548960-messages-from-the-masters/"><u>Messages from the Masters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/390855-9781775564256-practical-mental-influence/"><u>Practical Mental Influence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401487-9780446554053-second-sight/"><u>Second Sight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401523-9780446550840-soul-survivor/"><u>Soul Survivor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/390919-9781775564799-think-and-grow-rich/"><u>Think and Grow Rich | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209602229-9780834842229-choosing-compassion/"><u>Choosing Compassion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209604782-9781401958275-crystal365/"><u>CRYSTAL365 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209606141-9788497632904-el-enigma-tunguska/"><u>El enigma Tunguska | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209601377-9781547568727-el-libro-de-los-pensamientos-volumen-2/"><u>El libro de los pensamientos Volumen 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209602686-9781856754194-good-mornings/"><u>Good Mornings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209606230-9788497632928-mundos-ocultos/"><u>Mundos ocultos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209601408-9781547567867-quelle-joie-de-vivre/"><u>Quelle joie de vivre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209602260-9781623174224-the-sacred-alignments-and-sigils/"><u>The Sacred Alignments and Sigils | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2024-12-20T00:06:21.192Z
-updated: 2024-12-22T00:17:23.267Z
+date: 2024-12-23T20:48:48.324Z
+updated: 2024-12-27T20:25:02.677Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,17 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/462529-9780446566674-cowboy-wisdom/"><u>Cowboy Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463105-9780446571067-creating-a-life-of-joy/"><u>Creating a Life of Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/462236-9781439178225-dile-adios-a-tus-temores-how-to-overcome-fear/"><u>Dile adiós a tus temores (How to Overcome Fear) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463491-9781101159545-does-your-love-life-add-up/"><u>Does Your Love Life Add Up? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463106-9780446570206-lessons-from-the-light/"><u>Lessons From the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/462157-9781439165980-the-intuitive-way/"><u>The Intuitive Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463141-9780446571203-the-simple-abundance-companion/"><u>The Simple Abundance Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/462563-9780446567107-your-thoughts-can-change-your-life/"><u>Your Thoughts Can Change Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649436-9781620559734-awakening-your-crystals/"><u>Awakening Your Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649430-9781620559758-boost-your-natural-energy/"><u>Boost Your Natural Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649432-9781620558645-opening-doors-within-3rd-ed/"><u>Opening Doors Within (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649426-9781620558454-operative-witchcraft/"><u>Operative Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649427-9781620559079-rosicrucian-america/"><u>Rosicrucian America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649431-9781620558881-russian-black-magic/"><u>Russian Black Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649428-9781620558669-the-yoni-egg/"><u>The Yoni Egg | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

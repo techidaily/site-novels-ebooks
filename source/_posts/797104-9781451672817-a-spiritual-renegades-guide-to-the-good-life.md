@@ -1,7 +1,7 @@
 ---
 title: A Spiritual Renegade's Guide to the Good Life | Free Book
-date: 2024-10-23T20:28:56.537Z
-updated: 2024-10-26T20:26:25.391Z
+date: 2024-12-26T23:29:54.865Z
+updated: 2024-12-27T21:32:19.567Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a5ab0d73dce7d9a28a1bbe6821375b51d6b3b5917f5ad57e3ed22fb060788ffb.jpg
@@ -189,3 +189,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a5ab0d73dce7d9a28a1bbe6821375b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782458-9781591438137-breaking-the-mirror-of-heaven/"><u>Breaking the Mirror of Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782456-9781591438427-breathing/"><u>Breathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782466-9781591438922-forgotten-worlds/"><u>Forgotten Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782460-9781591438625-mastery-of-awareness/"><u>Mastery of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782462-9781591439332-medicine-of-the-cherokee/"><u>Medicine of the Cherokee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782461-9781591438908-meditations-with-animals/"><u>Meditations with Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782463-9781591437871-the-union-of-isis-and-thoth/"><u>The Union of Isis and Thoth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782464-9781591437567-the-vatican-heresy/"><u>The Vatican Heresy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782459-9781591438939-the-velikovsky-heresies/"><u>The Velikovsky Heresies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

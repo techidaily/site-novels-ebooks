@@ -1,7 +1,7 @@
 ---
 title: Every Little Thing Matters | Free Book
-date: 2024-10-25T05:32:52.499Z
-updated: 2024-10-26T17:32:56.735Z
+date: 2024-12-24T22:21:27.100Z
+updated: 2024-12-27T22:35:32.540Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6edffa7787905ad35dc17252c40bebf16720b5b59ee5d2454562667977a5534e.jpg
@@ -140,3 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6edffa7787905ad35dc17252c40bebf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96464934-9781615931491-listen-to-the-wind-speak-from-the-heart/"><u>Listen to the Wind, Speak from the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464926-9781615931125-sophia-the-feminine-face-of-god/"><u>Sophia - The Feminine Face of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464929-9781615930661-the-message/"><u>The Message | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464928-9781615931101-year-zero/"><u>Year Zero | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

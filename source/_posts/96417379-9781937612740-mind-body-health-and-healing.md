@@ -1,7 +1,7 @@
 ---
 title: Mind-Body Health and Healing | Free Book
-date: 2024-11-30T18:36:54.558Z
-updated: 2024-12-07T04:48:41.907Z
+date: 2024-12-23T22:58:10.841Z
+updated: 2024-12-27T22:10:29.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8db117bf091c80d351409c4e99f8d0b8f0.jpg
@@ -185,13 +185,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210183836-9781761036613-curacion-con-cristales/"><u>Curación con Cristales | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210182465-9781528933032-mindfulness-for-cat-lovers/"><u>Mindfulness for Cat Lovers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210183829-9781734514636-more-adventures-of-a-psychic-nurse/"><u>More Adventures of a Psychic Nurse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210183825-9781734818437-wisdom-beyond-the-classroom/"><u>Wisdom Beyond the Classroom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781824-9781722523701-how-to-use-the-laws-of-mind/"><u>How to Use the Laws of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781822-9781722523534-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-create-wealth-and-success/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Create Wealth and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781823-9781722523541-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-overcome-fear-and-worry/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Overcome Fear and Worry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781815-9781722523749-psychic-perception/"><u>Psychic Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781821-9781722523732-telepsychics/"><u>Telepsychics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209781818-9781722523855-the-power-of-your-subconscious-mind-for-wealth-and-spirituality/"><u>The Power of Your Subconscious Mind for Wealth and Spirituality | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

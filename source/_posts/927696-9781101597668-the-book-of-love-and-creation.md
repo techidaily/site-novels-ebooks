@@ -1,7 +1,7 @@
 ---
 title: The Book of Love and Creation | Free Book
-date: 2024-10-24T19:09:33.250Z
-updated: 2024-10-26T19:39:06.360Z
+date: 2024-12-25T17:18:40.745Z
+updated: 2024-12-27T19:58:04.979Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f37e6d6dd611a473330a03c083aeb37c9a1099aa5de780a84afa2ed67ebbb7e0.jpg
@@ -216,3 +216,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f37e6d6dd611a473330a03c083aeb37
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/829924-9781589795372-capricorn/"><u>Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/829921-9781589795303-gemini/"><u>Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/829923-9781589795327-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/829919-9781589795334-virgo/"><u>Virgo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

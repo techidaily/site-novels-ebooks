@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-12-21T05:54:29.441Z
-updated: 2024-12-22T06:57:31.764Z
+date: 2024-12-26T18:34:07.124Z
+updated: 2024-12-28T02:42:54.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,14 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211424357-9798330316915-5yib5am5a6e6kd/"><u>创富实话 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424413-9798330318261-know-me-as-i-am/"><u>KNOW ME AS I AM | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424281-9781963851236-room-within-the-heart/"><u>Room Within The Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424274-9798330314409-the-art-of-balance/"><u>THE ART OF BALANCE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424318-9781964744254-the-covenant-between-the-king-of-devils-and-death-and-victory-over-death/"><u>The Covenant Between the King of Devils and Death and Victory Over Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580579-9781450294041-a-manual-for-the-modern-mystic/"><u>A Manual for the Modern Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580725-9781452537191-beautys-way/"><u>Beauty’S Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580826-9781452558806-becoming-the-healer/"><u>Becoming the Healer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138581136-9781452532820-inspired-spiritual-wisdom-from-a-cat-named-sam-moo/"><u>Inspired Spiritual Wisdom from a Cat Named Sam-Moo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580715-9781617647031-ovnis/"><u>Ovnis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580655-9781462000562-small-steps-huge-changes/"><u>Small Steps, Huge Changes | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

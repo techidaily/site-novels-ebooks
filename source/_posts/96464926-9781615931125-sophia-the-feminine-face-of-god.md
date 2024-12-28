@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2024-12-18T18:00:14.039Z
-updated: 2024-12-21T23:01:57.415Z
+date: 2024-12-25T21:00:22.680Z
+updated: 2024-12-27T18:47:13.030Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,15 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/327456-9780316032797-after-the-fire/"><u>After the Fire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/320685-9780971011625-contemporary-parables/"><u>Contemporary Parables | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/321725-9781416539780-discover-your-inner-wisdom/"><u>Discover Your Inner Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/320686-9780977055500-how-to-get-anything-you-want/"><u>How to Get Anything You Want | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/326240-9781416588061-miraculous-health/"><u>Miraculous Health | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/320684-9780971011687-the-art-of-meditation/"><u>The Art of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209564414-9781628730746-dancing-otters-and-clever-coyotes/"><u>Dancing Otters and Clever Coyotes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209561255-9781632658265-faery-magick/"><u>Faery Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560312-9781507210239-friendship-signs/"><u>Friendship Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209561140-9781633411500-project-blue-book/"><u>Project Blue Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209561609-9781401957179-super-attractor/"><u>Super Attractor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560411-9781982100711-waking-the-witch/"><u>Waking the Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209560225-9781507210758-wicca-a-modern-practitioners-guide/"><u>Wicca: A Modern Practitioner's Guide | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

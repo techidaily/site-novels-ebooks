@@ -1,7 +1,7 @@
 ---
 title: Seeing the Good in Unfamiliar Spiritualities | Free Book
-date: 2024-10-21T18:17:53.808Z
-updated: 2024-10-27T03:07:57.428Z
+date: 2024-12-24T19:52:37.805Z
+updated: 2024-12-27T23:16:10.156Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d672bf640a271cc60109c42e07ad7fb097ca31ac214d6e9ecabf7109b3f432fa.jpg
@@ -147,3 +147,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d672bf640a271cc60109c42e07ad7fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783064-9781594779732-dmt-the-spirit-molecule/"><u>DMT: The Spirit Molecule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783067-9781620553930-frontiers-of-psychedelic-consciousness/"><u>Frontiers of Psychedelic Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783066-9781620556986-psychedelic-medicine/"><u>Psychedelic Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783069-9781594779503-the-basic-code-of-the-universe/"><u>The Basic Code of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783068-9781594778759-the-biology-of-transcendence-2nd-ed/"><u>The Biology of Transcendence (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

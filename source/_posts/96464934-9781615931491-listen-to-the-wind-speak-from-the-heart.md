@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2024-12-20T19:32:45.388Z
-updated: 2024-12-22T07:19:43.351Z
+date: 2024-12-22T16:34:28.446Z
+updated: 2024-12-27T21:57:47.773Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,13 +147,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/339707-9780307414755-christmas-conversation-piece/"><u>Christmas Conversation Piece | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339630-9780307415202-everyday-karma/"><u>Everyday Karma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339623-9780307415417-have-you-ever/"><u>Have You Ever... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/339615-9780307415646-if-volume-4/"><u>If..., Volume 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209577127-9781628721508-a-field-guide-to-demons-vampires-fallen-angels-and-other-subversive-spirits/"><u>A Field Guide to Demons, Vampires, Fallen Angels and Other Subversive Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209577169-9781628732726-the-bedside-dream-dictionary/"><u>The Bedside Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209577318-9781628730722-the-world-according-to-cycles/"><u>The World According to Cycles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209576215-9781628732184-witches-craft/"><u>Witches' Craft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

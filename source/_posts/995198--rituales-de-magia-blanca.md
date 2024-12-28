@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-12-19T21:25:26.978Z
-updated: 2024-12-22T13:36:41.354Z
+date: 2024-12-24T01:02:17.294Z
+updated: 2024-12-27T17:13:54.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,18 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211329361-9798869331427-astrological-numerology/"><u>Astrological Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329472-9798869333995-guarigione-vibrazionale/"><u>GUARIGIONE VIBRAZIONALE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329464-9798869333988-guerison-vibrationnelle/"><u>GUÉRISON VIBRATIONNELLE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329317-9789362619426-me-destination-vs-destination/"><u>Me - Destination vs. Destination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329475-9798869332684-sanacion-vibracional/"><u>SANACIÓN VIBRACIONAL | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329434-9798869305169-the-art-of-erotic-magic/"><u>The Art of Erotic Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329556-9798869303769-the-art-of-womanhood/"><u>THE ART OF WOMANHOOD | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329177-9780061915949-unfinished-business/"><u>Unfinished Business | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329477-9798869333964-vibrations-heilung/"><u>VIBRATIONS HEILUNG | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126100-9781609256852-tarot-damour/"><u>Tarot D'Amour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126101-9781609254001-tarot-dictionary-and-compendium/"><u>Tarot Dictionary and Compendium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126102-9781609253929-tarot-of-the-spirit/"><u>Tarot of the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126103-9781609256845-tea-cup-reading/"><u>Tea Cup Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126108-9781609255510-the-book-of-splendours/"><u>The Book of Splendours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126098-9781609255718-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126099-9781609254346-the-tarot-book/"><u>The Tarot Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126112-9781609254698-the-training-work-of-an-initiate/"><u>The Training & Work of an Initiate | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

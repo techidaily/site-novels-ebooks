@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-12-19T20:35:52.891Z
-updated: 2024-12-22T04:08:43.376Z
+date: 2024-12-26T02:49:05.431Z
+updated: 2024-12-27T23:41:22.168Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,17 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2641139-9780750957823-haunted-kirkcaldy/"><u>Haunted Kirkcaldy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2643813-9781785353390-insights-from-the-masters/"><u>Insights From the Masters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2643812-9781785353697-natural-born-shamans-a-spiritual-toolkit-for-life/"><u>Natural Born Shamans - A Spiritual Toolkit for Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2643811-9781785351860-no-time-and-nowhere/"><u>No Time and Nowhere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2641429-9780750957793-the-little-book-of-ghosts/"><u>The Little Book of Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2643806-9781785355776-the-way/"><u>The Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2643463-9781250134776-your-story-in-the-stars/"><u>Your Story in the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2644199-9781449475178-zen-penguins/"><u>Zen Penguins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2048718-9781634240024-a-sorcerers-apprentice/"><u>A Sorcerer's Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2054578-9781459732438-haunted-ontario-3-book-bundle/"><u>Haunted Ontario 3-Book Bundle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2052253-9780553419504-life-between-heaven-and-earth/"><u>Life Between Heaven and Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2052331-9781583949894-spiritual-balancing/"><u>Spiritual Balancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/205692-9780743442589-the-afterlife-experiments/"><u>The Afterlife Experiments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2055421-9780835631402-thought-forms/"><u>Thought Forms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2041962-9781782799832-tours-and-cures-of-a-lightsoldier/"><u>Tours and Cures of a Lightsoldier | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

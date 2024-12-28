@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-12-17T10:39:47.344Z
-updated: 2024-12-21T22:51:10.104Z
+date: 2024-12-24T17:50:18.539Z
+updated: 2024-12-27T17:45:15.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,16 +143,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211375881-9781964482712-111-reflections-for-thy-earth-odyssey-tome-2/"><u>111 Reflections for Thy Earth Odyssey Tome 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211376715-9798330212903-chakras/"><u>Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211378087-9780061870392-hes-just-not-in-the-stars/"><u>He's Just Not in the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375950-9798990783225-liberandote-de/"><u>Liberándote de... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375855-9798330220953-los-placeres-del-alma/"><u>Los Placeres del Alma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211376746-9780979473920-the-great-awakening/"><u>The Great Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211376734-9798330218806-the-king-of-the-beggars/"><u>The King of the Beggars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566314-9781401951603-angels-of-love/"><u>Angels of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566303-9781401951559-clear-home-clear-heart/"><u>Clear Home, Clear Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567493-9780595857876-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566302-9781401921408-the-guru-of-joy/"><u>The Guru of Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566317-9781623173746-the-handbook-of-chinese-horoscopes/"><u>The Handbook of Chinese Horoscopes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566329-9781984824158-the-secret-therapy-of-trees/"><u>The Secret Therapy of Trees | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Holistic Approach To Cancer | Free Book
-date: 2024-10-24T16:39:01.959Z
-updated: 2024-10-27T01:15:53.519Z
+date: 2024-12-24T19:52:46.204Z
+updated: 2024-12-27T20:57:30.179Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fa844b81d4b5b13f3fcba8f9ad1b16fe79db6b4db387fb1bc1a69307156f2cc1.jpg
@@ -175,3 +175,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fa844b81d4b5b13f3fcba8f9ad1b16f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95781683-9780895566102-book-of-floating/"><u>Book of Floating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782022-9781594775406-sun-dancing/"><u>Sun Dancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782021-9781594775895-tai-chi-according-to-the-i-ching/"><u>T'ai Chi According to the I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782020-9781620555606-tantric-kali/"><u>Tantric Kali | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782023-9781594777738-the-dimensions-of-paradise-3rd-ed/"><u>The Dimensions of Paradise (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95780352-9781101870419-this-life/"><u>This Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95781173-9781515415107-when-prophecy-fails/"><u>When Prophecy Fails | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95781176-9781515412335-wild-talents/"><u>Wild Talents | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

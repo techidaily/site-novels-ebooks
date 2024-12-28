@@ -1,7 +1,7 @@
 ---
 title: Pictures from the Heart | Free Book
-date: 2024-10-25T22:57:53.103Z
-updated: 2024-10-26T17:28:09.382Z
+date: 2024-12-25T01:14:17.435Z
+updated: 2024-12-27T18:38:59.164Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c4c9795a82448c4c60052cd86a097f081e2458f7983be49ab3467a125d2853d.jpg
@@ -164,3 +164,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c4c9795a82448c4c60052cd86a097f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782711-9781620553497-african-spirits-speak/"><u>African Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782706-9781594777745-aikido-and-words-of-power/"><u>Aikido and Words of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782705-9781620553350-fulcanelli-and-the-alchemical-revival/"><u>Fulcanelli and the Alchemical Revival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782707-9781620553909-pagan-magic-of-the-northern-tradition/"><u>Pagan Magic of the Northern Tradition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782708-9781594778537-psychonavigation/"><u>Psychonavigation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782710-9781620555507-sacred-relationships/"><u>Sacred Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782709-9781620551493-sacred-sexual-union/"><u>Sacred Sexual Union | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782712-9781620553268-the-complete-lenormand-oracle-handbook/"><u>The Complete Lenormand Oracle Handbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Looking for the Other Side | Free Book
-date: 2024-10-21T21:44:46.986Z
-updated: 2024-10-26T20:41:54.108Z
+date: 2024-12-20T18:05:38.880Z
+updated: 2024-12-27T23:16:55.033Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5048c6959efb638f23a46a15866504737fa72e402153c9e141dafa95c54ad3e.jpg
@@ -169,3 +169,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5048c6959efb638f23a46a15866504
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782044-9781594777677-gnostic-philosophy/"><u>Gnostic Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782043-9781594776151-gnostic-secrets-of-the-naassenes/"><u>Gnostic Secrets of the Naassenes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782042--music-and-its-secret-influence-5th-ed/"><u>Music and Its Secret Influence (5th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782047-9781594778094-new-consciousness-for-a-new-world/"><u>New Consciousness for a New World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782050-9781620554456-point-of-origin/"><u>Point of Origin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782054-9781594779404-precessional-time-and-the-evolution-of-consciousness/"><u>Precessional Time and the Evolution of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782053-9781620551981-return-of-the-golden-age/"><u>Return of the Golden Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782051-9781620552520-return-to-the-brain-of-eden-3rd-ed/"><u>Return to the Brain of Eden (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782046-9781594779206-the-law-of-attention-2nd-ed/"><u>The Law of Attention (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-12-17T16:37:12.599Z
-updated: 2024-12-21T18:39:21.356Z
+date: 2024-12-27T00:58:21.577Z
+updated: 2024-12-27T17:44:46.944Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,15 +171,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211414909-9783892016366-da-dove-vengo-dove-vado-il-viaggio-della-tua-anima/"><u>Da dove vengo? Dove vado? Il viaggio della tua anima | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414873--healing-the-liminal/"><u>Healing the Liminal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414307-9781634244534-my-cosmic-trigger/"><u>My Cosmic Trigger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414911-9791280027016-riconosci-e-guarisci-te-stesso-tramite-la-forza-dello-spirito/"><u>Riconosci e guarisci te stesso tramite la forza dello Spirito | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414832--the-healing-nature-of-trees/"><u>The Healing Nature of Trees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414926-9781396326158-the-realness-of-witch-craft-in-america/"><u>The Realness of Witch-craft in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575445-9781452500348-conversations-with-mr-kiki-one-womans-spiritual-journey-with-her-best-friend/"><u>Conversations with Mr Kiki: One Woman’S Spiritual Journey with Her Best Friend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575607-9780595917563-explore-with-monitor-book-1/"><u>Explore with Monitor: Book 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575361-9781469702735-just-smoke-and-mirrors/"><u>Just Smoke and Mirrors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575582-9781462073795-spiritspeak/"><u>Spiritspeak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575554-9781462086856-the-heartbeat-of-intelligence/"><u>The Heartbeat of Intelligence | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

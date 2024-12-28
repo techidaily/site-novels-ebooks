@@ -1,7 +1,7 @@
 ---
 title: Healing Your Rift with God | Free Book
-date: 2024-10-20T23:02:59.027Z
-updated: 2024-10-26T19:58:30.204Z
+date: 2024-12-26T16:25:29.495Z
+updated: 2024-12-27T19:34:47.324Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/648179ffca6d09d42bdf4c10db55fa0310c199fbbf4ecd42143e87c2d9d425ad.jpg
@@ -185,3 +185,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/648179ffca6d09d42bdf4c10db55fa0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96326573-9781788173117-how-your-mind-can-heal-your-body/"><u>How Your Mind Can Heal Your Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96326015-9782824630519-preuves-deternite/"><u>Preuves d'éternité | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96326564-9781788172561-shaman/"><u>Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96326874-9781501169328-the-energy-codes/"><u>The Energy Codes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96326676-9781473685154-the-seven-day-soul/"><u>The Seven-Day Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96326020-9782824630526-vivre-leveil-de-la-conscience/"><u>Vivre l'éveil de la conscience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96326991-9781721400249-your-wedding-astrologer/"><u>Your Wedding Astrologer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

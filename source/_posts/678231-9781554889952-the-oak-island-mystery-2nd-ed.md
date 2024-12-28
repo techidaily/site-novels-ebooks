@@ -1,7 +1,7 @@
 ---
 title: The Oak Island Mystery (2nd ed.) | Free Book
-date: 2024-10-25T05:42:48.951Z
-updated: 2024-10-27T05:23:16.730Z
+date: 2024-12-22T00:31:36.393Z
+updated: 2024-12-27T16:45:33.838Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/125eefaaac061f55e274ccd82c37caab8210270fff33244515997491f4efead2.jpg
@@ -173,3 +173,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/125eefaaac061f55e274ccd82c37caa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316938-9781401935573-belief-re-patterning/"><u>Belief Re-patterning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316922-9781401932671-prayers/"><u>Prayers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316925-9781401933012-the-meditation-book/"><u>The Meditation Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316939-9781401936938-the-storm-before-the-calm/"><u>The Storm Before the Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316923-9781401933548-what-happens-when-we-die/"><u>What Happens When We Die? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

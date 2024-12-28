@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-12-15T23:11:57.598Z
-updated: 2024-12-22T12:28:18.451Z
+date: 2024-12-27T02:00:28.991Z
+updated: 2024-12-27T20:42:31.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,14 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/320677-9780973418613-conscious-women-conscious-lives/"><u>Conscious Women - Conscious Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/320678-9780973670509-conscious-women-conscious-lives/"><u>Conscious Women - Conscious Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/320676-9780968340202-dream-yourself-awake/"><u>Dream Yourself Awake | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/319418-9781416580102-the-28-laws-of-attraction/"><u>The 28 Laws of Attraction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/317941-9781101213827-the-passion-test/"><u>The Passion Test | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556785-9781250313317-astro-poets/"><u>Astro Poets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209557409-9781578597017-celebrity-ghosts-and-notorious-hauntings/"><u>Celebrity Ghosts and Notorious Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209559287-9781785358913-divine-meditations/"><u>Divine Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209558635-9781547561445-megan-e-a-prefeita/"><u>Megan e a Prefeita | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209558579-9781547561827-teu-outro-corpo/"><u>Teu outro Corpo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209557410-9781578597031-the-alien-book/"><u>The Alien Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209557813-9781459745537-touched-by-the-light/"><u>Touched by the Light | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

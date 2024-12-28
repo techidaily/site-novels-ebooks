@@ -1,7 +1,7 @@
 ---
 title: The Awakening Human Being | Free Book
-date: 2024-10-25T01:37:49.431Z
-updated: 2024-10-26T21:11:33.561Z
+date: 2024-12-25T23:34:53.294Z
+updated: 2024-12-27T18:05:08.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9226e30794044a92de44b4c634b9add0b6346bae8a8cc8eaf6335648573cfa55.jpg
@@ -139,3 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9226e30794044a92de44b4c634b9add
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783051-9781620554470-blindspots/"><u>BlindSpots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783054-9781620554906-dreaming-wide-awake/"><u>Dreaming Wide Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783049-9781620551486-shamanic-quest-for-the-spirit-of-salvia/"><u>Shamanic Quest for the Spirit of Salvia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783048-9781594775109-the-heart-mind-matrix/"><u>The Heart-Mind Matrix | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

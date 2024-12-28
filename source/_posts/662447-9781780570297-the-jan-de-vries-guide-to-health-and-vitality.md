@@ -1,7 +1,7 @@
 ---
 title: The Jan de Vries Guide to Health and Vitality | Free Book
-date: 2024-10-22T21:31:18.805Z
-updated: 2024-10-27T00:04:32.959Z
+date: 2024-12-21T18:19:26.485Z
+updated: 2024-12-28T01:16:49.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f854b195fe3a6d435d23416b629dba0c4f0f012c44e13bdc80e5641fc30e4efe.jpg
@@ -173,3 +173,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f854b195fe3a6d435d23416b629dba0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96370972-9780876048795-angeles-arcangeles-y-fuerzas-invisibles/"><u>Angeles, Arcangeles y Fuerzas Invisibles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370966-9780876048528-beyond-death/"><u>Beyond Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370982-9780876048634-sacred-journey/"><u>Sacred Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370969-9780876048467-soul-spirit/"><u>Soul & Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370978-9780876047880-unlocking-your-intuition/"><u>Unlocking Your Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370979-9780876049006-your-life/"><u>Your Life | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

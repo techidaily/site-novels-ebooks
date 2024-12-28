@@ -1,7 +1,7 @@
 ---
 title: The Book of Theanna, Updated Edition | Free Book
-date: 2024-10-23T04:18:48.502Z
-updated: 2024-10-27T02:46:43.316Z
+date: 2024-12-23T21:43:34.938Z
+updated: 2024-12-27T20:00:02.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d081525b9167fc3c8184530da9d953dd971098e4e76d8707ed064ba747cb0175.jpg
@@ -171,3 +171,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d081525b9167fc3c8184530da9d953d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96370985-9780876048009-angels-fairies-demons-and-the-elementals/"><u>Angels, Fairies, Demons, and the Elementals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370983-9780876048108-blueprint-for-holistic-healing/"><u>Blueprint for Holistic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370986-9780876048672-edgar-cayce-on-the-mysterious-essenes/"><u>Edgar Cayce on the Mysterious Essenes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370987-9780876048597-why-am-i-here/"><u>Why Am I Here? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

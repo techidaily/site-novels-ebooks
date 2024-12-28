@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories of Saskatchewan 3 | Free Book
-date: 2024-10-24T04:48:01.177Z
-updated: 2024-10-27T02:49:04.951Z
+date: 2024-12-24T18:52:35.873Z
+updated: 2024-12-28T03:09:14.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/157e395ddbe32c0e2aa259e6b134ff280504bd0f3d82d5d1e715fac0d007ebc8.jpg
@@ -169,3 +169,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/157e395ddbe32c0e2aa259e6b134ff2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125645-9781609255381-conversations-with-seth-book-one/"><u>Conversations With Seth: Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125646-9781609255374-conversations-with-seth-book-two/"><u>Conversations With Seth: Book Two | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125647-9781609256425-cosmic-connection/"><u>Cosmic Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125649-9781609250409-cosmic-navigator/"><u>Cosmic Navigator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125655-9781609256173-coventry-magic-with-candles-oils-and-herbs/"><u>Coventry Magic with Candles, Oils, and Herbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125656-9781609253394-create-a-world-that-works/"><u>Create a World That Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125658-9781609257590-custodians-of-truth/"><u>Custodians Of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125648-9781609254445-the-cosmic-doctrine/"><u>The Cosmic Doctrine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125668-9781609253899-the-development-of-personality/"><u>The Development of Personality | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

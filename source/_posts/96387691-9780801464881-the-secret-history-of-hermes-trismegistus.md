@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2024-12-17T07:25:02.491Z
-updated: 2024-12-21T17:28:56.392Z
+date: 2024-12-20T16:13:15.411Z
+updated: 2024-12-27T22:34:41.287Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -214,15 +214,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/601386-9780307777331-ask-your-angels/"><u>Ask Your Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/599110-9781451629019-cell-level-healing/"><u>Cell-Level Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/604516-9781101478165-its-up-to-you/"><u>It's Up to You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/606579-9781409005957-mind-and-movement/"><u>Mind And Movement | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/599113-9781439181867-the-power/"><u>The Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/604517-9781101478196-think-your-troubles-away/"><u>Think Your Troubles Away | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209684237-9781547586387-el-plan-divino-de-la-salvacion-eterna-revelado/"><u>El Plan Divino De La Salvación Eterna – Revelado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209684295-9781547578528-gli-esami-di-megan/"><u>Gli Esami di Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209684338-9781547584796-meditacao-ative-seus-chakras-e-reduza-a-ansiedade-e-a-depressao/"><u>Meditação : Ative Seus Chakras E Reduza A Ansiedade E A Depressão | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209684273-9781547585618-meditacao-mindfulness-para-iniciantes-para-remover-o-estresse-alcancar-espiritualidade-e-paz/"><u>Meditação : Mindfulness Para Iniciantes Para Remover O Estresse (Alcançar Espiritualidade E Paz) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2024-12-18T02:49:28.065Z
-updated: 2024-12-22T00:56:43.892Z
+date: 2024-12-23T17:42:20.403Z
+updated: 2024-12-27T18:12:00.643Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,17 +164,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2681985-9781942253266-i-married-a-mystic/"><u>I Married a Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2682469-9781515408420-the-door-of-everything/"><u>The Door of Everything | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2682470-9781515408413-the-dore-lectures-on-mental-science/"><u>The Dore Lectures on Mental Science | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2682473-9781515408369-the-edinburgh-and-dore-lectures-on-mental-science/"><u>The Edinburgh and Dore Lectures on Mental Science | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2681925-9780752471303-the-little-book-of-the-paranormal/"><u>The Little Book of the Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2678585-9781498528924-the-psychic-immune-system/"><u>The Psychic Immune System | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2678628-9781881098409-the-witches-almanac-issue-36-spring-2017-to-2018/"><u>The Witches' Almanac: Issue 36, Spring 2017 to 2018 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2678630-9781938289569-when-heaven-touches-earth/"><u>When Heaven Touches Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209528928-9780876048924-edgar-cayces-atlantis/"><u>Edgar Cayce's Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209528929-9780876049686-experiments-in-a-search-for-god/"><u>Experiments in a Search For God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531337-9781785358449-haunted/"><u>Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531334-9781785357671-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209530510-9780892546176-magical-uses-for-magnets/"><u>Magical Uses for Magnets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531336-9781785358173-you-are-not-your-thoughts/"><u>You Are Not Your Thoughts | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Vampires and Werewolves (2nd ed.) | Free Book
-date: 2024-10-20T18:49:32.378Z
-updated: 2024-10-27T00:08:23.365Z
+date: 2024-12-20T19:18:25.439Z
+updated: 2024-12-27T17:58:01.883Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26585a5aa533fc1aec28e83dc1200bb579b2dfaa688d7c8e5e563f39dd7e4d2c.jpg
@@ -138,3 +138,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26585a5aa533fc1aec28e83dc1200bb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95841433-9781683253822-el-aura-energia-vital-luminosa/"><u>El Aura. Energía vital luminosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841425-9781683253747-el-extraordinario-mundo-de-los-fantasmas/"><u>El extraordinario mundo de los fantasmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841424-9781683253730-el-gran-libro-ilustrado-de-los-suenos/"><u>El gran libro ilustrado de los sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841435-9781683253846-el-tarot-egipcio/"><u>El tarot egipcio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841434-9781683253839-feng-shui-y-el-poder-de-la-piramide/"><u>Feng Shui y El Poder de La Piramide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841436-9781683253853-las-claves-del-esoterismo/"><u>Las Claves del Esoterismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841427-9781683253761-los-test-psicologicos-de-aptitud-y-personalidad/"><u>Los test psicologicos de aptitud y personalidad | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

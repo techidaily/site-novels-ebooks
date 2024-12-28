@@ -1,7 +1,7 @@
 ---
 title: George Anderson's Lessons from the Light | Free Book
-date: 2024-10-23T17:06:47.274Z
-updated: 2024-10-27T01:45:36.251Z
+date: 2024-12-27T01:13:59.554Z
+updated: 2024-12-27T17:46:37.358Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5daedbfd20998664cfbb2e18d149d77577f50c5579aaf087344665ea4b91fbee.jpg
@@ -184,3 +184,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5daedbfd20998664cfbb2e18d149d77
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95871155-9781624145209-herbs-and-crystals-diy/"><u>Herbs and Crystals DIY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95876019-9781507192597-leveil-spirituel-la-chose-la-plus-dingue/"><u>L'éveil spirituel : La chose la plus dingue | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95875991-9781507192658-leveil-spirituellement-incorrect/"><u>L'éveil spirituellement incorrect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95873579-9781507207253-my-pocket-tai-chi/"><u>My Pocket Tai Chi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95870914-9781538729106-notes-from-a-public-typewriter/"><u>Notes from a Public Typewriter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95870916-9781846015694-the-little-book-of-mumfulness/"><u>The Little Book of Mumfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95870935-9781912023400-walking-in-the-rain/"><u>Walking in the Rain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95873744-9786171235502-luchshij-vrach-vashe-podsoznanie-luchshij-vrach-vashe-podsoznanie/"><u>Лучший врач - ваше подсознание. (Luchshij vrach - vashe podsoznanie.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95873747-9786171235656-samye-zhutkie-i-misticheskie-mesta-na-planete-i-tajny-ih-zhitelej-samye-zhutkie-i-misticheskie-mesta-na-planete-i-tajny-ih-zhitelej/"><u>Самые жуткие и мистические места на планете и тайны их жителей (Samye zhutkie i misticheskie mesta na planete i tajny ih zhitelej) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

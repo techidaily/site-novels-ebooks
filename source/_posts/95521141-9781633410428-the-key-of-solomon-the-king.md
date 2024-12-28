@@ -1,7 +1,7 @@
 ---
 title: The Key of Solomon the King | Free Book
-date: 2024-10-20T21:03:29.287Z
-updated: 2024-10-26T22:10:30.156Z
+date: 2024-12-21T00:20:17.185Z
+updated: 2024-12-27T19:48:10.406Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/818dc4987c27128928b1d977a9230fb4b5c05d31dd159b9cf0e2fb3ff39f157c.jpg
@@ -171,3 +171,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/818dc4987c27128928b1d977a9230fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/611786--a-world-of-ufos/"><u>A World of UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611787-9781770703445-more-true-tales-of-the-paranormal/"><u>More True Tales of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611753-9781770703100-mysteries-and-secrets-of-voodoo-santeria-and-obeah/"><u>Mysteries and Secrets of Voodoo, Santeria, and Obeah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611795-9781770703520-the-big-book-of-canadian-ghost-stories/"><u>The Big Book of Canadian Ghost Stories | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

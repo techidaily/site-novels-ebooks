@@ -1,7 +1,7 @@
 ---
 title: Perdurabo, Revised and Expanded Edition | Free Book
-date: 2024-10-21T17:59:28.623Z
-updated: 2024-10-26T18:20:39.436Z
+date: 2024-12-22T17:56:06.762Z
+updated: 2024-12-27T16:19:33.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c6b88276a7b6f13deab5794d18fadc0bb2fd65360e7bf2dbe62b4a5a48eb180.jpg
@@ -245,3 +245,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c6b88276a7b6f13deab5794d18fadc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95702350-9781608684038-listening-to-ayahuasca/"><u>Listening to Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703530-9781633410466-midlife-is-not-a-crisis/"><u>Midlife Is Not a Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702223-9781786781062-mindfulness-for-parents-sampler/"><u>Mindfulness for Parents Sampler | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703529-9781612833743-the-everything-answer-book/"><u>The Everything Answer Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702351-9781608684489-the-leap/"><u>The Leap | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703156-9781507204313-the-supernatural-guide-to-the-other-side/"><u>The Supernatural Guide to the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703224-9781515415206-the-way-of-peace/"><u>The Way of Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703227-9781515415176-the-weapon-of-prayer/"><u>The Weapon of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702226-9781786781079-you-were-not-born-to-suffer-sampler/"><u>You Were Not Born to Suffer Sampler | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

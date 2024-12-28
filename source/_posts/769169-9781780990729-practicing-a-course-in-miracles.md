@@ -1,7 +1,7 @@
 ---
 title: Practicing a Course in Miracles | Free Book
-date: 2024-10-19T20:47:40.894Z
-updated: 2024-10-27T05:08:48.986Z
+date: 2024-12-26T16:07:23.273Z
+updated: 2024-12-27T19:04:41.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84c5be017684ff834bbd31154896b0399f649905aee4c0abfc315932d2c3a005.jpg
@@ -145,3 +145,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84c5be017684ff834bbd31154896b03
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782753-9781620553831-confessions-of-a-reluctant-ghost-hunter/"><u>Confessions of a Reluctant Ghost Hunter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782742-9781620556573-crystal-healing-for-the-heart/"><u>Crystal Healing for the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782754-9781594778834-iron-shirt-chi-kung-2nd-ed/"><u>Iron Shirt Chi Kung (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782746-9781620551646-oracle-bones-divination/"><u>Oracle Bones Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782751-9781594777905-taoist-cosmic-healing/"><u>Taoist Cosmic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782749-9781594775826-taoist-feng-shui/"><u>Taoist Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782750-9781594778605-taoist-shaman/"><u>Taoist Shaman | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

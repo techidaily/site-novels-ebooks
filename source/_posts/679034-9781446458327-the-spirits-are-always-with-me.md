@@ -1,7 +1,7 @@
 ---
 title: The Spirits Are Always With Me | Free Book
-date: 2024-10-20T18:21:12.169Z
-updated: 2024-10-26T22:42:14.939Z
+date: 2024-12-26T16:32:34.057Z
+updated: 2024-12-27T16:50:57.403Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/297d2e37939d7c45e2afa9827aadfae33a8af15836a8e3ba759c2b91a21727e5.jpg
@@ -167,3 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/297d2e37939d7c45e2afa9827aadfae
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316983-9781781806838-higherselfie/"><u>#HigherSelfie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316996-9781781808719-calm-cure/"><u>Calm Cure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316993-9781781803684-cancer-moon-sign/"><u>Cancer Moon Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316977-9781401949280-sole-guidance/"><u>Sole Guidance | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

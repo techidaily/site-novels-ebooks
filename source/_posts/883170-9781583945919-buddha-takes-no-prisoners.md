@@ -1,7 +1,7 @@
 ---
 title: Buddha Takes No Prisoners | Free Book
-date: 2024-10-21T00:59:31.412Z
-updated: 2024-10-26T16:15:51.062Z
+date: 2024-12-23T20:28:19.046Z
+updated: 2024-12-28T00:47:36.200Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9c8d542d06c97d81cd5eb01ba305fe5ad46eff08b25f5aea5c5edbe7a206280b.jpg
@@ -213,3 +213,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9c8d542d06c97d81cd5eb01ba305fe5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782087-9781620553695-christian-mythology/"><u>Christian Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782090-9781620551561-eyes-wide-open/"><u>Eyes Wide Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782093-9781594777264-kabbalistic-teachings-of-the-female-prophets/"><u>Kabbalistic Teachings of the Female Prophets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782089-9781594776342-layayoga/"><u>Layayoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782088-9781620553374-the-secret-history-of-freemasonry/"><u>The Secret History of Freemasonry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782095-9781594777387-the-spiritual-science-of-the-stars/"><u>The Spiritual Science of the Stars | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

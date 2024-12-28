@@ -1,7 +1,7 @@
 ---
 title: Tales From the Afterlife | Free Book
-date: 2024-10-24T20:53:17.718Z
-updated: 2024-10-26T18:39:29.718Z
+date: 2024-12-23T02:47:09.576Z
+updated: 2024-12-27T20:25:10.174Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5511e3f28f8c176b915b899a7a937c932b200221246eee764ee24e4eb7d3d304.jpg
@@ -133,3 +133,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5511e3f28f8c176b915b899a7a937c9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316657-9781401949747-memories-of-heaven/"><u>Memories of Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316649-9781401951931-secrets-of-the-lost-mode-of-prayer/"><u>Secrets of the Lost Mode of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316648-9781401949594-the-biology-of-belief-10th-anniversary-edition/"><u>The Biology of Belief 10th Anniversary Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316645-9781401947613-the-truth-of-spirits/"><u>The Truth of Spirits | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

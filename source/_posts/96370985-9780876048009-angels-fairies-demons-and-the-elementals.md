@@ -1,7 +1,7 @@
 ---
 title: Angels, Fairies, Demons, and the Elementals | Free Book
-date: 2024-12-04T19:46:38.700Z
-updated: 2024-12-06T19:21:04.033Z
+date: 2024-12-25T18:49:44.158Z
+updated: 2024-12-27T23:00:09.450Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19f35aee6960aca7159b3a586aa0394fe0e268b21b711c43d0b96de0f8187fc9.jpg
@@ -136,13 +136,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19f35aee6960aca7159b3a586aa0394
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210197152-9781631593390-5-minute-mindfulness-walking/"><u>5-Minute Mindfulness: Walking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197149-9781781318133-crystal-fix/"><u>Crystal Fix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197201-9780760361153-in-focus-astrology/"><u>In Focus Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197227-9781577151548-the-complete-book-of-birthdays/"><u>The Complete Book of Birthdays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842809-9780993462603-life-and-death-making-sense-of-it/"><u>Life and Death - Making Sense of It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842868-9781629213675-map-of-desire/"><u>Map of Desire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842965-9781911134046-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842968-9781911134053-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842966-9781911134077-quareia-the-initiate/"><u>Quareia The Initiate | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

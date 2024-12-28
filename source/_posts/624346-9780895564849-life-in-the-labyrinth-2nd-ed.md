@@ -1,7 +1,7 @@
 ---
 title: Life in the Labyrinth (2nd ed.) | Free Book
-date: 2024-10-21T00:02:37.855Z
-updated: 2024-10-27T05:32:18.938Z
+date: 2024-12-20T17:39:28.638Z
+updated: 2024-12-27T18:11:53.435Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e36b0b1b42038a23b1ab07c1b202fc113c2e56aa3612485eda4de149cf3e973f.jpg
@@ -133,3 +133,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e36b0b1b42038a23b1ab07c1b202fc1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1079441-9781420935752-optimism/"><u>Optimism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094669-9781742757728-poems-of-love-and-life-for-aquarius/"><u>Poems of Love and Life for Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094671-9781742757766-poems-of-love-and-life-for-aries/"><u>Poems of Love and Life for Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094668-9781742757704-poems-of-love-and-life-for-capricorn/"><u>Poems of Love and Life for Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094670-9781742757742-poems-of-love-and-life-for-pisces/"><u>Poems of Love and Life for Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1079455-9781420924381-the-astral-plane/"><u>The Astral Plane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1080511-9781743341315-the-big-book-of-astrology-2013/"><u>The Big Book of Astrology 2013 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Light On Enlightenment | Free Book
-date: 2024-10-25T20:33:35.382Z
-updated: 2024-10-26T16:16:02.699Z
+date: 2024-12-24T18:19:39.711Z
+updated: 2024-12-27T20:11:24.740Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fd3aead830e98a14f9d9195bb54ed4a3ae1fa2c06d07ebe1c8ba8d5c5af8b6b.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fd3aead830e98a14f9d9195bb54ed4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317597-9781401938963-entangled-in-darkness/"><u>Entangled In Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317607-9781401946975-home-in-harmony/"><u>Home in Harmony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317603-9781401932862-spiritual-cinema/"><u>Spiritual Cinema | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317599-9781401935375-the-mindful-manifesto/"><u>The Mindful Manifesto | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

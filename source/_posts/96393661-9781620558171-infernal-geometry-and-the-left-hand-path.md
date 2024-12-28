@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2024-12-05T01:27:55.422Z
-updated: 2024-12-07T00:36:57.568Z
+date: 2024-12-23T01:58:23.466Z
+updated: 2024-12-27T23:21:17.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,13 +203,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210163638-9781643500768-gods-poetic-and-creational-word/"><u>God's Poetic and Creational Word | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163516-9781645445593-ryans-recovery/"><u>Ryan's Recovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163509-9781640823709-the-possibility-of-reincarnation/"><u>The Possibility Of Reincarnation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163435-9781684099368-there-is-no-cheese/"><u>There Is No Cheese | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699318-9781547583980-ansiedade-liberte-se-da-ansiedade-e-da-depressao/"><u>Ansiedade : Liberte-se Da Ansiedade E Da Depressão | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699287-9781634242523-black-jack/"><u>Black Jack | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699340-9781547584598-meditacao-como-meditar-guia-para-iniciantes-para-aumentar-a-energia-live-without-stress/"><u>Meditação : Como Meditar Guia Para Iniciantes Para Aumentar A Energia (Live Without Stress) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699338-9781547586714-meditacao-como-alcancar-a-paz-interior-e-encontrar-a-felicidade-real/"><u>Meditação: Como Alcançar A Paz Interior E Encontrar A Felicidade Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209699329-9781547584949-meditacao-guia-de-iniciantes-para-alcancar-o-estado-zen-e-se-livrar-do-stress/"><u>Meditação: Guia De Iniciantes Para Alcançar O Estado Zen E Se Livrar Do Stress | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

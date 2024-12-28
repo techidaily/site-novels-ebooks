@@ -1,7 +1,7 @@
 ---
 title: A Little Book of Healing Magic | Free Book
-date: 2024-10-26T04:03:44.126Z
-updated: 2024-10-26T20:54:04.503Z
+date: 2024-12-22T17:53:32.973Z
+updated: 2024-12-27T18:26:04.984Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10a273fbef457101e1a47d2241d201f85017a2cb51fecd117c7943e8c9bf937b.jpg
@@ -148,3 +148,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10a273fbef457101e1a47d2241d201f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96476531-9780880507110-accepting-myself-the-way-i-am/"><u>Accepting Myself the Way I Am | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96484243-9781608685394-mysterious-realities/"><u>Mysterious Realities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476530-9780880501965-the-beauty-of-the-human-soul/"><u>The Beauty of the Human Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476529-9780880500876-the-heart-of-yoga/"><u>The Heart of Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96478114-9781633535343-the-magic-of-crystals-and-gems/"><u>The Magic of Crystals and Gems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476532-9780880500951-the-perfect-way/"><u>The Perfect Way | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

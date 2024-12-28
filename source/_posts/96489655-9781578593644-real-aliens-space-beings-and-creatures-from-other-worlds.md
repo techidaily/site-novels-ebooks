@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-12-15T23:41:06.999Z
-updated: 2024-12-22T00:27:25.247Z
+date: 2024-12-21T19:12:53.167Z
+updated: 2024-12-27T21:24:35.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,13 +264,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211455886-9782017230335-les-17-cles-du-succes/"><u>Les 17 clés du succès | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455878-9782017289883-les-72-vibrations-divines/"><u>Les 72 vibrations divines | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211456039-9781837994632-my-shadow-work-workbook/"><u>My Shadow Work Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211456043-9781837992324-stories-of-the-occult/"><u>Stories of the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595783-9781449736156-justins-jesus/"><u>Justin's Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595740-9781452545127-one-moar-paradigm/"><u>One Moar Paradigm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595800-9781462052547-shadow-path/"><u>Shadow Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595788-9781462020379-the-heart-of-a-ready-scribe/"><u>The Heart of a Ready Scribe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

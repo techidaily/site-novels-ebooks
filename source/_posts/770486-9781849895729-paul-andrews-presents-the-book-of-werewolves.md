@@ -1,7 +1,7 @@
 ---
 title: Paul Andrews Presents - The Book of Werewolves | Free Book
-date: 2024-10-25T00:11:39.683Z
-updated: 2024-10-26T21:11:48.493Z
+date: 2024-12-23T18:20:30.666Z
+updated: 2024-12-27T21:37:28.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c7f4eb0eabe80374f587e01dcdbb8fb9d434d6a40dd943374390459d99ab8fb1.jpg
@@ -133,3 +133,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c7f4eb0eabe80374f587e01dcdbb8fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782995-9781594775956-animals-and-psychedelics/"><u>Animals and Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782915-9781620553060-essential-oils-in-spiritual-practice/"><u>Essential Oils in Spiritual Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782996-9781620551639-metagenealogy/"><u>Metagenealogy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782997-9781594775178-moksha/"><u>Moksha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782984-9781594775963-tao-of-no-stress/"><u>Tao of No Stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782931-9781594779114-the-complete-book-of-traditional-reiki-2nd-ed/"><u>The Complete Book of Traditional Reiki (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782916-9781620554852-the-humming-effect/"><u>The Humming Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782971-9781620552988-the-metaphysical-book-of-gems-and-crystals/"><u>The Metaphysical Book of Gems and Crystals | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

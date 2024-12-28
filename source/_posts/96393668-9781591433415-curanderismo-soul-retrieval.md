@@ -1,7 +1,7 @@
 ---
 title: Curanderismo Soul Retrieval | Free Book
-date: 2024-11-30T06:55:18.456Z
-updated: 2024-12-07T02:49:33.520Z
+date: 2024-12-24T19:12:05.209Z
+updated: 2024-12-28T00:23:15.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed51578ee401a573874d976459b0dd19d6aa.jpg
@@ -196,18 +196,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210166742-9781641384155-a-journey/"><u>A Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210166526-9781642145922-da-life-of-metophors/"><u>Da Life of Metophors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210166525-9781645842521-facing-the-problems-of-humanity/"><u>Facing the Problems of Humanity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210166763-9781684092147-get-through-going-through-life/"><u>Get Through, Going through "Life " | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210165943-9781642986921-the-road-to-the-hike-of-lake-haiyaha/"><u>The Road to the Hike of Lake Haiyaha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210166589-9781642148831-visitations-to-heaven-and-talking-with-angels/"><u>Visitations to Heaven and Talking with Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210166650-9781640271463-whats-the-deal-with-your-sign/"><u>What's the Deal with Your Sign? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210166674-9781684560431-when-karma-is-at-its-strongest/"><u>When Karma Is at Its Strongest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210166983-9781640821910-your-name-is-written-on-the-palm-of-my-hands/"><u>Your Name Is Written on the Palm of My Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723550-9781420962383-believe-in-yourself/"><u>Believe In Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723696-9781633534841-eclectic-wicca/"><u>Eclectic Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723692-9781633536746-goddess-power/"><u>Goddess Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723675-9781633535633-moon-spell-magic/"><u>Moon Spell Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723697-9781633535329-real-life-mindfulness/"><u>Real Life Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723689-9781633532946-tea-spiration/"><u>Tea-spiration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209722679-9781507212158-the-moon-you/"><u>The Moon + You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723227-9781722521936-the-secret-of-the-ages-original-classic-edition/"><u>The Secret of the Ages (Original Classic Edition) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Awakening Your Psychic Powers | Free Book
-date: 2024-10-22T02:23:56.916Z
-updated: 2024-10-26T17:35:13.131Z
+date: 2024-12-23T02:40:23.404Z
+updated: 2024-12-27T20:34:55.940Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ff30a9130feeea1d6d6f08cfef2bdc5ec3c37c91b58cea3b259cc853d9fa4ea.jpg
@@ -186,3 +186,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ff30a9130feeea1d6d6f08cfef2bdc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782518-9781591432845-advanced-shamanism/"><u>Advanced Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782514-9781591438533-affinity/"><u>Affinity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782515-9781591439844-grey-aliens-and-the-harvesting-of-souls/"><u>Grey Aliens and the Harvesting of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782517-9781591432326-our-dolphin-ancestors/"><u>Our Dolphin Ancestors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782513-9781591432722-the-angelic-origins-of-the-soul/"><u>The Angelic Origins of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782512-9781591432302-the-anunnaki-chronicles/"><u>The Anunnaki Chronicles | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

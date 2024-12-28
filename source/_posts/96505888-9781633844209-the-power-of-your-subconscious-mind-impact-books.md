@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2024-12-20T05:39:57.173Z
-updated: 2024-12-21T19:29:47.246Z
+date: 2024-12-24T21:07:15.249Z
+updated: 2024-12-28T01:39:40.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,14 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211448272-9798368815367-moon-man-4/"><u>Moon Man #4 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211448601-9798991070317-queen-of-the-nile/"><u>Queen of the Nile | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211448615-9780645830989-the-practicing-witch-diary-book-of-shadows-2025-northern-hemisphere/"><u>The Practicing Witch Diary - Book of Shadows - 2025 - Northern Hemisphere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447816-9781763682818-the-practicing-witch-diary-book-of-shadows-2025-southern-hemisphere/"><u>The Practicing Witch Diary - Book of Shadows - 2025 - Southern Hemisphere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447817-9798330381081-enas-neos-tropos-ypar3hs/"><u>Ένας νέος τρόπος ύπαρξης | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593866-9781452548548-a-book-of-peace/"><u>A Book of Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594172-9781452535586-a-journey-towards-hope/"><u>A Journey Towards Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594101-9781452542584-conversations-with-a-friend/"><u>Conversations with a Friend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593937-9781452553474-dog-of-god-the-novel/"><u>Dog of God: the Novel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594282-9781452548623-life-on-the-flow/"><u>Life on the Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594190-9781452539492-lifes-secret-the-gift/"><u>Life's Secret, the Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594151-9781452542430-talking-to-yourself-is-not-crazy/"><u>Talking to Yourself Is Not Crazy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594251-9781452538327-the-creational-force-2012/"><u>The Creational Force 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593797-9781452552606-the-labyrinth-of-life/"><u>The Labyrinth of Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

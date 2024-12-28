@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-12-15T10:25:16.144Z
-updated: 2024-12-22T05:12:49.935Z
+date: 2024-12-24T16:05:17.036Z
+updated: 2024-12-27T22:03:22.599Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,17 +227,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2211454-9780007478514-aries-2013-your-personal-horoscope/"><u>Aries 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2210478-9780007428977-freaky-dreams/"><u>Freaky Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211456-9780007478538-gemini-2013-your-personal-horoscope/"><u>Gemini 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2210601-9780007434893-guided-by-angels-there-are-no-goodbyes-my-tour-of-the-spirit-world/"><u>Guided By Angels: There Are No Goodbyes, My Tour of the Spirit World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211455-9780007478521-taurus-2013-your-personal-horoscope/"><u>Taurus 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211086-9780007461028-your-chinese-horoscope-2013-what-the-year-of-the-snake-holds-in-store-for-you/"><u>Your Chinese Horoscope 2013: What the year of the snake holds in store for you | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2210681-9780007438037-your-personal-horoscope-2012-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2012: Month-by-month forecasts for every sign | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211085-9780007461011-your-personal-horoscope-2013-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2013: Month-by-month forecasts for every sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424572-9781780284552-angel-healing/"><u>Angel Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424562-9781780284408-celtic-wisdom/"><u>Celtic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424574-9781780284590-creative-meditation-visualisation/"><u>Creative Meditation & Visualisation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424577-9781780284651-heal-your-spirit-heal-yourself/"><u>Heal Your Spirit, Heal Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424575-9781780284620-self-healing-reiki/"><u>Self-Healing Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424567-9781780284484-the-meditations-of-marcus-aurelius/"><u>The Meditations of Marcus Aurelius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424553-9781780283647-the-watkins-tarot-handbook/"><u>The Watkins Tarot Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424558-9781780283715-water-pure-and-simple/"><u>Water, Pure and Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424555-9781780283678-women-of-wisdom/"><u>Women of Wisdom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

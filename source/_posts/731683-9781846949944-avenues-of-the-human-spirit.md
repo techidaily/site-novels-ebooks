@@ -1,7 +1,7 @@
 ---
 title: Avenues of the Human Spirit | Free Book
-date: 2024-10-25T16:14:15.804Z
-updated: 2024-10-26T21:27:35.764Z
+date: 2024-12-25T01:54:55.469Z
+updated: 2024-12-27T20:50:07.984Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e491b95b32abe6c29a26e914bd670b57c874af03b7088a9d0c5c6e7b3b3aa0e.jpg
@@ -139,3 +139,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e491b95b32abe6c29a26e914bd670b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96032365-9780525537571-almost-everything/"><u>Almost Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031904-9781785357206-faerie-stones/"><u>Faerie Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031818-9781612834016-feng-shui-plain-simple/"><u>Feng Shui Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031812-9781633410558-italian-folk-magic/"><u>Italian Folk Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031807-9781633410831-queen-up-reclaim-your-crown-when-life-knocks-you-down/"><u>Queen Up! Reclaim Your Crown When Life Knocks You Down | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031809-9781633410473-talk-to-the-hand/"><u>Talk to the Hand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031817-9781612833989-tea-leaf-reading/"><u>Tea Leaf Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031810-9781633410701-the-little-book-of-saturn/"><u>The Little Book of Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031806-9781633410688-the-lunar-gospel/"><u>The Lunar Gospel | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

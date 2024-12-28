@@ -1,7 +1,7 @@
 ---
 title: Transcendent in America | Free Book
-date: 2024-10-23T05:12:58.759Z
-updated: 2024-10-26T19:33:16.182Z
+date: 2024-12-22T17:23:33.862Z
+updated: 2024-12-27T19:00:49.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c47e3e56231b221b6d49752ab39abaaa8bb5f0916e7738b518a1a4ad2ff87b0d.jpg
@@ -167,3 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c47e3e56231b221b6d49752ab39abaa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95713822-9781780992006-a-spiritual-look-at-the-12-signs/"><u>A Spiritual Look at the 12 Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95712431-9780786727957-do/"><u>Do | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713823-9781785355271-mastering-the-mind-realising-the-self/"><u>Mastering the Mind, Realising the Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713383-9781608684632-meditation-saved-my-life/"><u>Meditation Saved My Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713824-9781785354953-pagan-portals-animal-magic/"><u>Pagan Portals - Animal Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

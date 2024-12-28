@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2024-12-15T05:40:26.909Z
-updated: 2024-12-22T12:44:33.659Z
+date: 2024-12-26T02:33:13.219Z
+updated: 2024-12-27T21:49:57.877Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,15 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/435092-9781402220593-complete-dream-book/"><u>Complete Dream Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435848-9781775568421-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/434016-9781775568025-how-to-read-the-crystal/"><u>How to Read the Crystal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/435849-9781775568513-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/434015-9781775568032-the-joyful-heart/"><u>The Joyful Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/434018-9781775567837-your-word-is-your-wand/"><u>Your Word is Your Wand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636301-9781633411364-divination-conjure-style/"><u>Divination Conjure Style | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636303-9781633411296-eyewitness-to-the-gods/"><u>Eyewitness to the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636304-9781633411586-herbal-magick/"><u>Herbal Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636306-9781633411081-what-we-knew-in-the-night/"><u>What We Knew in the Night | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Managing Stress with Qigong | Free Book
-date: 2024-10-25T03:00:18.039Z
-updated: 2024-10-26T18:44:23.935Z
+date: 2024-12-21T23:51:35.296Z
+updated: 2024-12-28T00:48:28.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6bbab5a6363a6b61007ead436905c6085ca79a082bb674cce62b2d50b804241.jpg
@@ -182,3 +182,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6bbab5a6363a6b61007ead436905c6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316717-9781401919276-ask-and-it-is-given/"><u>Ask and It Is Given | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316737-9781401920586-everything-you-need-to-know-to-feel-good/"><u>Everything You Need to Know to Feel Go(o)d | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316739-9781401921354-money-and-the-law-of-attraction/"><u>Money, and the Law of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316706-9781848507449-past-present-and-future/"><u>Past, Present and Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316732-9781401926052-the-intuitive-advisor/"><u>The Intuitive Advisor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316720-9781401921415-the-time-has-come-to-accept-your-intuitive-gifts/"><u>The Time Has Come... to Accept Your Intuitive Gifts! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316709-9781848509535-you-can-heal-yourself/"><u>You Can Heal Yourself | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

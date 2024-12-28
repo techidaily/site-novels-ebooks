@@ -1,7 +1,7 @@
 ---
 title: The Mirror Of Existence | Free Book
-date: 2024-10-25T02:43:01.253Z
-updated: 2024-10-26T21:18:49.634Z
+date: 2024-12-23T21:31:12.122Z
+updated: 2024-12-27T17:46:21.741Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59735938e5d7f8ca65b28aa1df8bb7abb5c395ecd1493a3d71a98c1987946f38.jpg
@@ -140,3 +140,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59735938e5d7f8ca65b28aa1df8bb7a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95960124-9781608685356-chakra-healing-for-vibrant-energy/"><u>Chakra Healing for Vibrant Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96027869-9780525505341-inner-witch/"><u>Inner Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95956315-9781614173809-soul-survivor/"><u>Soul Survivor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96027888-9781524705206-the-book-of-freedom/"><u>The Book of Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95959699-9781788884457-the-nazis-and-the-occult/"><u>The Nazis and the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96027875-9780525504641-the-spirit-almanac/"><u>The Spirit Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95958909-9781623172442-thus-spoke-the-plant/"><u>Thus Spoke the Plant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95958876-9781984800060-yoga-and-the-quest-for-the-true-self/"><u>Yoga and the Quest for the True Self | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

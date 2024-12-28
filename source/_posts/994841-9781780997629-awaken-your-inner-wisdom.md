@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2024-12-18T00:56:21.306Z
-updated: 2024-12-22T03:54:44.122Z
+date: 2024-12-27T00:30:09.580Z
+updated: 2024-12-27T23:18:16.250Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,17 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211327318-9780061840944-adventures-beyond-the-body/"><u>Adventures Beyond the Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211327129-9780062029058-angel-courage/"><u>Angel Courage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211327040-9780061871863-do-dead-people-walk-their-dogs/"><u>Do Dead People Walk Their Dogs? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211326677-9781913738143-hindu-astrology/"><u>Hindu Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211326730-9781915776174-meeting-michael/"><u>Meeting Michael | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211326729-9781912992614-meeting-spirit-beings/"><u>Meeting Spirit Beings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211327032-9780062031921-the-four-fold-way/"><u>The Four-Fold Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211327190-9780061968082-the-secret-of-the-soul/"><u>The Secret of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126057-9781609254629-songs-of-kabir/"><u>Songs of Kabir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126058-9781609251970-soul-mission-life-vision/"><u>Soul Mission, Life Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126060-9781609257941-source-of-the-dream/"><u>Source of the Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126063-9781609255749-spells-for-the-solitary-witch/"><u>Spells for the Solitary Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126056-9781609256937-the-solitary-wiccans-bible/"><u>The Solitary Wiccan's Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126062-9781609250911-the-spellcasters-reference/"><u>The Spellcaster's Reference | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

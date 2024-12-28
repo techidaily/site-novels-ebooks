@@ -1,7 +1,7 @@
 ---
 title: "Alien Dawn: An Investigation into the Contact Experience | Free Book"
-date: 2024-10-25T02:16:44.406Z
-updated: 2024-10-26T19:11:49.415Z
+date: 2024-12-25T02:54:58.975Z
+updated: 2024-12-27T16:33:59.445Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1083e2d94328827883cb8e12e805461ee208c0215aea99d199c9c2b75e445919.jpg
@@ -143,3 +143,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1083e2d94328827883cb8e12e805461
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96368572-9781446350041-ghostly-tales-on-land-and-sea/"><u>Ghostly Tales on Land and Sea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96368984-9781446357644-how-to-go-to-a-medium/"><u>How to Go to a Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96368879-9781446357682-life-after-death/"><u>Life after Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96368888-9781446357767-psychical-research-and-survival/"><u>Psychical Research and Survival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96368918-9781446357705-the-case-for-and-against-psychical-belief/"><u>The Case for and Against Psychical Belief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96368990-9781446357583-the-gate-of-remembrance/"><u>The Gate of Remembrance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96368977-9781446357606-the-invisible-influence/"><u>The Invisible Influence | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

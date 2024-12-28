@@ -1,7 +1,7 @@
 ---
 title: Field Guide to the Spirit World | Free Book
-date: 2024-12-01T17:51:52.685Z
-updated: 2024-12-06T23:56:30.666Z
+date: 2024-12-21T23:15:28.694Z
+updated: 2024-12-27T19:20:11.093Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f9627ce9889a5066fd40f398ff9914148716f.jpg
@@ -207,13 +207,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f962
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210168847-9781838219130-angels-in-our-territory/"><u>ANGELS IN OUR TERRITORY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210169351-9780744041149-intuition/"><u>Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210168549-9781647018047-through-the-eyes-of-nisey/"><u>Through the Eyes of Nisey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210169464-9780834843516-wait/"><u>Wait | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730893-9780806539508-candlelight-spells/"><u>Candlelight Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732439-9781401958107-the-universe-always-has-a-plan/"><u>The Universe Always Has a Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730484-9780806539621-the-wicca-garden/"><u>The Wicca Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209729473-9780806539652-the-wicca-spellbook/"><u>The Wicca Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730203-9780806539669-the-wiccans-dictionary-of-prophecy-and-omens/"><u>The Wiccan's Dictionary of Prophecy and Omens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209731435-9780806539607-wicca-candle-magick/"><u>Wicca Candle Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209729728-9780806538679-wicca-for-one/"><u>Wicca for One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730697-9780806539638-wicca-love-spells/"><u>Wicca Love Spells | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

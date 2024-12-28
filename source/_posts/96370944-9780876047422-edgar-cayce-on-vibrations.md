@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on Vibrations | Free Book
-date: 2024-12-01T16:04:24.146Z
-updated: 2024-12-07T02:14:37.300Z
+date: 2024-12-20T19:12:19.936Z
+updated: 2024-12-27T17:19:22.714Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc5535059efc28d07ed5501f222c0f4085ec0eb6.jpg
@@ -134,18 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc55350
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210192381-9781600379277-at-your-command/"><u>At Your Command | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192425-9781614483076-energy-over-mind/"><u>Energy Over Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192361-9781614482314-fall-in-love-with-your-life/"><u>Fall in Love with Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192462-9781683505624-forty-things-i-wish-id-told-my-kids/"><u>Forty Things I Wish I'd Told My Kids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192547-9781630478728-get-out-of-mind-jail/"><u>Get Out of Mind Jail | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192483-9781683508298-happily-ever-after/"><u>Happily Ever After | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192508-9781642797473-heal-your-trauma-heal-your-marriage/"><u>Heal Your Trauma, Heal Your Marriage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192458-9781683501480-hushed-cries/"><u>Hushed Cries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192532-9781614487708-letters-to-momo/"><u>Letters to Momo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209825624-9781529315981-daily-calm/"><u>Daily Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826509-9780008366360-leo-2021-your-personal-horoscope/"><u>Leo 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824473-9781644618127-rituals-of-white-magic/"><u>Rituals of white magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826507-9780008366339-taurus-2021-your-personal-horoscope/"><u>Taurus 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826143-9781507213551-the-green-witchs-grimoire/"><u>The Green Witch's Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209825373-9781797200941-the-rituals/"><u>The Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826508-9780008366377-virgo-2021-your-personal-horoscope/"><u>Virgo 2021: Your Personal Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

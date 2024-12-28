@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-12-20T16:14:38.086Z
-updated: 2024-12-22T09:29:58.707Z
+date: 2024-12-22T19:39:52.898Z
+updated: 2024-12-28T02:04:26.129Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,14 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2539527-9781888729795-future-esoteric/"><u>Future Esoteric | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543809-9781780289748-happiness-and-other-small-things-of-absolute-importance/"><u>Happiness and Other Small Things of Absolute Importance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2538655-9781626256637-only-that/"><u>Only That | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543658-9781635050837-the-truth-is-beyond-belief/"><u>The Truth Is Beyond Belief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543808-9781780289533-what-is-numerology/"><u>What is Numerology? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1752771-9781618520791-heads-up-dreaming/"><u>Heads-Up Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1753630-9781780287850-pilgrimage-to-iona/"><u>Pilgrimage to Iona | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1755761-9780857011732-the-four-dragons/"><u>The Four Dragons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1753632-9781780288246-the-phoenix-generation/"><u>The Phoenix Generation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1755929-9781618520814-you-a-spiritual-being-on-a-spiritual-journey/"><u>YOU: A Spiritual Being on a Spiritual Journey | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

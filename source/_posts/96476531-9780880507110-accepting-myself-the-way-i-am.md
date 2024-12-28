@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2024-12-17T10:08:34.557Z
-updated: 2024-12-22T00:09:57.552Z
+date: 2024-12-24T18:36:12.806Z
+updated: 2024-12-27T19:18:24.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,16 +163,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2528762-9789352012749-conversations-of-an-intelligent-kind/"><u>Conversations Of An Intelligent Kind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2528017-9780811748742-haunted-minnesota/"><u>Haunted Minnesota | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2528030-9780811752954-haunted-nevada/"><u>Haunted Nevada | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2528750-9789352012619-hundreds-of-shells/"><u>Hundreds of Shells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2528031-9780811753050-monsters-of-massachusetts/"><u>Monsters of Massachusetts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2528751-9789352012626-palmistry-the-mystery-of-destiny/"><u>PALMISTRY - The Mystery of Destiny | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2528022-9781493043835-the-big-book-of-new-jersey-ghost-stories/"><u>The Big Book of New Jersey Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1707101-9781780995663-finding-your-way-home-with-transcendental-progression/"><u>Finding your Way Home with Transcendental Progression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691963-9780804152358-shamanism-as-a-spiritual-practice-for-daily-life/"><u>Shamanism As a Spiritual Practice for Daily Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1705573--the-global-red-circle/"><u>The Global Red Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1693671-9780857011626-the-meditation-book-of-light-and-colour/"><u>The Meditation Book of Light and Colour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1706602-9781776533749-true-ghost-stories/"><u>True Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691534-9781782791676-witchcraft-today-60-years-on/"><u>Witchcraft Today - 60 Years On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1702302-9781317823520-womens-conflicts-about-eating-and-sexuality/"><u>Women's Conflicts About Eating and Sexuality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1696141-9780349406145-working-with-earth-energies/"><u>Working With Earth Energies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691535-9781782793489-your-simple-path/"><u>Your Simple Path | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

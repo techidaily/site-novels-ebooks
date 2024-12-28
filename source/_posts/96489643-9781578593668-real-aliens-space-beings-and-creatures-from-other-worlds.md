@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-12-21T05:50:51.947Z
-updated: 2024-12-22T10:42:57.362Z
+date: 2024-12-20T21:17:06.444Z
+updated: 2024-12-28T01:18:13.342Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,14 +262,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211448711-9798991143417-afterlife-bonds/"><u>Afterlife Bonds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211448712-9798991327572-falling-up/"><u>Falling Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211448842-9781998813940-rising-above/"><u>Rising Above | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211450762--stuff-your-astrologer-should-have-told-you/"><u>Stuff Your Astrologer Should Have Told You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211450266-9781955413282-the-art-of-your-energy-ii/"><u>The Art of Your Energy II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594326-9781452546858-1-2-3-your-wish-is-granted/"><u>1, 2, 3 Your Wish Is Granted! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594470-9781452537467-divinely-touched-transform-your-life/"><u>Divinely Touched: Transform Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594605-9781452545097-escucha-al-amor/"><u>Escucha Al Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594313-9781452547329-househeal/"><u>Househeal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594530-9781475902617-madeleine-and-the-seventh-mystic/"><u>Madeleine and the Seventh Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594400-9781452538020-ricky-roars/"><u>Ricky Roars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594629-9781452541525-theres-a-whole-in-the-sky/"><u>There's a Whole in the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138594814-9781462069750-transcending-illness-through-the-power-of-belief/"><u>Transcending Illness Through the Power of Belief | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

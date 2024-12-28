@@ -1,7 +1,7 @@
 ---
 title: The Spaceships of the Visitors | Free Book
-date: 2024-10-23T20:36:57.641Z
-updated: 2024-10-27T04:58:19.705Z
+date: 2024-12-20T22:00:54.585Z
+updated: 2024-12-27T22:56:28.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2353461cbf72bbb63cf275a9ad7fff5508a26f5f3e18855f07439b9446817f70.jpg
@@ -167,3 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2353461cbf72bbb63cf275a9ad7fff5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125819-9781609251680-kids-who-see-ghosts/"><u>Kids Who See Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125834-9781609254131-learning-the-tarot/"><u>Learning the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125848-9781609254247-light-on-relationships/"><u>Light on Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125818-9781609254209-the-ki-process/"><u>The Ki Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125829-9781609257644-the-laws-of-manifestation/"><u>The Laws of Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125838-9781609253776-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Extraordinary Ordinary Forgiveness | Free Book
-date: 2024-10-23T03:02:56.406Z
-updated: 2024-10-27T01:01:35.502Z
+date: 2024-12-23T19:36:59.707Z
+updated: 2024-12-27T17:07:48.383Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c5c6303dec1365b52f0d4a1e06ba2ddac0692aa9a996c78e59fc9ba35c354ac.jpg
@@ -136,3 +136,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c5c6303dec1365b52f0d4a1e06ba2d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96292649-9781473676640-aquarius/"><u>Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96295957-9780349404851-authentic/"><u>Authentic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292651-9781473676893-capricorn/"><u>Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292913-9781620558959-encounters-with-nature-spirits-3rd-ed/"><u>Encounters with Nature Spirits (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292652-9781473676879-sagittarius/"><u>Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96292650-9781473676626-virgo/"><u>Virgo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

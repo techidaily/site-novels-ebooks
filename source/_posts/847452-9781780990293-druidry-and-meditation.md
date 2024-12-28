@@ -1,7 +1,7 @@
 ---
 title: Druidry and Meditation | Free Book
-date: 2024-10-25T21:59:40.145Z
-updated: 2024-10-26T16:15:31.171Z
+date: 2024-12-25T16:01:35.560Z
+updated: 2024-12-28T02:30:21.463Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2fb99ea40f026b617dbc55c00ca5c375c8db456de0be91d5a5afa3533cc71ad.jpg
@@ -149,3 +149,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2fb99ea40f026b617dbc55c00ca5c3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782365-9781591437642-baldrs-magic/"><u>Baldr's Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782374-9781591432241-lessons-from-the-twelve-archangels/"><u>Lessons from the Twelve Archangels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782372-9781591431879-the-secret-chamber-of-osiris/"><u>The Secret Chamber of Osiris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782370-9781591439592-the-secret-history-of-extraterrestrials/"><u>The Secret History of Extraterrestrials | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782373-9781591437680-the-soul-of-ancient-egypt/"><u>The Soul of Ancient Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782366-9781591439295-toltec-dreaming-2nd-ed/"><u>Toltec Dreaming (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782367-9781591432609-wars-of-the-anunnaki/"><u>Wars of the Anunnaki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782371-9781591437840-way-of-the-bushman/"><u>Way of the Bushman | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

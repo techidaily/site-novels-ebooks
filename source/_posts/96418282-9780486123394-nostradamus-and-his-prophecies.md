@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2024-12-16T05:27:56.714Z
-updated: 2024-12-22T10:09:40.110Z
+date: 2024-12-23T00:54:22.178Z
+updated: 2024-12-27T16:52:48.653Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,17 +151,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/475339-9781458711304-breathe-you-are-alive/"><u>Breathe, You Are Alive! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475342-9781458711410-calming-the-fearful-mind/"><u>Calming the Fearful Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475344-9781458711250-for-a-future-to-be-possible/"><u>For a Future to Be Possible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475333-9781458711441-happiness/"><u>Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/472974-9781101173831-secrets-of-the-i-ching/"><u>Secrets of the I Ching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475345-9781458711281-teachings-on-love/"><u>Teachings on Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/473389-9781101173640-the-amazing-laws-of-cosmic-mind-power/"><u>The Amazing Laws of Cosmic Mind Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/475330-9781458711311-the-world-we-have/"><u>The World We Have | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209657603-9781620236291-awakening-angel-connections/"><u>Awakening Angel Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209656667-9781602354524-facing-the-sky/"><u>Facing the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209654050-9781789040456-mind-spirit-detox/"><u>Mind-Spirit Detox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209654053-9781789040258-training-wheels/"><u>Training Wheels | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

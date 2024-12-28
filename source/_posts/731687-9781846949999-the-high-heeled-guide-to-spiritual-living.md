@@ -1,7 +1,7 @@
 ---
 title: The High Heeled Guide to Spiritual Living | Free Book
-date: 2024-10-21T19:42:52.695Z
-updated: 2024-10-27T03:09:26.774Z
+date: 2024-12-21T19:15:56.166Z
+updated: 2024-12-27T23:52:49.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2461ba163a65463486b1c3611bfb691828ee009fdcfd8ef3bb134cd0ac13ef0d.jpg
@@ -129,3 +129,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2461ba163a65463486b1c3611bfb691
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95810540-9781507143643-arcanos-maiores-do-tarot-o-seu-significado-sem-recorrer-a-memoria/"><u>Arcanos Maiores do Tarot: o seu significado sem recorrer à memória. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95808671-9781507179390-il-libro-doro-della-saggezza/"><u>Il libro d'oro della saggezza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95808938-9781616405830-looking-for-orthon/"><u>Looking for Orthon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809100-9781944529123-precognition-and-retrocognition/"><u>Precognition and Retrocognition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809797-9781507143513-predictive-astrology-a-new-discovery-in-the-transits-reading/"><u>Predictive Astrology, a new discovery in the transits reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810344-9781616409777-rightly-dividing-the-word/"><u>Rightly Dividing the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809905-9781944529253-the-emergence-of-paraphysics-theoretical-foundations/"><u>The Emergence of Paraphysics: Theoretical Foundations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809320-9781944529093-the-psychic-personality/"><u>The Psychic Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809021-9781944529154-the-psychobiology-of-psi/"><u>The Psychobiology of Psi | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

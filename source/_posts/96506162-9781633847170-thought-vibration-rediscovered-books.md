@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2024-12-17T03:59:10.738Z
-updated: 2024-12-21T18:37:31.609Z
+date: 2024-12-24T22:35:02.759Z
+updated: 2024-12-27T20:50:35.409Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,16 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211388774-9781763606517-a-mediums-story/"><u>A Medium's Story | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211387637-9783964465412-beaucoup-beaucoup-de-vie/"><u>Beaucoup, beaucoup de Vie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211387682-9783689442132-beginners-guide-to-chakras/"><u>BEGINNER'S GUIDE TO CHAKRAS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211388676-9781778310577-dreams-dangers/"><u>Dreams & Dangers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211387800--pure-human/"><u>Pure Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211388691-9798894581071-subconscious-mind/"><u>Subconscious Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211388232-9781446312193-the-healing-power-of-sound/"><u>The Healing Power of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571115-9780595620678-angels/"><u>Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571063-9781440193125-divine-inspiration-divine-understanding/"><u>Divine Inspiration, Divine Understanding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571034-9781450226097-love-loss-and-enlightenment/"><u>Love, Loss and Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571032-9781449724672-moving-meditation/"><u>Moving Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571127-9781440193699-the-souls-power/"><u>The Soul's Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571109-9781617640001-un-dia-importante/"><u>Un Día... Importante. | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

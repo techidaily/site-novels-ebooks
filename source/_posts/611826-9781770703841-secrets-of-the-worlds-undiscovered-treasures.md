@@ -1,7 +1,7 @@
 ---
 title: Secrets of the World's Undiscovered Treasures | Free Book
-date: 2024-10-20T19:34:22.011Z
-updated: 2024-10-27T02:27:07.699Z
+date: 2024-12-26T01:59:24.689Z
+updated: 2024-12-27T19:13:02.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14ee684338bacf7118708d4bc4c29bc8fbf3b8a4fb90d56271054566a55269be.jpg
@@ -163,3 +163,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14ee684338bacf7118708d4bc4c29bc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125597-9781609256692-a-book-of-pagan-rituals/"><u>A Book of Pagan Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125608-9781609254759-bucklands-book-of-saxon-witchcraft/"><u>Buckland's Book of Saxon Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125610-9781609256227-casting-sacred-space/"><u>Casting Sacred Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125624-9781609254230-choice-centered-relating-and-the-tarot/"><u>Choice Centered Relating and the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125627-9781609255480-city-magick/"><u>City Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125643-9781609252236-conference-of-the-birds/"><u>Conference of the Birds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125617-9781609256654-the-chakras-esoteric-healing/"><u>The Chakras & Esoteric Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125621-9781609257316-the-chicken-qabalah-of-rabbi-lamed-ben-clifford/"><u>The Chicken Qabalah of Rabbi Lamed Ben Clifford | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

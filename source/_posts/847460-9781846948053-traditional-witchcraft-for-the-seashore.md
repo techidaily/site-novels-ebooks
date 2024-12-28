@@ -1,7 +1,7 @@
 ---
 title: Traditional Witchcraft for the Seashore | Free Book
-date: 2024-10-25T01:28:42.712Z
-updated: 2024-10-26T21:35:35.916Z
+date: 2024-12-21T20:20:04.077Z
+updated: 2024-12-27T21:09:53.899Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ec23e5251ec44e7860e0185a15bb3dee18613548c70ab4d669eeb8405feebdf.jpg
@@ -137,3 +137,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ec23e5251ec44e7860e0185a15bb3d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782390-9781591438168-illuminations-of-hildegard-of-bingen-2nd-ed/"><u>Illuminations of Hildegard of Bingen (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782392-9781591438380-land-of-the-fallen-star-gods/"><u>Land of the Fallen Star Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782394-9781591439998-the-mayan-code/"><u>The Mayan Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782391-9781591438489-the-shamanic-path-to-quantum-consciousness/"><u>The Shamanic Path to Quantum Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782389-9781591432289-the-shamanic-powers-of-rolling-thunder/"><u>The Shamanic Powers of Rolling Thunder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782395-9781591432890-waking-up-in-5d/"><u>Waking Up in 5D | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782393-9781591439356-walking-on-the-wind/"><u>Walking on the Wind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

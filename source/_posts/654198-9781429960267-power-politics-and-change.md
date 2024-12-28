@@ -1,7 +1,7 @@
 ---
 title: Power, Politics, and Change | Free Book
-date: 2024-10-19T23:43:00.620Z
-updated: 2024-10-26T23:33:12.697Z
+date: 2024-12-22T02:39:20.760Z
+updated: 2024-12-28T00:46:13.927Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c3a6b3f642e99d068873296a7152f261e3122f3765bd5a3f8e1335ee0a6daf1.jpg
@@ -183,3 +183,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c3a6b3f642e99d068873296a7152f2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96505225-9781627553322-the-complete-prophecies-of-nostradamus/"><u>The Complete Prophecies of Nostradamus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505155-9781627554039-the-law/"><u>The Law | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505167-9781633844520-the-law-and-other-essays-on-manifestation-rediscovered-books/"><u>The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505198-9781617208690-the-science-of-being-great/"><u>The Science of Being Great | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505227-9781627553292-wild-talents/"><u>Wild Talents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505193-9781633844377-your-faith-is-your-fortune-rediscovered-books/"><u>Your Faith is Your Fortune (Rediscovered Books) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505182-9781627554015-your-faith-is-your-fortune/"><u>Your Faith is Your Fortune | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

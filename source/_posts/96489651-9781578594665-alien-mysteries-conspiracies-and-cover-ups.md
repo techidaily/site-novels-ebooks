@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-12-17T16:17:56.880Z
-updated: 2024-12-22T03:20:37.080Z
+date: 2024-12-21T17:09:55.138Z
+updated: 2024-12-27T20:15:51.441Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,17 +192,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211455288-9798330398164-hackear-o-universo/"><u>Hackear o Universo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455291-9798330398102-hacking-the-universe/"><u>Hacking the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455276-9798330397693-mastering-alchemy/"><u>Mastering Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455278-9798330397822-secretele-maestrului-alchimist/"><u>Secretele maestrului alchimist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455277-9798330397761-secretos-del-maestro-alquimista/"><u>Secretos del Maestro Alquimista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455275-9798330397730-segredos-do-mestre-alquimista/"><u>Segredos do Mestre Alquimista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455245-9781396325717-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455180-9781956198355-the-practitioner-handbook-for-spiritual-mind-healing-4th-ed/"><u>The Practitioner Handbook for Spiritual Mind Healing (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595367-9781449755126-being-found-in-him/"><u>Being Found in Him | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595175-9781449748753-divine-inspirations/"><u>Divine Inspirations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595201-9781449757328-jesus-our-portion/"><u>Jesus Our Portion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595319-9781452544397-listen-im-still-here/"><u>Listen, I'm Still Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595283-9781449729455-of-truth-and-righteousness/"><u>Of Truth and Righteousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595211-9781452547299-surfing-the-paradoxes-of-everyday-transformation/"><u>Surfing the Paradoxes of Everyday Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595277-9781452543086-the-akashic-field/"><u>The Akashic Field | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595260-9781449751326-the-shining-one-and-poems-by-allan/"><u>The Shining One and Poems by Allan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595242-9781452541174-who-we-are/"><u>Who We Are | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

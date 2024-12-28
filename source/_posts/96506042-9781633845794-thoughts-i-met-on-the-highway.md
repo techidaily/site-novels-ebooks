@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2024-12-17T19:03:04.997Z
-updated: 2024-12-22T07:30:47.637Z
+date: 2024-12-26T01:40:11.060Z
+updated: 2024-12-27T18:27:47.998Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,15 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383076-9781957811109-davidji/"><u>Davidji | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383088-9781957811918-discourses-volume-1-2013-2014/"><u>Discourses Volume 1, 2013-2014 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383052-9781957811994-discourses-volume-2-2015/"><u>Discourses Volume 2, 2015 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383077-9781957811024-discourses-volume-3-2016/"><u>Discourses Volume 3, 2016 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383053-9781957811062-discourses-volume-5-2018/"><u>Discourses Volume 5, 2018 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383101-9781957811147-notes-to-sadhakas/"><u>Notes to Sadhakas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568971-9780595616152-lightning-holds-my-hand/"><u>Lightning Holds My Hand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568936-9781462051205-manifesting-101-beyond/"><u>Manifesting 101 & Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568755-9781475909456-pilgrimage-to-java/"><u>Pilgrimage to Java | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568838-9780595612475-through-the-veil/"><u>Through the Veil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568889-9780595831678-too-soon-old-too-late-smart/"><u>Too Soon Old-Too Late Smart | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2024-12-19T12:55:52.459Z
-updated: 2024-12-22T02:14:27.068Z
+date: 2024-12-26T18:59:59.786Z
+updated: 2024-12-28T00:22:36.333Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,17 +182,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211417772--60-days-on-skinwalker-ranch/"><u>60 Days on Skinwalker Ranch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211417572-9781648414091-disabled-witchcraft/"><u>Disabled Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211417926-9781956482072-dont-go-stay/"><u>Don't Go ; Stay | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211417725-9781523524075-mercury-magic/"><u>Mercury Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211417765--real-angels-dont-have-wings/"><u>Real Angels Don't Have Wings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211418278-9781955413275-the-art-of-your-energy-galactic-and-celestial-light-codes-for-healing-and-empowerment-galactic/"><u>The Art of Your Energy: Galactic and Celestial Light Codes for Healing and Empowerment: Galactic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211418188--the-meditation-yearbook/"><u>The Meditation Yearbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211418332-9798330299133-the-power-of-our-relationships/"><u>The Power of our Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575820-9780595844531-a-soul-promise/"><u>A Soul Promise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575889-9781449741945-god-rocks/"><u>God Rocks! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575832-9781490847658-reality-check/"><u>Reality Check | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575841-9781440161018-you-are-love/"><u>You Are Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575863-9781450234276-you-dont-need-talent-to-succeed/"><u>You Don’T Need Talent to Succeed | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

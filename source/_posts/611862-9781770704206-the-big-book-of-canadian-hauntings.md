@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Canadian Hauntings | Free Book
-date: 2024-10-22T02:54:02.460Z
-updated: 2024-10-26T20:08:03.618Z
+date: 2024-12-21T01:41:21.371Z
+updated: 2024-12-27T16:58:14.174Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9067800e8f4a1349b36ab4ba09d0351e2353d187a8c394bf28999f8b673060e2.jpg
@@ -188,3 +188,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9067800e8f4a1349b36ab4ba09d0351
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125702-9781609254711-everyday-tarot/"><u>Everyday Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125711-9781609254452-the-fifth-dimension/"><u>The Fifth Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125737-9781609250140-the-god-theory/"><u>The God Theory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125744-9781609254216-the-great-secret-or-occultism-unveiled/"><u>The Great Secret or Occultism Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125745-9781609250157-the-great-shift/"><u>The Great Shift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125748-9781609254612-the-grimoire-of-armadel/"><u>The Grimoire of Armadel | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

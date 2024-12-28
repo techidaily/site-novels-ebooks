@@ -1,7 +1,7 @@
 ---
 title: Connecting with Horses | Free Book
-date: 2024-10-22T01:04:47.384Z
-updated: 2024-10-27T04:02:34.154Z
+date: 2024-12-22T23:20:34.266Z
+updated: 2024-12-27T23:53:06.223Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6d2ac1bf20066629f65ad179c1c7a3d08cc931936fac1fe046971640ffaf60f.jpg
@@ -176,3 +176,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6d2ac1bf20066629f65ad179c1c7a3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782027-9781620554500-merlin/"><u>Merlin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782024-9781594779244-microchakras/"><u>Microchakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782026-9781594776090-nei-kung/"><u>Nei Kung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782029-9781594776397-the-gospel-of-thomas/"><u>The Gospel of Thomas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782028-9781620554715-the-grail/"><u>The Grail | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Your Quest For Spiritual Knowledge: 2012 and Beyond | Free Book"
-date: 2024-10-24T20:49:28.914Z
-updated: 2024-10-27T01:07:17.365Z
+date: 2024-12-25T02:06:17.960Z
+updated: 2024-12-28T02:21:25.752Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72bbf983e56d7a3f2f6c3e9118dd8be306d3ff1b5cbd8d6ab3b3284f1b60a424.jpg
@@ -128,3 +128,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72bbf983e56d7a3f2f6c3e9118dd8be
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317841-9781848502826-dowsing/"><u>Dowsing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317828-9781781808931-dreaming-through-darkness/"><u>Dreaming through Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317845-9781848506473-hope-healing-our-people-earth/"><u>HOPE - Healing Our People & Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317847-9781848507210-stories-from-the-other-side/"><u>Stories from the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317840-9781781807156-the-archangel-guide-to-enlightenment-and-mastery/"><u>The Archangel Guide to Enlightenment and Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317834-9781781808573-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317846-9781848506213-the-radiant-warrior/"><u>The Radiant Warrior | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

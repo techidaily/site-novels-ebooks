@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-12-19T08:40:13.497Z
-updated: 2024-12-21T22:07:12.496Z
+date: 2024-12-27T03:04:22.805Z
+updated: 2024-12-27T23:24:06.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,16 +166,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2610306-9781459737884-haunted-hospitals/"><u>Haunted Hospitals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2610148-9781250066947-kindness-boomerang/"><u>Kindness Boomerang | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2610445-9780007394180-shine-on-visions-of-life/"><u>Shine On: Visions of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2610658-9780007374328-the-infinite-mind/"><u>The Infinite Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2609963-9781841814650-the-qigong-bible/"><u>The Qigong Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2612029-9780892546305-the-sworn-book-of-honorius/"><u>The Sworn Book of Honorius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2612237-9781101905371-unplug/"><u>Unplug | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1969559-9780804181044-angel-power/"><u>Angel Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1980053-9781583947333-mystery-school-in-hyperspace/"><u>Mystery School in Hyperspace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1973644-9780895565389-the-master-game/"><u>The Master Game | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1964089-9781782797920-traditional-witchcraft-and-the-path-to-the-mysteries/"><u>Traditional Witchcraft and the Path to the Mysteries | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Astral Projection Made Easy | Free Book
-date: 2024-10-20T04:57:18.458Z
-updated: 2024-10-27T03:04:32.454Z
+date: 2024-12-23T16:44:39.287Z
+updated: 2024-12-27T19:04:47.826Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a51aa092c13bc79d789c9b8981891e3868bca61ad07e0674a8c05e27b411b963.jpg
@@ -143,3 +143,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a51aa092c13bc79d789c9b8981891e3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/784534-9780976420088-a-course-in-miracles/"><u>A Course in Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/785403-9781459704022-haunted-hamilton/"><u>Haunted Hamilton | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/784649-9781884365935-spiritual-snake-oil/"><u>Spiritual Snake Oil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/787654-9781776518982-the-human-aura/"><u>The Human Aura | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/785169-9781429942546-the-journey-of-being-human/"><u>The Journey of Being Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/793633-9781446447314-the-magic-in-your-hands/"><u>The Magic In Your Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/783680-9781448108794-the-secrets-of-nostradamus/"><u>The Secrets Of Nostradamus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781886-9781846948305-the-silence-of-the-mind/"><u>The Silence of the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781888-9781780991504-writings-from-oneness/"><u>Writings from Oneness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

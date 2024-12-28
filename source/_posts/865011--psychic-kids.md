@@ -1,7 +1,7 @@
 ---
 title: Psychic Kids | Free Book
-date: 2024-10-22T05:47:14.105Z
-updated: 2024-10-26T20:45:50.397Z
+date: 2024-12-24T22:08:30.550Z
+updated: 2024-12-27T21:21:47.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d08e59546a77a974c68429498b39e432f30da47ff580a65baddd5006162bb115.jpg
@@ -165,3 +165,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d08e59546a77a974c68429498b39e43
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95711784-9780786751907-a-dark-muse/"><u>A Dark Muse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95711245-9781580054515-lessons-from-the-monk-i-married/"><u>Lessons from the Monk I Married | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95708602-9780008256357-pisces-2018-your-personal-horoscope/"><u>Pisces 2018: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95708803-9781623171780-radical-wholeness/"><u>Radical Wholeness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95709393-9781405511506-the-ripple-effect/"><u>The Ripple Effect | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

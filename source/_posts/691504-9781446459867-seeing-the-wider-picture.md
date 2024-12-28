@@ -1,7 +1,7 @@
 ---
 title: Seeing The Wider Picture | Free Book
-date: 2024-10-23T01:10:34.153Z
-updated: 2024-10-26T18:42:23.376Z
+date: 2024-12-22T00:46:42.448Z
+updated: 2024-12-27T22:22:07.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e01b622e89022144a4b3cafae6895456310da3ecd0c564f309a22248be017742.jpg
@@ -159,3 +159,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e01b622e89022144a4b3cafae689545
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96298863-9781684033416-an-invitation-to-freedom/"><u>An Invitation to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96296526-9780994616685-christ-centred-mindfulness/"><u>Christ-Centred Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96298903-9781608939701-haunted-maine-lighthouses/"><u>Haunted Maine Lighthouses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96296147-9780834841796-the-integral-vision/"><u>The Integral Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96300702-9780753552667-time-and-how-to-spend-it/"><u>Time and How to Spend It | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

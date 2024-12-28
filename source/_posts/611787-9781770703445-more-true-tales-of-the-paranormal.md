@@ -1,7 +1,7 @@
 ---
 title: More True Tales of the Paranormal | Free Book
-date: 2024-10-19T17:44:39.905Z
-updated: 2024-10-26T19:28:07.620Z
+date: 2024-12-27T00:47:18.193Z
+updated: 2024-12-28T01:03:38.119Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd9d5beae94fb0455d3ce602fca2a25a6776128d1ef31c34245f01c215e0c1bb.jpg
@@ -165,3 +165,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd9d5beae94fb0455d3ce602fca2a25
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125548-9781609256753-astrologickal-magick/"><u>Astrologickal Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125550-9781609256319-astrology-for-initiates/"><u>Astrology for Initiates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125547-9781609253844-the-astrological-neptune-and-the-quest-for-redemption/"><u>The Astrological Neptune and the Quest for Redemption | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125552-9781609250805-the-astrology-of-2012-and-beyond/"><u>The Astrology of 2012 and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125553-9781609254872-the-astrology-of-family-dynamics/"><u>The Astrology of Family Dynamics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125554-9781609253851-the-astrology-of-fate/"><u>The Astrology of Fate | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

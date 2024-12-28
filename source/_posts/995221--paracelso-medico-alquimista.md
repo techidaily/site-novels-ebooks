@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2024-12-16T01:09:12.059Z
-updated: 2024-12-22T03:51:20.331Z
+date: 2024-12-22T22:31:27.178Z
+updated: 2024-12-27T20:34:46.862Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,15 +143,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211331498-9782385640613-cheminer-vers-le-bonheur-avec-bouddha/"><u>Cheminer vers le bonheur avec Bouddha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211331924-9783964461735-ich-kam-woher-ich-gehe-wohin/"><u>Ich kam - woher? Ich gehe - wohin? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211331920-9783964462046-lesprit-libre-dieu-en-nous/"><u>L'Esprit libre - Dieu en nous | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211331467-9782017289760-les-sept-voies-de-layurveda/"><u>Les Sept Voies de l'Ayurveda | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211331437-9781608689255-the-intuition-bible/"><u>The Intuition Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211331787--the-witchs-guide-to-animal-familiars/"><u>The Witch's Guide to Animal Familiars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126888-9781612830032-aarons-crossing/"><u>Aaron's Crossing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126217-9781609254971-aspects-of-occultism/"><u>Aspects of Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126894-9781612831213-astral-projection-and-the-nature-of-reality/"><u>Astral Projection and the Nature of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126213-9781609251703-your-guardian-angel-and-you/"><u>Your Guardian Angel and You | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

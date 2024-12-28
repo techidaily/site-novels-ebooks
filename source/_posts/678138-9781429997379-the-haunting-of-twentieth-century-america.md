@@ -1,7 +1,7 @@
 ---
 title: The Haunting of Twentieth-Century America | Free Book
-date: 2024-10-24T00:26:11.553Z
-updated: 2024-10-27T03:33:57.736Z
+date: 2024-12-26T17:45:29.647Z
+updated: 2024-12-27T19:46:50.749Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73e24102a678b6c9e009f6b57f065645b7800528c325568ccc71aaa0e5e2624a.jpg
@@ -195,3 +195,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73e24102a678b6c9e009f6b57f06564
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316848-9781848507616-david-wells-complete-guide-to-developing-your-psychic-skills/"><u>David Wells' Complete Guide To Developing Your Psychic Skills | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316829-9781401952426-life-on-earth/"><u>Life on Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316856-9781848506190-soul-angels/"><u>Soul Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316843-9781848507517-supercoherence/"><u>Supercoherence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316831-9781781803714-taurus-moon-sign/"><u>Taurus Moon Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316840-9781848505728-the-top-100-dreams/"><u>The Top 100 Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316826-9781781804483-transform-your-beliefs-transform-your-life/"><u>Transform Your Beliefs, Transform Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316844-9781781803738-virgo-moon-sign/"><u>Virgo Moon Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316838-9781848503946-you-know-more-than-you-think/"><u>You Know More than You Think | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

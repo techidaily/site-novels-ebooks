@@ -1,7 +1,7 @@
 ---
 title: Tarot in the Spirit of Zen | Free Book
-date: 2024-10-23T03:01:19.992Z
-updated: 2024-10-26T18:31:00.953Z
+date: 2024-12-25T17:36:02.484Z
+updated: 2024-12-27T21:04:47.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4979ddc56d8ba3fed603e1a5ab9b895e7188ef27df69b2490da4723e3be338b0.jpg
@@ -177,3 +177,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4979ddc56d8ba3fed603e1a5ab9b895
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96031699-9781594337789-7-steps-to-attain-perfection/"><u>7 Steps to Attain Perfection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031412-9781925712353-happiness-plan/"><u>Happiness Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031789-9781632658661-the-art-of-limitless-living/"><u>The Art of Limitless Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031670-9782268099866-venus-et-vous/"><u>Vénus et vous | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

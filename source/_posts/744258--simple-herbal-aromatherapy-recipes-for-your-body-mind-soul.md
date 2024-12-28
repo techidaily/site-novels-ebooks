@@ -1,7 +1,7 @@
 ---
 title: Simple Herbal & Aromatherapy Recipes for your Body, Mind & Soul | Free Book
-date: 2024-10-19T17:37:04.930Z
-updated: 2024-10-26T18:12:32.934Z
+date: 2024-12-22T01:13:42.226Z
+updated: 2024-12-28T01:39:03.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/342dea392724c5a9bdb831043f330218fae3081886adf834db52bf8e7730765e.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/342dea392724c5a9bdb831043f33021
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95851338-9788499882802-donde-encontrar-la-paz/"><u>Dónde encontrar la paz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95851334-9788499881621-estas-aqui/"><u>Estás aquí | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95847344-9781507205792-my-pocket-mantras/"><u>My Pocket Mantras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95851267-9781633410657-understanding-aleister-crowleys-thoth-tarot/"><u>Understanding Aleister Crowley's Thoth Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95847018-9781501176906-unmedicated/"><u>Unmedicated | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

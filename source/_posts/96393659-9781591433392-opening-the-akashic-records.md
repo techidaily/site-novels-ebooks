@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2024-11-30T19:42:31.607Z
-updated: 2024-12-06T23:19:54.705Z
+date: 2024-12-23T01:19:26.819Z
+updated: 2024-12-27T21:20:17.701Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -189,14 +189,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210162791-9781684564170-a-clarion-call-to-compassion/"><u>A Clarion Call to Compassion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163142-9781646283767-be-not-a-seeker/"><u>Be Not a Seeker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163162-9781640270527-dedicated-to-all/"><u>Dedicated to All | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163370-9781635683011-roots-to-wings/"><u>Roots to Wings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210162653-9781642981490-the-gift-of-finding-gods-love/"><u>The Gift of Finding God's Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209696572-9781452179902-dangerous-games-to-play-in-the-dark/"><u>Dangerous Games to Play in the Dark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209695080-9780857719812-englands-first-demonologist/"><u>England's First Demonologist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209695017-9781632657954-scrying-the-secrets-of-the-future/"><u>Scrying the Secrets of the Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209695013-9781632657879-the-pocket-guide-to-rituals/"><u>The Pocket Guide to Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209695014-9781632658098-wicca-spellcraft-for-men/"><u>Wicca Spellcraft for Men | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2024-12-17T08:05:35.559Z
-updated: 2024-12-22T04:06:45.403Z
+date: 2024-12-25T17:09:19.277Z
+updated: 2024-12-27T18:46:19.383Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,17 +141,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/593511-9781101486474-a-book-of-angels/"><u>A Book of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/591784-9781442998391-eternity-and-me/"><u>Eternity and Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/595924-9781429940658-journey-to-the-light/"><u>Journey to the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/591787-9781458700131-path-of-the-pearl/"><u>Path of the Pearl | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/593473-9781101486337-the-art-of-intuition/"><u>The Art of Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/594280-9781451611625-the-book-of-light/"><u>The Book of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/591955-9781442999336-towards-the-light/"><u>Towards the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/592148-9781442998315-why-am-i-so-tired/"><u>Why Am I So Tired? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209679979-9781782506232-enchantment/"><u>Enchantment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209677278-9781465489432-healing-crystals/"><u>Healing Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209679963-9781642500622-living-the-faery-life/"><u>Living the Faery Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209678098-9780990942443-the-power-to-heal/"><u>The Power to Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209677279-9781465489418-wicca-and-witchcraft/"><u>Wicca and Witchcraft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

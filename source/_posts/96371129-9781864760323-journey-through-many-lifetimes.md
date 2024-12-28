@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2024-12-06T05:10:23.013Z
-updated: 2024-12-06T17:43:03.830Z
+date: 2024-12-26T21:23:11.457Z
+updated: 2024-12-27T23:47:34.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -141,14 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210197891-9781631599750-crystal-grids-handbook/"><u>Crystal Grids Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198002-9781592338009-crystals-for-positive-manifestation/"><u>Crystals for Positive Manifestation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197953-9781782408093-mindfulness-for-students/"><u>Mindfulness for Students | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197978-9781627882972-spellcraft-for-a-magical-year/"><u>Spellcraft for a Magical Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197989-9780760367834-the-zenned-out-guide-to-understanding-auras/"><u>The Zenned Out Guide to Understanding Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844903-9780994565211-7-steps-to-emotional-freedom/"><u>7 Steps to Emotional Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844663-9781782808930-coolected-poems/"><u>COOLECTED POEMS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844909-9781911134145-quareia-the-adept/"><u>Quareia The Adept | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844842-9781945026188-the-gateways/"><u>The Gateways | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

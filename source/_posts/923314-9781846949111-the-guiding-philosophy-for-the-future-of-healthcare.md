@@ -1,7 +1,7 @@
 ---
 title: The Guiding Philosophy for the Future of Healthcare | Free Book
-date: 2024-10-22T01:32:19.135Z
-updated: 2024-10-27T00:45:25.993Z
+date: 2024-12-21T21:00:23.343Z
+updated: 2024-12-27T21:11:43.214Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/998f200a88c041b83880245aeaa363949bfb2b26cd4c07f6d6c9b83ebacabf39.jpg
@@ -143,3 +143,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/998f200a88c041b83880245aeaa3639
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/811271-9781448111824-2012/"><u>2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/815733-9781466805149-haunted-america/"><u>Haunted America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/816789-9781448118205-lillian-toos-little-book-of-abundance/"><u>Lillian Too's Little Book Of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/816790-9781448118212-lillian-toos-little-book-of-feng-shui/"><u>Lillian Too's Little Book Of Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820189-9780813126753-the-mystery-chronicles/"><u>The Mystery Chronicles | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

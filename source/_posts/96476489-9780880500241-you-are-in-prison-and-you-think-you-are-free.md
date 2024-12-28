@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-12-20T22:40:56.598Z
-updated: 2024-12-22T11:17:15.412Z
+date: 2024-12-27T03:12:14.388Z
+updated: 2024-12-28T02:35:12.796Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,15 +170,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2648519-9780752489568-extreme-hauntings/"><u>Extreme Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2648050-9780752493046-haunted-farnham/"><u>Haunted Farnham | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647613-9780750954389-haunted-plymouth/"><u>Haunted Plymouth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647645-9780750956444-haunted-stirling/"><u>Haunted Stirling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647688-9780750959926-paranormal-kent/"><u>Paranormal Kent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2648035-9780752492599-shadows-on-the-sea/"><u>Shadows on the Sea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2085846-9781493015788-haunted-hollywood-2nd-ed/"><u>Haunted Hollywood (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2085847-9781493015801-haunted-philadelphia/"><u>Haunted Philadelphia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2083636-9781614291718-living-mindfully/"><u>Living Mindfully | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2084287-9781433688881-the-battle-plan-for-prayer/"><u>The Battle Plan for Prayer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-12-16T17:43:55.377Z
-updated: 2024-12-22T08:05:04.722Z
+date: 2024-12-26T16:32:33.892Z
+updated: 2024-12-28T01:02:46.389Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,15 +130,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211360118--a-heart-as-wide-as-the-world/"><u>A Heart as Wide as the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359775-9781923238732-nighttime-narratives/"><u>Nighttime Narratives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360115--rest-is-sacred/"><u>Rest Is Sacred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359643-9798869397362-the-green-witchs-guide-to-growing-magic-herbalism-for-kitchen-witches-unlock-the-secrets-of-nature-to-enrich-your-culinary-and-magical-practices/"><u>The Green Witch's Guide to Growing Magic: Herbalism for Kitchen Witches - Unlock the Secrets of Nature to Enrich Your Culinary and Magical Practices | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359638-9798869397874-the-ultimate-guide-to-runes/"><u>The Ultimate Guide to Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359695-9798869396815-whispers-of-the-druids/"><u>Whispers of the Druids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1208898-9780759113138-hidden-circles-in-the-web/"><u>Hidden Circles in the Web | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1208905-9781609253073-psychic-abilities/"><u>Psychic Abilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1212512-9781250020864-return-to-life/"><u>Return to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207471-9781780991887-wild-earth-wild-soul/"><u>Wild Earth, Wild Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

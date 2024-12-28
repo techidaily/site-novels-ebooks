@@ -1,7 +1,7 @@
 ---
 title: Diane Stein's Guide to Goddess Craft | Free Book
-date: 2024-10-26T01:32:17.843Z
-updated: 2024-10-26T16:49:42.725Z
+date: 2024-12-21T21:26:17.286Z
+updated: 2024-12-27T17:30:21.370Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa6f77aac3c485b948516dce1e1063c75085a5d6a19f6cbbfc28b535036b5497.jpg
@@ -161,3 +161,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa6f77aac3c485b948516dce1e1063c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1041055-9781583944646-codex-of-the-soul/"><u>Codex of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1040835-9780307828606-dreamland/"><u>Dreamland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1041973-9781846949074-the-effect/"><u>The Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036967-9781780993041-the-meaning/"><u>The Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1037524-9780786490639-the-thought-reader-craze/"><u>The Thought Reader Craze | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

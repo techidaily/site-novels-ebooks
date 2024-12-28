@@ -1,7 +1,7 @@
 ---
 title: A World of UFOs | Free Book
-date: 2024-10-21T01:10:18.516Z
-updated: 2024-10-27T02:08:46.514Z
+date: 2024-12-20T22:52:26.608Z
+updated: 2024-12-27T16:29:54.854Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/8b6a5ec26ab1856df1c4c703e6e0b1bff23ed916ea93026932ae76147bb546b6.jpg
@@ -166,3 +166,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b6a5ec26ab1856df1c4c703e6e0b1b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125531-9781609254162-ancient-egyptian-divination-and-magic/"><u>Ancient Egyptian Divination and Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125532-9781609257293-angels-demons-gods-of-the-new-millennium/"><u>Angels, Demons & Gods of the New Millennium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125533-9781609254728-apocalypse-of-baruch-and-the-assumption-of-moses/"><u>Apocalypse Of Baruch And The Assumption Of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125534-9781609254704-applied-magic/"><u>Applied Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125535-9781609256609-aquarius-now/"><u>Aquarius Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125544-9781609256890-astral-odyssey/"><u>Astral Odyssey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125537-9781609257071-the-art-and-practice-of-astral-projection/"><u>The Art and Practice of Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125539-9781609250706-the-art-and-practice-of-geomancy/"><u>The Art and Practice of Geomancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125541-9781609257965-the-art-of-living-out-loud/"><u>The Art of Living Out Loud | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

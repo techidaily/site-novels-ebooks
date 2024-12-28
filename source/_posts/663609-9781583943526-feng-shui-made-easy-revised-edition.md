@@ -1,7 +1,7 @@
 ---
 title: Feng Shui Made Easy, Revised Edition | Free Book
-date: 2024-10-21T22:33:18.439Z
-updated: 2024-10-26T18:11:22.276Z
+date: 2024-12-20T21:34:12.941Z
+updated: 2024-12-28T02:00:56.324Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f45c70eec362b6171e4ecd4bd5003992bd972e75706c735512a15fee7fa07ce2.jpg
@@ -261,3 +261,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f45c70eec362b6171e4ecd4bd500399
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96417489-9780486119823-agrippas-occult-philosophy/"><u>Agrippa's Occult Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96417398-9781942094050-i-dont-know-what-to-believe/"><u>I Don't Know What to Believe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96417390-9781937612849-may-i-sit-with-you/"><u>May I Sit with You? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96417767-9780486112398-the-kama-sutra-of-vatsyayana/"><u>The Kama Sutra of Vatsyayana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96417758-9780486113005-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96417877-9780486117126-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key to the Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

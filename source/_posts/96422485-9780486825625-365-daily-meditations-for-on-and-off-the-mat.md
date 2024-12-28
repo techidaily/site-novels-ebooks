@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-12-14T23:48:33.864Z
-updated: 2024-12-21T22:35:14.665Z
+date: 2024-12-23T23:16:53.048Z
+updated: 2024-12-27T21:36:14.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,13 +169,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/538354-9781439187067-como-controlar-el-mundo-desde-tu-sofa/"><u>Como controlar el mundo desde tu sofá | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/538355-9781439146576-looking-beyond/"><u>Looking Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/538425-9781439196083-manifesting-change/"><u>Manifesting Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/538250-9781416583561-the-mindful-child/"><u>The Mindful Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667371-9781547576562-meditacion-atencion-plena-para-que-los-principiantes-aumenten-la-confianza-elimine-la-depresion-de-su-vida/"><u>Meditación: Atención Plena Para Que Los Principiantes Aumenten La Confianza (Elimine La Depresión De Su Vida) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667993-9781645670049-plant-magic-for-the-beginner-witch/"><u>Plant Magic for the Beginner Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667947-9781507211458-the-astrology-dictionary/"><u>The Astrology Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667644-9781632658166-the-benham-book-of-palmistry-revised/"><u>The Benham Book of Palmistry, Revised | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667766-9781493043811-the-big-book-of-illinois-ghost-stories/"><u>The Big Book of Illinois Ghost Stories | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

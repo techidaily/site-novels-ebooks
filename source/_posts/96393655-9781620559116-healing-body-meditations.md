@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2024-12-05T17:10:01.456Z
-updated: 2024-12-06T17:11:34.310Z
+date: 2024-12-26T16:28:29.099Z
+updated: 2024-12-28T03:10:57.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -173,16 +173,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210159509-9781642505672-each-day-a-renewed-beginning/"><u>Each Day a Renewed Beginning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210158379-9781087920610-flouriish-efflorescence-journal/"><u>Flouriish Efflorescence Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210159502-9781642504385-practical-mindfulness/"><u>Practical Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210159508-9781642504507-sacred-codes-in-times-of-crisis/"><u>Sacred Codes in Times of Crisis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210159355-9780744038408-the-birthday-book/"><u>The Birthday Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210158725-9780593296912-this-is-your-mind-on-plants/"><u>This Is Your Mind on Plants | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210158566-9781999425593-un-manuale-di-ce-5/"><u>Un manuale di CE-5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209690884-9780857838261-ancient-wisdom-for-modern-living/"><u>Ancient Wisdom for Modern Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691039-9781250257741-auras/"><u>Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209690814-9781916068971-otherworlds/"><u>Otherworlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691091-9781250246455-reconnecting-to-the-source/"><u>Reconnecting to The Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691054-9781250250704-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691105-9781250230591-the-warrior-heart-practice/"><u>The Warrior Heart Practice | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

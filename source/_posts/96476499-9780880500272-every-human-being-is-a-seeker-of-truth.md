@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2024-12-16T00:01:27.486Z
-updated: 2024-12-22T02:50:25.847Z
+date: 2024-12-21T18:56:01.038Z
+updated: 2024-12-28T01:38:38.584Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,16 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2669978-9781515407324-as-a-man-does/"><u>As a Man Does | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/266709-9780307419958-boundless-energy/"><u>Boundless Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2667973-9781501158698-golden/"><u>Golden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2669773-9781780993355-the-divine-human/"><u>The Divine Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/266711-9780307381606-the-power-of-purpose/"><u>The Power of Purpose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2669774-9781785354458-the-secret-people/"><u>The Secret People | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2668037-9780007388394-understanding-dreams-what-they-are-and-how-to-interpret-them/"><u>Understanding Dreams: What they are and how to interpret them | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518622-9781620558768-developing-supersensible-perception/"><u>Developing Supersensible Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518621-9781620558478-familiars-in-witchcraft/"><u>Familiars in Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518617-9781620558218-jesse-james-and-the-lost-templar-treasure/"><u>Jesse James and the Lost Templar Treasure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518619-9781620558430-slavic-witchcraft/"><u>Slavic Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518624-9781591433378-the-murder-of-moses-2nd-ed/"><u>The Murder of Moses (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518620-9781620558621-the-sacred-herbs-of-samhain/"><u>The Sacred Herbs of Samhain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518625-9781620559031-working-with-chakras-for-belief-change/"><u>Working with Chakras for Belief Change | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

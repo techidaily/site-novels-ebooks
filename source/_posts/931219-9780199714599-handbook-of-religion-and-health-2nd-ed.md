@@ -1,7 +1,7 @@
 ---
 title: Handbook of Religion and Health (2nd ed.) | Free Book
-date: 2024-10-20T21:02:02.318Z
-updated: 2024-10-27T02:40:28.216Z
+date: 2024-12-24T22:18:32.677Z
+updated: 2024-12-28T02:35:40.767Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fc57a954d19b54e7011aa8bd5cacb0702d26be25ed3ebf5d0a0e1d765f2b89a2.jpg
@@ -231,3 +231,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fc57a954d19b54e7011aa8bd5cacb07
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/832526-9780976420026-a-course-in-miracles/"><u>A Course in Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/835318-9781451685169-americas-most-ghostly-places-new-york-state/"><u>America's Most Ghostly Places: New York State | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/835329-9781451685107-dream-interpretation/"><u>Dream Interpretation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/836867-9780857010797-the-five-levels-of-taijiquan/"><u>The Five Levels of Taijiquan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/843565-9781780574387-the-ghost-that-haunted-itself/"><u>The Ghost That Haunted Itself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/845805-9780316224017-the-science-of-avatar/"><u>The Science of Avatar | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

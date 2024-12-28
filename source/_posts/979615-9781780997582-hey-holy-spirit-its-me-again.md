@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2024-12-18T23:25:37.029Z
-updated: 2024-12-22T01:13:07.920Z
+date: 2024-12-21T21:25:57.017Z
+updated: 2024-12-28T00:49:21.749Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,17 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211364447-9798330205684-5-forvandlende-sande-historier-om-besog-i-himlen-helvede-og-det-morke-rige/"><u>5 forvandlende sande historier om besøg i himlen, helvede og det mørke rige | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364446-9798330205745-5ywz5lqo5asp5acc44cb5zyw54ux5zkm6bur5pqx546l5zu955qe55yf5a6e5pwf5lqliowcqoakuatus9kmqjos4rea4uoiniowkqewgguwsjowcsoelsewqjuankoi1oos6hg/"><u>关于天堂、地狱和黑暗王国的真实故事 在濒死体验中游览天堂和地狱后捐赠了 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364318-9781528799560-county-folk-lore-volume-v-examples-of-printed-folk-lore-concerning-lincolnshire/"><u>County Folk-Lore - Volume V - Examples of Printed Folk-Lore Concerning Lincolnshire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364445-9798330204335-mondschein-anfange/"><u>Mondschein-Anfänge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364377-9798869396860-spellbound-mastering-modern-satanism-witchcraft-rituals-explore-the-depths-of-occult-practices-with-this-comprehensive-guide-to-modern-rituals-and-spells-in-sat/"><u>Spellbound: Mastering Modern Satanism & Witchcraft Rituals - Explore the depths of occult practices with this comprehensive guide to modern rituals and spells in Satanism and witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364388-9781763566132-tarot-tells/"><u>Tarot Tells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364322-9781528799683-the-occult-sciences-witchcraft-and-low-magic/"><u>The Occult Sciences - Witchcraft and Low Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364319-9781528799850-witchcraft-and-black-magic/"><u>Witchcraft and Black Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1237937-9780761861089-adjusting-to-lifes-changing-seasons/"><u>Adjusting to Life's Changing Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1224572-9781609259099-embrace-yes/"><u>Embrace Yes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1230262-9781780992808-identity-and-the-quartered-circle/"><u>Identity and the Quartered Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245839-9781476713090-making-marks/"><u>Making Marks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1224575-9781609259273-runecasters-handbook/"><u>Runecaster's Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

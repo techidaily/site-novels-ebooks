@@ -1,7 +1,7 @@
 ---
 title: The Apocalypse of the Mind | Free Book
-date: 2024-10-23T20:49:51.086Z
-updated: 2024-10-27T02:21:04.237Z
+date: 2024-12-24T23:00:33.479Z
+updated: 2024-12-27T23:51:30.743Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9ee7f2325dd14eb031cc52e84efccb2979c9765c54541397fde2735d777d29c.jpg
@@ -135,3 +135,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9ee7f2325dd14eb031cc52e84efccb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317339-9781848504141-everyday-angels/"><u>Everyday Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317360-9781401921002-exploring-the-levels-of-creation/"><u>Exploring the Levels of Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317337-9781848502857-instant-cosmic-ordering/"><u>Instant Cosmic Ordering | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317366-9789384544430-miracles-with-eft/"><u>Miracles with EFT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317350-9781848505629-the-contagious-power-of-thinking/"><u>The Contagious Power of Thinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317369-9781401920999-the-intuitive-spark/"><u>The Intuitive Spark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317330-9781848504004-thetahealing/"><u>ThetaHealing | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

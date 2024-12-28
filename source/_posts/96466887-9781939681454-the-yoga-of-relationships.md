@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-12-21T10:53:38.322Z
-updated: 2024-12-22T00:49:00.731Z
+date: 2024-12-25T16:32:46.506Z
+updated: 2024-12-27T23:43:05.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,15 +162,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/406684-9780307482785-childrens-past-lives/"><u>Children's Past Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/407134-9780307559517-sacred-woman/"><u>Sacred Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/407269-9780307553478-the-celtic-way-of-prayer/"><u>The Celtic Way of Prayer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/402458-9780307484703-the-fatima-secret/"><u>The Fatima Secret | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/407149-9780307559555-the-secret-language-of-signs/"><u>The Secret Language of Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/402547-9780307492272-ufo-briefing-document/"><u>UFO Briefing Document | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209625059-9781250236623-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209622550-9781473374270-clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616476-9781616498047-find-your-light/"><u>Find Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209625071-9781250319319-infinite-potential/"><u>Infinite Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209617649-9781439666302-michigans-haunted-lighthouses/"><u>Michigan's Haunted Lighthouses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209625028-9781510746770-mindfulness-for-surviving-lifes-challenges/"><u>Mindfulness for Surviving Life's Challenges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209622957-9780762495726-revolutionary-witchcraft/"><u>Revolutionary Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209625088-9781250200464-the-power-of-heart/"><u>The Power of Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616522-9781507211069-your-goddess-year/"><u>Your Goddess Year | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

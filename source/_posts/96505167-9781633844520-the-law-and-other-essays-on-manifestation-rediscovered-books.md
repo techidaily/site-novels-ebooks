@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-12-15T18:59:59.561Z
-updated: 2024-12-22T05:17:09.187Z
+date: 2024-12-27T00:53:10.170Z
+updated: 2024-12-27T18:42:34.359Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,14 +148,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211432845-9780988115750-30-things/"><u>30 Things | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211432544-9783964460813-a-minha-vida-que-eu-mesmo-escolhi/"><u>A minha vida que eu mesmo escolhi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211432612-9798330323722-los-reckenstein/"><u>Los Reckenstein | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433098-9788197384509-the-complete-book-of-ayurvedic-home-remedies/"><u>The Complete Book Of Ayurvedic Home Remedies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433289-9781466828032-the-haunting-of-twenty-first-century-america/"><u>The Haunting of Twenty-First-Century America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583180-9781462016730-a-real-life-christian-spiritual-journey/"><u>A Real-Life Christian Spiritual Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583970-9781449714352-compass-points-for-daily-living/"><u>Compass Points for Daily Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584007-9781462047666-dolphinity/"><u>Dolphinity: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583565-9781452532486-free-to-fly/"><u>Free to Fly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583538-9781452540184-luminous-mountain/"><u>Luminous Mountain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583079-9781452533087-miracles-of-the-soul/"><u>Miracles of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583978-9781462029372-so-what-do-you-think/"><u>So What Do You Think? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583900-9781491780893-tarot/"><u>Tarot | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

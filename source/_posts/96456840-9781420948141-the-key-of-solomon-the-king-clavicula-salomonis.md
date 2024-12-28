@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2024-12-18T23:10:54.579Z
-updated: 2024-12-22T02:41:55.374Z
+date: 2024-12-24T23:17:32.429Z
+updated: 2024-12-27T18:00:45.725Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,18 +145,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/316791-9780974274904-5-gifts-for-an-abundant-life/"><u>5 Gifts for an Abundant Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/315110-9781881165200-angels-among-us/"><u>Angels Among Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/315660-9781416571513-ghost-hunting/"><u>Ghost Hunting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/313023-9781416571612-secrets-of-the-monarch/"><u>Secrets of the Monarch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/315664-9781416571483-soul-to-soul/"><u>Soul to Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/313025-9781416554400-the-5-rules-of-thought/"><u>The 5 Rules of Thought | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/313032-9781416571629-the-new-science-of-getting-rich/"><u>The New Science of Getting Rich | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/317457-9781101212004-the-two-marys/"><u>The Two Marys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/317380-9781416575610-the-way-of-the-fertile-soul/"><u>The Way of the Fertile Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209552794-9781786782571-21-rituals-to-ignite-your-intuition/"><u>21 Rituals to Ignite Your Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556320-9780525504696-i-know-what-i-saw/"><u>I Know What I Saw | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209556702-9781250307514-the-path-made-clear/"><u>The Path Made Clear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209552797-9781786782632-the-ultimate-colin-wilson/"><u>The Ultimate Colin Wilson | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

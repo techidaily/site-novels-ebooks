@@ -1,7 +1,7 @@
 ---
 title: An Overview of the Edgar Cayce Material | Free Book
-date: 2024-12-01T18:30:09.989Z
-updated: 2024-12-06T22:45:40.635Z
+date: 2024-12-22T22:50:50.775Z
+updated: 2024-12-28T01:18:42.974Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa86584d7ab55c0c2edc64b865697096a39f.jpg
@@ -139,13 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210192630-9781614484165-a-history-of-horses-told-by-horses/"><u>A History of Horses Told by Horses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192627-9781614482932-imperfect-forgiveness/"><u>Imperfect Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192553-9781642795080-living-your-magic/"><u>Living Your Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210192621-9781614483328-the-lightworkers-healing-method/"><u>The Lightworkers Healing Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826513-9780008366421-aquarius-2021-your-personal-horoscope/"><u>Aquarius 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826516-9780008366353-cancer-2021-your-personal-horoscope/"><u>Cancer 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826514-9780008366414-capricorn-2021-your-personal-horoscope/"><u>Capricorn 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826511-9780008366346-gemini-2021-your-personal-horoscope/"><u>Gemini 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826510-9780008366384-libra-2021-your-personal-horoscope/"><u>Libra 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826517-9780008366438-pisces-2021-your-personal-horoscope/"><u>Pisces 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826515-9780008366407-sagittarius-2021-your-personal-horoscope/"><u>Sagittarius 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826512-9780008366391-scorpio-2021-your-personal-horoscope/"><u>Scorpio 2021: Your Personal Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

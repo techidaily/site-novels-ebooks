@@ -1,7 +1,7 @@
 ---
 title: Manifesto for the Noosphere | Free Book
-date: 2024-10-22T19:07:37.716Z
-updated: 2024-10-27T00:29:26.513Z
+date: 2024-12-24T00:41:04.228Z
+updated: 2024-12-27T17:24:17.522Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e9124422ca4c0109943418e8eda9630a4deb30c6bc2a62fe22db657fba2147e0.jpg
@@ -257,3 +257,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e9124422ca4c0109943418e8eda9630
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96375390-9780989845861-9eyes-9deceiving-faces-9mecca-chicago/"><u>9Eyes 9Deceiving Faces: 9Mecca Chicago | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96375389-9780996308878-9ruby-prince-of-abyssinia/"><u>9Ruby Prince Of Abyssinia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96377456-9781578605002-beyond-delicious-the-ghost-whisperers-cookbook/"><u>Beyond Delicious: The Ghost Whisperer's Cookbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96377493-9781578603718-ghosthunting-virginia/"><u>Ghosthunting Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96376882-9781772360219-if-your-business-could-speak-to-you-what-would-it-say/"><u>If Your Business Could Speak to You, What Would It Say? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96371129-9781864760323-journey-through-many-lifetimes/"><u>Journey Through Many Lifetimes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96375386-9780996308861-nine-deceiving-faces-9mecca-chicago/"><u>Nine Deceiving Faces: 9Mecca Chicago | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96373858-9781627200844-taking-a-detour/"><u>Taking a Detour | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

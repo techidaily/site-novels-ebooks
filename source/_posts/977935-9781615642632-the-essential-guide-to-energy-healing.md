@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-12-19T02:26:34.680Z
-updated: 2024-12-22T03:48:39.702Z
+date: 2024-12-24T03:04:01.233Z
+updated: 2024-12-28T00:02:57.538Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,13 +187,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211364298-9781528799638-astrology-made-easy/"><u>Astrology Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364304-9781528799669-english-witchcraft-from-the-beginning-to-the-present-day-fantasy-and-horror-classics/"><u>English Witchcraft - From the Beginning to the Present Day (Fantasy and Horror Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364303-9781528799812-occultism-two-essays-from-the-hibbert-journal/"><u>Occultism - Two Essays from the Hibbert Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364296-9781528799676-the-psychological-meaning-of-the-single-characteristics-in-handwriting-a-historical-article-on-the-analysis-and-interpretation-of-handwriting/"><u>The Psychological Meaning of the Single Characteristics in Handwriting - A Historical Article on the Analysis and Interpretation of Handwriting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221614-9781780997155-awaken-your-inner-faerie-in-30-days/"><u>Awaken Your Inner Faerie In 30 Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221615-9781780998916-beyond-god/"><u>Beyond God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221618-9781780996486-dear-poppyseed/"><u>Dear Poppyseed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221620-9781780997933-divine-guidance/"><u>Divine Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221621-9781780995397-drinking-the-four-winds/"><u>Drinking the Four Winds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220547-9781776526796-occultism-and-common-sense/"><u>Occultism and Common-Sense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220041-9780892545605-the-book-of-lilith/"><u>The Book of Lilith | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

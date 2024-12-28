@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Sacred Stones | Free Book
-date: 2024-12-02T19:43:12.299Z
-updated: 2024-12-06T19:39:57.703Z
+date: 2024-12-21T22:19:57.923Z
+updated: 2024-12-28T01:36:38.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c2342d3f9628aa1746820b2356f8531168276.jpg
@@ -138,15 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c234
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210193432-9781609252496-coincidence-or-destiny/"><u>Coincidence or Destiny? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193437-9781609250287-life-is-sweet/"><u>Life Is Sweet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193424-9781642501278-living-a-loved-life/"><u>Living a Loved Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193445-9781633536531-prayers-for-hard-times/"><u>Prayers for Hard Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193372-9781642502626-start-here-start-now-start-anywhere/"><u>Start Here, Start Now . . . Start Anywhere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193429-9781609252229-the-community-of-kindness/"><u>The Community of Kindness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209839283-9780992569747-energy-unlimited/"><u>Energy Unlimited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209839253-9786163619730-entheosonic-whistling-vessels/"><u>Entheosonic Whistling Vessels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209839251-9780990585039-god-men-con-men/"><u>GOD MEN CON MEN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838878-9780992548612-horses-heartache-healing/"><u>Horses, Heartache & Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209839282-9780992569730-household-remedies/"><u>Household Remedies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209839238-9780692322949-maximizing-your-enneagram-type-a-workbook/"><u>MAXIMIZING YOUR ENNEAGRAM TYPE A WORKBOOK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838891-9780986213205-miracles-extraordinary-blessings/"><u>Miracles & Extraordinary Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209839145-9781935214359-the-empowered-empath/"><u>The Empowered Empath | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

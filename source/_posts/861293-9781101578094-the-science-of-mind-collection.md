@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind Collection | Free Book
-date: 2024-10-23T02:01:33.729Z
-updated: 2024-10-26T20:44:53.395Z
+date: 2024-12-26T19:28:01.638Z
+updated: 2024-12-28T00:35:35.734Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62568e1a80c993915a80b26a36b1306913e6e34ff3b116ac40346a0a91d6de12.jpg
@@ -224,3 +224,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62568e1a80c993915a80b26a36b1306
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95705538-9781786781024-enlightenment-is-your-nature/"><u>Enlightenment Is Your Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95705550-9781786781093-sensation/"><u>Sensation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95705546-9781786781000-the-transformative-power-of-near-death-experiences/"><u>The Transformative Power of Near-Death Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703805-9781608684618-words-at-the-threshold/"><u>Words at the Threshold | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

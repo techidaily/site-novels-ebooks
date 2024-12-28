@@ -1,7 +1,7 @@
 ---
 title: Spiritual Care at the End of Life | Free Book
-date: 2024-10-21T02:32:23.784Z
-updated: 2024-10-26T18:28:48.606Z
+date: 2024-12-27T00:25:52.427Z
+updated: 2024-12-27T21:48:43.215Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1207d6a4fc6463a57bac526199724f9246e53e9b9576542e234b2ad76f7961ad.jpg
@@ -187,3 +187,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1207d6a4fc6463a57bac526199724f9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782573-9781620550885-stalking-the-wild-pendulum/"><u>Stalking the Wild Pendulum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782576-9781594778629-the-diloggun/"><u>The Diloggún | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782577-9781620554937-the-divining-heart/"><u>The Divining Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782571-9781620554708-the-divining-mind/"><u>The Divining Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782574-9781620553480-the-dna-field-and-the-law-of-resonance/"><u>The DNA Field and the Law of Resonance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782575-9781594776762-the-dreamers-book-of-the-dead/"><u>The Dreamer's Book of the Dead | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

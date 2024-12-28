@@ -1,7 +1,7 @@
 ---
 title: Exploring the Edge Realms of Consciousness | Free Book
-date: 2024-10-26T05:34:49.874Z
-updated: 2024-10-26T21:34:07.829Z
+date: 2024-12-22T20:55:52.380Z
+updated: 2024-12-27T22:38:03.182Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b80accf7e4bf7bf1002f8ae06ebcb57f18963bd60318289764031785d2b528c.jpg
@@ -196,3 +196,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b80accf7e4bf7bf1002f8ae06ebcb5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782056-9781620553305-chinas-cosmological-prehistory/"><u>China's Cosmological Prehistory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782057-9781620553602-restoring-the-soul-of-the-world/"><u>Restoring the Soul of the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782063-9781620555965-sheela-na-gig/"><u>Sheela na gig | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782061-9781620552759-the-sufi-path-of-annihilation/"><u>The Sufi Path of Annihilation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

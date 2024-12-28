@@ -1,7 +1,7 @@
 ---
 title: Journey to the Dark Goddess | Free Book
-date: 2024-10-25T03:37:45.470Z
-updated: 2024-10-26T18:55:04.588Z
+date: 2024-12-20T18:21:24.458Z
+updated: 2024-12-28T02:50:06.750Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6701ed71fa9cbc1b1490fcb650ca1a43e3d231cbf2097f7f4f75d3461ff96365.jpg
@@ -143,3 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6701ed71fa9cbc1b1490fcb650ca1a4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/867374-9781451681918-as-we-think-so-we-are/"><u>As We Think, So We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/863351-9780807010433-dreaming-the-dark/"><u>Dreaming the Dark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/865011--psychic-kids/"><u>Psychic Kids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/866223-9780814794708-transcendent-in-america/"><u>Transcendent in America | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

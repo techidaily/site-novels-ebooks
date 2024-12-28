@@ -1,7 +1,7 @@
 ---
 title: Hold Fast the Mountain Pass | Free Book
-date: 2024-10-23T18:43:23.704Z
-updated: 2024-10-27T01:26:44.500Z
+date: 2024-12-24T21:38:22.343Z
+updated: 2024-12-28T00:46:27.602Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ad238e46ce350ba9e2add321f16815d958748aa38b989fe14e4a8d69b4884cd.jpg
@@ -162,3 +162,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ad238e46ce350ba9e2add321f16815
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96370916-9780876046463-dreams-visions/"><u>Dreams & Visions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370921-9780876047507-earth-changes/"><u>Earth Changes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370922-9780876047088-energy-medicine/"><u>Energy Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370910-9780876046296-from-karma-to-grace/"><u>From Karma to Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370911-9780876046814-make-up-your-mind-to-be-happy/"><u>Make Up Your Mind to Be Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370919-9780876046319-meditation-prayer-affirmation/"><u>Meditation, Prayer & Affirmation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370918-9780876046791-planetary-influences-sojourns/"><u>Planetary Influences & Sojourns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370920-9780876046777-we-live-forever/"><u>We Live Forever | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Man Who Loved Seagulls | Free Book
-date: 2024-10-26T04:08:44.962Z
-updated: 2024-10-26T22:17:43.896Z
+date: 2024-12-25T20:41:22.353Z
+updated: 2024-12-27T17:42:20.634Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aef8e4658637987f3943e69436fd8feffb33d2ad238817f5925508023cb7db0c.jpg
@@ -181,3 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aef8e4658637987f3943e69436fd8fe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125889-9781609252748-math-for-mystics/"><u>Math for Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125884-9781609257880-the-magus/"><u>The Magus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125887-9781609250379-the-manifestation-wheel/"><u>The Manifestation Wheel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125892-9781609257255-the-mayan-ouroboros/"><u>The Mayan Ouroboros | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

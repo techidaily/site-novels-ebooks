@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-12-19T00:09:30.439Z
-updated: 2024-12-21T22:48:00.497Z
+date: 2024-12-26T01:06:58.505Z
+updated: 2024-12-27T18:59:06.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,16 +183,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2528003-9780811745727-haunted-indiana/"><u>Haunted Indiana | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527971-9780811740692-haunted-maryland/"><u>Haunted Maryland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527972-9780811740746-haunted-north-carolina/"><u>Haunted North Carolina | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527933-9780811752978-haunted-western-pennsylvania/"><u>Haunted Western Pennsylvania | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527934-9780811753074-monsters-of-new-york/"><u>Monsters of New York | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527980-9781493043897-the-big-book-of-maryland-ghost-stories/"><u>The Big Book of Maryland Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527931-9781493043910-the-big-book-of-ohio-ghost-stories/"><u>The Big Book of Ohio Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1685627-9781609259433-a-spirit-walkers-guide-to-shamanic-tools/"><u>A Spirit Walker's Guide to Shamanic Tools | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684767-9781780288413-chakra-wisdom-oracle-toolkit/"><u>Chakra Wisdom Oracle Toolkit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684765-9781780287836-earth-blessings/"><u>Earth Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691130-9781459729957-haunted-incredible-true-stories-of-ghostly-encounters-2-book-bundle/"><u>Haunted — Incredible True Stories of Ghostly Encounters 2-Book Bundle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684757-9781583948385-healing-magic-10th-anniversary-edition/"><u>Healing Magic, 10th Anniversary Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1687915-9781583947920-the-ayahuasca-test-pilots-handbook/"><u>The Ayahuasca Test Pilots Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684766-9781780287843-the-dawn-of-genius/"><u>The Dawn of Genius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1688976-9781317787136-the-psychospiritual-clinicians-handbook/"><u>The Psychospiritual Clinician's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1689042-9781317760580-the-therapists-notebook-for-integrating-spirituality-in-counseling-ii/"><u>The Therapist's Notebook for Integrating Spirituality in Counseling II | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2024-12-01T21:29:06.304Z
-updated: 2024-12-06T21:41:08.627Z
+date: 2024-12-22T16:03:45.596Z
+updated: 2024-12-28T02:47:15.696Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,13 +184,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210164012-9781645848943-it-is-time/"><u>It Is Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210163979-9781647017002-medium-brave/"><u>Medium Brave | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210164425-9781634177542-the-story-of-us/"><u>The Story of Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210164021-9781646286690-words-thoughts-imaginations-and-inspirational-reading/"><u>Words, Thoughts, Imaginations, and Inspirational Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209715904-9781632658067-a-witchs-beverages-and-brews/"><u>A Witch's Beverages and Brews | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209704925-9781632658203-kitchen-witchs-guide-to-divination/"><u>Kitchen Witch's Guide to Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209715906-9781601635853-numerology-the-complete-guide/"><u>Numerology: The Complete Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209704100-9780486840871-the-tarot-of-the-bohemians/"><u>The Tarot of the Bohemians | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

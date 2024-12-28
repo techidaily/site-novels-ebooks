@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Teacher's Handbook | Free Book
-date: 2024-10-25T17:41:15.628Z
-updated: 2024-10-27T02:00:31.208Z
+date: 2024-12-21T21:44:05.135Z
+updated: 2024-12-27T22:00:27.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df488781d75b42b7dbdb56450df0dc6be8abaafda94238da302a50acedb04f05.jpg
@@ -136,3 +136,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df488781d75b42b7dbdb56450df0dc6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/906781-9781476700410-a-message-of-hope-from-the-angels/"><u>A Message of Hope from the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/912255-9781846949289-being-mystic/"><u>Being Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/912268-9781846947490-how-to-live-in-the-here-and-now/"><u>How To Live In The Here And Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/919421-9780307817228-out-of-the-garden/"><u>Out of the Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/918912--postcards-from-the-other-side/"><u>Postcards from the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/912264-9781780990606-savage-breast/"><u>Savage Breast | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/914657-9781101603741-the-dead-roam-the-earth/"><u>The Dead Roam the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/906580-9781743347836-the-one/"><u>The One | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

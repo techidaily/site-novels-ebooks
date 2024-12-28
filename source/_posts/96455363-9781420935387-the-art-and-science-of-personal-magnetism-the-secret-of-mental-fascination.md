@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2024-12-20T20:30:10.769Z
-updated: 2024-12-21T17:34:13.925Z
+date: 2024-12-26T00:39:35.034Z
+updated: 2024-12-27T17:26:11.936Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,14 +160,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/275314--bad-hair-days-rainy-days-and-mondays/"><u>Bad Hair Days, Rainy Days and Mondays | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/275418-9781101211045-insight/"><u>Insight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/280255-9781416545354-sunshines/"><u>SunShines | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/279909-9780759521797-the-fortune-telling-book/"><u>The Fortune-Telling Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/283133-9781416548263-the-intention-experiment/"><u>The Intention Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541307-9780008319427-aquarius-2020-your-personal-horoscope/"><u>Aquarius 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541308-9780008319410-capricorn-2020-your-personal-horoscope/"><u>Capricorn 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541847-9781401944681-chris-p-bacon/"><u>Chris P. Bacon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209542449-9781783253241-intention/"><u>Intention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541306-9780008319366-leo-2020-your-personal-horoscope/"><u>Leo 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541309-9780008319380-libra-2020-your-personal-horoscope/"><u>Libra 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541310-9780008319434-pisces-2020-your-personal-horoscope/"><u>Pisces 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541305-9780008319373-virgo-2020-your-personal-horoscope/"><u>Virgo 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541304-9780008319304-your-personal-horoscope-2020/"><u>Your Personal Horoscope 2020 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

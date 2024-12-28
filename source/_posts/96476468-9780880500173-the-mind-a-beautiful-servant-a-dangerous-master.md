@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2024-12-14T23:43:50.779Z
-updated: 2024-12-21T18:57:31.546Z
+date: 2024-12-20T16:15:41.204Z
+updated: 2024-12-28T00:54:17.835Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,18 +167,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/261484-9781101215395-blessings-from-the-other-side/"><u>Blessings From the Other Side | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2615720-9780752472027-brigid/"><u>Brigid | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2616218-9780752481814-haunted-carlisle/"><u>Haunted Carlisle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2616214-9780752481715-haunted-chatham/"><u>Haunted Chatham | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2616216-9780752481753-haunted-hull/"><u>Haunted Hull | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2616215-9780752481739-haunted-wigan/"><u>Haunted Wigan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2613504-9781442676275-into-the-daylight/"><u>Into the Daylight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2612860-9781612833620-tarot-mysteries/"><u>Tarot Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2612260-9781623171131-the-genius-of-being/"><u>The Genius of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985908-9781780282244-the-deeper-secret/"><u>The Deeper Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1981015-9781609259877-the-evidence-for-phantom-hitch-hikers/"><u>The Evidence for Phantom Hitch-Hikers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985905-9781780282121-the-secret-american-dream/"><u>the Secret American Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985245-9781476788050-the-soul-searchers-handbook/"><u>The Soul Searcher's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1981013-9781609259853-the-travelers-guide-to-the-astral-plane/"><u>The Traveler's Guide to the Astral Plane | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

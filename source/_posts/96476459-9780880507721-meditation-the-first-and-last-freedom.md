@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2024-12-20T18:37:21.697Z
-updated: 2024-12-21T17:44:13.006Z
+date: 2024-12-21T21:23:17.637Z
+updated: 2024-12-27T19:59:58.426Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,16 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/260638-9781101218945-phenomenon/"><u>Phenomenon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260660-9781101210321-prophecy/"><u>Prophecy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2608950-9780553419627-surviving-death/"><u>Surviving Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260769-9781101209738-sylvia-brownes-book-of-dreams/"><u>Sylvia Browne's Book of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260773-9781101217313-taming-the-tiger-within/"><u>Taming the Tiger Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260865-9781101210550-the-new-american-dream-dictionary/"><u>The New American Dream Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260889-9781101204238-the-science-of-vampires/"><u>The Science of Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1938658-9780835630535-a-new-science-of-the-paranormal/"><u>A New Science of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1931505-9781476621333-a-world-in-a-grain-of-sand/"><u>A World in a Grain of Sand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/195589-9781596255487-an-enquiry-concerning-human-understanding/"><u>An Enquiry Concerning Human Understanding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/194600--antique-affair/"><u>Antique Affair | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/193231-9780767911528-breaking-open-the-head/"><u>Breaking Open the Head | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/195591-9781596258532-dialogues-concerning-natural-religion/"><u>Dialogues Concerning Natural Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1938655-9780835631389-man-visible-and-invisible-2nd-ed/"><u>Man, Visible and Invisible (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1956479-9780812998399-the-light-between-us/"><u>The Light Between Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1938592-9780835630405-the-reality-of-esp/"><u>The Reality of ESP | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

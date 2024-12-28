@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-20T05:05:41.624Z
-updated: 2024-12-22T09:47:06.272Z
+date: 2024-12-26T18:10:33.276Z
+updated: 2024-12-27T18:34:38.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,17 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/284755-9789240680074-atlas-child-and-adolescent-mental-health-resources/"><u>Atlas - child and adolescent mental health resources | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284746-9789240680180-chemistry-and-specifications-of-pesticides/"><u>Chemistry and Specifications of Pesticides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284634-9789240680630-health-implications-of-acrylamide-in-food/"><u>Health Implications of Acrylamide in Food | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284658-9789240680678-helminth-control-in-school-age-children/"><u>Helminth Control in School-Age Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284631-9789240680791-international-travel-and-health-2005/"><u>International travel and health 2005 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284618-9789240681033-national-cancer-control-programmes-2nd-ed/"><u>National Cancer Control Programmes (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284752-9789240681255-research-on-reproductive-health-at-who/"><u>Research on reproductive health at WHO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284783-9789240681248-research-on-reproductive-health-at-who/"><u>Research on reproductive Health at WHO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209544166-9781547534784-6bue6yer44gu6auy6b2i6icf44gu5liw55wmicjnnphmg7pjga7oq5boqzxjgagpioobqatqeobhoobpuobhoocimwkobqixiuobiobquaikomvtw/"><u>黄金の高齢者の世界 (瞑想の論評と) に歩いている間に豊かな成長 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209543758-9781449701055-a-living-epistle/"><u>A Living Epistle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209542642-9781881217282-ambassadors-between-worlds-intergalactic-gateway-to-a-new-earth/"><u>Ambassadors Between Worlds, Intergalactic Gateway to a New Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209544370-9781547551835-conversazioni-con-il-padre/"><u>Conversazioni con il Padre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209543969-9781547552269-megan-und-die-verlorene-katze/"><u>Megan und die verlorene Katze | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209543940-9781547551644-revelacion-a-baron-a-deschauer/"><u>Revelación a Baron A. Deschauer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209544140-9781547555154-revelacoes-a-baron-a-deschauer/"><u>Revelações a Baron A. Deschauer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

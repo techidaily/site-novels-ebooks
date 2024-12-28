@@ -1,7 +1,7 @@
 ---
 title: Meditations and Inspirations | Free Book
-date: 2024-10-24T01:53:36.942Z
-updated: 2024-10-26T17:13:04.407Z
+date: 2024-12-23T17:24:51.488Z
+updated: 2024-12-27T21:19:20.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34fa3768388d21bd5ad00498c933e8ee2a04adb0f22021be9cdf74bd8429549c.jpg
@@ -140,3 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34fa3768388d21bd5ad00498c933e8e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/620470-9780307780928-a-better-way-to-live/"><u>A Better Way to Live | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620384-9780307783639-essential-reiki/"><u>Essential Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/623597-9780307784759-greatest-mystery-in-the-world/"><u>Greatest Mystery in the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/624346-9780895564849-life-in-the-labyrinth-2nd-ed/"><u>Life in the Labyrinth (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/623749-9781451613001-natural-abundance/"><u>Natural Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620563-9780307779441-the-complete-guide-to-the-tarot/"><u>The Complete Guide to the Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

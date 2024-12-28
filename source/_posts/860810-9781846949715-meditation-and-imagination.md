@@ -1,7 +1,7 @@
 ---
 title: Meditation and Imagination | Free Book
-date: 2024-10-22T21:54:16.040Z
-updated: 2024-10-26T19:25:28.120Z
+date: 2024-12-23T01:52:22.912Z
+updated: 2024-12-27T16:41:59.291Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f61d5f65ea8324610c275f35af3b5703b2df248fa6c702246f05a213bfaf3bd1.jpg
@@ -140,3 +140,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f61d5f65ea8324610c275f35af3b570
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95689790-9781440536472-love-astrology-capricorn/"><u>Love Astrology: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689795-9781440536410-love-astrology-libra/"><u>Love Astrology: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689791-9781440536458-love-astrology-sagittarius/"><u>Love Astrology: Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689793-9781440536434-love-astrology-scorpio/"><u>Love Astrology: Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689796-9781440536397-love-astrology-virgo/"><u>Love Astrology: Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95692545-9781409167440-mindful-parenting/"><u>Mindful Parenting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95692901-9781780996288-pagan-portals-by-wolfsbane-mandrake-root/"><u>Pagan Portals - By Wolfsbane & Mandrake Root | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95692417-9781101993446-the-cosmic-power-within-you/"><u>The Cosmic Power Within You | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

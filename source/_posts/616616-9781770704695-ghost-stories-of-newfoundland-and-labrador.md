@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories of Newfoundland and Labrador | Free Book
-date: 2024-10-19T23:59:47.860Z
-updated: 2024-10-26T17:37:09.793Z
+date: 2024-12-21T16:50:28.015Z
+updated: 2024-12-28T02:15:19.025Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f93ac92a87b70f200ba90f54c964430d43339cdee8b11384a7c817f66e67f79.jpg
@@ -177,3 +177,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f93ac92a87b70f200ba90f54c96443
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125895-9781609253905-meditation-and-kabbalah/"><u>Meditation and Kabbalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125896-9781609254865-meditation-and-the-bible/"><u>Meditation and the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125900-9781609250195-meta-magick-the-book-of-atem/"><u>Meta-Magick: The Book of ATEM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125904-9781609254674-modern-shamanic-living/"><u>Modern Shamanic Living | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

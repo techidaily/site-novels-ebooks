@@ -1,7 +1,7 @@
 ---
 title: Traditional Witchcraft for the Woods and Forests | Free Book
-date: 2024-10-22T19:37:14.937Z
-updated: 2024-10-26T16:57:54.189Z
+date: 2024-12-22T19:36:37.956Z
+updated: 2024-12-27T18:49:39.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44df70fba3abd2c826e218e7469e2bef07ef54a743fc2349b4598d07a63c5b06.jpg
@@ -135,3 +135,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44df70fba3abd2c826e218e7469e2be
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95773196-9781317364948-a-guide-to-the-world-of-dreams/"><u>A Guide to the World of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769830-9780316561747-how-to-meditate/"><u>How to Meditate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769777-9781741762822-tarot-revealed/"><u>Tarot Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95771981-9781515414940-the-writings-of-ralph-waldo-trine/"><u>The Writings of Ralph Waldo Trine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95771982-9781515414933-the-writings-of-thomas-troward-vol-i/"><u>The Writings of Thomas Troward, Vol I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95771984-9781515414926-the-writings-of-william-walker-atkinson/"><u>The Writings of William Walker Atkinson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95770139-9781579830373-your-evolving-soul/"><u>Your Evolving Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Milton Black's 2012 Horoscopes | Free Book
-date: 2024-10-21T03:56:48.792Z
-updated: 2024-10-27T04:50:51.722Z
+date: 2024-12-20T21:00:20.552Z
+updated: 2024-12-27T21:08:27.973Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2fdc2a2d2cc0f217590db06d6b5cb55c0b943e47471c23a71413c542d494e0c2.jpg
@@ -140,3 +140,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2fdc2a2d2cc0f217590db06d6b5cb55
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782906-9781594777752-hildegard-von-bingens-physica/"><u>Hildegard von Bingen's Physica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782905-9781594777844-himalayan-salt-crystal-lamps/"><u>Himalayan Salt Crystal Lamps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782878-9781594776526-qigong-teachings-of-a-taoist-immortal/"><u>Qigong Teachings of a Taoist Immortal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782867-9781594777820-reiki-energy-medicine/"><u>Reiki Energy Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782910-9781620551301-the-healing-power-of-the-mind/"><u>The Healing Power of the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782851-9781620554180-the-spiritual-mysteries-of-blood/"><u>The Spiritual Mysteries of Blood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782884-9781594775253-the-warrior-as-healer/"><u>The Warrior As Healer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

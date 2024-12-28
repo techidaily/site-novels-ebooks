@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2024-12-05T22:27:58.834Z
-updated: 2024-12-06T22:53:07.662Z
+date: 2024-12-23T00:31:06.141Z
+updated: 2024-12-27T16:26:25.083Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -212,15 +212,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210167612-9781643506692-dreams-and-symbols/"><u>Dreams and Symbols | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210167476-9781645847564-dwelling-in-possibility/"><u>Dwelling in Possibility | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210167538-9781684561308-in-the-midst-of-my-trials/"><u>In the Midst of My Trials | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210168351-9781735943114-now-what-a-quick-guide-to-help-you-rise-when-life-knocks-you-down/"><u>Now What? A quick guide to help you rise when life knocks you down | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210167653-9781684096244-on-the-other-hand/"><u>On the Other Hand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210167682-9781684097401-telling-it/"><u>Telling It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209728898-9780806536422-goth-magick-an-enchanted-grimoire/"><u>Goth Magick: An Enchanted Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209727868-9780806539591-the-wicca-book-of-days/"><u>The Wicca Book of Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209727459-9780806539584-wicca-a-to-z/"><u>Wicca A to Z | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209729450-9780806538655-wicca-for-life/"><u>Wicca for Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

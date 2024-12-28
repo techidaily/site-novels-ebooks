@@ -1,7 +1,7 @@
 ---
 title: The Key of Solomon the King | Free Book
-date: 2024-12-15T17:58:38.118Z
-updated: 2024-12-21T18:57:27.731Z
+date: 2024-12-22T20:03:25.428Z
+updated: 2024-12-27T23:18:10.038Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f40ed1c44b2f30a63607a3bc1a044f438d.jpg
@@ -163,17 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/466110-9780307575500-discovering-the-bodys-wisdom/"><u>Discovering the Body's Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466033-9780307574589-emmanuels-book-ii/"><u>Emmanuel's Book II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466034-9780307574596-emmanuels-book-iii/"><u>Emmanuel's Book III | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466265-9781101165782-just-one-more-question/"><u>Just One More Question | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463706-9781580911986-the-eleven-eternal-principles/"><u>The Eleven Eternal Principles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463528-9781101157183-the-emerald-tablet/"><u>The Emerald Tablet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466070-9780307574886-the-minds-sky/"><u>The Mind's Sky | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/463719-9780307716859-ufos/"><u>UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650576-9780757319051-becoming-a-sage/"><u>Becoming a Sage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650601-9780757318856-connecting-with-coincidence/"><u>Connecting with Coincidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649455-9781982132972-living-full-circle/"><u>Living Full Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649841-9780757391873-the-medium-next-door/"><u>The Medium Next Door | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209650525-9780757397448-the-secrets-and-mysteries-of-hawaii/"><u>The Secrets and Mysteries of Hawaii | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649440-9781620559840-the-wonder-of-unicorns-2nd-ed/"><u>The Wonder of Unicorns (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649797-9780757319525-what-will-they-say-about-you-when-youre-gone/"><u>What Will They Say About You When You're Gone? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

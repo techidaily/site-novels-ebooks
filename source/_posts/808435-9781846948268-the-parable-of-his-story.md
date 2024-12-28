@@ -1,7 +1,7 @@
 ---
 title: The Parable of His-Story | Free Book
-date: 2024-10-21T01:37:42.024Z
-updated: 2024-10-26T19:25:50.848Z
+date: 2024-12-20T18:07:29.592Z
+updated: 2024-12-27T17:00:44.039Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/186861b7ed3cca69711556e179f32cb9fd5f9ea152fd9e5e8c235328e0b9bcee.jpg
@@ -143,3 +143,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/186861b7ed3cca69711556e179f32cb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782564-9781591432463-advanced-autogenic-training-and-primal-awareness/"><u>Advanced Autogenic Training and Primal Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782562-9781591439813-advanced-civilizations-of-prehistoric-america/"><u>Advanced Civilizations of Prehistoric America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782561-9781591438496-astrology-and-the-rising-of-kundalini/"><u>Astrology and the Rising of Kundalini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782569-9781620551394-inner-alchemy-astrology/"><u>Inner Alchemy Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782568-9781591432760-love-has-seven-colors/"><u>Love Has Seven Colors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782566-9781591438830-on-the-toltec-path/"><u>On the Toltec Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782563-9781591438588-rituals-and-practices-with-the-motherpeace-tarot-2nd-ed/"><u>Rituals and Practices with the Motherpeace Tarot (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782560-9781591432746-sacred-geometry-of-nature/"><u>Sacred Geometry of Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782565-9781591439721-the-ecstatic-experience/"><u>The Ecstatic Experience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

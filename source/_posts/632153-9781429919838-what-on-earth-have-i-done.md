@@ -1,7 +1,7 @@
 ---
 title: What On Earth Have I Done? | Free Book
-date: 2024-10-20T21:04:08.325Z
-updated: 2024-10-27T01:09:38.940Z
+date: 2024-12-25T17:30:26.275Z
+updated: 2024-12-28T01:33:48.179Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2026053fb3eef0c317c5e76a1d312743a1951fb6a37f3d0ca7809826b6beced.jpg
@@ -179,3 +179,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2026053fb3eef0c317c5e76a1d3127
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1094674-9781742757827-poems-of-love-and-life-for-cancer/"><u>Poems of Love and Life for Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094673-9781742757803-poems-of-love-and-life-for-gemini/"><u>Poems of Love and Life for Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094675-9781742757841-poems-of-love-and-life-for-leo/"><u>Poems of Love and Life for Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094677-9781742757889-poems-of-love-and-life-for-libra/"><u>Poems of Love and Life for Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094679-9781742757926-poems-of-love-and-life-for-sagittarius/"><u>Poems of Love and Life for Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094678-9781742757902-poems-of-love-and-life-for-scorpio/"><u>Poems of Love and Life for Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094672-9781742757780-poems-of-love-and-life-for-taurus/"><u>Poems of Love and Life for Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1094676-9781742757865-poems-of-love-and-life-for-virgo/"><u>Poems of Love and Life for Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1095157-9781466833913-the-everyday-i-ching/"><u>The Everyday I Ching | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

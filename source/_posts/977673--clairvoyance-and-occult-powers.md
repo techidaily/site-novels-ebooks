@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2024-12-16T18:54:51.803Z
-updated: 2024-12-21T16:03:38.365Z
+date: 2024-12-23T21:24:42.182Z
+updated: 2024-12-28T02:51:08.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,14 +133,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211360565-9791223023846-die-macht-des-unterbewusstseins/"><u>Die Macht des Unterbewusstseins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360546-9798218435134-healed-to-healer-a-womans-transformation-through-christian-shamanism-and-the-power-of-spirit/"><u>Healed to Healer A Woman's Transformation through Christian Shamanism and the Power of Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360563-9791223023464-la-puissance-du-subconscient/"><u>La Puissance du Subconscient | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360566-9791223023839-mente-subconsciente-vida-consciente/"><u>Mente Subconsciente, Vida Consciente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360137--the-buddhas-gift-to-the-world/"><u>The Buddha's Gift to the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/121819-9780253108388-claiming-sacred-ground/"><u>Claiming Sacred Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216496-9781583947272-manifesting-minds/"><u>Manifesting Minds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1212602-9781583948095-sorcerers-apprentice/"><u>Sorcerer's Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1215871-9781612830308-the-back-in-time-tarot-book/"><u>The Back in Time Tarot Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1212604-9781583948149-the-passionate-mind-revisited/"><u>The Passionate Mind Revisited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216500-9781583948200-the-return-of-the-mother/"><u>The Return of the Mother | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

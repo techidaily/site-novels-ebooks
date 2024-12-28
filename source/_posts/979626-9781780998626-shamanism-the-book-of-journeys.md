@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2024-12-21T11:43:19.770Z
-updated: 2024-12-22T11:06:05.156Z
+date: 2024-12-27T03:08:55.873Z
+updated: 2024-12-28T01:12:15.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,16 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211364448-9798330205578-5-historias-transformadoras-de-la-vida-real-sobre-visitas-al-cielo-el-infierno-y-el-reino-oscuro/"><u>5 historias transformadoras de la vida real sobre visitas al cielo, el infierno y el reino oscuro | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364449-9798330205592-5-storie-trasformative-di-vita-vera-sulla-visita-al-paradiso-allinferno-e-al-regno-oscuro-il/"><u>5 storie trasformative di vita vera sulla visita al paradiso, all'inferno e al regno oscuro Il | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364453-9798330205677-5-transformatieve-waargebeurde-verhalen-over-een-bezoek-aan-de-hemel-de-hel-en-het-donkere/"><u>5 transformatieve waargebeurde verhalen over een bezoek aan de hemel, de hel en het donkere.. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364478-9798330200726-5-transformative-true-life-stories-on-visitation-to-heaven-hell-and-the-dark-kingdom/"><u>5 Transformative True-life Stories on Visitation to Heaven, Hell and the Dark Kingdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364493-9798330205509-5-transformierende-wahre-geschichten-uber-besuche-im-himmel-in-der-holle-und-im-dunklen/"><u>5 transformierende wahre Geschichten über Besuche im Himmel, in der Hölle und im dunklen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364494-9798330205790-5-syfvry-hyym-mytyym-trnsfvrmtyvyym-l-vykvr-vgn-dn-vgyhnvm-vvmmlkhh-hflh/"><u>5 סיפורי חיים אמיתיים טרנספורמטיביים על ביקור בגן עדן, בגיהנום ובממלכה האפלה | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364487-9798330205769-mindfulness-matters/"><u>Mindfulness Matters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245934-9781471112393-conversations-with-heaven/"><u>Conversations with Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1275338-9781609257729-living-the-wheel/"><u>Living the Wheel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245861-9781451698589-the-sacred-history/"><u>The Sacred History | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1250685-9780892546626-the-wedding-of-sophia/"><u>The Wedding of Sophia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1273870-9780804150859-why-people-dont-heal-and-how-they-can/"><u>Why People Don't Heal and How They Can | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1249254-9781782195061-wild-things-they-dont-tell-us/"><u>Wild Things They Don't Tell Us | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

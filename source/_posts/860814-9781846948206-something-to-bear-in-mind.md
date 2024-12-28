@@ -1,7 +1,7 @@
 ---
 title: Something to Bear in Mind | Free Book
-date: 2024-10-23T16:05:50.252Z
-updated: 2024-10-26T18:12:22.252Z
+date: 2024-12-26T22:28:33.727Z
+updated: 2024-12-27T23:24:18.679Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db6dabce46b61cfb81bf31fe7a5267115bb6af6e9f6b52d8ce666b3f667a27bd.jpg
@@ -144,3 +144,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db6dabce46b61cfb81bf31fe7a52671
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95695543-9780008240462-a-tree-in-your-pocket/"><u>A Tree in Your Pocket | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95696045-9780857012654-calculating-the-bazi/"><u>Calculating the BaZi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95699078-9781524704667-discovering-your-souls-purpose/"><u>Discovering Your Soul's Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95698566-9781101993590-living-presence-revised/"><u>Living Presence (Revised) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95698988-9781524705169-the-book-of-truth/"><u>The Book of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95695618-9781841814797-the-crystal-zodiac/"><u>The Crystal Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95698815-9781524704896-the-impersonal-life/"><u>The Impersonal Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95696072-9781515415466-the-new-thought-collection-2/"><u>The New Thought Collection #2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95699176-9781478971146-walking-with-peety/"><u>Walking with Peety | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

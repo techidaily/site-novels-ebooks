@@ -1,7 +1,7 @@
 ---
 title: The Teachings of the Nephalim | Free Book
-date: 2024-10-26T03:45:19.935Z
-updated: 2024-10-26T23:21:06.137Z
+date: 2024-12-25T19:03:46.754Z
+updated: 2024-12-28T02:55:23.429Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df5e64c618161dd1433ee77b2fef1444e9bf39400110257a567936949f31296b.jpg
@@ -142,3 +142,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df5e64c618161dd1433ee77b2fef144
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782312-9781591438557-inner-child-cards-workbook/"><u>Inner Child Cards Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782309-9781591438151-meditations-with-the-hopi/"><u>Meditations with the Hopi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782306-9781591438236-meditations-with-the-lakota-2nd-ed/"><u>Meditations with the Lakota (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782307-9781591438892-meditations-with-the-navajo/"><u>Meditations with the Navajo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782313-9781591439431-planetary-healing/"><u>Planetary Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782311-9781591438366-plant-intelligence-and-the-imaginal-realm/"><u>Plant Intelligence and the Imaginal Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782308-9781591438212-pleiadian-perspectives-on-human-evolution/"><u>Pleiadian Perspectives on Human Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782316-9781591439257-the-destruction-of-atlantis/"><u>The Destruction of Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782305-9781591438663-the-double-goddess/"><u>The Double Goddess | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Children Who Have Lived Before | Free Book
-date: 2024-10-25T20:23:24.154Z
-updated: 2024-10-27T03:23:44.944Z
+date: 2024-12-21T01:30:57.606Z
+updated: 2024-12-28T02:21:46.258Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c8d13a1c339a12587fa7875d2b6bbcfe6b1e8eb9babc6ea1619fb20a28c3f516.jpg
@@ -159,3 +159,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c8d13a1c339a12587fa7875d2b6bbcf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782550-9781591432128-becoming-nature/"><u>Becoming Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782549-9781591438267-before-atlantis/"><u>Before Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782553-9781591432500-soul-breathing/"><u>Soul Breathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782551-9781591432265-soul-whispering/"><u>Soul Whispering | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782552-9781591439028-the-mayan-factor/"><u>The Mayan Factor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782548-9781591439158-when-time-began-book-v/"><u>When Time Began (Book V) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

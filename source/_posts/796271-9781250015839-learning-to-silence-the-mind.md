@@ -1,7 +1,7 @@
 ---
 title: Learning to Silence the Mind | Free Book
-date: 2024-10-23T23:18:12.115Z
-updated: 2024-10-26T16:48:01.990Z
+date: 2024-12-22T20:51:10.151Z
+updated: 2024-12-28T01:09:31.803Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16d79524db058aa0d37e869aaf8dbb99a5aed9a91596aa0b6a2767d920ff247b.jpg
@@ -180,3 +180,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16d79524db058aa0d37e869aaf8dbb9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782445-9781591437796-delusions-in-science-and-spirituality/"><u>Delusions in Science and Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782444-9781591437635-dreaming-with-polar-bears/"><u>Dreaming with Polar Bears | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782441-9781591439363-shamanic-mysteries-of-egypt/"><u>Shamanic Mysteries of Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782440-9781591439349-shamanic-spirit-2nd-ed/"><u>Shamanic Spirit (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782443-9781591438021-the-healing-power-of-the-sacred-woman/"><u>The Healing Power of the Sacred Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782442-9781591437802-the-healing-wisdom-of-mary-magdalene/"><u>The Healing Wisdom of Mary Magdalene | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

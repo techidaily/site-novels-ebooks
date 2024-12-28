@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2024-12-18T13:14:13.828Z
-updated: 2024-12-22T11:00:30.557Z
+date: 2024-12-23T21:57:30.963Z
+updated: 2024-12-28T00:39:34.219Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,18 +167,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211417365-9781649632210-78-acts-of-liberation/"><u>78 Acts of Liberation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416270-9781684351275-a-guide-to-sky-monsters/"><u>A Guide to Sky Monsters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414929-9798987674949-journey-to-true-self/"><u>Journey to True Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416901-9783964464989-open-up-and-find-yourself/"><u>Open Up and Find Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416777-9781964959030-russian-edition-operating-in-abundance/"><u>Russian Edition - Operating in Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211415123-9781964959078-russian-edition-treasures-of-darkness-volume-2/"><u>Russian Edition - Treasures of Darkness: Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416306-9781797225562-tarot-for-creativity/"><u>Tarot for Creativity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416759-9780645484632-the-practice-of-journaling-prayer-testimony-and-gratitude/"><u>The Practice of Journaling Prayer, Testimony, and Gratitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211415170-9781964959061-traversing-the-pathways/"><u>Traversing the Pathways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575816-9781475921373-after-the-light/"><u>After the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575641-9781450257978-colloquies/"><u>Colloquies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575733-9781475946833-heart-whispers/"><u>Heart Whispers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575762-9781450238595-its-no-secret/"><u>It's No Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575672-9781462039371-mantras-and-musical-solutions/"><u>Mantras and Musical Solutions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575711-9781450219297-stimulating-awareness-about-life/"><u>Stimulating Awareness About Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

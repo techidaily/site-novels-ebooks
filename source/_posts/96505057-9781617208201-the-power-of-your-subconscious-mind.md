@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-18T22:57:18.715Z
-updated: 2024-12-22T08:09:47.462Z
+date: 2024-12-25T17:11:16.181Z
+updated: 2024-12-27T22:28:44.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,14 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211424088-9781398848221-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424266-9781738971336-sounds-necessity/"><u>Sounds Necessity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424250-9781945875762-the-biss-tribe/"><u>The Biss Tribe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211423895--the-healing-nature-of-water/"><u>The Healing Nature of Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424085-9781398841987-true-tales-of-the-paranormal/"><u>True Tales of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579808-9781452502014-alien-encounters/"><u>Alien Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580192-9781452534787-going-out-in-style/"><u>Going out in Style | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580207-9781462061181-lucid-death/"><u>Lucid Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579668-9781452533674-spirycal/"><u>Spirycal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580060-9781491754016-turn-abouts-fairplay/"><u>Turn About’S Fairplay | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579693-9781452529806-what-on-earth-are-we-doing-here/"><u>What on Earth Are We Doing Here? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580401-9781450293105-wisdom-for-the-good-life/"><u>Wisdom for the Good Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579964-9781617641855-yo-anonimo/"><u>Yo Anónimo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2024-12-20T13:46:39.545Z
-updated: 2024-12-22T01:37:21.699Z
+date: 2024-12-26T02:29:46.074Z
+updated: 2024-12-28T02:36:27.374Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,14 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211422644--connecting-to-create/"><u>Connecting to Create | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211422698-9781800796768-death-in-the-21st-century/"><u>Death in the 21st Century | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211422699-9781800796751-death-in-the-21st-century/"><u>Death in the 21st Century | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211422783-9788090922037-parallel-worlds/"><u>Parallel Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211422727-9781068860256-the-messiah/"><u>THE MESSIAH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138577023-9781462098156-the-real-prophet-of-doom/"><u> "The Real, Prophet, of Doom "! ... (...!) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576882-9781617640179-el-poder-latente/"><u>El Poder Latente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576917-9781469746050-force-a-miracle/"><u>Force a Miracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576981-9780595828135-taste-your-emotions/"><u>Taste Your Emotions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138577006-9781450245272-the-book-of-daniel-unsealed/"><u>The Book of Daniel Unsealed | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

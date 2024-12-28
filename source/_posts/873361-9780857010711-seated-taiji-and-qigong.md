@@ -1,7 +1,7 @@
 ---
 title: Seated Taiji and Qigong | Free Book
-date: 2024-10-24T18:27:00.013Z
-updated: 2024-10-26T17:19:24.444Z
+date: 2024-12-27T01:23:21.947Z
+updated: 2024-12-27T22:51:49.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e10a659171d7cb84b01eea1869e4b53d895f89ae21d4ddfd91dfb0bff2473119.jpg
@@ -182,3 +182,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e10a659171d7cb84b01eea1869e4b53
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95774504-9781608684960-expect-the-unexpected/"><u>Expect the Unexpected | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774475-9781449485535-expect-wonderful-things/"><u>Expect Wonderful Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95776658-9788121252263-mind-and-ideology/"><u>Mind And Ideology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95775814-9781946764010-the-nest-in-the-stream/"><u>The Nest in the Stream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774685-9781937673857-the-new-diplomatic-strategies-of-sir-winston-churchill/"><u>The New Diplomatic Strategies of Sir Winston Churchill | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774167-9781515415503-three-paths-to-god/"><u>Three Paths to God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774168-9781515414414-through-the-gates-of-good/"><u>Through the Gates of Good | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

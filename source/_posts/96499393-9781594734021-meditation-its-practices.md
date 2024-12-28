@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2024-12-15T17:12:41.166Z
-updated: 2024-12-21T19:47:36.550Z
+date: 2024-12-23T23:18:02.382Z
+updated: 2024-12-27T16:25:02.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,18 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2186776-9789381384565-21-power-tools-of-reiki/"><u>21 Power Tools of Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2186880-9789381384367-healing-power-of-gems-stones/"><u>Healing power of Gems & stones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2186823-9789381384466-practical-hypnotism/"><u>Practical Hypnotism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2186824-9789381384350-practical-palmistry/"><u>Practical Palmistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2174090-9781780350066-psychic-spirituality-and-reincarnation/"><u>Psychic Spirituality and Reincarnation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2186812-9789381384633-safe-simple-steps-to-fruitful-meditation/"><u>Safe & Simple Steps To Fruitful Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2186808-9789350573075-the-art-of-happy-living/"><u>The Art of Happy Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2186793-9789350573167-understanding-relations-the-vedic-astrology-way/"><u>Understanding Relations--The Vedic Astrology Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2174097-9781780351308-what-is-life-without-thee/"><u>What is Life Without Thee? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138623062-9781401954178-already-here/"><u>Already Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138622185-9780761870869-eight-brief-lessons-on-life/"><u>Eight Brief Lessons on Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138623689-9781250214492-forest-bathing/"><u>Forest Bathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138623090-9780834842052-from-mindfulness-to-insight/"><u>From Mindfulness to Insight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138623548-9780762465989-magical-places/"><u>Magical Places | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138622060-9781351103725-religious-literacy-in-hospice-care/"><u>Religious Literacy in Hospice Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138622035-9781608685578-the-jewel-of-abundance/"><u>The Jewel of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621385-9781601639240-zombies/"><u>Zombies | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

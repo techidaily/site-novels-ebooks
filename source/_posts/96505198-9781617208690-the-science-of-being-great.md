@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2024-12-20T05:03:59.178Z
-updated: 2024-12-22T11:57:02.933Z
+date: 2024-12-20T16:42:32.589Z
+updated: 2024-12-27T16:10:02.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,18 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211435718-9798330330973-a-good-fight-of-faith/"><u>A Good Fight of Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211434956-9781648414688-cooking-with-magic-mushrooms/"><u>Cooking with Magic Mushrooms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435308-9781068848902-decode-the-deck/"><u>Decode the Deck | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435707-9788412856330-die-wahl-der-seele-teil-1/"><u>Die Wahl der Seele. Teil 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435708-9788412856354-die-wahl-der-seele-teil-2/"><u>Die Wahl der Seele. Teil 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435706-9798894650548-our-spiritual-being-above-and-beyond-our-human-condition-spirit-form/"><u>Our Spiritual Being Above and Beyond our Human Condition: Spirit & Form | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435042--pain-free/"><u>Pain Free | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435582-9798218474614-spell-jars-and-pouches/"><u>Spell Jars and Pouches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435021--truth-demands/"><u>Truth Demands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587633-9781452501871-be-in-one-peace/"><u>Be in One Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587982-9781452533339-clear-channel/"><u>Clear Channel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587399-9781450270885-navigating-the-coming-chaos/"><u>Navigating the Coming Chaos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587531-9781462025411-navigating-these-challenging-times/"><u>Navigating These Challenging Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587378-9781617642586-recuperando-mi-angel-autista/"><u>Recuperando Mi Ángel Autista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587173-9781452533551-the-journey-of-a-humbled-heart/"><u>The Journey of a Humbled Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586831-9781475931235-the-power-within-claim-it/"><u>The Power Within: Claim It! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587543-9781452532295-the-souls-way/"><u>The Soul's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587440-9781617644092-un-dialogo-en-mi-abismo/"><u>Un Diálogo En Mi Abismo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

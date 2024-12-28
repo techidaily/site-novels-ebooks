@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-12-16T02:57:30.852Z
-updated: 2024-12-22T10:25:24.114Z
+date: 2024-12-24T16:22:30.434Z
+updated: 2024-12-28T01:46:32.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,18 +182,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211467300--breathing-mindfulness/"><u>Breathing Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211466722--harney-sons-how-to-read-tea-leaves/"><u>Harney & Sons How to Read Tea Leaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211466459-9781684869077-in-the-beginning/"><u>IN THE BEGINNING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211467292--leaves-falling-gently/"><u>Leaves Falling Gently | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211466993--mindfulness/"><u>Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211466256-9798330434206-minding-less/"><u>Minding Less | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211468010-9798330439478-psaumes-de-la-redemption/"><u>PSAUMES DE LA RÉDEMPTION | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211468035-9781839388613-remote-viewing/"><u>Remote Viewing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211467958-9781977265715-the-illumination-practice/"><u>The Illumination Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620408-9781722520144-how-to-attract-good-luck-condensed-classics/"><u>How to Attract Good Luck (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620403-9781722520120-how-to-attract-money-condensed-classics/"><u>How to Attract Money (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620412-9781722520267-the-game-of-life-and-how-to-play-it-condensed-classics/"><u>The Game of Life And How to Play it (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620407-9781722520229-the-secret-of-the-ages-condensed-classics/"><u>The Secret of the Ages (Condensed Classics) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: A Technique for Meditation | Free Book
-date: 2024-10-20T04:10:38.712Z
-updated: 2024-10-26T22:18:13.650Z
+date: 2024-12-22T02:28:01.077Z
+updated: 2024-12-27T23:14:21.082Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0ccdf2a5a00528f88004b79c66d4bba60475e308784a41513695fca7690d75c9.jpg
@@ -130,3 +130,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0ccdf2a5a00528f88004b79c66d4bba
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782767-9781594778469-energy-balance-through-the-tao/"><u>Energy Balance through the Tao | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782764-9781620553022-enochian-magic-and-the-higher-worlds/"><u>Enochian Magic and the Higher Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782770-9781594775383-riding-windhorses/"><u>Riding Windhorses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782772-9781594776984-sex-and-the-intelligence-of-the-heart/"><u>Sex and the Intelligence of the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782766-9781620552032-sexual-practices-of-the-druids-2nd-ed/"><u>Sexual Practices of the Druids (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782771-9781620550229-the-feng-shui-companion/"><u>The Feng Shui Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782762-9781620551592-the-secret-life-of-lady-liberty/"><u>The Secret Life of Lady Liberty | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

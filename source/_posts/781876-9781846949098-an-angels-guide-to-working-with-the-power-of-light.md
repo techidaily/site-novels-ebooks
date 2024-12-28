@@ -1,7 +1,7 @@
 ---
 title: An Angels' Guide to Working with the Power of Light | Free Book
-date: 2024-10-25T21:35:41.113Z
-updated: 2024-10-26T18:06:18.974Z
+date: 2024-12-26T23:50:40.660Z
+updated: 2024-12-27T22:49:07.658Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4934eb40780af7865cfe0f1b33f03eeaf1284909c218215f1695e7fd6d55a8b2.jpg
@@ -142,3 +142,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4934eb40780af7865cfe0f1b33f03ee
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783041-9781594778728-ecstasy-the-complete-guide/"><u>Ecstasy: The Complete Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783047-9781594777110-krishna-in-the-sky-with-diamonds/"><u>Krishna in the Sky with Diamonds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783044-9781594775062-molecular-consciousness/"><u>Molecular Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783046-9781620551608-peyote-dreams/"><u>Peyote Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783043-9781620550434-phantastica/"><u>Phantastica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783045-9781594779923-tryptamine-palace/"><u>Tryptamine Palace | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

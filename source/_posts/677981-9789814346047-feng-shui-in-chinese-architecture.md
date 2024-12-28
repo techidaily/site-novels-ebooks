@@ -1,7 +1,7 @@
 ---
 title: Feng Shui in Chinese Architecture | Free Book
-date: 2024-10-23T03:31:25.817Z
-updated: 2024-10-26T19:28:40.630Z
+date: 2024-12-23T00:17:48.642Z
+updated: 2024-12-27T19:18:34.274Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7644a5710717222ad9f2c9c225b6bd288c4c57631e40c30af20f47d8f4338639.jpg
@@ -140,3 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7644a5710717222ad9f2c9c225b6bd2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316820-9781401953102-becoming-supernatural/"><u>Becoming Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316811-9781401950422-heal-your-mind/"><u>Heal Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316821-9781401946760-the-power-of-no/"><u>The Power of No | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316824-9781401952617-the-pursuit-of-dreams/"><u>The Pursuit of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316813-9781401940157-through-the-eyes-of-another/"><u>Through the Eyes of Another | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316825-9781401946883-walking-home/"><u>Walking Home | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

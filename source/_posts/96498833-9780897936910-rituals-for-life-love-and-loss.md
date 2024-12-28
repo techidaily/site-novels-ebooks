@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-12-18T16:37:37.853Z
-updated: 2024-12-22T01:41:52.805Z
+date: 2024-12-23T16:10:26.836Z
+updated: 2024-12-28T02:40:43.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,16 +179,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211472629-9781637776421-born-again-to-serve-with-love/"><u>Born Again to Serve with Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211473257--flamingo-estate-the-guide-to-becoming-alive/"><u>Flamingo Estate: The Guide to Becoming Alive | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472963-9781964959139-melchizedek-frequencies/"><u>Melchizedek Frequencies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472925-9798893305401-recovery-happens-through-christ-my-story-of-abuse-alcoholism-and-adultery/"><u>Recovery Happens Through Christ (My Story of Abuse, Alcoholism, and Adultery) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472921-9798330457786-shadows-of-a-secret/"><u>Shadows of a Secret | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472983-9781397665225-the-flying-saucers-are-real/"><u>The Flying Saucers Are Real | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472977-9781951879198-the-spiritual-design-wave-4/"><u>The Spiritual Design Wave 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621202-9781601635938-ad-after-disclosure/"><u>A.D. After Disclosure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621201-9781601637369-crash-when-ufos-fall-from-the-sky/"><u>Crash: When UFOs Fall From the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621200-9781601635402-on-the-edge-of-reality/"><u>On the Edge of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621198-9781632658876-the-gods-never-left-us/"><u>The Gods Never Left Us | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

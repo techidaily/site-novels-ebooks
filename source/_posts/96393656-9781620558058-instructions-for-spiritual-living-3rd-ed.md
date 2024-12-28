@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2024-12-01T02:33:04.944Z
-updated: 2024-12-07T04:01:03.567Z
+date: 2024-12-24T23:47:58.448Z
+updated: 2024-12-27T17:55:32.011Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -193,18 +193,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210160374-9781526731845-a-history-of-magic-and-witchcraft/"><u>A History of Magic and Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210161034-9781732536142-black-athlete-white-athlete-mental-strength/"><u>Black Athlete White Athlete : Mental Strength | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210159669-9781999401030-daring-to-share/"><u>Daring to Share | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210162363-9781646288892-love-letters-to-my-son/"><u>Love Letters to My Son | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210162461-9781645449973-overwhelming-methodology-of-deception/"><u>Overwhelming Methodology of Deception | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210159628-9781734473926-signs-of-the-universe/"><u>Signs of the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210162367-9781682135945-some-thoughts-on-god-and-other-things/"><u>Some Thoughts on God and Other Things | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210159671-9781777429713-sumi/"><u>Sumi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210162452-9781644626139-sweet-themes/"><u>Sweet Themes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209694065-9780857721624-from-gabriel-to-lucifer/"><u>From Gabriel to Lucifer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209693662-9781939839039-how-generosity-works/"><u>How Generosity Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209693660-9781939839053-how-patience-works/"><u>How Patience Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209693661-9781939839046-how-the-root-of-kindness-works/"><u>How The Root of Kindness Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691112-9781250253057-soul-magic/"><u>Soul Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2024-12-17T10:49:11.690Z
-updated: 2024-12-22T09:26:23.385Z
+date: 2024-12-26T17:58:26.534Z
+updated: 2024-12-27T22:09:20.509Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,13 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211420177-9781763601116-from-pain-to-possibility/"><u>From Pain To Possibility | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211419457-9798330301133-the-next-step/"><u>The Next Step | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211420118-9798822949546-the-tao-of-ufo/"><u>The Tao of UFO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211419397-9798987674925-the-third-part/"><u>The Third Part | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576154-9781475915785-a-healers-guide-to-miracles/"><u>A Healer's Guide to Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576033-9781440123986-beyond-reason/"><u>Beyond Reason | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575940-9781469790367-how-the-word-heals/"><u>How the Word Heals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575924-9781469709000-how-to-lay-on-the-altar-without-wiggling/"><u>How to Lay on the Altar Without Wiggling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575895-9781450224369-imagine-forgiveness/"><u>Imagine Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575930-9781440103926-seven-letters-to-live-by-respect/"><u>Seven Letters to Live By: Respect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576113-9781449774431-speak-your-healing-from-the-homosexual-deception/"><u>Speak Your Healing from the Homosexual Deception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575993-9780595827121-the-gods-in-their-cities/"><u>The Gods in Their Cities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576074-9780595806775-the-promise-of-heaven/"><u>The Promise of Heaven | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

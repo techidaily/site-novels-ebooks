@@ -1,7 +1,7 @@
 ---
 title: A Little Book of Candle Magic | Free Book
-date: 2024-10-19T19:28:05.967Z
-updated: 2024-10-27T00:17:25.091Z
+date: 2024-12-27T00:32:04.623Z
+updated: 2024-12-28T02:41:10.870Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16545c07c3776f2d94276d319382f93bff4e916a78796958edcae3c289ca0ff8.jpg
@@ -146,3 +146,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16545c07c3776f2d94276d319382f93
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96489219-9780907791607-ayahuasca-reader-2nd-ed/"><u>Ayahuasca Reader (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489275-9780990997818-blazing-splendor/"><u>Blazing Splendor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489220-9780907791676-changing-our-minds/"><u>Changing Our Minds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96487355-9781782792123-naked-tarot/"><u>Naked Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96487357-9781785358036-shaman-pathways-what-is-shamanism/"><u>Shaman Pathways - What is Shamanism? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96487360-9781785357534-travelling-the-fairy-path/"><u>Travelling the Fairy Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96486063-9781935205241-woman-overboard/"><u>Woman Overboard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489225-9780907791638-zig-zag-zen/"><u>Zig Zag Zen | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

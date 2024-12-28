@@ -1,7 +1,7 @@
 ---
 title: I Fly Out With Bright Feathers | Free Book
-date: 2024-10-23T04:09:59.313Z
-updated: 2024-10-26T17:39:49.539Z
+date: 2024-12-26T00:43:40.537Z
+updated: 2024-12-27T18:44:31.048Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16923bfa31a8e816f2fe1a2acd0ba6c45b57b2ae1e05342eacd0ebbe57fb49ff.jpg
@@ -157,3 +157,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16923bfa31a8e816f2fe1a2acd0ba6c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783016-9781620551943-ayahuasca-medicine/"><u>Ayahuasca Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783017-9781594775130-cactus-of-mystery/"><u>Cactus of Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783025-9781620555385-the-panic-fables/"><u>The Panic Fables | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783024-9781620551462-the-sense-of-being-stared-at/"><u>The Sense of Being Stared At | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

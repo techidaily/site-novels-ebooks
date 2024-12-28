@@ -1,7 +1,7 @@
 ---
 title: I Don't Know What to Believe | Free Book
-date: 2024-12-20T20:20:13.617Z
-updated: 2024-12-22T04:27:46.298Z
+date: 2024-12-24T00:07:59.831Z
+updated: 2024-12-27T20:27:25.932Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152bb6c16e86aeec1f648f85b672402b361fa.jpg
@@ -205,16 +205,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/433998-9781775567820-all-these-things-added/"><u>All These Things Added | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/432323-9781775567158-in-tune-with-the-infinite/"><u>In Tune with the Infinite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/431761-9781439102541-mystic-cool/"><u>Mystic Cool | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/433976--star-parenting/"><u>Star Parenting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/434013-9781775567844-the-life-of-buddha-and-its-lessons/"><u>The Life of Buddha and Its Lessons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/432356-9781775567349-the-silence/"><u>The Silence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/432368-9781775567530-the-story-of-my-heart/"><u>The Story of My Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636299-9781633411470-1111-the-time-prompt-phenomenon/"><u>11:11 The Time Prompt Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636296-9781633411128-allow-me-to-introduce/"><u>Allow Me to Introduce | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636294-9781633411142-astrology-for-real-life/"><u>Astrology for Real Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636287-9781633411562-magickal-mermaids-and-water-creatures/"><u>Magickal Mermaids and Water Creatures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636289-9780892546848-navigating-the-financial-universe/"><u>Navigating the Financial Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636291-9781938289880-the-medicine-bag/"><u>The Medicine Bag | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2024-11-29T20:47:03.998Z
-updated: 2024-12-07T07:16:16.857Z
+date: 2024-12-24T22:37:37.649Z
+updated: 2024-12-28T00:58:22.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,14 +205,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210171301-9781071571989-larte-di-essere/"><u>L’arte di essere | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210171313-9781071572801-leben-in-annwn/"><u>Leben In Annwn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210171315-9781071573075-megan-en-de-kookwedstrijd/"><u>Megan en de Kookwedstrijd | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210171162-9780578808826-no-more-residue/"><u>No More Residue | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210171364-9781071574416-o-segundo-jo/"><u>O Segundo Jó | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749541-9781984826824-coming-home-to-yourself/"><u>Coming Home to Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209753707-9780762496167-ignite-your-light/"><u>Ignite Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748901-9781071500712-il-tuo-altro-corpo/"><u>Il Tuo Altro Corpo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749072-9781071500309-la-revolucion-de-la-quema-de-sostenes-lo-quemamos-o-no/"><u>La revolución de la quema de sostenes: ¿lo quemamos o no? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209750872-9781578595570-lost-civilizations/"><u>Lost Civilizations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749035-9781547550050-sanacion-por-empatia-y-guia-para-la-supervivencia-emocional-espiritual-y-psicologica/"><u>Sanación por Empatía y Guía para la Supervivencia Emocional, Espiritual y Psicológica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748980-9781547599202-scrivi-per-essere-felice/"><u>Scrivi per essere felice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749336-9781452182865-ten-to-zen/"><u>Ten to Zen | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

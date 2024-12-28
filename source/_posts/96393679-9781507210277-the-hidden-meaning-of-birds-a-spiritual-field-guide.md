@@ -1,7 +1,7 @@
 ---
 title: The Hidden Meaning of Birds--A Spiritual Field Guide | Free Book
-date: 2024-12-06T01:58:11.427Z
-updated: 2024-12-07T01:05:38.643Z
+date: 2024-12-22T23:15:24.633Z
+updated: 2024-12-28T00:26:23.713Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b328c27d0da18dbcae6a65e3c2ccf06fc39484cebda1ef58e7c59b816f16bf11.jpg
@@ -186,15 +186,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b328c27d0da18dbcae6a65e3c2ccf06
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210170547-9781643345185-a-donde-vas-pequeno-juan/"><u>¿A dónde vas Pequeño Juan? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170539-9781643344690-dios-de-amor-tus-mensajes-y-mis-poemas-de-amor/"><u>Dios De Amor, Tus Mensajes Y Mis Poemas De Amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170601-9781643341033-el-bosque/"><u>El Bosque | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170522-9781643344324-mas-alla-de-mi-verdad/"><u>Más Allá De Mi Verdad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170570-9781643341132-para-enamorarme/"><u>Para Enamorarme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170586-9781643344249-un-espiritu-se-es-y-un-alma-se-posee/"><u>Un Espíritu Se es y un Alma se Posee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209746254-9781506263151-beyond-the-content/"><u>Beyond the Content | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209746416-9781789040531-crystal-prescriptions/"><u>Crystal Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742309-9781722523251-the-book-of-power/"><u>The Book of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742323-9781722522636-the-kybalion-study-guide/"><u>The Kybalion Study Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742311-9781722523268-the-magic-of-believing-action-plan-master-class-series/"><u>The Magic of Believing Action Plan (Master Class Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209745843-9781642501834-the-magic-oracle-book/"><u>The Magic Oracle Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742322-9781722521387-the-power-of-your-subconscious-mind-and-how-to-use-it-master-class-series/"><u>The Power of Your Subconscious Mind and How to Use It (Master Class Series) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

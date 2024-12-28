@@ -1,7 +1,7 @@
 ---
 title: The Borley Rectory Companion | Free Book
-date: 2024-10-20T22:37:57.768Z
-updated: 2024-10-26T19:58:07.082Z
+date: 2024-12-22T01:51:58.322Z
+updated: 2024-12-28T03:04:19.286Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1a6109b4bb1fdb3fb0b55cab2b801f25d18cd5646a9c37f925aea817f311e2a.jpg
@@ -147,3 +147,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1a6109b4bb1fdb3fb0b55cab2b801f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/611466-9781770700222-death/"><u>Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611554-9781770701113-haunted/"><u>Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611609-9781770701663-the-midnight-hour/"><u>The Midnight Hour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/611586-9781770701434-the-worlds-most-mysterious-murders/"><u>The World's Most Mysterious Murders | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/610908-9781554880348-true-tales-of-the-paranormal/"><u>True Tales of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/610910-9781554880362-unsolved-mysteries-of-the-sea/"><u>Unsolved Mysteries of the Sea | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

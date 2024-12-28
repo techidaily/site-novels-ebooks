@@ -1,7 +1,7 @@
 ---
 title: The Everyday Ayurveda Cookbook | Free Book
-date: 2024-10-19T18:56:54.428Z
-updated: 2024-10-26T17:31:48.604Z
+date: 2024-12-26T00:17:52.050Z
+updated: 2024-12-27T22:17:47.755Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b98692bc8924442b90b643e20014854097c6484ab74e094d10db1870fb8f7de.jpg
@@ -187,3 +187,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b98692bc8924442b90b643e2001485
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/717077-9781846949302-die-to-love/"><u>Die to Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/717078-9781846949326-dont-fix-me-im-not-broken/"><u>Don't Fix Me; I'm Not Broken | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/716493-9781455512249-holding-the-vision/"><u>Holding the Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/717068-9781846948923-less-incomplete/"><u>Less Incomplete | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/717074-9781846949265-the-afterlife-unveiled/"><u>The Afterlife Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/717063-9781846948879-the-druid-way-made-easy/"><u>The Druid Way Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/716245-9781905313846-the-psychology-of-paranormal-belief/"><u>The Psychology of Paranormal Belief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/717073-9781846948978-wisdom-seekers/"><u>Wisdom Seekers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

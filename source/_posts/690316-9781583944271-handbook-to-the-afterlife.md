@@ -1,7 +1,7 @@
 ---
 title: Handbook to the Afterlife | Free Book
-date: 2024-10-21T05:57:35.386Z
-updated: 2024-10-26T17:01:20.087Z
+date: 2024-12-23T16:15:35.762Z
+updated: 2024-12-28T01:42:28.734Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22bdbb4641866a655a7d5a11211dbc382209bfd2ee293ead84e185a75d174708.jpg
@@ -239,3 +239,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22bdbb4641866a655a7d5a11211dbc3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96261013-9781788172769-crystals-made-easy/"><u>Crystals Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261010-9781788172530-discovering-your-past-lives-made-easy/"><u>Discovering Your Past Lives Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261018-9781788172776-goddess-wisdom-made-easy/"><u>Goddess Wisdom Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261011-9781788172714-lucid-dreaming-made-easy/"><u>Lucid Dreaming Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261031-9781788172516-meditation-made-easy/"><u>Meditation Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261020-9781788172813-mindfulness-made-easy/"><u>Mindfulness Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261012-9781788172745-numerology-made-easy/"><u>Numerology Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261032-9781788172677-reiki-made-easy/"><u>Reiki Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261014-9781788172790-shamanism-made-easy/"><u>Shamanism Made Easy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

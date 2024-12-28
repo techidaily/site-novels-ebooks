@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Canadian Ghost Stories | Free Book
-date: 2024-10-26T05:02:55.356Z
-updated: 2024-10-27T03:35:24.615Z
+date: 2024-12-21T18:23:14.034Z
+updated: 2024-12-27T19:06:23.295Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/723d5c01c5e3f913cc00cffec8167d9eafb081b27b6058d8b2679a210571436b.jpg
@@ -178,3 +178,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/723d5c01c5e3f913cc00cffec8167d9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125560-9781609252083-ayurveda-wisdom/"><u>Ayurveda Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125566-9781609253783-barddas/"><u>Barddas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125569-9781609255473-basic-psychic-development/"><u>Basic Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125576-9781609254667-beginners-guide-to-mediumship/"><u>Beginner's Guide to Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125587-9781609251710-the-black-pullet/"><u>The Black Pullet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125594-9781609255961-the-book-of-enoch-prophet/"><u>The Book of Enoch Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125595-9781609257330-the-book-of-ordinary-oracles/"><u>The Book Of Ordinary Oracles | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

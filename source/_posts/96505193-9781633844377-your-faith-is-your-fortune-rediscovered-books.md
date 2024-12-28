@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2024-12-19T05:03:48.611Z
-updated: 2024-12-21T20:07:00.297Z
+date: 2024-12-22T00:40:09.081Z
+updated: 2024-12-27T20:33:46.834Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,15 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211434152-9781507303801-land-healing/"><u>Land Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211434118-9781507303788-new-directions-in-tarot/"><u>New Directions in Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433936-9781803415260-paranormal-perspectives-a-jungian-understanding-of-transcendent-experiences/"><u>Paranormal Perspectives: A Jungian Understanding of Transcendent Experiences | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211434022-9781507303771-plus-one/"><u>Plus One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211434032-9781507303795-soul/"><u>Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211434136-9781507303818-the-magick-of-lenormand-card-reading/"><u>The Magick of Lenormand Card Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585921-9781450282017-divagating-through-the-tarot/"><u>Divagating Through the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586184-9781449710606-extraordinary-living-a-lifestyle-worth-pursuing/"><u>Extraordinary Living: a Lifestyle Worth Pursuing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586036-9781452544724-feng-shui-coaching/"><u>Feng Shui Coaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586823-9781462012510-in-memory-of-the-good-old-days/"><u>In Memory of the Good Old Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585813-9781462020249-life-is-too-short/"><u>Life Is Too Short | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586064-9781450264471-moments-in-time/"><u>Moments in Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586065-9781452533452-the-lenten-moon/"><u>The Lenten Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585853-9781462004799-the-pathway-beyond/"><u>The Pathway Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586521-9781491778562-volume-iii-clinical-and-medical-hypnotherapy/"><u>Volume Iii Clinical and Medical Hypnotherapy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-12-17T22:29:11.288Z
-updated: 2024-12-21T20:51:34.911Z
+date: 2024-12-24T21:06:53.459Z
+updated: 2024-12-28T01:30:13.798Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,18 +176,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211333818-9781803414393-crystal-creed/"><u>Crystal Creed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211332763-9789362619792-divine-timing-oracle-guidebook-unlocking-the-tapestry-of-time/"><u>Divine Timing Oracle Guidebook (Unlocking the Tapestry of Time! ) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211334066-9798893331561-god-doesnt-do-evil-that-good-may-come/"><u>God Doesn't Do Evil That Good May Come | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211332780-9798893810240-just-when-you-thought-you-knew/"><u>Just When You Thought You Knew | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211333826-9781803418094-kitchen-witchcraft-moon-magic/"><u>Kitchen Witchcraft & Moon Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211333815-9781803412139-sacred-bones-magic-bones/"><u>Sacred Bones, Magic Bones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211333816-9781803413143-the-science-of-sound/"><u>The Science of Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211332902-9789362610744-yeshustan-living-a-heavenly-life/"><u>Yeshustan Living A Heavenly Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211332532-9798869177605-hvkhrz-khmt-l-45-dkvt-mh-hv-rh-vykh-zh-ynh-t-hyyv-lntsh-hvvyh-l-krvv-lmvvt-nde/"><u>הוכרז כמת ל -45 דקות - מה שהוא ראה ואיך זה שינה את חייו לנצח - חוויה של קרוב למוות (NDE) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126957-9781612831565-fast-lane-to-heaven/"><u>Fast Lane to Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126973-9781612830124-healing-lost-souls/"><u>Healing Lost Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126982-9781612831848-how-to-pray-without-talking-to-god/"><u>How to Pray Without Talking to God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126987-9781612830001-im-spiritual-dammit/"><u>I'm Spiritual, Dammit! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126965-9781612830339-the-ghost-who-would-not-die/"><u>The Ghost Who Would Not Die | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

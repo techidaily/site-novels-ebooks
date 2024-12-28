@@ -1,7 +1,7 @@
 ---
 title: Ghosts across Kentucky | Free Book
-date: 2024-10-25T00:29:54.586Z
-updated: 2024-10-26T18:34:26.351Z
+date: 2024-12-21T16:37:15.918Z
+updated: 2024-12-27T21:49:39.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1c79953981ae60a5d7ebbcf1889b3fef355376364a919f8083b6fd7c25fca77.jpg
@@ -164,3 +164,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1c79953981ae60a5d7ebbcf1889b3f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782641-9781594779343-the-sexual-practices-of-quodoushka/"><u>The Sexual Practices of Quodoushka | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782635-9781594779107-the-shamanic-way-of-the-bee-2nd-ed/"><u>The Shamanic Way of the Bee (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782638-9781594779558-the-shamanic-wisdom-of-the-huichol-2nd-ed/"><u>The Shamanic Wisdom of the Huichol (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782637-9781594779657-the-six-healing-sounds/"><u>The Six Healing Sounds | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

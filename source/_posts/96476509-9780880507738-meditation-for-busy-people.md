@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2024-12-18T05:43:58.928Z
-updated: 2024-12-22T00:53:24.217Z
+date: 2024-12-27T00:26:03.535Z
+updated: 2024-12-27T23:40:07.275Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -178,17 +178,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/267091-9780767927154-apocalypse-2012/"><u>Apocalypse 2012 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2671534-9780752481692-haunted-bodmin-moor/"><u>Haunted Bodmin Moor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2671528-9780752481531-haunted-peterborough/"><u>Haunted Peterborough | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2671535-9780752481579-haunted-spalding/"><u>Haunted Spalding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2671531-9780752481678-haunted-st-andrews/"><u>Haunted St. Andrews | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2671529-9780752481630-haunted-staffordshire/"><u>Haunted Staffordshire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670460-9781515409953-natural-law-in-the-spiritual-world/"><u>Natural Law in the Spiritual World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2671536-9780752481852-paranormal-cumbria/"><u>Paranormal Cumbria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209528065-9780876048894-edgar-cayce-on-the-reincarnation-of-famous-people/"><u>Edgar Cayce on the Reincarnation of Famous People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209528164-9780753733561-tiny-healer-meditation/"><u>Tiny Healer: Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209528157-9780753733585-tiny-healer-mindfulness/"><u>Tiny Healer: Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209528066-9780876049075-twelve-positive-habits-of-spiritually-centered-people/"><u>Twelve Positive Habits of Spiritually Centered People | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

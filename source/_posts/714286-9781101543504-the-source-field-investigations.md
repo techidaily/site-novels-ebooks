@@ -1,7 +1,7 @@
 ---
 title: The Source Field Investigations | Free Book
-date: 2024-10-19T23:15:41.024Z
-updated: 2024-10-27T04:24:47.012Z
+date: 2024-12-20T16:28:30.285Z
+updated: 2024-12-27T22:10:51.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1aa709ff172a7d21349378b9525217cfcb22ccd87e7011dca15b6699fd3dcaec.jpg
@@ -195,3 +195,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1aa709ff172a7d21349378b9525217c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95919365-9781612834061-astrology-for-success/"><u>Astrology for Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95923439-9781459742482-ghost-stories-and-legends-of-prince-edward-island-2nd-ed/"><u>Ghost Stories and Legends of Prince Edward Island (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95923380-9780857013590-looking-up-looking-down/"><u>Looking Up, Looking Down | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95923435-9781459742604-macabre-montreal/"><u>Macabre Montreal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95922549-9781912023684-pause-every-day/"><u>Pause Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95919928-9781788880503-psychic-animals/"><u>Psychic Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95919364-9781612833972-reiki-plain-simple/"><u>Reiki Plain & Simple | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

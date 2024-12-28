@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2024-12-14T22:38:21.201Z
-updated: 2024-12-22T01:05:16.825Z
+date: 2024-12-26T00:03:02.588Z
+updated: 2024-12-27T19:57:34.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,15 +192,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211359630-9798869397485-embracing-the-elements/"><u>Embracing the Elements | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359591-9798330200085-hexes-and-hauntings/"><u>Hexes and Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359581--mindfulness-and-presence/"><u>Mindfulness and Presence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359590-9798869375155-the-mystical-connection/"><u>The Mystical Connection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359602-9798330200290-the-ultimate-book-of-witchcraft-spells/"><u>The Ultimate Book of Witchcraft Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359636-9798869397607-witches-grimoire-a-comprehensive-collection-of-powerful-spells-for-wicca-practitioners-master-the-art-of-witchcraft-and-spellcasting-enhance-your-magical-skills/"><u>Witches' Grimoire: A Comprehensive Collection of Powerful Spells for Wicca Practitioners - Master the Art of Witchcraft and Spellcasting - Enhance Your Magical Skills | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207455-9781780999579-grimoire-of-a-kitchen-witch/"><u>Grimoire of a Kitchen Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207457-9781780994604-healing-divination/"><u>Healing Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207458-9781780999760-how-to-lavish-a-leo/"><u>How to Lavish a Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207463-9781782790037-new-reiki-software-for-divine-living/"><u>New Reiki Software for Divine Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207181-9781101615669-tapping-into-wealth/"><u>Tapping Into Wealth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1204923-9780307830470-the-pathwork-of-self-transformation/"><u>The Pathwork of Self-Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207437-9781442222281-the-scientific-basis-of-astrology/"><u>The Scientific Basis of Astrology | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

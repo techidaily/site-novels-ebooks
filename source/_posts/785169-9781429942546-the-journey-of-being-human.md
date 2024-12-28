@@ -1,7 +1,7 @@
 ---
 title: The Journey of Being Human | Free Book
-date: 2024-10-24T17:51:50.436Z
-updated: 2024-10-26T17:33:40.757Z
+date: 2024-12-22T19:35:20.408Z
+updated: 2024-12-27T23:37:06.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26faa1fdf28ae0b2e7e4d5534af05e21a267b69716697492ab9169b3a27892b2.jpg
@@ -177,3 +177,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26faa1fdf28ae0b2e7e4d5534af05e2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783146-9781620555187-dmt-la-molecula-del-espiritu/"><u>DMT: La molécula del espíritu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783144-9781620550182-la-destruccion-de-la-atlantida/"><u>La Destrucción de la Atlántida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783131-9781620555446-la-medicina-de-ayahuasca/"><u>La medicina de ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783148-9781594778285-mas-alla-de-los-ninos-indigo/"><u>Más allá de los niños índigo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

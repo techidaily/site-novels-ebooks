@@ -1,7 +1,7 @@
 ---
 title: The Dictionary of Magic & Mystery | Free Book
-date: 2024-10-20T05:25:55.484Z
-updated: 2024-10-27T05:03:10.515Z
+date: 2024-12-24T22:44:25.795Z
+updated: 2024-12-27T19:32:14.756Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5e447cc27c59c411e7e310b51be4b531bfac5dafdba87f01d24ad2905129b0a.jpg
@@ -131,3 +131,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5e447cc27c59c411e7e310b51be4b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/797104-9781451672817-a-spiritual-renegades-guide-to-the-good-life/"><u>A Spiritual Renegade's Guide to the Good Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/801220-9781429937412-awakening-your-psychic-powers/"><u>Awakening Your Psychic Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/797371-9781448117703-born-to-heal/"><u>Born To Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/798490-9780307807397-life-after-death/"><u>Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/800121-9781846949661-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/800107-9781780992112-the-fifth-disciple/"><u>The Fifth Disciple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/800119-9781846949401-time-to-change/"><u>Time to Change | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

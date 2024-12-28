@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-12-19T21:34:18.697Z
-updated: 2024-12-22T12:27:47.632Z
+date: 2024-12-22T17:47:56.438Z
+updated: 2024-12-28T00:32:08.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,17 +192,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2417866-9781509823338-a-very-mindful-christmas/"><u>A Very Mindful Christmas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418879-9781782794509-on-being-human/"><u>On Being Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418881-9781785350313-pagan-portals-meditation/"><u>Pagan Portals - Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418884-9781782799917-paradise-and-promises/"><u>Paradise and Promises | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418890-9781785351587-the-book-of-becoming/"><u>The Book of Becoming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2417032-9781782799443-the-book-of-destiny/"><u>The Book of Destiny | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2419693-9780761866961-the-wild-longing-of-the-human-heart/"><u>The Wild Longing of the Human Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2417190-9781780288956-wake-the-fck-up/"><u>Wake the F*ck Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627866-9781444141306-encounters-with-vampires-flash/"><u>Encounters with Vampires: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627938-9781444140941-find-peace-with-meditation-flash/"><u>Find Peace with Meditation: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627863-9781444141146-first-steps-in-witchcraft-flash/"><u>First Steps in Witchcraft: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627785-9781444141283-revitalize-your-life-with-feng-shui-flash/"><u>Revitalize Your Life with Feng Shui: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627776-9781444141153-unlock-your-energy-from-chakras-flash/"><u>Unlock Your Energy from Chakras: Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1627867-9781444141313-wicca-druidry-and-shamanism-flash/"><u>Wicca, Druidry and Shamanism: Flash | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

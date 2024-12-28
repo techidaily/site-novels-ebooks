@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2024-12-16T19:30:39.345Z
-updated: 2024-12-22T11:13:33.689Z
+date: 2024-12-21T01:32:53.435Z
+updated: 2024-12-28T02:07:52.364Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,16 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/538222-9781439164037-awakening-kindness/"><u>Awakening Kindness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/534141-9780307717597-echoes-of-memory/"><u>Echoes of Memory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/529718-9781556439896-opening-our-spiritual-eyes/"><u>Opening Our Spiritual Eyes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/529687-9781556439506-soulshaping/"><u>Soulshaping | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/535508-9781402237751-the-complete-dream-book-of-love-and-relationships/"><u>The Complete Dream Book of Love and Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/534425-9781101197981-the-complete-idiots-guide-to-the-akashic-record/"><u>The Complete Idiot's Guide to the Akashic Record | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/529706-9781556439902-your-psychic-potential/"><u>Your Psychic Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667344-9781547580514-liderazgo-mejora-tu-lenguaje-corporal-para-influenciar-a-otros-a-traves-de-comunicacion-poderosa/"><u>Liderazgo: Mejora Tu Lenguaje Corporal Para Influenciar A Otros A Través De Comunicación Poderosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667340-9781547577323-meditacion-aprenda-como-meditar-para-dormir-mejor-usando-la-guia/"><u>Meditación : Aprenda Cómo Meditar Para Dormir Mejor Usando La Guía | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667370-9781547577637-meditacion-activa-tus-chakras-y-reduce-la-ansiedad-y-la-depresion/"><u>Meditación: Activa Tus Chakras Y Reduce La Ansiedad Y La Depresión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667360-9781547576579-meditacion-guia-para-principiantes-para-meditar-y-reducir-estres-logra-la-paz-y-la-espiritualidad/"><u>Meditación: Guía Para Principiantes Para Meditar Y Reducir Estrés (Logra La Paz Y La Espiritualidad) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667349-9781547574551-meditacion-tecnicas-de-meditacion-para-relajarse-y-aliviar-la-ansiedad-meditation/"><u>Meditación: Técnicas De Meditación Para Relajarse Y Aliviar La Ansiedad ( Meditation) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667342-9781547578160-meditacion-tecnicas-de-mindfulness-para-lograr-la-espiritualidad-elimina-la-ansiedad-rapidamente/"><u>Meditación: Técnicas De Mindfulness Para Lograr La Espiritualidad (Elimina La Ansiedad Rápidamente) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667362-9781547580095-meditacion-tecnicas-para-lograr-la-paz-reducir-el-estres-y-la-depresion/"><u>Meditación: Técnicas Para Lograr La Paz (Reducir El Estrés Y La Depresión) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

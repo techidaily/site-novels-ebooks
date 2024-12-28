@@ -1,7 +1,7 @@
 ---
 title: Something in This Book Is True, Second Edition | Free Book
-date: 2024-10-24T04:01:46.851Z
-updated: 2024-10-27T03:24:48.389Z
+date: 2024-12-24T20:47:47.674Z
+updated: 2024-12-28T00:37:47.848Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd6588709cd27385a4315aca3e343a0c340f0993a8d4fca94ab47bc9c7c421c6.jpg
@@ -160,3 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd6588709cd27385a4315aca3e343a0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782785-9781594779411-numerology-for-decoding-behavior/"><u>Numerology for Decoding Behavior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782786-9781594777790-numerology-for-healing/"><u>Numerology for Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782784-9781594777936-obi/"><u>Obí | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782782-9781620550625-tao-and-tai-chi-kung/"><u>Tao and T'ai Chi Kung | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

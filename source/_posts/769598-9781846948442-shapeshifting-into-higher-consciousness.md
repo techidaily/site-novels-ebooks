@@ -1,7 +1,7 @@
 ---
 title: Shapeshifting into Higher Consciousness | Free Book
-date: 2024-10-24T03:16:49.953Z
-updated: 2024-10-26T16:14:48.030Z
+date: 2024-12-26T19:45:49.940Z
+updated: 2024-12-27T18:02:35.450Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e019849d4d9923b02efbe3dbf4b74fe2f1a4967990fa4bab98be41b13d6485ff.jpg
@@ -136,3 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e019849d4d9923b02efbe3dbf4b74fe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782776-9781594778490-advanced-chi-nei-tsang/"><u>Advanced Chi Nei Tsang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782775-9781620553008-aspects-in-astrology/"><u>Aspects in Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782777-9781620550632-taoist-astrology/"><u>Taoist Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782774-9781620552841-the-five-dharma-types/"><u>The Five Dharma Types | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782773-9781620551363-the-future-of-human-experience/"><u>The Future of Human Experience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

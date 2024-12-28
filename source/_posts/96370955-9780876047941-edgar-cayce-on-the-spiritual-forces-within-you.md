@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Spiritual Forces Within You | Free Book
-date: 2024-12-01T04:43:44.992Z
-updated: 2024-12-06T22:33:04.349Z
+date: 2024-12-23T23:16:54.304Z
+updated: 2024-12-27T21:01:31.171Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470b857f14ac64c99772e37190174dfb5c38.jpg
@@ -144,14 +144,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210193187-9781642500165-adventures-in-cryptozoology-volume-1/"><u>Adventures in Cryptozoology Volume 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193164-9781609252175-awakened-mind/"><u>Awakened Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193089-9781642790313-true-starlight/"><u>True Starlight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193230-9781609253660-us/"><u>Us! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193073-9781642797602-who-will-love-me/"><u>Who Will Love Me? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838387-9780991345762-health-an-inside-job-an-outside-business/"><u>Health; An Inside Job an Outside Business | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838440-9780990393214-it-is-i-amadeus/"><u>It Is I, Amadeus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838397-9780991506811-listen-up-the-other-side-is-talking/"><u>Listen Up! the Other Side Is Talking. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838434-9780993790416-the-purpose-your-souls-emotional-journey/"><u>The Purpose: Your Soul's Emotional Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209838509-9780989828918-zen-of-technology-stress-free-email/"><u>Zen of Technology - Stress-Free Email | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

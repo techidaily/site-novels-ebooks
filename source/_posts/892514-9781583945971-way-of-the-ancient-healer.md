@@ -1,7 +1,7 @@
 ---
 title: Way of the Ancient Healer | Free Book
-date: 2024-10-20T22:42:20.325Z
-updated: 2024-10-27T03:56:03.012Z
+date: 2024-12-24T00:57:25.008Z
+updated: 2024-12-27T21:55:11.499Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/11726d837eea7a332422a1ff72635e483149d84aca3b369cb487c0a6a264ed7c.jpg
@@ -237,3 +237,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/11726d837eea7a332422a1ff72635e4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95625628-9789352150106-aao-apnaye-modern-jeevan-shaili/"><u>AAO APNAYE MODERN JEEVAN SHAILI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95625630-9789352150120-aao-jadu-sikhen/"><u>AAO JADU SIKHEN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95625640-9789352150267-bhoot-pret-ghatnaye/"><u>BHOOT PRET GHATNAYE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95624672-9781459737822-charlie-red-star/"><u>Charlie Red Star | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

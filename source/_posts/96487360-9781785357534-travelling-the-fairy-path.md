@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-12-18T05:36:38.691Z
-updated: 2024-12-22T05:12:58.556Z
+date: 2024-12-25T23:03:51.882Z
+updated: 2024-12-27T19:10:17.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,15 +153,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2543815-9781786780027-deep-awake/"><u>Deep Awake | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543812-9781780289915-john-the-baptist-and-the-last-gnostics/"><u>John the Baptist and the Last Gnostics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543814-9781786780010-opening-the-doors-of-perception/"><u>Opening the Doors of Perception | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543810-9781780289786-radical-awakening/"><u>Radical Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543811-9781780289830-the-illuminati/"><u>The Illuminati | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2543817-9781786780041-the-secret-american-destiny/"><u>The Secret American Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1757245--blood-of-avalon/"><u>Blood of Avalon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1759790-9781599217239-crazy-sexy-cancer-tips/"><u>Crazy Sexy Cancer Tips | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/175605-9781416500179-experiencing-the-next-world-now/"><u>Experiencing the Next World Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763375-9781776583645-historic-ghosts-and-ghost-hunters/"><u>Historic Ghosts and Ghost Hunters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/176192-9781416500575-three-men-seeking-monsters/"><u>Three Men Seeking Monsters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1763349-9781776583126-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Healing This Wounded Earth | Free Book
-date: 2024-10-21T18:59:34.596Z
-updated: 2024-10-27T00:12:53.719Z
+date: 2024-12-25T20:25:06.305Z
+updated: 2024-12-28T00:37:38.587Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db03ad830bd326a806135f75528cdd6e68488f0bfa9eb19ea5857b75d2c4d35a.jpg
@@ -141,3 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db03ad830bd326a806135f75528cdd6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317729-9781401924874-return-to-the-sacred/"><u>Return to the Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317723-9781401921422-sara-book-3/"><u>Sara, Book 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317725-9781401922474-the-amazing-power-of-deliberate-intent/"><u>The Amazing Power of Deliberate Intent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317720-9781401926724-the-proof/"><u>The Proof | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "America's Most Ghostly Places: New York State | Free Book"
-date: 2024-10-19T19:47:58.023Z
-updated: 2024-10-27T01:09:02.094Z
+date: 2024-12-24T23:15:23.938Z
+updated: 2024-12-27T17:57:40.342Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2f59f7586ebc6e1ee5f954008a1251a2af97ad43218cb4360e1a340c3228f95.jpg
@@ -156,3 +156,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2f59f7586ebc6e1ee5f954008a1251
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782327-9781591438472-power-animal-meditations/"><u>Power Animal Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782326-9781591438670-prayers-and-meditations-of-the-quero-apache/"><u>Prayers and Meditations of the Quero Apache | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782329-9781591437543-the-mysterious-origins-of-hybrid-man/"><u>The Mysterious Origins of Hybrid Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782330-9781591438298-the-power-of-ecstatic-trance/"><u>The Power of Ecstatic Trance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782331-9781591438724-the-power-of-emotion/"><u>The Power of Emotion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

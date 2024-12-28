@@ -1,7 +1,7 @@
 ---
 title: The Eight Crystal Alliances | Free Book
-date: 2024-10-22T20:21:11.896Z
-updated: 2024-10-27T05:02:02.299Z
+date: 2024-12-26T16:33:40.273Z
+updated: 2024-12-28T01:05:48.050Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62cc86be8ee6adf521ec39e635429dda9032679b464b36c4f4d08cca97b9caf8.jpg
@@ -166,3 +166,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62cc86be8ee6adf521ec39e635429dd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96422485-9780486825625-365-daily-meditations-for-on-and-off-the-mat/"><u>365 Daily Meditations for On and Off the Mat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96422453-9780486823430-the-book-of-ceremonial-magic/"><u>The Book of Ceremonial Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96422276-9780486816272-the-book-of-luck/"><u>The Book of Luck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96437876-9781595588869-the-cushion-in-the-road/"><u>The Cushion in the Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96421970-9780486802985-the-romance-of-sorcery/"><u>The Romance of Sorcery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96421740-9780486111469-the-secret-commonwealth-of-elves-fauns-and-fairies/"><u>The Secret Commonwealth of Elves, Fauns and Fairies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

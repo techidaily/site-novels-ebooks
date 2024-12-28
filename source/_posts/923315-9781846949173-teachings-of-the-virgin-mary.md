@@ -1,7 +1,7 @@
 ---
 title: Teachings of the Virgin Mary | Free Book
-date: 2024-10-25T17:30:01.711Z
-updated: 2024-10-26T16:47:55.870Z
+date: 2024-12-26T00:46:06.945Z
+updated: 2024-12-28T00:02:22.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aaf112962322cbb62e81a6884db1cae7bd6abc7421c50874d1071d5e5e71b344.jpg
@@ -137,3 +137,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aaf112962322cbb62e81a6884db1cae
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/826832--divine-therapy-and-addiction/"><u>Divine Therapy and Addiction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820195-9780813127842-ghosts-across-kentucky/"><u>Ghosts across Kentucky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820211-9780813170893-haunted-houses-and-family-ghosts-of-kentucky/"><u>Haunted Houses and Family Ghosts of Kentucky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/828095-9780857200211-how-to-see-your-angels/"><u>How to See Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820212-9780813171302-lake-monster-mysteries/"><u>Lake Monster Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820209-9780813170831-real-life-x-files/"><u>Real-Life X-Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/828020-9780307984951-rediscovering-life/"><u>Rediscovering Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/823159-9781451673456-the-magic/"><u>The Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

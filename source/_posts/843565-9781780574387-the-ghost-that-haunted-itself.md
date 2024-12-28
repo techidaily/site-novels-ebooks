@@ -1,7 +1,7 @@
 ---
 title: The Ghost That Haunted Itself | Free Book
-date: 2024-10-21T21:01:10.649Z
-updated: 2024-10-26T22:29:26.990Z
+date: 2024-12-25T23:31:00.396Z
+updated: 2024-12-28T01:04:44.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1bbeadc7fc4c7dfd6e95f5301a3efa70760c50f233a7b287d0e523d1a80cfa5c.jpg
@@ -164,3 +164,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1bbeadc7fc4c7dfd6e95f5301a3efa7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782352-9781591432548-ancient-alien-ancestors/"><u>Ancient Alien Ancestors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782351-9781591439790-ancient-egypt-39000-bce/"><u>Ancient Egypt 39,000 BCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782353-9781591433088-cosmic-womb/"><u>Cosmic Womb | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782354-9781591437901-the-great-pyramid-hoax/"><u>The Great Pyramid Hoax | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782356-9781591438823-the-secret-initiation-of-jesus-at-qumran/"><u>The Secret Initiation of Jesus at Qumran | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

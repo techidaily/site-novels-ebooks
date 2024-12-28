@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-12-18T05:13:16.289Z
-updated: 2024-12-22T04:14:43.626Z
+date: 2024-12-23T22:08:43.351Z
+updated: 2024-12-27T21:23:41.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,13 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211373425-9781646494194-mysteries-prophecies-and-the-hollow-earth/"><u>Mysteries, Prophecies, and the Hollow Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373465-9780648510635-taotuning/"><u>TaoTuning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373372-9781646494255-the-book-of-manifesting/"><u>The Book of Manifesting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373445-9781646494217-the-lightness-of-being/"><u>The Lightness of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138547178-9780987866233-a-quest-for-healing-a-story-of-love-ebook/"><u>A Quest for Healing – A Story of Love - EBOOK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138552564-9781578596928-area-51/"><u>Area 51 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545043-9781623173500-consciousness-medicine/"><u>Consciousness Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545085-9780399582561-dont-hate-meditate/"><u>Don't Hate, Meditate! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545037-9781401929886-four-acts-of-personal-power/"><u>Four Acts of Personal Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138553168-9781462907380-simple-ways-to-wellness/"><u>Simple Ways to Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138553150-9781462907854-talking-lightly/"><u>Talking Lightly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138547224-9789176371138-the-prophet-wisehouse-classics-edition/"><u>THE PROPHET (Wisehouse Classics Edition) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

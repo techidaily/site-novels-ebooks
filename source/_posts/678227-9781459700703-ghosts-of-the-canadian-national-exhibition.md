@@ -1,7 +1,7 @@
 ---
 title: Ghosts of the Canadian National Exhibition | Free Book
-date: 2024-10-22T05:07:12.356Z
-updated: 2024-10-26T17:05:58.894Z
+date: 2024-12-20T17:59:41.683Z
+updated: 2024-12-27T16:25:00.854Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/acfe2c172385deb6fa0350f8e4f9d32d894965af70ce2e6409cfd59812cfbb28.jpg
@@ -177,3 +177,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/acfe2c172385deb6fa0350f8e4f9d32
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316914-9781401932060-a-spiritual-philosophy-for-the-new-world/"><u>A Spiritual Philosophy for the New World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316908-9781401931148-along-the-path-to-enlightenment/"><u>Along the Path to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316891-9781401925222-conexiones-espirituales/"><u>Conexiones Espirituales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316889-9781401929763-diary-of-a-psychic/"><u>Diary of a Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316911-9781401932589-nothing-is-too-good-to-be-true/"><u>Nothing Is Too Good to Be True | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316897-9781401930219-soul-coaching/"><u>Soul Coaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316890-9781401928506-visions-trips-and-crowded-rooms/"><u>Visions, Trips, and Crowded Rooms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316904-9781401930875-what-if/"><u>What If? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

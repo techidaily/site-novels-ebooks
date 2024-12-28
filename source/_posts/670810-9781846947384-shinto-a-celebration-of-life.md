@@ -1,7 +1,7 @@
 ---
 title: "Shinto: A Celebration of Life | Free Book"
-date: 2024-10-22T04:26:03.135Z
-updated: 2024-10-27T04:37:39.321Z
+date: 2024-12-24T21:12:10.015Z
+updated: 2024-12-28T01:39:06.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9b280814a33869f0ac0c507b5839d19275bc081fcde55ea0515814ce62b7f39.jpg
@@ -137,3 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9b280814a33869f0ac0c507b5839d1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317816-9781781803646-aries-moon-sign/"><u>Aries Moon Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317788-9781401946623-manifest-moment-to-moment/"><u>Manifest Moment to Moment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317796-9781401943509-percolate/"><u>Percolate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317808-9781781803202-the-tarot-masters/"><u>The Tarot Masters | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

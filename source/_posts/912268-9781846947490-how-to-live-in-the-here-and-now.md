@@ -1,7 +1,7 @@
 ---
 title: How To Live In The Here And Now | Free Book
-date: 2024-10-20T16:55:45.732Z
-updated: 2024-10-27T00:59:57.222Z
+date: 2024-12-25T18:19:56.078Z
+updated: 2024-12-28T01:48:13.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a22f48b2decb8a30a18b4575ec1135dc07476b207aae57d63932bceec68f292d.jpg
@@ -129,3 +129,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a22f48b2decb8a30a18b4575ec1135d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/731682-9781780990095-an-angel-whispered/"><u>An Angel Whispered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730383-9781446490761-astrological-aromatherapy/"><u>Astrological Aromatherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731683-9781846949944-avenues-of-the-human-spirit/"><u>Avenues of the Human Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731684-9781846949951-conscious-living-made-easy/"><u>Conscious Living Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730374-9781446489963-spiritual-alchemy/"><u>Spiritual Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731516-9781429907705-tarot-in-the-spirit-of-zen/"><u>Tarot in the Spirit of Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730375-9781446489970-the-mirror-of-existence/"><u>The Mirror Of Existence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730390-9781446490839-the-mystical-crystal/"><u>The Mystical Crystal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730408-9781446490631-we-are-one-another/"><u>We Are One Another | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

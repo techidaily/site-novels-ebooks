@@ -1,7 +1,7 @@
 ---
 title: The Simple Feeling of Being | Free Book
-date: 2024-10-21T05:14:30.834Z
-updated: 2024-10-27T01:19:59.384Z
+date: 2024-12-21T16:22:21.532Z
+updated: 2024-12-27T22:23:54.994Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14e262642d6c24761ddca9b2910d52996ab5758abeb7200d0cf0609639bc6b71.jpg
@@ -185,3 +185,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14e262642d6c24761ddca9b2910d529
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/662894-9781583943427-manifesto-for-the-noosphere/"><u>Manifesto for the Noosphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663568-9781583943533-natural-chi-movement/"><u>Natural Chi Movement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663151-9781583943434-the-electric-jesus/"><u>The Electric Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/663582-9781583943441-the-four-global-truths/"><u>The Four Global Truths | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Mystics and Zen Masters | Free Book
-date: 2024-10-19T22:07:55.506Z
-updated: 2024-10-27T04:30:23.069Z
+date: 2024-12-25T00:57:01.737Z
+updated: 2024-12-27T17:57:16.327Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/114181deedddc566f67fb43e9deb0be19e140d2bba44afd3685f13bce96d1f39.jpg
@@ -157,3 +157,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/114181deedddc566f67fb43e9deb0be
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96505435-9781627558303-a-creed-of-the-open-road/"><u>A Creed of the Open Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505241-9781627554978-attaining-your-desires/"><u>Attaining Your Desires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505266-9781627556699-i-ching/"><u>I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505599-9781633840188-oracles-of-nostradamus/"><u>Oracles of Nostradamus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505232-9781627553407-the-book-of-the-damned/"><u>The Book of the Damned | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505536-9781627558594-the-conquest-of-fear/"><u>The Conquest of Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505584-9781627558686-the-possibilities-of-prayer/"><u>The Possibilities of Prayer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

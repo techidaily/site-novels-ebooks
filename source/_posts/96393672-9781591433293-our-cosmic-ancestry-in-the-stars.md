@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2024-11-30T17:24:29.036Z
-updated: 2024-12-07T06:37:43.341Z
+date: 2024-12-24T16:06:56.863Z
+updated: 2024-12-27T23:59:18.953Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,14 +191,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210170073-9781643346373-el-cazador-de-la-mente-subconsciente/"><u>El Cazador de la Mente Subconsciente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170088-9781643343822-el-exito-en-la-mirada-de-un-desconocido/"><u>El Éxito En La Mirada De Un Desconocido | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170094-9781643345338-gemas-de-motivacion/"><u>Gemas De Motivación | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210170096-9781643346205-reflexiones-sobre-la-naturaleza-y-el-universo/"><u>Reflexiones sobre la naturaleza y el universo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210169466-9780834843370-the-diamond-approach/"><u>The Diamond Approach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732445-9781788173605-crystals-for-energy-protection/"><u>Crystals for Energy Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209734648-9781787133402-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733632-9781722523572-self-mastery-through-conscious-autosuggestion-original-classic-edition/"><u>Self-Mastery Through Conscious Autosuggestion (Original Classic Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733677-9781609259259-tarot-card-combinations/"><u>Tarot Card Combinations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732469-9781984856609-the-new-stone-age/"><u>The New Stone Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733413-9781507212639-the-witchs-book-of-love/"><u>The Witch's Book of Love | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Mystery Chronicles | Free Book
-date: 2024-10-24T20:37:10.522Z
-updated: 2024-10-26T16:11:34.865Z
+date: 2024-12-23T21:41:05.188Z
+updated: 2024-12-27T20:40:18.936Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15f66190f8b7e496a5e6267cd4053fe2ca635e39dc5824597fa9fe4ffaa69aeb.jpg
@@ -168,3 +168,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15f66190f8b7e496a5e6267cd4053fe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782627-9781594775444-chosen-by-the-spirits/"><u>Chosen by the Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782632-9781594775468-spirit-of-the-shuar/"><u>Spirit of the Shuar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782622-9781620554975-the-mystery-of-spring-heeled-jack/"><u>The Mystery of Spring-Heeled Jack | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782628-9781594777981-the-new-orleans-voodoo-handbook/"><u>The New Orleans Voodoo Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782629-9781620555484-the-seven-archetypal-stones/"><u>The Seven Archetypal Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782630-9781594776687-the-soundscape/"><u>The Soundscape | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782634-9781620551226-the-spiritual-foundations-of-aikido/"><u>The Spiritual Foundations of Aikido | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782621-9781620550755-tools-for-tantra/"><u>Tools for Tantra | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-12-17T13:46:16.510Z
-updated: 2024-12-22T02:22:55.706Z
+date: 2024-12-25T22:13:59.419Z
+updated: 2024-12-27T20:50:43.087Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,18 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211372563-9781925429749-always-with-you/"><u>Always With You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372514-9781923009257-crystal-grids/"><u>Crystal Grids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372593-9781925924121-journey-through-the-chakras/"><u>Journey Through The Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372581-9781925682403-mindful-living/"><u>Mindful Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372561-9781925429725-monsters-and-creatures/"><u>Monsters and Creatures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372512-9781923009233-oracle-card-companion/"><u>Oracle Card Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372583-9781925682465-past-lives-unveiled/"><u>Past Lives Unveiled | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372513-9781923009240-psychic/"><u>Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372519-9781925017205-spellbound/"><u>Spellbound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544983-9781401949976-a-course-in-miracles-made-easy/"><u>A Course in Miracles Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545006-9781401926748-accepting-the-psychic-torch/"><u>Accepting the Psychic Torch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544997-9781401941109-archetypes/"><u>Archetypes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544984-9781401941734-celebrating-the-universe/"><u>Celebrating the Universe! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544978-9781401928650-colors-numbers/"><u>Colors & Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544996-9781401925055-fractal-time/"><u>Fractal Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544964-9781401926687-spontaneous-evolution/"><u>Spontaneous Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544962-9781401924881-the-13th-step/"><u>The 13th Step | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

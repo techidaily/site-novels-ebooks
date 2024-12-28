@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Intuition | Free Book
-date: 2024-12-01T20:59:56.455Z
-updated: 2024-12-07T01:04:16.546Z
+date: 2024-12-25T16:21:53.740Z
+updated: 2024-12-27T21:46:00.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc91bdc663b6f65fa5b3200c18dc7433ba47.jpg
@@ -144,16 +144,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210194991-9781619021426-a-book-of-silence/"><u>A Book of Silence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210196542-9781631595530-angels-spirit-guides-goddesses/"><u>Angels, Spirit Guides & Goddesses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210195339-9781619021266-kissed-by-a-fox/"><u>Kissed by a Fox | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210194614-9781644113875-stones-of-the-new-consciousness-2nd-ed/"><u>Stones of the New Consciousness (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210196558-9781592337996-the-key-to-the-chakras/"><u>The Key to the Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210194615-9781644113868-the-pocket-book-of-stones-3rd-ed/"><u>The Pocket Book of Stones (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210195729-9781953474018-the-voice-of-venus/"><u>The Voice of Venus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840844-9780990584834-365-daily-vision-nuggets/"><u>365 Daily Vision Nuggets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840920-9780994369321-astrology/"><u>ASTROLOGY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840989-9780984002900-mary-magdalene-beckons/"><u>Mary Magdalene Beckons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840928-9781513602851-nikola-tesla-afterlife-comments-on-paraphysical-concepts-volume-one/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts, Volume One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841008-9780977512669-pranayama-the-breath-of-yoga/"><u>Pranayama the Breath of Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840981-9780984002931-sublime-union/"><u>Sublime Union | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840882-9780992433833-the-deeper-the-sorrow-the-stronger-the-spirit/"><u>The Deeper the Sorrow, The Stronger the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841167-9780994359315-where-the-light-lives/"><u>Where The Light Lives | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

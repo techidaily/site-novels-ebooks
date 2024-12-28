@@ -1,7 +1,7 @@
 ---
 title: La llamada (de la) Nueva Era | Free Book
-date: 2024-10-24T23:23:42.344Z
-updated: 2024-10-26T16:01:28.041Z
+date: 2024-12-26T00:28:48.951Z
+updated: 2024-12-28T02:17:33.451Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/780f4d1f6db97efe589b11b9a443a01fb5e5874c66786cb1529153d790e5b4c0.jpg
@@ -161,3 +161,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/780f4d1f6db97efe589b11b9a443a01
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95917951-9781620556863-cannabis-in-spiritual-practice/"><u>Cannabis in Spiritual Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917949-9781591433125-cleansing-rites-of-curanderismo/"><u>Cleansing Rites of Curanderismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917945-9781620556689-dictionary-of-gypsy-mythology/"><u>Dictionary of Gypsy Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917950-9781620555781-egregores/"><u>Egregores | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917947-9781591433149-power-places-and-the-master-builders-of-antiquity/"><u>Power Places and the Master Builders of Antiquity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917952-9781620557020-sacred-geometry-for-artists-dreamers-and-philosophers/"><u>Sacred Geometry for Artists, Dreamers, and Philosophers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917944-9781591432920-sacred-messengers-of-shamanic-africa/"><u>Sacred Messengers of Shamanic Africa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917948-9781591433200-secret-history-of-the-watchers/"><u>Secret History of the Watchers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

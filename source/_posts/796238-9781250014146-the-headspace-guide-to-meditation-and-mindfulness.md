@@ -1,7 +1,7 @@
 ---
 title: The Headspace Guide to Meditation and Mindfulness | Free Book
-date: 2024-10-24T17:24:16.384Z
-updated: 2024-10-26T21:03:14.723Z
+date: 2024-12-26T00:56:27.849Z
+updated: 2024-12-27T16:05:21.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfd844c44bc37d0d242c071d4d9d6d8f791f77492e1ada30efae7240c72084d3.jpg
@@ -202,3 +202,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfd844c44bc37d0d242c071d4d9d6d8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782435-9781591432227-astrology-in-ancient-mesopotamia-2nd-ed/"><u>Astrology in Ancient Mesopotamia (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782438-9781591432449-shamanic-wisdom-for-pregnancy-and-parenthood/"><u>Shamanic Wisdom for Pregnancy and Parenthood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782434-9781591438342-the-council-of-light/"><u>The Council of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782436-9781591438083-the-voice-of-rolling-thunder/"><u>The Voice of Rolling Thunder | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

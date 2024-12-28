@@ -1,7 +1,7 @@
 ---
 title: "Three Dangerous Magi: Osho Gurdjieff Cr | Free Book"
-date: 2024-10-25T02:15:38.478Z
-updated: 2024-10-26T22:35:27.176Z
+date: 2024-12-23T01:22:06.877Z
+updated: 2024-12-27T19:15:09.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/658868c08c80c3da965511ef4f78e4afdfb3a9da350638a5ba5bd6c212b38988.jpg
@@ -127,3 +127,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/658868c08c80c3da965511ef4f78e4a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96476455-9780880507677-gold-nuggets/"><u>Gold Nuggets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476459-9780880507721-meditation-the-first-and-last-freedom/"><u>Meditation: The First and Last Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96475364-9780982267936-mystery-mayhemchronicle-usa/"><u>MYSTERY-MAYHEM:CHRONICLE USA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96475078-9780932551337-psilocybin-mushroom-handbook/"><u>Psilocybin Mushroom Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96475363-9780982267929-santa-fe-paranormal-guide/"><u>SANTA FE: PARANORMAL GUIDE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476451-9780880504102-tantric-transformation/"><u>Tantric Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476450-9780880507691-the-book-of-wisdom/"><u>The Book of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476457-9780880507684-the-god-conspiracy/"><u>The God Conspiracy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476456-9780880500166-watchfulness-awareness-alertness/"><u>Watchfulness, Awareness, Alertness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: A Complete Book of Reiki Healing | Free Book
-date: 2024-12-16T02:49:47.433Z
-updated: 2024-12-22T06:28:35.752Z
+date: 2024-12-26T00:55:27.787Z
+updated: 2024-12-27T23:45:00.120Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b7d87f2f8a05264db45a314eb9ae845e59.jpg
@@ -138,15 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211476316--close-encounters/"><u>Close Encounters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476671-9781907767494-prophecy-and-power-2nd-ed/"><u>Prophecy and Power (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476485-9781839388712-rosicrucianism/"><u>Rosicrucianism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476413-9781839388699-shamanism/"><u>Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211475891-9781397665270-the-call-of-kumayl/"><u>The Call of Kumayl | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476238-9781397665300-the-sixth-book-of-moses-and-the-seventh-book-of-moses/"><u>The Sixth Book of Moses and The Seventh Book of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621224-9781632658913-ancient-aliens-in-the-bible/"><u>Ancient Aliens in the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621222-9781601633873-bloodline-of-the-gods/"><u>Bloodline of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621212-9781601639837-discovering-the-mysteries-of-ancient-america/"><u>Discovering the Mysteries of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621221-9781632659019-one-voice-sacred-wisdom/"><u>One Voice, Sacred Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621220-9781601639530-opening-the-ark-of-the-covenant/"><u>Opening the Ark of the Covenant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621214-9781632659347-the-path-of-presence/"><u>The Path of Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621218-9781632659606-weapons-of-the-gods/"><u>Weapons of the Gods | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

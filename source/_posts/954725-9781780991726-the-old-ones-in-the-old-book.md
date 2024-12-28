@@ -1,7 +1,7 @@
 ---
 title: The Old Ones in the Old Book | Free Book
-date: 2024-10-21T16:23:11.881Z
-updated: 2024-10-27T04:07:30.284Z
+date: 2024-12-23T16:03:21.796Z
+updated: 2024-12-28T02:38:48.951Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b014741afeaad4a679505ed251e7eed8a1dd8252d0cb50fb6749fa82c2680e3f.jpg
@@ -141,3 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b014741afeaad4a679505ed251e7eed
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/896533-9781583945209-a-parents-guide-to-crystals/"><u>A Parent's Guide to Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/902080-9781446446379-hands-on-healing-for-pets/"><u>Hands-On Healing For Pets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/903008-9780857010827-i-send-a-voice/"><u>I Send a Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896530-9781583945124-radical-passion/"><u>Radical Passion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896535-9781583945230-the-christ-letters/"><u>The Christ Letters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896539-9781583945988-the-guru-papers/"><u>The Guru Papers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

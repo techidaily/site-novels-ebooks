@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2024-12-20T19:41:36.346Z
-updated: 2024-12-22T10:23:08.481Z
+date: 2024-12-26T17:25:26.121Z
+updated: 2024-12-28T03:03:50.513Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,16 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211353699--activating-our-12-stranded-dna/"><u>Activating Our 12-Stranded DNA | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352898-9798869368980-colores-espirituales-y-sus-significados-en-colegio-del-espiritu-santo-nueva-edicion-en-espanol/"><u>COLORES ESPIRITUALES y sus significados - En COLEGIO DEL ESPÍRITU SANTO - Nueva Edición en Español | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211353698--crystals-for-psychic-self-defense/"><u>Crystals for Psychic Self-Defense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352933-9798869364401-dont-image-sont-toi-edition-francaise/"><u>DONT IMAGE SONT TOI? Édition française | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352930-9798869363725-initiation-to-wicca/"><u>Initiation to Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211354346--the-queens-path/"><u>The Queen's Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352900-9798869369703-duhovnye-cveta-i-ih-znachenie-v-shkole-svyatogo-duha-novoe-russkoe-izdanie/"><u>ДУХОВНЫЕ ЦВЕТА и их значение - В ШКОЛЕ СВЯТОГО ДУХА - Новое русское издание | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172373-9781780998275-live-issues/"><u>Live Issues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172374-9781780998930-no-name-no-number/"><u>No Name No Number | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172682-9781932073539-the-soul-solution/"><u>The Soul Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172703-9781577316992-the-ten-things-to-do-when-your-life-falls-apart/"><u>The Ten Things to Do When Your Life Falls Apart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172698-9781577319832-the-way-of-the-happy-woman/"><u>The Way of the Happy Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172692-9781932073379-trager-for-self-healing/"><u>Trager for Self-Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172379-9781780999807-what-aging-men-want/"><u>What Aging Men Want | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

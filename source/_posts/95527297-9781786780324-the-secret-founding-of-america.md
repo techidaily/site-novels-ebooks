@@ -1,7 +1,7 @@
 ---
 title: The Secret Founding of America | Free Book
-date: 2024-10-25T20:05:58.695Z
-updated: 2024-10-27T02:54:11.871Z
+date: 2024-12-26T02:25:14.987Z
+updated: 2024-12-27T17:53:04.947Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0519c83010e86f5db180a0b165099b4f54e8fc2a5dc34aae97ba14d131aa5bf9.jpg
@@ -168,3 +168,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0519c83010e86f5db180a0b165099b4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/617406-9780875868189-aliens-and-man/"><u>Aliens and Man? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617031-9781451620979-el-poder/"><u>El Poder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/616616-9781770704695-ghost-stories-of-newfoundland-and-labrador/"><u>Ghost Stories of Newfoundland and Labrador | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617474-9781849892445-horoscopes-your-future-in-2011/"><u>Horoscopes - Your Future In 2011 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/619923-9781101154076-rudolf-steiner/"><u>Rudolf Steiner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617475-9781849892421-tell-your-own-future/"><u>Tell Your Own Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/616639-9781770704565-the-big-book-of-mysteries/"><u>The Big Book of Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/616665-9781770704572-the-big-book-of-ufos/"><u>The Big Book of UFOs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

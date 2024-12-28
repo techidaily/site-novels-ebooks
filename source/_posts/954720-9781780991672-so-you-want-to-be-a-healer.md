@@ -1,7 +1,7 @@
 ---
 title: So You Want To be A Healer? | Free Book
-date: 2024-10-20T21:24:02.292Z
-updated: 2024-10-27T04:42:20.029Z
+date: 2024-12-23T18:46:28.953Z
+updated: 2024-12-28T02:44:33.268Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/316645339a2a97366a3d6d803e09098f416e174121ec6055ce25068f146fbf28.jpg
@@ -142,3 +142,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/316645339a2a97366a3d6d803e09098
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/892926-9781448149889-21st-century-star-signs/"><u>21st Century Star Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/894415-9781118380482-become-more-mindful-in-a-day-for-dummies/"><u>Become More Mindful In A Day For Dummies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/892511-9781583945940-esoteric-anatomy/"><u>Esoteric Anatomy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/888060-9780307817792-gemstones-a-to-z/"><u>Gemstones A to Z | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/887902-9781459707429-haunted-ontario-2nd-ed/"><u>Haunted Ontario (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/888679-9781407028453-life-before-death/"><u>Life Before Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/892410-9780307816283-mother-rising/"><u>Mother Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/888134-9781583945865-stillness/"><u>Stillness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/892514-9781583945971-way-of-the-ancient-healer/"><u>Way of the Ancient Healer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

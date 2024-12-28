@@ -1,7 +1,7 @@
 ---
 title: Don't Fix Me; I'm Not Broken | Free Book
-date: 2024-10-24T05:24:55.252Z
-updated: 2024-10-26T22:12:08.754Z
+date: 2024-12-25T17:21:50.027Z
+updated: 2024-12-27T17:13:44.312Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3dba63327330e65ab45fb76b9be0ad544a4ce41d737ccb3447578b1cd2ca6cac.jpg
@@ -139,3 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3dba63327330e65ab45fb76b9be0ad5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95935381-9781844093205-a-little-light-on-the-spiritual-laws/"><u>A Little Light on the Spiritual Laws | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935383-9781844093267-a-new-light-on-angels-2nd-ed/"><u>A New Light on Angels (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935378-9781844093878-the-whale-whisperer/"><u>The Whale Whisperer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935380-9781844092529-write-your-memoir/"><u>Write Your Memoir | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

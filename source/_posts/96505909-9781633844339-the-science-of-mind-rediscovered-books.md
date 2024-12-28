@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2024-12-18T07:22:34.454Z
-updated: 2024-12-22T03:45:10.614Z
+date: 2024-12-24T16:41:09.597Z
+updated: 2024-12-28T02:17:14.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,16 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211372601-9781925924848-clearing/"><u>CLEARING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372598-9781925924817-magickal-mermaids/"><u>MAGICKAL MERMAIDS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372599-9781925924824-magickal-unicorns/"><u>MAGICKAL UNICORNS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372594-9781925924138-the-art-of-witch/"><u>The Art of Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372595-9781925924145-the-book-of-faerie-spells/"><u>The Book of Faerie Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372596-9781925924152-the-book-of-tree-spells/"><u>The Book of Tree Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372597-9781925924169-you-are-clairvoyant/"><u>You Are Clairvoyant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545012-9781401935054-all-is-well/"><u>All Is Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545011-9781401927714-chants-of-a-lifetime/"><u>Chants of a Lifetime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545009-9781401922306-cosmos/"><u>CosMos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545016-9781401939793-feng-shui-simply/"><u>Feng Shui Simply | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

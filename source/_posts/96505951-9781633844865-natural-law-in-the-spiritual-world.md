@@ -1,7 +1,7 @@
 ---
 title: Natural Law in the Spiritual World | Free Book
-date: 2024-12-17T18:21:43.551Z
-updated: 2024-12-21T21:12:27.446Z
+date: 2024-12-25T23:55:02.656Z
+updated: 2024-12-27T18:43:04.644Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf6958958cca10e64f647f82e013fd8bf669c9.jpg
@@ -143,17 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf695
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211374283-9781528799881-aradia-queen-of-witchcraft/"><u>Aradia, Queen of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373624-9781503639843-global-ayahuasca/"><u>Global Ayahuasca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373539-9798330204366-hes-not-gone/"><u>He's Not Gone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373540-9791029916458-histeria-e-fenomenos-psiquicos/"><u>Histeria e Fenômenos Psíquicos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373526-9798990783232-liberandote-de-libro-de-ejercicio/"><u>Liberándote de... libro de ejercicio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374282-9781528799874-malleus-maleficarum-hammer-of-the-witches/"><u>Malleus Maleficarum: Hammer of the Witches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374281-9781528799898-the-magus/"><u>The Magus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373519-9798990195226-yoga-sutras-of-patanjali-part-one-pada-one-sutras-11-129/"><u>Yoga Sutras of Patanjali Part One, Pada One Sutras 1.1 - 1.29 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138558834-9780880500920-3-steps-to-awakening/"><u>3 Steps to Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138553707-9781462916399-beyond-the-breath/"><u>Beyond the Breath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138553217-9781462907038-body-of-light/"><u>Body of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138553373-9781462911271-japanese-fortune-calendar/"><u>Japanese Fortune Calendar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138555830-9781939681850-psychic-reiki/"><u>Psychic Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138556014-9780486829944-the-fabric-of-dreams/"><u>The Fabric of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138554740-9781948062107-witch-please-a-memoir/"><u>Witch, Please: A Memoir | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

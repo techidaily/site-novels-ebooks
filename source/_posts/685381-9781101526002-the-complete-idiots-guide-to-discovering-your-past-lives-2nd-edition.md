@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Discovering Your Past Lives, 2nd Edition | Free Book
-date: 2024-10-26T01:10:00.932Z
-updated: 2024-10-26T23:09:26.256Z
+date: 2024-12-23T23:45:52.643Z
+updated: 2024-12-27T21:10:11.972Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8eaf8adbb4131fe3221b92efeac25fc2ea8be1ab7b71166c2b27ae746859051.jpg
@@ -153,3 +153,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8eaf8adbb4131fe3221b92efeac25f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96190781-9781465479471-practical-ayurveda/"><u>Practical Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96191801-9781401953379-spirit-means-business/"><u>Spirit Means Business | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96192021-9781409181033-talking-with-angels-of-light/"><u>Talking with Angels of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96192009-9781409181057-talking-with-angels-of-love/"><u>Talking with Angels of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96192723-9781620558560-the-mystery-of-the-grail/"><u>The Mystery of the Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96192722-9781620558522-the-yoga-of-power/"><u>The Yoga of Power | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

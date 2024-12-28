@@ -1,7 +1,7 @@
 ---
 title: "Shamanic Reiki: Expanded Ways Of Working | Free Book"
-date: 2024-10-25T01:51:48.171Z
-updated: 2024-10-26T17:38:43.176Z
+date: 2024-12-22T01:05:40.197Z
+updated: 2024-12-28T00:18:48.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba5ec088ee0f85a5405e6901252417b2d8a1a02f987eade2ecddf6bf31337cd9.jpg
@@ -129,3 +129,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba5ec088ee0f85a5405e6901252417b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96476485-9780880500807-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476484-9780880500265-compassion-love-and-sex/"><u>Compassion, Love and Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476495-9780880500401-the-man-with-the-inexplicable-life/"><u>The Man with the Inexplicable Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476492-9780880502283-the-path-of-love/"><u>The Path of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476493-9780880500517-the-secret-of-meditation/"><u>The Secret of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476483-9780880500197-why-is-communication-so-difficult-particularly-between-lovers/"><u>Why Is Communication So Difficult, Particularly Between Lovers? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476489-9780880500241-you-are-in-prison-and-you-think-you-are-free/"><u>You Are in Prison and You Think You Are Free | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

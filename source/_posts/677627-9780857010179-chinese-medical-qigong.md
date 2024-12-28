@@ -1,7 +1,7 @@
 ---
 title: Chinese Medical Qigong | Free Book
-date: 2024-10-25T03:33:33.563Z
-updated: 2024-10-27T02:31:11.311Z
+date: 2024-12-21T20:55:03.695Z
+updated: 2024-12-28T03:01:51.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7cdf8486012d85bddd02d71579bf187c4557c4b14188142c99e56a73af3772f5.jpg
@@ -161,3 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7cdf8486012d85bddd02d71579bf187
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316694-9781781809471-knowthetruth/"><u>#KnowTheTruth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316692-9781848505469-advanced-thetahealing/"><u>Advanced ThetaHealing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316705-9781848506916-angels-watching-over-me/"><u>Angels Watching Over Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316702-9781788170680-dogs-and-cats-have-souls-too/"><u>Dogs and Cats Have Souls Too | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316700-9781848503847-matrix-reimprinting-using-eft/"><u>Matrix Reimprinting using EFT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316691-9781401952921-the-sacred-science/"><u>The Sacred Science | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-12-15T03:18:12.381Z
-updated: 2024-12-22T02:52:05.507Z
+date: 2024-12-21T00:37:54.495Z
+updated: 2024-12-27T16:58:16.575Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,15 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/271969-9781598759822-dream-psychology/"><u>Dream Psychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/273009-9781602562226-the-last-passage/"><u>The Last Passage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2700029-9781623171476-the-secret-nature-of-matter/"><u>The Secret Nature of Matter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2707603-9781449426897-wear-sunscreen/"><u>Wear Sunscreen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2708434-9781608683970-whispers-from-the-wild/"><u>Whispers from the Wild | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2708333-9780750956451-whos-there/"><u>Who's There? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541298-9780008319328-aries-2020-your-personal-horoscope/"><u>Aries 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541302-9780008319359-cancer-2020-your-personal-horoscope/"><u>Cancer 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541012-9781601636706-destiny-vs-choice/"><u>Destiny vs. Choice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541299-9780008319342-gemini-2020-your-personal-horoscope/"><u>Gemini 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541303-9780008319403-sagittarius-2020-your-personal-horoscope/"><u>Sagittarius 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541300-9780008319397-scorpio-2020-your-personal-horoscope/"><u>Scorpio 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541301-9780008319335-taurus-2020-your-personal-horoscope/"><u>Taurus 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209540706-9781939183781-think-like-a-pro-act-like-a-pro/"><u>Think Like A Pro - Act Like A Pro | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

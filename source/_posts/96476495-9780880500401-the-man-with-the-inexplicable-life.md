@@ -1,7 +1,7 @@
 ---
 title: The Man with the Inexplicable Life | Free Book
-date: 2024-12-15T13:53:04.665Z
-updated: 2024-12-22T11:25:57.456Z
+date: 2024-12-20T19:36:26.521Z
+updated: 2024-12-27T19:47:05.771Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090d7a673c820c62b2b8653378e4a7827ca4.jpg
@@ -170,16 +170,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2655256-9781608684076-dropping-the-struggle/"><u>Dropping the Struggle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/265699-9780553903515-extraordinary-knowing/"><u>Extraordinary Knowing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2660419-9781501139109-good-grief/"><u>Good Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2660412-9781614292883-inspiring-courage/"><u>Inspiring Courage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2655035-9780752492292-poltergeist-over-scotland/"><u>Poltergeist Over Scotland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2659050-9781633410336-rosicrucian-trilogy/"><u>Rosicrucian Trilogy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2660191-9781841814551-the-afterlife-bible/"><u>The Afterlife Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516540-9781632659613-eternal-dharma/"><u>Eternal Dharma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515671-9781401933418-facing-lifes-challenges/"><u>Facing Life's Challenges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515647-9780399591600-signs/"><u>Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516720-9781601635143-the-lost-colonies-of-ancient-america/"><u>The Lost Colonies of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516543-9781632659330-the-lost-history-of-ancient-america/"><u>The Lost History of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209516541-9781632659576-the-pleiadian-promise/"><u>The Pleiadian Promise | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Traditional Witchcraft for Urban Living | Free Book
-date: 2024-10-26T03:12:16.794Z
-updated: 2024-10-26T16:33:43.667Z
+date: 2024-12-23T20:58:16.865Z
+updated: 2024-12-27T19:34:55.683Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17016b9cc326e10daffcc5f1d141e917467c362bff128775aac704f51b79e0a9.jpg
@@ -142,3 +142,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17016b9cc326e10daffcc5f1d141e91
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95699235-9780316439541-before-you-wake/"><u>Before You Wake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95699272-9780753732519-crystal-basics/"><u>Crystal Basics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95701972-9788193315040-finding-peace/"><u>Finding Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702213-9781786781055-how-soon-is-now-sampler/"><u>How Soon is Now? Sampler | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702216-9781583949702-renegade-beauty/"><u>Renegade Beauty | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

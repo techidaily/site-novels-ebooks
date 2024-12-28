@@ -1,7 +1,7 @@
 ---
 title: The Faerie's Guide to Green Magick from the Garden | Free Book
-date: 2024-10-19T17:47:22.221Z
-updated: 2024-10-26T23:38:14.861Z
+date: 2024-12-24T17:31:38.687Z
+updated: 2024-12-27T20:29:37.884Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23fe4dde549e2a54772166482da0c6a7cc0eb0c8f7cabd7e6efd8e96538aef26.jpg
@@ -191,3 +191,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23fe4dde549e2a54772166482da0c6a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/977681--an-outline-of-occult-science-2nd-ed/"><u>An Outline of Occult Science (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/977604--astral-worship/"><u>Astral Worship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/976813-9781101603871-buddhas-book-of-sleep/"><u>Buddha's Book of Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/977673--clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/979165-9781476714448-divine-healing-hands/"><u>Divine Healing Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/976820-9781101602751-supernatural/"><u>Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/976826-9781101603819-the-basics-of-reiki/"><u>The Basics of Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/977935-9781615642632-the-essential-guide-to-energy-healing/"><u>The Essential Guide to Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/976827-9781101603826-the-little-book-of-energy-medicine/"><u>The Little Book of Energy Medicine | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Miracle Workers Handbook | Free Book
-date: 2024-10-26T03:29:10.183Z
-updated: 2024-10-27T01:38:23.717Z
+date: 2024-12-22T23:00:31.074Z
+updated: 2024-12-27T19:55:55.380Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f02864da5856b8017b5f736956e6a05c45d0fd0e28a11878345d192ed8eec9f4.jpg
@@ -142,3 +142,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f02864da5856b8017b5f736956e6a05
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95767853-9781493028009-spooky-southwest-2nd-ed/"><u>Spooky Southwest (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95766313-9781101666739-the-essential-ernest-holmes/"><u>The Essential Ernest Holmes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95767263-9781841814834-the-feng-shui-bible/"><u>The Feng Shui Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95766504-9781515415855-the-infinite-way/"><u>The Infinite Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95766507-9781515415817-the-james-allen-collection/"><u>The James Allen Collection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95766300-9781524705695-the-kybalion-centenary-edition/"><u>The Kybalion: Centenary Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95768392-9781515415756-the-law/"><u>The Law | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95768393-9781515415749-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95766766-9781618521149-the-untraining-of-a-sea-priestess/"><u>The Untraining of a Sea Priestess | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

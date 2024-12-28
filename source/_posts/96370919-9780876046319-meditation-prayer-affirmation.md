@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2024-11-30T21:58:19.540Z
-updated: 2024-12-06T18:25:11.354Z
+date: 2024-12-27T01:22:20.845Z
+updated: 2024-12-27T19:49:49.273Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -142,17 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210185533-9781087934754-a-child-in-search-of-god-truth/"><u>A Child in Search of God & Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210184748-9781950241804-be-the-good/"><u>Be the Good | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210184741-9781735983516-stealing-fire-from-the-gods/"><u>Stealing Fire From The Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210184979-9781880765760-the-free-will-zone/"><u>The Free Will Zone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210185662-9781631598487-the-power-of-breathwork/"><u>The Power of Breathwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210184613-9780648652434-the-simplified-book-of-change/"><u>The Simplified book of Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210184805-9781087934273-who-do-i-become-when-i-am-no-longer-me/"><u>Who Do I Become When I Am No Longer Me? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210184599-9781922456090-alslam-aldakhly-alkoanyn-alkhmsa-lhyaa-mtmna/"><u>السلام الداخلي - القوانين الخمسة لحياة مطمئنة | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209789118-9781507213025-how-to-be-an-astrologer/"><u>How to Be an Astrologer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788955-9781856754347-silence/"><u>Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209789303-9781608686261-the-angel-experiment/"><u>The Angel Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788914-9780486843889-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

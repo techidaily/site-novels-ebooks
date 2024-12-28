@@ -1,7 +1,7 @@
 ---
 title: A Tai Chi Imagery Workbook | Free Book
-date: 2024-10-25T01:00:08.855Z
-updated: 2024-10-27T00:47:39.156Z
+date: 2024-12-21T02:31:06.544Z
+updated: 2024-12-27T22:35:59.051Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a754002f08fb793a14ea96a4654b15f029ddb54157356219e04edf337c26e0ae.jpg
@@ -175,3 +175,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a754002f08fb793a14ea96a4654b15f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316742-9781401924843-angel-kids/"><u>Angel Kids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316741-9781401923693-love-has-forgotten-no-one/"><u>Love Has Forgotten No One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316744-9781401922108-messages-from-spirit/"><u>Messages from Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316743-9781401921224-power-of-the-soul/"><u>Power of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316755-9781401928957-secrets-of-attraction/"><u>Secrets of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316753-9781401929008-the-mother-of-invention/"><u>The Mother of Invention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316760-9781401927738-the-spirit-whisperer/"><u>The Spirit Whisperer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316748-9781401928544-the-three-sisters-of-the-tao/"><u>The Three Sisters of the Tao | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

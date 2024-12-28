@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2024-12-21T02:44:17.989Z
-updated: 2024-12-22T10:31:04.227Z
+date: 2024-12-21T17:40:13.784Z
+updated: 2024-12-27T16:33:18.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,17 +178,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/401530-9780446554596-staying-well-with-guided-imagery/"><u>Staying Well With Guided Imagery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401606-9780316049238-the-dream-book/"><u>The Dream Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401609-9780446549349-the-eagle-and-the-rose/"><u>The Eagle and the Rose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401624-9780316186841-the-gift-of-nothing/"><u>The Gift of Nothing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401632-9780316045667-the-good-spell-book/"><u>The Good Spell Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401658-9780316055017-the-love-magic-book/"><u>The Love Magic Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401662-9780446549486-the-merciful-god-of-prophecy/"><u>The Merciful God of Prophecy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401749-9780446554695-unsolved-ufo-mysteries/"><u>Unsolved UFO Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209606251-9788497639286-el-misterio-de-las-vidas-pasadas/"><u>El misterio de las vidas pasadas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209612299-9781547570034-meditacion-guia-de-atencion-plena-para-eliminar-el-estres-la-ansiedad-y-la-depresion/"><u>Meditación: Guía De Atención Plena Para Eliminar El Estrés, La Ansiedad Y La Depresión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209612303-9781547567546-meditacion-guia-impresionante-para-principiantes-por-gabriyell-buechner/"><u>Meditación: Guía Impresionante Para Principiantes Por Gabriyell Buechner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209611644-9781547570010-meditacion-las-mejores-tecnicas-de-meditacion-para-reducir-el-estres-y-la-ira/"><u>Meditación: Las Mejores Técnicas De Meditación Para Reducir El Estrés Y La Ira . | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209611630-9781547569953-meditacion-tecnicas-sencillas-de-relajacion/"><u>Meditación: Técnicas Sencillas De Relajación | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

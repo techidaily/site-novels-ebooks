@@ -1,7 +1,7 @@
 ---
 title: 2038 The Great Pyramid Timeline Prophecy | Free Book
-date: 2024-12-05T01:20:43.269Z
-updated: 2024-12-07T02:45:51.091Z
+date: 2024-12-22T02:42:13.748Z
+updated: 2024-12-27T22:53:40.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1eb900475374970b6dbc69b5f89cf7563d3.jpg
@@ -137,17 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210190799-9781777192174-ease-amidst-challenging-times/"><u>EASE Amidst Challenging Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210189705-9781722505479-harnassing-the-miraculous-power-of-a-definite-chief-aim/"><u>Harnassing the Miraculous Power of a Definite Chief Aim | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210189646-9781087937441-how-to-make-money-with-amazon-kdp/"><u>How to Make Money with Amazon KDP | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210190957-9780760369609-in-focus-shamanism/"><u>In Focus Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210191028-9781732165830-living-aligned/"><u>Living Aligned | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210191361-9789948373414-aorak-khdraaa-lshgr-yabs/"><u>أوراق خضراء لشجر يابس | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210191370-9789948348962-fy-drob-alhyaa/"><u>في دروب الحياة | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210191340-9789948348825-oiny-smytha-mrym/"><u>وإني سميتها مريم | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824373-9781644616444-el-tarot-de-los-druidas/"><u>El tarot de los druidas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824259-9781644615294-enciclopedia-del-esoterismo/"><u>Enciclopedia del esoterismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824374-9781644616482-geminis/"><u>Géminis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824369-9781644616420-iniciarse-en-el-viaje-astral/"><u>Iniciarse en el viaje astral | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824372-9781644616390-los-suenos-interpretarlos-y-dirigirlos/"><u>Los sueños: interpretarlos y dirigirlos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824375-9781644616475-tauro/"><u>Tauro | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

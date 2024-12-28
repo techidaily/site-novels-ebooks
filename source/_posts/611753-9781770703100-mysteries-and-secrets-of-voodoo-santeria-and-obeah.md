@@ -1,7 +1,7 @@
 ---
 title: Mysteries and Secrets of Voodoo, Santeria, and Obeah | Free Book
-date: 2024-10-23T00:07:57.134Z
-updated: 2024-10-27T00:59:48.126Z
+date: 2024-12-24T02:20:41.798Z
+updated: 2024-12-27T19:07:58.829Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f87637005a4b5a1e13ee5b38c2dbbc05d9868cde2f87411147ab37cf7e969e8d.jpg
@@ -167,3 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f87637005a4b5a1e13ee5b38c2dbbc0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1125512-9781609257019-21st-century-mage/"><u>21st Century Mage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125522-9781609257873-adepts-of-the-five-elements/"><u>Adepts of the Five Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125526-9781609252755-aleister-crowley-and-the-practice-of-the-magical-diary/"><u>Aleister Crowley And the Practice of the Magical Diary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125529-9781609256326-alu-an-advanced-guide-to-operative-runology/"><u>ALU, An Advanced Guide to Operative Runology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125518-9781609250676-the-abcs-of-chakra-therapy/"><u>The ABC's of Chakra Therapy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
