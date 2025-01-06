@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2024-12-23T01:54:20.460Z
-updated: 2024-12-27T16:41:55.013Z
+date: 2025-01-01T16:23:08.989Z
+updated: 2025-01-06T16:46:49.635Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,16 +246,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138573593-9781450292634-authentic-love/"><u>Authentic Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573673-9781469766577-implosion/"><u>Implosion!!! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573713-9780595811328-learning-to-listen/"><u>Learning to Listen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573755-9781440138683-living-peacefully-in-a-big-city/"><u>Living Peacefully in a Big City | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573732-9781469722702-spiritspeak/"><u>Spiritspeak | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573756-9781469756868-the-hand-of-god/"><u>The Hand of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573786-9781475930139-the-new-universe/"><u>The New Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416028-9781902405995-an-introduction-to-medical-astrology/"><u>An Introduction to Medical Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417016-9781087999999-anger-management/"><u>ANGER MANAGEMENT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415958-9781088008676-the-wayfarer-magazine/"><u>The Wayfarer Magazine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416000-9781638445777-to-kill-the-firstborn/"><u>To Kill the Firstborn | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

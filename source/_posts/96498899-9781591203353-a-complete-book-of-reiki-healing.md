@@ -1,7 +1,7 @@
 ---
 title: A Complete Book of Reiki Healing | Free Book
-date: 2024-12-26T00:55:27.787Z
-updated: 2024-12-27T23:45:00.120Z
+date: 2025-01-01T16:53:43.770Z
+updated: 2025-01-06T16:38:17.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b7d87f2f8a05264db45a314eb9ae845e59.jpg
@@ -138,16 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621224-9781632658913-ancient-aliens-in-the-bible/"><u>Ancient Aliens in the Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621222-9781601633873-bloodline-of-the-gods/"><u>Bloodline of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621212-9781601639837-discovering-the-mysteries-of-ancient-america/"><u>Discovering the Mysteries of Ancient America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621221-9781632659019-one-voice-sacred-wisdom/"><u>One Voice, Sacred Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621220-9781601639530-opening-the-ark-of-the-covenant/"><u>Opening the Ark of the Covenant | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621214-9781632659347-the-path-of-presence/"><u>The Path of Presence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621218-9781632659606-weapons-of-the-gods/"><u>Weapons of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521523-9781638605072-am-i-crazy/"><u>Am I Crazy? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521588-9780968682333-clearing-a-path-to-joy/"><u>Clearing a Path to Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521766-9781789045291-healing-plants-of-greek-myth/"><u>Healing Plants of Greek Myth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521490-9781662467967-life-is-hard/"><u>Life is Hard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521632-9781662468728-slept-in-beauty/"><u>Slept in Beauty | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

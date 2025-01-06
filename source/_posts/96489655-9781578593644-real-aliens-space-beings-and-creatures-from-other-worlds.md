@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2024-12-21T19:12:53.167Z
-updated: 2024-12-27T21:24:35.557Z
+date: 2025-01-05T16:07:40.378Z
+updated: 2025-01-06T16:01:54.124Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,13 +264,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138595783-9781449736156-justins-jesus/"><u>Justin's Jesus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595740-9781452545127-one-moar-paradigm/"><u>One Moar Paradigm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595800-9781462052547-shadow-path/"><u>Shadow Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595788-9781462020379-the-heart-of-a-ready-scribe/"><u>The Heart of a Ready Scribe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500801-9781644115381-being-nature-4th-ed/"><u>Being Nature (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500802-9781644115466-chakras-en-la-practica-chamanica-2nd-ed/"><u>Chakras en la práctica chamánica (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500807-9781644115503-escribe-el-guion-de-la-vida-que-quieres/"><u>Escribe el guion de la vida que quieres | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500805-9781644115527-lecciones-de-los-12-arcangeles/"><u>Lecciones de los 12 Arcángeles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500806-9781644115619-radical-regeneration/"><u>Radical Regeneration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500803-9781644115343-the-dharma-of-direct-experience/"><u>The Dharma of Direct Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500800-9781644115329-the-story-of-gaia/"><u>The Story of Gaia | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Feminine Face of God | Free Book
-date: 2024-10-25T00:27:34.053Z
-updated: 2024-10-26T16:08:58.674Z
+date: 2025-01-01T16:26:34.405Z
+updated: 2025-01-06T16:37:43.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3825729a64723d6d46ac0abb33a40b889b8a5afe67b712d471e5c18e9cedfc84.jpg
@@ -155,3 +155,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3825729a64723d6d46ac0abb33a40b8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210094609-9781838109219-a-journal-to-you/"><u>A Journal To You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094783-9780648921509-celebrate-your-gold-within/"><u>CELEBRATE YOUR GOLD WITHIN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210095754-9780648922117-divine-love-twin-flames/"><u>Divine Love Twin Flames | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094708-9781646670208-struggle-trauma-nor-bad-choices-stopped-me/"><u>Struggle Trauma Nor Bad Choices Stopped Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210095313-9781000251777-the-constituents-of-medicinal-plants-2nd-ed/"><u>The Constituents of Medicinal Plants (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210095098-9781950584727-walking-with-the-ineffable-a-spiritual-memoir-with-cats/"><u>Walking with the Ineffable: A Spiritual Memoir (with Cats) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

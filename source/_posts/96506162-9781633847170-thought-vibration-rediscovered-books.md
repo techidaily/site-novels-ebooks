@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2024-12-24T22:35:02.759Z
-updated: 2024-12-27T20:50:35.409Z
+date: 2025-01-02T16:21:30.210Z
+updated: 2025-01-06T16:18:26.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,15 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138571115-9780595620678-angels/"><u>Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571063-9781440193125-divine-inspiration-divine-understanding/"><u>Divine Inspiration, Divine Understanding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571034-9781450226097-love-loss-and-enlightenment/"><u>Love, Loss and Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571032-9781449724672-moving-meditation/"><u>Moving Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571127-9781440193699-the-souls-power/"><u>The Soul's Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571109-9781617640001-un-dia-importante/"><u>Un Día... Importante. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410935-9781644115305-activate-your-super-human-potential/"><u>Activate Your Super-Human Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410930-9781644114575-embodying-the-mystery/"><u>Embodying the Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410931-9781644114643-lightbringers-of-the-north/"><u>Lightbringers of the North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410929-9781644114315-sacred-geometry-of-the-starcut-diagram-2nd-ed/"><u>Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410932-9781644114759-the-kabbalah-of-light/"><u>The Kabbalah of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410933-9781644114780-witch-wisdom-for-magical-aging/"><u>Witch Wisdom for Magical Aging | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

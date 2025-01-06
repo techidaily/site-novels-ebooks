@@ -1,7 +1,7 @@
 ---
 title: The Reiki Magic Guide to Self-Attunement | Free Book
-date: 2024-10-20T05:04:44.678Z
-updated: 2024-10-26T22:22:10.629Z
+date: 2025-01-01T16:02:50.779Z
+updated: 2025-01-06T16:25:55.801Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c769fbf86f576cd0524565eb74acfa47156da3c73d780dd2e98de88b728ed8c.jpg
@@ -198,3 +198,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c769fbf86f576cd0524565eb74acfa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209916424-9780876049839-edgar-cayce-and-the-secret-of-the-golden-flower/"><u>Edgar Cayce and the Secret of the Golden Flower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209916459-9781513653280-lemurian-connections/"><u>Lemurian Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209918056-9781612437781-live-laugh-lagom/"><u>Live Laugh Lagom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209919166-9781633411951-queering-your-craft/"><u>Queering Your Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209916118-9781513656717-radical-authenticity/"><u>RADICAL AUTHENTICITY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915665-9781761031564-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209917945-9781612438597-the-family-gratitude-project/"><u>The Family Gratitude Project | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209916483-9781641117050-the-human-phase-2025/"><u>The Human Phase-2025 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915662-9781761031526-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

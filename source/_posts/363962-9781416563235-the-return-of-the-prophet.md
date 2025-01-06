@@ -1,7 +1,7 @@
 ---
 title: The Return of the Prophet | Free Book
-date: 2024-10-23T19:00:03.095Z
-updated: 2024-10-27T04:17:05.059Z
+date: 2025-01-01T16:01:06.359Z
+updated: 2025-01-06T16:31:32.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3fe1969c1f8e3aeaac293d7b1b96bee4822f52708c3017f4adf054ba2ad3dd42.jpg
@@ -178,3 +178,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3fe1969c1f8e3aeaac293d7b1b96bee
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210222917-9781910531518-alchemy/"><u>Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221720-9781841815053-judy-halls-complete-crystal-workshop/"><u>Judy Hall's Complete Crystal Workshop | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221776-9780757324178-say-yes-to-your-life/"><u>Say Yes to Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221722-9780753734735-the-angel-experience/"><u>The Angel Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210222447-9781473596641-you-are-powerful/"><u>You Are Powerful | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

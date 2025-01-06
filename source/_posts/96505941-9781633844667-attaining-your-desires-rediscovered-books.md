@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2024-12-23T22:08:43.351Z
-updated: 2024-12-27T21:23:41.792Z
+date: 2025-01-02T16:51:22.157Z
+updated: 2025-01-06T16:53:40.879Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,17 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138547178-9780987866233-a-quest-for-healing-a-story-of-love-ebook/"><u>A Quest for Healing – A Story of Love - EBOOK | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138552564-9781578596928-area-51/"><u>Area 51 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545043-9781623173500-consciousness-medicine/"><u>Consciousness Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545085-9780399582561-dont-hate-meditate/"><u>Don't Hate, Meditate! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545037-9781401929886-four-acts-of-personal-power/"><u>Four Acts of Personal Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553168-9781462907380-simple-ways-to-wellness/"><u>Simple Ways to Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553150-9781462907854-talking-lightly/"><u>Talking Lightly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138547224-9789176371138-the-prophet-wisehouse-classics-edition/"><u>THE PROPHET (Wisehouse Classics Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210390240-9780578251431-awakening-the-avatar-within/"><u>Awakening the Avatar Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210391505-9781547859641-life-vampires/"><u>LIFE Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210390216-9781774816271-shinto/"><u>Shinto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210391714-9781777745318-soul-talks/"><u>Soul Talks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210390309-9781510770522-the-afterlife-book/"><u>The Afterlife Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210390233-9781956837018-the-path-of-femininity-the-6-gifts-of-your-sovereignty/"><u>The Path of Femininity; The 6 Gifts of Your Sovereignty | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

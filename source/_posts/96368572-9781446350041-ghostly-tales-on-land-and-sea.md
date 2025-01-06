@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales on Land and Sea | Free Book
-date: 2024-11-26T16:21:09.287Z
-updated: 2024-11-27T18:28:31.593Z
+date: 2024-12-31T16:01:00.457Z
+updated: 2025-01-06T16:43:15.321Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84ca67bb8fdd72f5a2d46f84bb32fed98e81.jpg
@@ -134,17 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96298863-9781684033416-an-invitation-to-freedom/"><u>An Invitation to Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96296137-9780834841697-bodyfulness/"><u>Bodyfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96296526-9780994616685-christ-centred-mindfulness/"><u>Christ-Centred Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96298903-9781608939701-haunted-maine-lighthouses/"><u>Haunted Maine Lighthouses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96301953-9781547536276-in-cammino-con-elijah-la-favola-di-un-viaggio-di-una-vita-e-la-realizzazione-di-unanima/"><u>In Cammino con Elijah, La favola di un viaggio di una vita e la realizzazione di un’Anima. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96296147-9780834841796-the-integral-vision/"><u>The Integral Vision | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96296140-9780834841918-the-stars-within-you/"><u>The Stars Within You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96300702-9780753552667-time-and-how-to-spend-it/"><u>Time and How to Spend It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773430-9781685833800-life-simply-a-perspective/"><u>Life: Simply a perspective | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773420-9781649694188-nostradamus-unlocked/"><u>NOSTRADAMUS Unlocked | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773482-9781649698674-the-extraterrestrial-life/"><u>THE EXTRATERRESTRIAL LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773509-9781922439727-the-floating-world/"><u>The Floating World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773538-9781649696526-the-quarry-event/"><u>The Quarry Event | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773452-9781649697189-the-sound-of-the-stone-being-rolled-away/"><u>The sound of the stone being rolled away | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773401-9781649692924-unknown/"><u>Unknown | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

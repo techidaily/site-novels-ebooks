@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2024-12-21T17:09:55.138Z
-updated: 2024-12-27T20:15:51.441Z
+date: 2025-01-05T17:04:33.627Z
+updated: 2025-01-06T16:17:29.236Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,18 +192,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138595367-9781449755126-being-found-in-him/"><u>Being Found in Him | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595175-9781449748753-divine-inspirations/"><u>Divine Inspirations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595201-9781449757328-jesus-our-portion/"><u>Jesus Our Portion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595319-9781452544397-listen-im-still-here/"><u>Listen, I'm Still Here | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595283-9781449729455-of-truth-and-righteousness/"><u>Of Truth and Righteousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595211-9781452547299-surfing-the-paradoxes-of-everyday-transformation/"><u>Surfing the Paradoxes of Everyday Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595277-9781452543086-the-akashic-field/"><u>The Akashic Field | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595260-9781449751326-the-shining-one-and-poems-by-allan/"><u>The Shining One and Poems by Allan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595242-9781452541174-who-we-are/"><u>Who We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500036-9780960075768-ask-the-animals-and-they-shall-teach-thee-harness-the-new-year-with-feng-shui-and-the-chinese-animals/"><u>Ask the Animals and They Shall Teach Thee Harness the New Year with Feng Shui and the Chinese Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500002-9781398818064-cheating-the-ferryman/"><u>Cheating the Ferryman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500296-9781999209780-darwins-replacement-summary-introduction/"><u>DARWIN'S REPLACEMENT - SUMMARY INTRODUCTION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500297-9781736597217-feed-your-moon/"><u>Feed Your Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500168-9788983836328-moon-manifestation-vol-2/"><u>Moon Manifestation Vol. 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210499638-9781524878344-moon-phases/"><u>Moon Phases | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500238-9781774816899-siddhartha/"><u>Siddhartha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210499998-9781398818057-the-dark-history-of-the-occult/"><u>The Dark History of the Occult | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Essential Nostradamus | Free Book
-date: 2024-10-22T16:16:39.046Z
-updated: 2024-10-27T00:21:20.646Z
+date: 2025-01-05T16:31:29.576Z
+updated: 2025-01-06T17:04:15.952Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/656c729ff8c6064e82d6f16471ab3627a092fed0184376ec05b9424e0ca9405f.jpg
@@ -166,3 +166,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/656c729ff8c6064e82d6f16471ab362
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210220939-9781736617212-bad-father-good-father/"><u>Bad Father Good Father | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221021-9781506470689-breath-prayer-an-ancient-practice-for-the-everyday-sacred/"><u>Breath Prayer: An Ancient Practice for the Everyday Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221023-9781506471204-dimming-the-day-evening-meditations-for-quiet-wonder/"><u>Dimming the Day: Evening Meditations for Quiet Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219828-9781460712764-in-plain-sight/"><u>In Plain Sight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220619-9780593418352-lighting-the-wick/"><u>Lighting the Wick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220930-9781643344591-pequenas-puertas-para-inmenso-pensar-en-recordar/"><u>Pequeñas Puertas Para Inmenso Pensar En Recordar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221081-9781913590185-rosas-choice/"><u>Rosa's Choice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221717-9780753734742-the-chakra-experience/"><u>The Chakra Experience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

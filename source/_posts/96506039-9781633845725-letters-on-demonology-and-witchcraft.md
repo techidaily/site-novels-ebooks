@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2024-12-20T17:13:00.712Z
-updated: 2024-12-27T21:55:09.098Z
+date: 2025-01-02T16:25:24.737Z
+updated: 2025-01-06T16:02:33.676Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,18 +155,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138568704-9781491724088-advice-for-life-from-the-mouths-of-elders/"><u>Advice for Life from the Mouths of Elders | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568498-9781450240185-heroes-and-hierophants/"><u>Heroes and Hierophants | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568672-9781469704302-manifest-success/"><u>Manifest Success! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568506-9781450297912-pangasm/"><u>Pangasm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568689-9781440108945-resolution/"><u>Resolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568557-9780595736829-success-tidbits/"><u>Success Tidbits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568667-9781440138980-the-kindness-of-strangers/"><u>The Kindness of Strangers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568407-9780595741830-unreal-real-stories/"><u>Unreal Real Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568664-9781450236737-waiting-to-live/"><u>Waiting to Live | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399450-9781087900766-i-am-the-mind-of-god-creation-a-world-of-words/"><u>''I AM'' The Mind of God: Creation: A World of Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399393-9781088008485-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399399-9781088008409-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399439-9798985067118-nourish/"><u>Nourish | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399236-9789388760867-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399175-9789389716610-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399165-9789389716627-the-secret-of-imagining/"><u>The Secret of Imagining | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399241-9789389157635-the-seven-laws-of-teaching/"><u>The Seven Laws of Teaching | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

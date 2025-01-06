@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Wicca Craft | Free Book
-date: 2024-10-24T18:37:32.472Z
-updated: 2024-10-27T05:35:01.799Z
+date: 2025-01-02T16:34:41.056Z
+updated: 2025-01-06T16:25:52.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e3074cfc192144d7f2fd758b620d9afe392988c17aad97e241f87fe83eadcf3.jpg
@@ -170,3 +170,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e3074cfc192144d7f2fd758b620d9a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210204715-9781925816334-a-year-of-loving-kindness-to-myself/"><u>A Year of Loving Kindness to Myself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204515-9781684035731-good-morning-intentions/"><u>Good Morning Intentions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206029-9780648893226-how-to-find-your-lifes-divine-purpose/"><u>How To Find Your Life's Divine Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205004-9781528767637-inferences-from-haunted-houses-and-haunted-men/"><u>Inferences from Haunted Houses and Haunted Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205218-9780826362322-the-believer/"><u>The Believer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204782-9781528767811-the-light-beyond-translated-by-alexander-teixeira-de-mattos/"><u>The Light Beyond - Translated by Alexander Teixeira de Mattos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210205150-9781945252952-the-soul-of-america-speaks/"><u>The Soul of America Speaks | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

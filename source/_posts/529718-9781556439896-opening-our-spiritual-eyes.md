@@ -1,7 +1,7 @@
 ---
 title: Opening Our Spiritual Eyes | Free Book
-date: 2024-10-26T03:32:01.431Z
-updated: 2024-10-27T04:17:25.041Z
+date: 2025-01-02T16:18:43.741Z
+updated: 2025-01-06T16:41:01.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5051287fb56bc5a2e53bcd4c35da88804f4a4ee21c2dc18eaee2d804b1ad368d.jpg
@@ -167,3 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5051287fb56bc5a2e53bcd4c35da888
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209953487-9780999698921-7-questions-about-life-after-life/"><u>7 Questions About Life After Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209952769-9781071513422-meditacion-mindfulness-y-tecnicas-de-meditacion-para-la-curacion-deshacerse-de-la-depresion/"><u>Meditación: Mindfulness Y Técnicas De Meditación Para La Curación (Deshacerse De La Depresión) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209953393-9780578637761-the-healing-of-the-masculine-and-feminine/"><u>The Healing of the Masculine and Feminine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209952690-9781250622914-the-tarot-a-collection-of-secret-wisdom-from-tarots-mystical-origins/"><u>The Tarot: A Collection of Secret Wisdom from Tarot's Mystical Origins | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

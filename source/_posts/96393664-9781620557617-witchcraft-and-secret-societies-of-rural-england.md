@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2024-12-22T16:03:45.596Z
-updated: 2024-12-28T02:47:15.696Z
+date: 2025-01-04T16:35:41.256Z
+updated: 2025-01-06T16:15:36.575Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,13 +184,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209715904-9781632658067-a-witchs-beverages-and-brews/"><u>A Witch's Beverages and Brews | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209704925-9781632658203-kitchen-witchs-guide-to-divination/"><u>Kitchen Witch's Guide to Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209715906-9781601635853-numerology-the-complete-guide/"><u>Numerology: The Complete Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209704100-9780486840871-the-tarot-of-the-bohemians/"><u>The Tarot of the Bohemians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210731909-9781088075906-56qx6l6555qe57sr572x5yww/"><u>窗边的紫罗兰 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210731908-9781088075982-55sf5rs75zyo54g15bgc/"><u>生活在灵层 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210732780-9780824896409-alternate-currents/"><u>Alternate Currents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210735182-9781401970673-black-moon-lilith-rising/"><u>Black Moon Lilith Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210735471-9798987436110-opening-the-secret-box/"><u>Opening the Secret Box | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210732621-9780762481507-shadow-magic/"><u>Shadow Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210732661-9780762482528-take-back-the-magic/"><u>Take Back the Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210731855-9781684987863-the-rainbow-code/"><u>The Rainbow Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210735177-9781401973520-the-sacred-cookbook/"><u>The Sacred Cookbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

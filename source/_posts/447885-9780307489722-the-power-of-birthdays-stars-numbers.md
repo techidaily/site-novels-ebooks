@@ -1,7 +1,7 @@
 ---
 title: The Power of Birthdays, Stars & Numbers | Free Book
-date: 2024-10-24T18:01:33.202Z
-updated: 2024-10-26T19:04:24.068Z
+date: 2025-01-01T16:33:25.829Z
+updated: 2025-01-06T16:20:15.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/372ba7e0da3575b9f77c6d9ca6ca4f1906f21c6e36e1b87a3df2c2d64f2da560.jpg
@@ -184,3 +184,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/372ba7e0da3575b9f77c6d9ca6ca4f1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210163661-9781640828179-got-inspiration-365-days-of-inspiration-for-you/"><u>Got Inspiration? 365 Days of Inspiration for You! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163917-9781646282203-higher-learning-for-higher-activities/"><u>Higher Learning for Higher Activities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164012-9781645848943-it-is-time/"><u>It Is Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163979-9781647017002-medium-brave/"><u>Medium Brave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163728-9781644628126-the-team/"><u>The Team | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164021-9781646286690-words-thoughts-imaginations-and-inspirational-reading/"><u>Words, Thoughts, Imaginations, and Inspirational Reading | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

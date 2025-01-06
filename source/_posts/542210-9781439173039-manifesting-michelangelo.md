@@ -1,7 +1,7 @@
 ---
 title: Manifesting Michelangelo | Free Book
-date: 2024-10-20T03:50:34.145Z
-updated: 2024-10-27T01:59:25.205Z
+date: 2024-12-31T16:55:22.912Z
+updated: 2025-01-06T16:53:19.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5aca3ac7a9b46fdbccf94d46d0d13668c44df23bbb436526c15885b103b629e4.jpg
@@ -204,3 +204,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5aca3ac7a9b46fdbccf94d46d0d1366
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209883699-9781250212610-alchemy/"><u>Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883655-9781644110751-deva/"><u>Deva | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209885866-9780578599601-get-aligned-now/"><u>GET ALIGNED NOW | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209884163-9781578596843-haunted/"><u>Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883652-9781644111109-healing-with-light-frequencies-2nd-ed/"><u>Healing with Light Frequencies (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209884365-9781734254204-med-school-after-menopause/"><u>MED SCHOOL after MENOPAUSE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883726-9781250246431-spirit-translator/"><u>Spirit Translator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209886165-9780998975733-the-divine-abundance-portal-activations-2nd-ed/"><u>The Divine Abundance Portal Activations (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883707-9781250619297-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

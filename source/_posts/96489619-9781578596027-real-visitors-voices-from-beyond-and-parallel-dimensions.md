@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2024-12-24T22:34:27.778Z
-updated: 2024-12-27T22:17:02.360Z
+date: 2025-01-04T16:00:07.100Z
+updated: 2025-01-06T16:41:04.622Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,17 +254,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1624924-9780733630323-best-ever-baby-tips/"><u>Best Ever Baby Tips | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1624390-9781405522021-good-medicine/"><u>Good Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1619817-9781780996912-meditation-in-the-wild/"><u>Meditation in the Wild | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1616518-9780733625466-spirit-sisters/"><u>Spirit Sisters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1618539-9781444719840-spirited/"><u>Spirited | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1616031-9780733628191-the-australian-ghost-whisperer/"><u>The Australian Ghost Whisperer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1619747-9781608682362-the-boy-who-died-and-came-back/"><u>The Boy Who Died and Came Back | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1619110-9781317764632-wilderness-therapy-for-women/"><u>Wilderness Therapy for Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557710-9781734226546-anorexia-more-articles-from-thejournal-1999-2006-with-a-focus-on-anorexia/"><u>Anorexia - More articles from theJournal (1999-2006) with a focus on Anorexia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557754-9781662416613-checkmate/"><u>Checkmate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557711-9781990346071-poradnik-ce-5/"><u>PORADNIK CE-5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557738-9780760373712-trust-the-universe/"><u>Trust the Universe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2024-12-25T21:00:22.680Z
-updated: 2024-12-27T18:47:13.030Z
+date: 2025-01-01T16:32:42.176Z
+updated: 2025-01-06T16:29:19.715Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,16 +134,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209564414-9781628730746-dancing-otters-and-clever-coyotes/"><u>Dancing Otters and Clever Coyotes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209561255-9781632658265-faery-magick/"><u>Faery Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209560312-9781507210239-friendship-signs/"><u>Friendship Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209561140-9781633411500-project-blue-book/"><u>Project Blue Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209561609-9781401957179-super-attractor/"><u>Super Attractor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209560411-9781982100711-waking-the-witch/"><u>Waking the Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209560225-9781507210758-wicca-a-modern-practitioners-guide/"><u>Wicca: A Modern Practitioner's Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676438-9781639854042-a-guiding-light-to-the-future/"><u>A Guiding Light To The Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676853-9781788604352-ageing-upwards/"><u>Ageing Upwards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677068-9781398827790-green-witchcraft/"><u>Green Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677070-9781398824799-magic-and-witchcraft/"><u>Magic and Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676582-9781958921043-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677069-9781398827974-the-book-of-divination/"><u>The Book of Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677067-9781398827998-the-book-of-tarot/"><u>The Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676635-9781948692175-third-place/"><u>Third Place | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676849-9781662469572-your-passport-to-alternative-spirituality-and-the-after-life/"><u>Your Passport to Alternative Spirituality and the After-Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

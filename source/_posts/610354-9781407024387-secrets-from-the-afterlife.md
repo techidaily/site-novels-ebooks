@@ -1,7 +1,7 @@
 ---
 title: Secrets from the Afterlife | Free Book
-date: 2024-10-25T02:20:14.460Z
-updated: 2024-10-26T19:32:06.619Z
+date: 2025-01-02T17:03:01.667Z
+updated: 2025-01-06T16:06:19.302Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b518d74b7dfee2a9ba383bf700a0a41aa94960edf4a86b6a6e0803c3728fe18.jpg
@@ -176,3 +176,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b518d74b7dfee2a9ba383bf700a0a4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209858364-9780648192213-a-journey-of-creative-healing/"><u>A Journey of Creative Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857966-9781387222810-experience-gods-presence/"><u>Experience God's Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857935-9780692063705-how-to-become-who-you-are/"><u>How to become who you are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858426--kundalini-yoga/"><u>Kundalini yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857911-9781880050125-new-world-wisdom-book-one/"><u>New World Wisdom, Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858363-9781948040129-secrets-of-not-giving-a-fck/"><u>Secrets of Not Giving a F*ck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858210-9781907105135-the-mentor-within/"><u>The Mentor Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857997-9780988754775-the-trust-frequency/"><u>The Trust Frequency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858345-9780648256915-you-are-the-horse-and-you-are-the-rider/"><u>You are the Horse and You are the Rider | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

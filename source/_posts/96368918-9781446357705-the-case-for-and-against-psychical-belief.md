@@ -1,7 +1,7 @@
 ---
 title: The Case for and Against Psychical Belief | Free Book
-date: 2024-11-23T16:48:11.414Z
-updated: 2024-11-27T16:42:46.697Z
+date: 2025-01-03T16:32:05.476Z
+updated: 2025-01-06T16:43:28.846Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd68aba4f894ccc75eb755219656b54aa6a.jpg
@@ -142,18 +142,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96312004-9788472457881-amor-sexo-y-castidad/"><u>Amor, sexo y castidad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96315840-9781783253098-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316545-9781401926281-el-asombroso-poder-de-las-emociones/"><u>El Asombroso Poder de las Emociones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96312184-9781473566316-happy-parent-happy-child/"><u>Happy Parent, Happy Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96312010-9788499884752-la-fuerza-de-la-compasion/"><u>La fuerza de la compasión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96312008-9788499882994-meditacion-en-la-accion/"><u>Meditación en la acción | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316547-9781401926021-the-kabbalah-code/"><u>The Kabbalah Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96311996-9788499883960-un-canto-de-amor-a-la-tierra/"><u>Un canto de amor a la Tierra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96315806-9781524747855-walking/"><u>Walking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210776181-9791028527501-geek-et-mystique/"><u>Geek et mystique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210776306-9781667448510-lektionen-aus-dem-kloster/"><u>Lektionen aus dem Kloster | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210776340-9781667450384-perfekt-so-wie-ich-bin/"><u>Perfekt so wie ich bin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210775789-9798889130451-positive-psychology-unlock-the-power-of-positive-thinking-and-enhance-your-life-with-the-proven-techniques-of-positive-psychology/"><u>Positive Psychology: Unlock the Power of Positive Thinking and Enhance Your Life with the Proven Techniques of Positive Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210776384-9781667449654-the-incarnation-game/"><u>The Incarnation Game | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

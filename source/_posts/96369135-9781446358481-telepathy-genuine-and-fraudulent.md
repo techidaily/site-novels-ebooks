@@ -1,7 +1,7 @@
 ---
 title: "Telepathy: Genuine and Fraudulent | Free Book"
-date: 2024-11-23T16:13:55.850Z
-updated: 2024-11-27T20:06:10.921Z
+date: 2024-12-30T16:42:25.136Z
+updated: 2025-01-06T16:15:27.452Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391dc86b2fcd9a349461b60713368b976b43.jpg
@@ -150,16 +150,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96316886-9781401929664-a-stream-of-dreams/"><u>A Stream of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316863-9781848506053-movement-medicine/"><u>Movement Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316884-9781401921255-past-lives-present-miracles/"><u>Past Lives, Present Miracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316877-9781848505766-past-reality-integration/"><u>Past Reality Integration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316881-9781401922627-the-indigo-children/"><u>The Indigo Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316887-9781401926151-the-priest-and-the-medium/"><u>The Priest and the Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316869-9781401920548-your-immortal-reality/"><u>Your Immortal Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800789-9798886541588-born-to-win/"><u>Born to Win | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800764-9780875169248-emerson-and-new-thought/"><u>EMERSON AND NEW THOUGHT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800774-9798886546552-life-the-journey-to-eternal-joy/"><u>Life The Journey To Eternal Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800965-9781088106556-making-way-for-the-new/"><u>Making Way For The New | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800782-9781662465376-the-inextinguishable-dark-flame-of-blackman/"><u>The Inextinguishable Dark Flame of Blackman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800772-9798886850956-when-i-found-thorns-in-my-garden/"><u>When I found Thorns In My Garden | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

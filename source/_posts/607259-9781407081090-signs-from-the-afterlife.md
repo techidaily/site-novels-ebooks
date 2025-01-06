@@ -1,7 +1,7 @@
 ---
 title: Signs From The Afterlife | Free Book
-date: 2024-10-24T17:25:19.886Z
-updated: 2024-10-26T19:53:08.235Z
+date: 2025-01-02T16:55:02.305Z
+updated: 2025-01-06T16:48:00.545Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae2fd15975ae8f2c4c7c095dcb3944b2b7d78844a12ccda3ce68281c7f130426.jpg
@@ -169,3 +169,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae2fd15975ae8f2c4c7c095dcb3944b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209850765-9780996846912-energy-in-motion/"><u>Energy in Motion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850617-9780994318817-keep-it-super-simple/"><u>Keep It Super Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850737-9781513620817-nikola-tesla-afterlife-comments-on-paraphysical-concepts/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850808-9780998764719-the-priestess-code-awakening-the-modern-woman/"><u>The Priestess Code: Awakening the Modern Woman: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850658-9781947072015-this-joy-that-i-have/"><u>This Joy That I Have | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850648-9781946479693-zanoni-the-rosicrucian-tale-a-story-of-the-long-livers/"><u>Zanoni the Rosicrucian Tale a Story of the Long Livers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

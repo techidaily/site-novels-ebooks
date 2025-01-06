@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to the Akashic Record | Free Book
-date: 2024-10-23T20:17:25.374Z
-updated: 2024-10-26T22:13:18.647Z
+date: 2025-01-03T17:00:37.663Z
+updated: 2025-01-06T16:52:45.390Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a52c56e0824622b80b4a0d37c4922946b62e363f766abbb0d63daee4b458430.jpg
@@ -173,3 +173,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a52c56e0824622b80b4a0d37c49229
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209957210-9781734081107-dying-to-see/"><u>Dying to See | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209955045-9780998952437-god-is/"><u>GOD IS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209956370-9781989838105-guided-meditations-for-anxiety-depression-and-self-healing/"><u>Guided Meditations for Anxiety, Depression, and Self-Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209957899-9781911134398-magical-healing/"><u>Magical Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209956798-9781982145668-the-complete-notes-from-the-universe/"><u>The Complete Notes From the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209957185-9781913274160-the-power-within/"><u>The Power Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209955957-9782824633633-vivre-la-voyance/"><u>Vivre la voyance | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

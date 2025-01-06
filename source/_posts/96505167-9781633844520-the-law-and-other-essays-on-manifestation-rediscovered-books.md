@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2024-12-27T00:53:10.170Z
-updated: 2024-12-27T18:42:34.359Z
+date: 2025-01-01T16:18:09.635Z
+updated: 2025-01-06T16:30:03.602Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,17 +148,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138583180-9781462016730-a-real-life-christian-spiritual-journey/"><u>A Real-Life Christian Spiritual Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138583970-9781449714352-compass-points-for-daily-living/"><u>Compass Points for Daily Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584007-9781462047666-dolphinity/"><u>Dolphinity: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138583565-9781452532486-free-to-fly/"><u>Free to Fly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138583538-9781452540184-luminous-mountain/"><u>Luminous Mountain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138583079-9781452533087-miracles-of-the-soul/"><u>Miracles of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138583978-9781462029372-so-what-do-you-think/"><u>So What Do You Think? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138583900-9781491780893-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450075-9781667419404-atencion-plena-el-arte-de-la-atencion-plena-aprenda-a-aquietar-la-mente/"><u>Atención plena: El arte de la atención plena Aprenda a aquietar la mente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450155-9781667418315-ousar/"><u>Ousar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450148-9781667419701-perfeita-exatamente-como-eu-sou/"><u>Perfeita exatamente como eu sou | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450173-9781667421070-simbolos-curativos-de-los-antiguos-eslavos-glagolitico-terapia-artistica/"><u>Símbolos curativos de los antiguos eslavos. Glagolítico. Terapia artística | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450195-9781667417905-tu-meriti-il-meglio/"><u>Tu meriti il meglio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450121-9781667421391-uma-vida-de-sonhos/"><u>Uma vida de sonhos | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

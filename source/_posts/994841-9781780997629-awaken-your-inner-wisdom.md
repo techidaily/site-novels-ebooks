@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2024-12-27T00:30:09.580Z
-updated: 2024-12-27T23:18:16.250Z
+date: 2024-12-30T16:25:55.704Z
+updated: 2025-01-06T16:49:43.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,15 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126057-9781609254629-songs-of-kabir/"><u>Songs of Kabir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126058-9781609251970-soul-mission-life-vision/"><u>Soul Mission, Life Vision | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126060-9781609257941-source-of-the-dream/"><u>Source of the Dream | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126063-9781609255749-spells-for-the-solitary-witch/"><u>Spells for the Solitary Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126056-9781609256937-the-solitary-wiccans-bible/"><u>The Solitary Wiccan's Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126062-9781609250911-the-spellcasters-reference/"><u>The Spellcaster's Reference | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340281-9780578946559-i-didnt-ask-for-this-devotional/"><u>I Didn't Ask For This Devotional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340317-9781641845557-lifes-changeful-interruptions/"><u>Life's Changeful Interruptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340366-9781914264207-mann-of-two-worlds/"><u>Mann of Two Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340110-9781802271423-only-a-thought-away/"><u>Only A Thought Away | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340210-9781955885157-the-two-universes-of-self/"><u>The Two Universes of Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340300-9781948979672-whispers-from-the-hollow-bone/"><u>Whispers from the Hollow Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340088-9781955897112-white-rainbows/"><u>White Rainbows | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

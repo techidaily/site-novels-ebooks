@@ -1,7 +1,7 @@
 ---
 title: "Nine Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2024-12-23T18:32:25.346Z
-updated: 2024-12-27T22:22:51.713Z
+date: 2024-12-30T17:04:44.815Z
+updated: 2025-01-06T16:41:59.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439b6cbc62534ca76a09f60f54167ecc003e.jpg
@@ -140,18 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209845687-9781936470679-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845730-9780996776028-easy-tarot/"><u>Easy Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845682-9781936470471-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846210-9780995395213-messages-from-the-spirit-realm/"><u>Messages From The Spirit Realm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845824-9781938962257-my-little-cowboy/"><u>My Little Cowboy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846077-9780994505293-the-journey/"><u>The Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846035-9789186613303-the-tale-of-the-truth/"><u>the Tale of the Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846091-9780997699210-travels-with-the-earth-oracle-book-one/"><u>Travels with the Earth Oracle - Book One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209845916-9780692792971-wake-up-the-universe-is-speaking-to-you/"><u>Wake Up! The Universe Is Speaking To You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768182-9781646999996-curso-de-astrologia-china/"><u>Curso de astrología china | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768181-9781646999989-el-feng-shui-lleve-la-buena-suerte-a-su-hogar/"><u>El Feng Shui. Lleve la buena suerte a su hogar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768068-9781646998425-el-gran-libro-del-pranayama/"><u>El gran libro del Pranayama | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768070-9781646998432-el-gran-libro-del-qi-gong/"><u>El gran libro del Qi Gong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768207-9781639190058-el-libro-de-los-suenos-conozcase-a-traves-de-sus-suenos/"><u>El libro de los sueños. Conózcase a través de sus sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768112-9781646999002-el-sendero-del-druida/"><u>El sendero del Druida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768168-9781644616406-horoscopo-simple-y-facil/"><u>Horóscopo simple y fácil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768203-9781639190133-i-ching-consult-the-oldest-oracle/"><u>I Ching. Consult the oldest oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768200-9781646999958-i-ching-consulte-el-antiguo-oraculo/"><u>I Ching. Consulte el antiguo oráculo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

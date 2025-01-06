@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-12-23T03:12:08.871Z
-updated: 2024-12-27T18:18:27.941Z
+date: 2025-01-01T17:00:50.863Z
+updated: 2025-01-06T16:21:36.566Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,16 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138581270-9781452532271-cosmic-spirit/"><u>Cosmic Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138581350-9781617645358-descifrando-el-apocalipsis/"><u>Descifrando El Apocalipsis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138582298-9781452534374-the-egg-moon/"><u>The Egg Moon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138581312-9781452543666-the-possible-woman-steps-up/"><u>The Possible Woman Steps Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138581578-9781450298216-things-thought/"><u>Things Thought | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138582233-9781617642197-valores/"><u>Valores | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138581723-9781452540634-you-are-beautiful/"><u>You Are Beautiful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440315-9780008520472-aquarius-2023-your-personal-horoscope/"><u>Aquarius 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440318-9780008520465-capricorn-2023-your-personal-horoscope/"><u>Capricorn 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210449941-9781667418902-la-risposta-a-tutto/"><u>La risposta a tutto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440316-9780008520434-libra-2023-your-personal-horoscope/"><u>Libra 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440317-9780008520489-pisces-2023-your-personal-horoscope/"><u>Pisces 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440319-9780008520458-sagittarius-2023-your-personal-horoscope/"><u>Sagittarius 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440739-9780253013323-servants-of-satan/"><u>Servants of Satan | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Prophecies of Nostradamus | Free Book
-date: 2024-10-26T00:18:24.733Z
-updated: 2024-10-27T05:38:03.792Z
+date: 2025-01-04T16:43:06.612Z
+updated: 2025-01-06T16:19:15.330Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d543e5164ad6741536ae417d4184e1e16b744268aae33ae2f8b6034003e7831b.jpg
@@ -141,3 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d543e5164ad6741536ae417d4184e1e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209891146-9781788173995-ancestral-healing-made-easy/"><u>Ancestral Healing Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209891590-9781507213803-babystrology/"><u>Babystrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209891144-9781401957766-bliss-brain/"><u>Bliss Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209891592-9781507213841-the-pregnant-goddess/"><u>The Pregnant Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209891598-9781982147952-tuning-into-frequency/"><u>Tuning into Frequency | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

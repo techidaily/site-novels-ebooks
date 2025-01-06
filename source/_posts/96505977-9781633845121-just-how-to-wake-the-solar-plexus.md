@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-12-20T17:08:00.192Z
-updated: 2024-12-27T21:24:39.352Z
+date: 2025-01-05T16:59:16.448Z
+updated: 2025-01-06T16:31:49.325Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,15 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138566268-9781401947057-adventures-of-the-soul/"><u>Adventures of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566273-9781401954499-charge-and-the-energy-body/"><u>Charge and the Energy Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566249-9781401954031-the-7-secrets-of-sound-healing-revised-edition/"><u>The 7 Secrets of Sound Healing Revised Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566267-9781401948207-the-abundance-loop/"><u>The Abundance Loop | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566263-9781401930257-the-complete-book-of-numerology/"><u>The Complete Book of Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566261-9781401951382-wisdom-from-your-spirit-guides/"><u>Wisdom from Your Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395573-9780811875905-celtic-wisdom/"><u>Celtic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395575-9780811875912-chakra/"><u>Chakra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395967-9781452163659-cosmos-sexy-sutra/"><u>Cosmo's Sexy Sutra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395547-9781452136707-fortune-telling-book-of-colors/"><u>Fortune-Telling Book of Colors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395669-9781452120270-spirit-animals/"><u>Spirit Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395803-9781452158198-the-golden-book-of-fortune-telling/"><u>The Golden Book of Fortune-Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395931-9781452127255-the-little-book-of-angels/"><u>The Little Book of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210396183-9780593538548-the-magick-of-birthdays/"><u>The Magick of Birthdays | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

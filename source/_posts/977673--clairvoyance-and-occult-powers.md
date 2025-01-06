@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2024-12-23T21:24:42.182Z
-updated: 2024-12-28T02:51:08.639Z
+date: 2025-01-01T16:08:35.431Z
+updated: 2025-01-06T16:28:14.523Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,15 +133,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/121819-9780253108388-claiming-sacred-ground/"><u>Claiming Sacred Ground | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1216496-9781583947272-manifesting-minds/"><u>Manifesting Minds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1212602-9781583948095-sorcerers-apprentice/"><u>Sorcerer's Apprentice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1215871-9781612830308-the-back-in-time-tarot-book/"><u>The Back in Time Tarot Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1212604-9781583948149-the-passionate-mind-revisited/"><u>The Passionate Mind Revisited | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1216500-9781583948200-the-return-of-the-mother/"><u>The Return of the Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360588-9781789049749-confronting-the-crisis/"><u>Confronting the Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360581-9781789047929-earth-is-a-school/"><u>Earth is a School | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361483-9780997717860-one-2nd-ed/"><u>ONE... (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360591-9781789043167-spirit-life-science/"><u>Spirit Life & Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361496-9781737540519-the-golden-remembrance/"><u>The Golden Remembrance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361523-9781737435617-the-next-room/"><u>The Next Room | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360847-9781848994072-the-witchs-feast/"><u>The Witch's Feast | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361075-9780978770013-time-travels/"><u>Time Travels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361408-9781476643823-transformed-in-a-stroke/"><u>Transformed in a Stroke | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

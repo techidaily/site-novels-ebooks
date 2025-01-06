@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-12-24T17:50:18.539Z
-updated: 2024-12-27T17:45:15.285Z
+date: 2025-01-01T16:09:45.378Z
+updated: 2025-01-06T17:00:00.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,15 +143,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138566314-9781401951603-angels-of-love/"><u>Angels of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566303-9781401951559-clear-home-clear-heart/"><u>Clear Home, Clear Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567493-9780595857876-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566302-9781401921408-the-guru-of-joy/"><u>The Guru of Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566317-9781623173746-the-handbook-of-chinese-horoscopes/"><u>The Handbook of Chinese Horoscopes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566329-9781984824158-the-secret-therapy-of-trees/"><u>The Secret Therapy of Trees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397538-9781787138148-cosmic-rituals/"><u>Cosmic Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398042-9781528970839-double-deuce/"><u>Double Deuce | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397339-9781955363358-healing-in-the-workplace/"><u>Healing in the Workplace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397323-9781739920524-sounding-eternity/"><u>Sounding Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397706-9781098096731-the-covid-recovery/"><u>The Covid Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210397327-9780645249804-universal-life-lessons-caressing-karma/"><u>UNIVERSAL LIFE LESSONS-CARESSING KARMA | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

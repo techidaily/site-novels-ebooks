@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide Numerology Workbook | Free Book
-date: 2024-10-25T21:19:16.488Z
-updated: 2024-10-27T01:14:56.653Z
+date: 2025-01-03T17:00:34.970Z
+updated: 2025-01-06T16:25:37.058Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c05c7a5b3bea86e40db8ee6352b3c57748191d88a09f5fd0ed51616c9bbd9868.jpg
@@ -158,3 +158,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c05c7a5b3bea86e40db8ee6352b3c57
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210110999-9780648908227-breaking-free-to-be-me/"><u>Breaking Free to Be Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210108711-9788499887074-la-ciencia-y-las-practicas-espirituales/"><u>La ciencia y las prácticas espirituales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210110785-9781617508141-marys-miracles-and-messages/"><u>Mary's Miracles and Messages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210111045-9781922428097-opening-the-gates-of-glory/"><u>Opening the Gates of Glory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107887-9781645319740-personal-quotes-on-my-bipolar-life/"><u>Personal Quotes on My Bipolar Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210111281-9780978538460-soul-body-fusion/"><u>Soul Body Fusion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210110224-9789389253443-the-spirits-talk-to-me/"><u>The Spirits Talk to Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210108529-9781735471020-you-are-intuitive/"><u>You Are Intuitive | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

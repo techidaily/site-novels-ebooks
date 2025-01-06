@@ -1,7 +1,7 @@
 ---
 title: Staying Well With Guided Imagery | Free Book
-date: 2024-10-22T22:19:22.783Z
-updated: 2024-10-27T03:43:13.599Z
+date: 2024-12-30T16:17:53.565Z
+updated: 2025-01-06T16:09:07.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bba75e6d57f2180757d693c507decc325a9a460d12a335ea2f63fee83c710e26.jpg
@@ -135,3 +135,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bba75e6d57f2180757d693c507decc3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210245469-9781098037888-church-advance-forward-boots-on-the-ground/"><u>Church Advance Forward, Boots on the Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245601-9780964272613-exploring-other-lifetimes/"><u>Exploring Other Lifetimes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245507-9781098066284-the-creators-temporary/"><u>The Creator's Temporary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245414-9781098057138-the-days-of-echoes-past/"><u>The Days of Echoes Past | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245372-9781098063924-the-divine-body/"><u>The Divine Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245597-9780972866859-the-given-self/"><u>The Given Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245445-9781098037093-the-making-of-a-prayer-princess/"><u>The Making of a Prayer Princess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245437-9781098049225-voices-lost-spirit-found/"><u>Voices Lost, Spirit Found | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

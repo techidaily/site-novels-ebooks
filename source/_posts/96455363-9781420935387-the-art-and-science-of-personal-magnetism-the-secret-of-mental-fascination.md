@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2024-12-26T00:39:35.034Z
-updated: 2024-12-27T17:26:11.936Z
+date: 2025-01-04T16:23:43.250Z
+updated: 2025-01-06T16:29:20.343Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,18 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209541307-9780008319427-aquarius-2020-your-personal-horoscope/"><u>Aquarius 2020: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541308-9780008319410-capricorn-2020-your-personal-horoscope/"><u>Capricorn 2020: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541847-9781401944681-chris-p-bacon/"><u>Chris P. Bacon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209542449-9781783253241-intention/"><u>Intention | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541306-9780008319366-leo-2020-your-personal-horoscope/"><u>Leo 2020: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541309-9780008319380-libra-2020-your-personal-horoscope/"><u>Libra 2020: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541310-9780008319434-pisces-2020-your-personal-horoscope/"><u>Pisces 2020: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541305-9780008319373-virgo-2020-your-personal-horoscope/"><u>Virgo 2020: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541304-9780008319304-your-personal-horoscope-2020/"><u>Your Personal Horoscope 2020 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210665960-9780645426212-a-practical-guide-for-self-change/"><u>A Practical Guide for Self Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666007-9783986538637-dark-psychology-101/"><u>DАRK PSYCHOLOGY 101 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666039-9780645344486-life-in-the-soul-lane/"><u>Life in the Soul Lane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666017-9798986536606-my-twin-flame-journey-of-separation-surrender-and-release/"><u>My Twin Flame Journey of Separation, Surrender, and Release | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666482-9781401974107-power-thoughts/"><u>Power Thoughts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666019-9781957943916-the-signs-of-jesus-deity-in-the-gospel-of-john-workbook/"><u>The Signs of Jesus' Deity in the Gospel of John - Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210665981-9781088067000-todo-comienza-con-amor/"><u>Todo Comienza Con Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210665287-9780740786815-when-they-were-22/"><u>When They Were 22 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

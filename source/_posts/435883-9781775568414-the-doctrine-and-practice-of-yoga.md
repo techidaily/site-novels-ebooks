@@ -1,7 +1,7 @@
 ---
 title: The Doctrine and Practice of Yoga | Free Book
-date: 2024-10-22T22:42:42.497Z
-updated: 2024-10-26T18:35:35.863Z
+date: 2025-01-01T16:16:22.234Z
+updated: 2025-01-06T16:42:53.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cac2134892d6a342245d804626c3124da1e8ed3727ecbd643759deb055962423.jpg
@@ -160,3 +160,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cac2134892d6a342245d804626c3124
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210133159-9781591434016-alien-intelligence-and-the-pathway-to-mars/"><u>Alien Intelligence and the Pathway to Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133156-9781591434122-animal-medicine/"><u>Animal Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133157-9781591434061-beyond-the-flower-of-life-2nd-ed/"><u>Beyond the Flower of Life (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133155-9781591434283-first-nations-crystal-healing/"><u>First Nations Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133160-9781620557204-introduction-to-magic-volume-iii/"><u>Introduction to Magic, Volume III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133158-9781591434146-the-mystery-tradition-of-miraculous-conception/"><u>The Mystery Tradition of Miraculous Conception | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

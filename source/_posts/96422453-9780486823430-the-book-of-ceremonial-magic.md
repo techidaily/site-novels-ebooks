@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2024-12-21T01:32:53.435Z
-updated: 2024-12-28T02:07:52.364Z
+date: 2025-01-02T16:46:55.581Z
+updated: 2025-01-06T16:19:06.589Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,16 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209667344-9781547580514-liderazgo-mejora-tu-lenguaje-corporal-para-influenciar-a-otros-a-traves-de-comunicacion-poderosa/"><u>Liderazgo: Mejora Tu Lenguaje Corporal Para Influenciar A Otros A Través De Comunicación Poderosa | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667340-9781547577323-meditacion-aprenda-como-meditar-para-dormir-mejor-usando-la-guia/"><u>Meditación : Aprenda Cómo Meditar Para Dormir Mejor Usando La Guía | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667370-9781547577637-meditacion-activa-tus-chakras-y-reduce-la-ansiedad-y-la-depresion/"><u>Meditación: Activa Tus Chakras Y Reduce La Ansiedad Y La Depresión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667360-9781547576579-meditacion-guia-para-principiantes-para-meditar-y-reducir-estres-logra-la-paz-y-la-espiritualidad/"><u>Meditación: Guía Para Principiantes Para Meditar Y Reducir Estrés (Logra La Paz Y La Espiritualidad) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667349-9781547574551-meditacion-tecnicas-de-meditacion-para-relajarse-y-aliviar-la-ansiedad-meditation/"><u>Meditación: Técnicas De Meditación Para Relajarse Y Aliviar La Ansiedad ( Meditation) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667342-9781547578160-meditacion-tecnicas-de-mindfulness-para-lograr-la-espiritualidad-elimina-la-ansiedad-rapidamente/"><u>Meditación: Técnicas De Mindfulness Para Lograr La Espiritualidad (Elimina La Ansiedad Rápidamente) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667362-9781547580095-meditacion-tecnicas-para-lograr-la-paz-reducir-el-estres-y-la-depresion/"><u>Meditación: Técnicas Para Lograr La Paz (Reducir El Estrés Y La Depresión) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711737-9781454929017-a-little-bit-of-angels/"><u>A Little Bit of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711738-9781454928652-a-little-bit-of-auras/"><u>A Little Bit of Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711745-9781454930761-a-little-bit-of-fairies/"><u>A Little Bit of Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711740-9781454928669-a-little-bit-of-runes/"><u>A Little Bit of Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711766-9781454932475-astrology-for-wellness/"><u>Astrology for Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711776-9781454933519-protection-magick/"><u>Protection Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711744-9781454930051-the-conspiracy-book/"><u>The Conspiracy Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711777-9781454933199-the-mood-book/"><u>The Mood Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711770-9781454932987-weird-ghosts/"><u>Weird Ghosts | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

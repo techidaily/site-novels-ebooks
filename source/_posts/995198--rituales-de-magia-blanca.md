@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-12-24T01:02:17.294Z
-updated: 2024-12-27T17:13:54.016Z
+date: 2024-12-30T16:45:06.182Z
+updated: 2025-01-06T16:02:22.646Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,17 +136,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126100-9781609256852-tarot-damour/"><u>Tarot D'Amour | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126101-9781609254001-tarot-dictionary-and-compendium/"><u>Tarot Dictionary and Compendium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126102-9781609253929-tarot-of-the-spirit/"><u>Tarot of the Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126103-9781609256845-tea-cup-reading/"><u>Tea Cup Reading | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126108-9781609255510-the-book-of-splendours/"><u>The Book of Splendours | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126098-9781609255718-the-tarot/"><u>The Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126099-9781609254346-the-tarot-book/"><u>The Tarot Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126112-9781609254698-the-training-work-of-an-initiate/"><u>The Training & Work of an Initiate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341278--angels-are-with-you-now/"><u>Angels Are with You Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341745-9781914447181-how-to-really-go-with-the-flow/"><u>How To REALLY Go With The Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341417-9781735624433-stillness-touch/"><u>Stillness Touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341762-9781774816011-the-tao/"><u>The Tao | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

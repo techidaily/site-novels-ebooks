@@ -1,7 +1,7 @@
 ---
 title: La caja de pandora | Free Book
-date: 2024-12-21T19:07:03.475Z
-updated: 2024-12-28T01:50:07.382Z
+date: 2025-01-04T16:08:58.105Z
+updated: 2025-01-06T16:12:17.305Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e93143498e8986258009c90315cbf22a586286.jpg
@@ -147,14 +147,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e9314
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126167-9781609251673-the-weiser-fields-guide-to-ascension/"><u>The Weiser Fields Guide to Ascension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126176-9781609251857-the-white-magic-book/"><u>The White Magic Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126180-9781609254520-the-wicca-handbook/"><u>The Wicca Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126186-9781609255213-the-winged-bull/"><u>The Winged Bull | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126171-9781609254605-what-is-occultism/"><u>What Is Occultism? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210343007-9781908421579-a-journey-of-psychic-discovery/"><u>A Journey of Psychic Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344427-9781647467678-love-wellness-and-happiness/"><u>Love, Wellness, and Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344377-9781648015571-the-girl-in-the-window/"><u>The Girl in the Window | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210343456-9781631599996-the-ultimate-guide-to-shamanism/"><u>The Ultimate Guide to Shamanism | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

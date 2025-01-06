@@ -1,7 +1,7 @@
 ---
 title: The Parapsychology Revolution | Free Book
-date: 2024-10-21T21:20:01.747Z
-updated: 2024-10-26T17:12:43.523Z
+date: 2024-12-31T16:14:38.461Z
+updated: 2025-01-06T16:01:26.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/285d806d1141582413a232e943b9812499a7f4597e218f1eb595dba60b2a6d20.jpg
@@ -177,3 +177,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/285d806d1141582413a232e943b9812
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210257917-9780578885735-canceled/"><u>Canceled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210257828-9781662415180-faith/"><u>F.A.I.T.H. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210257913-9781638778110-inspirations/"><u>Inspirations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210258133-9786077132615-la-oracion-en-la-psicoterapia/"><u>La oración en la psicoterapia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210257902-9781734850413-learn-about-life-force-energy-from-a-master/"><u>Learn About Life Force Energy From A Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210258399-9781529341980-lessons-from-a-bedside/"><u>Lessons from a Bedside | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210257867-9780972866880-love/"><u>Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210257886-9791029912375-the-machinery-of-the-mind-annotated/"><u>The Machinery of the Mind (Annotated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210258131-9786077132714-travesia-entre-el-amor-y-la-muerte/"><u>Travesía entre el amor y la muerte | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

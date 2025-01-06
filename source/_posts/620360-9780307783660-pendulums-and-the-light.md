@@ -1,7 +1,7 @@
 ---
 title: Pendulums and the Light | Free Book
-date: 2024-10-25T04:48:31.261Z
-updated: 2024-10-27T05:34:10.540Z
+date: 2024-12-31T16:42:53.863Z
+updated: 2025-01-06T16:20:26.584Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/363067372a66b72e4d3f998a0ae26f0edbcc00429a57afd98a004643227cc293.jpg
@@ -167,3 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/363067372a66b72e4d3f998a0ae26f0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209848608-9781681274270-astrology-for-beginners/"><u>Astrology For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848358-9781788085403-goddess-rising/"><u>Goddess Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848737-9781618130945-la-purificacion-del-corazon/"><u>La Purificación del Corazón | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848611-9781681274539-tarot-cards-for-beginners/"><u>Tarot Cards For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848261-9781911425830-the-little-book-of-big-leverage/"><u>The Little Book of Big Leverage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848453-9781772570953-walking-between-the-worlds-book-ii/"><u>Walking Between the Worlds ─ Book II | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

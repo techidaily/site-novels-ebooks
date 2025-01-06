@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Capricorn | Free Book
-date: 2024-10-31T17:39:40.010Z
-updated: 2024-11-07T17:05:12.056Z
+date: 2025-01-04T16:53:40.006Z
+updated: 2025-01-06T17:02:29.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977ee44c94c191dcc84849061ae3794bfc4ca.jpg
@@ -169,14 +169,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209854275-9780648011521-everyday-miracle-maker/"><u>Everyday Miracle Maker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209854257-9780996902427-iphelia/"><u>Iphelia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209854255-9781947369108-love-never-dies-a-psychic-artist-illustrates-true-stories-of-the-afterlife/"><u>Love Never Dies - A Psychic Artist Illustrates True Stories of the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853868-9780982508541-me-the-crazy-woman-and-breast-cancer-2nd-ed/"><u>Me, the Crazy Woman, and Breast Cancer (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209854105-9789670310718-qi-men-dun-jia-forecasting-method-wealth-life-pursuits/"><u>Qi Men Dun Jia Forecasting Method - Wealth & Life Pursuits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853829-9781640850279-released-to-roar/"><u>Released To ROAR | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209854335-9781889471303-spell-breaking-2/"><u>Spell Breaking 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853888-9781910559390-wild-wise/"><u>Wild & Wise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209854114-9781947938236-your-first-step-to-re-create-your-life-in-oneness/"><u>Your First Step to Re-Create Your Life in Oneness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847671-9781801520744-concentration/"><u>Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847628-9781988387260-human-nature/"><u>Human Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847422-9781685680862-la-paz-interior/"><u>La paz interior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847543-9780996510387-living-the-deepest-truth-you-know/"><u>Living the Deepest Truth You Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847650-9798987504673-moments-of-edification-volume-1/"><u>Moments of Edification: Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847625-9781958356210-the-hills-we-climb-love-it-hate-it-embrace-itlifes-journey/"><u>The Hills We Climb Love It, Hate It, Embrace It...Life's Journey | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

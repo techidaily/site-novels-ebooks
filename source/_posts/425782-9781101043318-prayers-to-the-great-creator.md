@@ -1,7 +1,7 @@
 ---
 title: Prayers to the Great Creator | Free Book
-date: 2024-10-22T18:49:05.419Z
-updated: 2024-10-26T20:49:45.236Z
+date: 2025-01-03T16:58:08.551Z
+updated: 2025-01-06T16:12:53.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/472b7e48e4cc77a622ac7c4b78996b0b6faffca25b337f328dc4e45039ab0486.jpg
@@ -269,3 +269,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/472b7e48e4cc77a622ac7c4b78996b0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210176519-9781722526337-a-modern-approach-to-think-and-grow-rich/"><u>A Modern Approach to Think and Grow Rich | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210176520-9781722526313-depression-metaphysics/"><u>Depression & Metaphysics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210177784-9781643340838-el-libro-de-la-verdad/"><u>El libro de la verdad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210177781-9781643345734-reflejos-de-mi-alma/"><u>Reflejos de mi Alma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210177651-9781528768856-the-mysteries-of-magic-a-digest-of-the-writings-of-eliphas-levi/"><u>The Mysteries of Magic - A Digest of the Writings of Eliphas Levi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210176612-9781446358146-the-witches-god/"><u>The Witches' God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210176611-9781446358160-the-witches-goddess/"><u>The Witches' Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210177123-9781401956172-think-indigenous/"><u>Think Indigenous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210177598-9781735974828-what-they-want-us-to-know/"><u>What They Want Us To Know | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

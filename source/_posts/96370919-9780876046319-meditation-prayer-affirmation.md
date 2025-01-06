@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2024-12-27T01:22:20.845Z
-updated: 2024-12-27T19:49:49.273Z
+date: 2025-01-01T16:58:03.961Z
+updated: 2025-01-06T17:04:29.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -142,13 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209789118-9781507213025-how-to-be-an-astrologer/"><u>How to Be an Astrologer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209788955-9781856754347-silence/"><u>Silence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209789303-9781608686261-the-angel-experiment/"><u>The Angel Experiment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209788914-9780486843889-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761476-9781591798767-emptiness-dancing/"><u>Emptiness Dancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761479-9781604079456-energy-healing/"><u>Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761471-9781622039050-healing-through-the-akashic-records/"><u>Healing Through the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761475-9781604074550-the-bowl-of-light/"><u>The Bowl of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761484-9781604079142-the-deepest-acceptance/"><u>The Deepest Acceptance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761469-9781591798897-the-instruction/"><u>The Instruction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761472-9781604074727-the-path-of-the-yoga-sutras/"><u>The Path of the Yoga Sutras | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

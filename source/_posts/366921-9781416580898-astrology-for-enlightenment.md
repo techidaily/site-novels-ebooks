@@ -1,7 +1,7 @@
 ---
 title: Astrology for Enlightenment | Free Book
-date: 2024-10-26T00:38:52.484Z
-updated: 2024-10-27T03:41:44.189Z
+date: 2025-01-03T16:00:12.892Z
+updated: 2025-01-06T16:07:30.594Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5553cf2ce6b8e03385d57fb02d9c93d3b17b86ca1105dedfb50b043047e4cd5e.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5553cf2ce6b8e03385d57fb02d9c93d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210223566-9781910027387-power-for-good/"><u>Power for Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223931-9780008485023-ten-times-happier-how-to-let-go-of-whats-holding-you-back/"><u>Ten Times Happier: How to Let Go of What’s Holding You Back | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223567-9781910027448-the-angels-beside-us/"><u>The Angels Beside Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224035-9781684037162-the-science-of-channeling/"><u>The Science of Channeling | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

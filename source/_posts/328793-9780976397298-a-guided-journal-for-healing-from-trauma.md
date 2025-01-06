@@ -1,7 +1,7 @@
 ---
 title: A Guided Journal for Healing From Trauma | Free Book
-date: 2024-10-20T05:18:48.701Z
-updated: 2024-10-26T16:47:25.868Z
+date: 2025-01-01T16:00:49.245Z
+updated: 2025-01-06T16:52:55.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/466ee824ad60f7023a204b3d01691845017d7fccd4abec9ed18da5004ef7b989.jpg
@@ -144,3 +144,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/466ee824ad60f7023a204b3d0169184
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210289270-9781398814073-discover-your-psychic-self/"><u>Discover Your Psychic Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289115-9781493046911-haunted-new-mexico/"><u>Haunted New Mexico | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289614-9780578909578-her-psalms/"><u>Her Psalms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289116-9781608937271-mythical-creatures-of-maine/"><u>Mythical Creatures of Maine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289099-9781789048933-practically-pagan-an-introduction-to-alternative-guides-to-living/"><u>Practically Pagan - An Introduction to Alternative Guides to Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289628-9788792633606-tarology/"><u>Tarology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289620-9780645169911-the-power-of-love-with-animals/"><u>The Power of Love with Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289275-9781398814080-the-power-of-meditation/"><u>The Power of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289015-9789768307101-vision-aligning-with-gods-purpose-for-your-life/"><u>VISION: Aligning With God's Purpose For Your Life | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

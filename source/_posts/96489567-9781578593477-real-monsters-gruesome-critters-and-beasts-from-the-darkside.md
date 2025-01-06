@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-12-23T20:56:53.468Z
-updated: 2024-12-27T16:47:34.205Z
+date: 2024-12-31T16:26:53.764Z
+updated: 2025-01-06T16:56:35.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,15 +262,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1818255-9781782796701-collecting-feathers/"><u>Collecting Feathers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1818257-9781782797081-death-the-last-god/"><u>Death, the Last God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1813720-9781594748363-field-guide-to-luck/"><u>Field Guide to Luck | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1815859-9780970711779-got-ghost/"><u>Got Ghost | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1818259-9781782797166-of-course/"><u>Of Course! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1816015-9781776586905-practical-psychomancy-and-crystal-gazing/"><u>Practical Psychomancy and Crystal Gazing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630007-9781642504187-a-mothers-courage-to-awaken/"><u>A Mother's Courage to Awaken | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630768-9783986537524-dark-persuasion/"><u>DАRK PЕRSUАSION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630428-9780008518295-out-of-the-woods-a-tale-of-positivity-kindness-and-courage/"><u>Out of the Woods: A tale of positivity, kindness and courage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632036-9781639610426-seek-adapt-endure/"><u>Seek. Adapt. Endure. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629980-9781609252595-teens-with-the-courage-to-give/"><u>Teens with the Courage to Give | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630387-9781608688012-the-holy-wild-grimoire/"><u>The Holy Wild Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630649-9780760377093-the-tarot-spellbook/"><u>The Tarot Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630650-9780760376621-the-ultimate-guide-to-crystals/"><u>The Ultimate Guide to Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630985-9789948041337-agna-khoatry/"><u>أَجِنَّة خواطري | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

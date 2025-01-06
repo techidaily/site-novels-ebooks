@@ -1,7 +1,7 @@
 ---
 title: I Am Indigo | Free Book
-date: 2024-10-21T03:13:08.265Z
-updated: 2024-10-27T02:31:20.979Z
+date: 2025-01-05T17:01:45.686Z
+updated: 2025-01-06T16:28:53.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5389f6450136e6decb3604e28a7bb8424e14e45dc10563473d7a986342130fb6.jpg
@@ -136,3 +136,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5389f6450136e6decb3604e28a7bb84
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209936376-9781644841761-fix-your-fairytale/"><u>Fix Your Fairytale | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933425-9781913479138-lightworkers-gotta-work/"><u>Lightworkers Gotta Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933544-9781441130143-memory-and-urban-religion-in-the-ancient-world/"><u>Memory and Urban Religion in the Ancient World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209934762-9780648251316-soul-awakening/"><u>Soul Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933396-9781722524159-the-miracle-month/"><u>The Miracle Month | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933409-9781722524135-the-seekers-guide-to-the-secret-teachings-of-all-ages/"><u>The Seeker's Guide to The Secret Teachings of All Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933410-9781722524203-the-truth-about-magic/"><u>The Truth About Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

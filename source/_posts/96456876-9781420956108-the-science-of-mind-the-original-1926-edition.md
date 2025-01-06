@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2024-12-27T02:00:28.991Z
-updated: 2024-12-27T20:42:31.175Z
+date: 2025-01-04T16:26:59.888Z
+updated: 2025-01-06T16:55:35.043Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,16 +156,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209556785-9781250313317-astro-poets/"><u>Astro Poets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209557409-9781578597017-celebrity-ghosts-and-notorious-hauntings/"><u>Celebrity Ghosts and Notorious Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209559287-9781785358913-divine-meditations/"><u>Divine Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209558635-9781547561445-megan-e-a-prefeita/"><u>Megan e a Prefeita | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209558579-9781547561827-teu-outro-corpo/"><u>Teu outro Corpo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209557410-9781578597031-the-alien-book/"><u>The Alien Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209557813-9781459745537-touched-by-the-light/"><u>Touched by the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673461-9783000734441-conversations-with-the-universe/"><u>Conversations with The Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673484-9798986826813-from-disbelief-to-assurance/"><u>From Disbelief to Assurance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210672942-9781959434245-life-choices-and-life-paths-4th-ed/"><u>Life Choices and Life Paths (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673018-9798986043227-problem-solved/"><u>Problem Solved | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673015-9781838197162-quotes-about-consciousness/"><u>Quotes about Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210672800-9781839105906-the-mindful-law-student/"><u>The Mindful Law Student | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673025-9798986664729-the-new-5d-human/"><u>The new 5D HUman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673547-9781685173876-the-struggle-and-how-we-slayed-the-dragon/"><u>The Struggle and How We Slayed the Dragon | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

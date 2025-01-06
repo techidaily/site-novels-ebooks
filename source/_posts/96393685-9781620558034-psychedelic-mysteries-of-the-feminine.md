@@ -1,7 +1,7 @@
 ---
 title: Psychedelic Mysteries of the Feminine | Free Book
-date: 2024-12-25T22:43:36.292Z
-updated: 2024-12-27T19:16:28.911Z
+date: 2024-12-31T16:03:14.843Z
+updated: 2025-01-06T16:48:06.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632a4352990196f552dc9c43583ded2e2ad0.jpg
@@ -188,17 +188,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209748825-9781071500682-anunnaki-reptiliens-dans-lhistoire-de-lhumanite/"><u>Anunnaki: Reptiliens dans l’histoire de l’humanité | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748832-9781547594337-asgard-la-magia-nordica/"><u>Asgard. La magia nordica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748830-9781547595051-la-magie-du-quartz-rose-jeter-de-simples-sorts-avec-une-seule-pierre/"><u>La Magie du Quartz Rose: Jeter de simples sorts avec une seule pierre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748885-9781547594382-lasciapassare-per-il-flipside/"><u>Lasciapassare per il Flipside | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748864-9781547595402-megans-school-examens/"><u>Megan's School Examens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748262-9781743486863-taking-the-journey/"><u>Taking the Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748778-9781071501030-the-book-of-thoughts-ii/"><u>The Book of Thoughts II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748329-9781742288703-walking-in-light/"><u>Walking in Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210749196-9781841815428-find-your-power-manifest/"><u>Find Your Power: Manifest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210749208-9781841815411-find-your-power-runes/"><u>Find Your Power: Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210749205-9781841815350-find-your-power-tarot/"><u>Find Your Power: Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210749403-9781644119136-the-book-of-moldavite/"><u>The Book of Moldavite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210750232-9781524886622-the-little-book-of-the-occult/"><u>The Little Book of the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210750191-9781837820702-where-two-worlds-meet/"><u>Where Two Worlds Meet | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

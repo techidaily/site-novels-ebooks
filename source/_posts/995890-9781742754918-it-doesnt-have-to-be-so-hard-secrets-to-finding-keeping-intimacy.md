@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2024-12-24T21:06:53.459Z
-updated: 2024-12-28T01:30:13.798Z
+date: 2025-01-05T17:04:04.476Z
+updated: 2025-01-06T16:25:22.041Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,14 +176,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126957-9781612831565-fast-lane-to-heaven/"><u>Fast Lane to Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126973-9781612830124-healing-lost-souls/"><u>Healing Lost Souls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126982-9781612831848-how-to-pray-without-talking-to-god/"><u>How to Pray Without Talking to God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126987-9781612830001-im-spiritual-dammit/"><u>I'm Spiritual, Dammit! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126965-9781612830339-the-ghost-who-would-not-die/"><u>The Ghost Who Would Not Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346529-9782226451460-dis-moi-comment-aller-chaque-jour-de-mieux-en-mieux/"><u>Dis-moi comment aller chaque jour de mieux en mieux | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346679-9782226447333-faire-face-a-la-perversion/"><u>Faire face à la perversion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346767-9782226433459-le-grand-livre-de-la-pleine-presence/"><u>Le Grand Livre de la pleine présence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346829-9782226433992-le-joyau-de-lame/"><u>Le Joyau de l'âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346511-9782226452184-les-racines-de-la-meditation/"><u>Les Racines de la méditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346323-9782807331082-soigner-en-pleine-conscience/"><u>Soigner en pleine conscience | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

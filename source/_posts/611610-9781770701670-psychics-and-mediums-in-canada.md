@@ -1,7 +1,7 @@
 ---
 title: Psychics and Mediums in Canada | Free Book
-date: 2024-10-22T16:42:51.610Z
-updated: 2024-10-26T16:52:04.284Z
+date: 2025-01-02T16:45:26.489Z
+updated: 2025-01-06T16:37:58.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/130e5a9a1884dc01283cf1300de3a24579823a36ee108b2c05db9fac1b8f13d2.jpg
@@ -163,3 +163,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/130e5a9a1884dc01283cf1300de3a24
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209863616-9781949362268-be-live/"><u>Be! Live! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863906-9781939119353-her-story-the-legacy-journal/"><u>Her Story The Legacy Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863621-9781948400817-open-your-gifts/"><u>Open Your G.I.F.T.S. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864025-9781926926971-she-reflects/"><u>She Reflects | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864049-9781732411814-surprised-by-tragedy/"><u>Surprised by Tragedy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864083-9780648367543-thoughts-create/"><u>Thoughts Create | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863631-9781732476011-we-are-all-jacobs-children/"><u>We Are All Jacob's Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863732-9780998169316-where-the-magic-happens/"><u>Where the Magic Happens! | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

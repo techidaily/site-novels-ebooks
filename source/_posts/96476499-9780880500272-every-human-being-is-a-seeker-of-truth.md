@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2024-12-21T18:56:01.038Z
-updated: 2024-12-28T01:38:38.584Z
+date: 2025-01-01T16:12:02.136Z
+updated: 2025-01-06T16:48:51.444Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,16 +166,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209518622-9781620558768-developing-supersensible-perception/"><u>Developing Supersensible Perception | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518621-9781620558478-familiars-in-witchcraft/"><u>Familiars in Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518617-9781620558218-jesse-james-and-the-lost-templar-treasure/"><u>Jesse James and the Lost Templar Treasure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518619-9781620558430-slavic-witchcraft/"><u>Slavic Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518624-9781591433378-the-murder-of-moses-2nd-ed/"><u>The Murder of Moses (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518620-9781620558621-the-sacred-herbs-of-samhain/"><u>The Sacred Herbs of Samhain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518625-9781620559031-working-with-chakras-for-belief-change/"><u>Working with Chakras for Belief Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661228-9781914447624-calm-up/"><u>Calm Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661205-9798985332018-god-is-realyou-dont-even-have-to-wonder/"><u>God is REAL...You Don't Even Have to Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661284-9798985526776-gratitude/"><u>Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661767-9781956108033-soul-warrior/"><u>Soul Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661301-9798218009137-the-book-of-proverbs/"><u>The Book of Proverbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661783-9798986875514-the-real-you/"><u>The Real You | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

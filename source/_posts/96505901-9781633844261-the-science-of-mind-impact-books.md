@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2024-12-25T22:13:59.419Z
-updated: 2024-12-27T20:50:43.087Z
+date: 2025-01-01T16:08:31.054Z
+updated: 2025-01-06T16:27:45.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,17 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138544983-9781401949976-a-course-in-miracles-made-easy/"><u>A Course in Miracles Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545006-9781401926748-accepting-the-psychic-torch/"><u>Accepting the Psychic Torch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544997-9781401941109-archetypes/"><u>Archetypes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544984-9781401941734-celebrating-the-universe/"><u>Celebrating the Universe! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544978-9781401928650-colors-numbers/"><u>Colors & Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544996-9781401925055-fractal-time/"><u>Fractal Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544964-9781401926687-spontaneous-evolution/"><u>Spontaneous Evolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544962-9781401924881-the-13th-step/"><u>The 13th Step | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382029-9781774816257-abraham-lincoln/"><u>Abraham Lincoln | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382002-9781774816004-autobiography-of-a-yogi/"><u>Autobiography of a Yogi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210381512-9781087998190-beneath-the-surface/"><u>Beneath The Surface | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210381448-9780760370964-dark-goddess-magick/"><u>Dark Goddess Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210381484-9781945169632-emotional-wholeness/"><u>Emotional Wholeness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382040-9781736679340-wake-up-awakening-through-reflection/"><u>Wake Up! Awakening Through Reflection | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

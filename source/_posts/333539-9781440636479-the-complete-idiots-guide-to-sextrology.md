@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Sextrology | Free Book
-date: 2024-10-24T23:31:38.659Z
-updated: 2024-10-26T18:13:15.563Z
+date: 2024-12-30T16:11:55.118Z
+updated: 2025-01-06T17:00:28.955Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3cd0fdf3bca6b22104d378599e152110f4604a1940bd851f00a732e3ffe4a2c5.jpg
@@ -156,3 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3cd0fdf3bca6b22104d378599e15211
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210292820-9781645156260-beyond-yourself/"><u>Beyond Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292585-9781644929643-form-of-sound-words/"><u>Form of Sound Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292158-9781645690795-healing-the-mind-wound/"><u>Healing the Mind Wound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292601-9781645693642-open-your-heart-and-write-your-vision/"><u>Open Your Heart And Write Your Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292629-9781098013882-shepherds-daughter/"><u>Shepherd's Daughter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210292698-9781098005511-your-facts-are-not-my-truths/"><u>your Facts Are Not My Truths | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

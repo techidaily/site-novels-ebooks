@@ -1,7 +1,7 @@
 ---
 title: True Tales of the Paranormal | Free Book
-date: 2024-10-22T20:45:46.387Z
-updated: 2024-10-27T04:32:43.783Z
+date: 2025-01-03T16:56:40.333Z
+updated: 2025-01-06T16:14:19.120Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b39914280454ae266ae8d8b84762d7a10361cfa7424e568094030eeac13acfc2.jpg
@@ -172,3 +172,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b39914280454ae266ae8d8b84762d7a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209861020-9781999885137-a-little-book-of-permission/"><u>A Little Book of Permission | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861447-9780984530687-alicerce-para-a-cura/"><u>Alicerce para a Cura | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860970-9781908421296-animals-in-the-spirit-world/"><u>Animals in the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860687-9780980608922-get-out-of-jail-card/"><u>Get Out of Jail Card | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860754-9780692120859-heroic-compassion/"><u>Heroic Compassion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860685-9781989013106-secrets-of-a-healer/"><u>Secrets of a Healer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860723-9781784569709-the-future-of-humanity/"><u>The Future Of Humanity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861292-9780987600738-the-magdalen-codes/"><u>The Magdalen Codes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860860-9780999636510-the-origin-comes-alive/"><u>The Origin Comes Alive | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

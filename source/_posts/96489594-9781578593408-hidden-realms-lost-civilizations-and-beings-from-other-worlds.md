@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2024-12-24T16:05:17.036Z
-updated: 2024-12-27T22:03:22.599Z
+date: 2025-01-03T16:31:58.557Z
+updated: 2025-01-06T16:49:11.999Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,18 +227,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1424572-9781780284552-angel-healing/"><u>Angel Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424562-9781780284408-celtic-wisdom/"><u>Celtic Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424574-9781780284590-creative-meditation-visualisation/"><u>Creative Meditation & Visualisation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424577-9781780284651-heal-your-spirit-heal-yourself/"><u>Heal Your Spirit, Heal Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424575-9781780284620-self-healing-reiki/"><u>Self-Healing Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424567-9781780284484-the-meditations-of-marcus-aurelius/"><u>The Meditations of Marcus Aurelius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424553-9781780283647-the-watkins-tarot-handbook/"><u>The Watkins Tarot Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424558-9781780283715-water-pure-and-simple/"><u>Water, Pure and Simple | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424555-9781780283678-women-of-wisdom/"><u>Women of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539579-9781447482840-a-dialogue-concerning-witches-and-witchcrafts/"><u>A Dialogue Concerning Witches and Witchcrafts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210540101-9781447488583-practical-mysticism-a-little-book-for-normal-people/"><u>Practical Mysticism - A Little Book for Normal People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539866-9781447499275-recovering-the-ancient-magic/"><u>Recovering the Ancient Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539385-9781473385641-the-gypsy-queen-dream-book-and-fortune-teller-divination-series/"><u>The Gypsy Queen Dream Book and Fortune Teller (Divination Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539279-9781446549483-witchcraft-and-witchcraft-trials-in-orkney-and-shetland-folklore-history-series/"><u>Witchcraft and Witchcraft Trials in Orkney and Shetland (Folklore History Series) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

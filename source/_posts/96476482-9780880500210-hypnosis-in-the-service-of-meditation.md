@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2024-12-26T02:49:05.431Z
-updated: 2024-12-27T23:41:22.168Z
+date: 2025-01-02T16:15:16.784Z
+updated: 2025-01-06T16:06:15.353Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,16 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2048718-9781634240024-a-sorcerers-apprentice/"><u>A Sorcerer's Apprentice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2054578-9781459732438-haunted-ontario-3-book-bundle/"><u>Haunted Ontario 3-Book Bundle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2052253-9780553419504-life-between-heaven-and-earth/"><u>Life Between Heaven and Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2052331-9781583949894-spiritual-balancing/"><u>Spiritual Balancing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/205692-9780743442589-the-afterlife-experiments/"><u>The Afterlife Experiments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2055421-9780835631402-thought-forms/"><u>Thought Forms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2041962-9781782799832-tours-and-cures-of-a-lightsoldier/"><u>Tours and Cures of a Lightsoldier | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655536-9781454936794-prosperity-magick/"><u>Prosperity Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655502-9781454934714-wiccan-kitchen/"><u>Wiccan Kitchen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655566-9781454939030-zodiac-signs-cancer/"><u>Zodiac Signs: Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655569-9781454939047-zodiac-signs-capricorn/"><u>Zodiac Signs: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655572-9781454939054-zodiac-signs-gemini/"><u>Zodiac Signs: Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655568-9781454939078-zodiac-signs-libra/"><u>Zodiac Signs: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655570-9781454939092-zodiac-signs-sagittarius/"><u>Zodiac Signs: Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655573-9781454939108-zodiac-signs-scorpio/"><u>Zodiac Signs: Scorpio | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

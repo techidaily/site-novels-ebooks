@@ -1,7 +1,7 @@
 ---
 title: The New Science of Getting Rich | Free Book
-date: 2024-10-19T19:00:17.780Z
-updated: 2024-10-27T03:36:06.290Z
+date: 2024-12-31T16:54:49.590Z
+updated: 2025-01-06T16:26:19.328Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f7d6bf465fba9afa7e5b62b67b351a086a16f16537a5e39ca3c798d44c10942b.jpg
@@ -188,3 +188,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f7d6bf465fba9afa7e5b62b67b351a0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210330462-9781644844670-just-what-the-doctor-ordered/"><u>Just What the Doctor Ordered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210329501-9781736712313-reflections-on-being-your-true-self-in-any-situation/"><u>Reflections on Being Your True Self in Any Situation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330292-9781647225810-river-of-offerings/"><u>River of Offerings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330471-9781098072605-under-the-influence/"><u>Under the Influence | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

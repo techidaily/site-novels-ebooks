@@ -1,7 +1,7 @@
 ---
 title: The Witch's Magical Handbook | Free Book
-date: 2024-10-24T05:43:19.956Z
-updated: 2024-10-26T17:49:52.630Z
+date: 2025-01-04T16:26:20.768Z
+updated: 2025-01-06T16:44:49.671Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cd3562b8831e811521270e4f805ad0c4ef3b4ba94737892ecbaffbf8f51e365.jpg
@@ -170,3 +170,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cd3562b8831e811521270e4f805ad0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210155832-9781438435589-eliphas-levi-and-the-french-occult-revival/"><u>Eliphas Lévi and the French Occult Revival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210158379-9781087920610-flouriish-efflorescence-journal/"><u>Flouriish Efflorescence Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210157739-9781735263212-intuitive-development/"><u>Intuitive Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210155097-9781071566947-megan-trekt-de-heuvels-in/"><u>Megan Trekt De Heuvels In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210155119-9781071568811-messaggi-dalluniverso/"><u>Messaggi dall'Universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210158258-9781783254521-the-numinous-tarot-guide/"><u>The Numinous Tarot Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210156081-9781438428789-the-revelation-of-the-breath/"><u>The Revelation of the Breath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210156333-9781438435619-the-rose-cross-and-the-age-of-reason/"><u>The Rose Cross and the Age of Reason | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210158566-9781999425593-un-manuale-di-ce-5/"><u>Un manuale di CE-5 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

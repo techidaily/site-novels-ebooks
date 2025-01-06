@@ -1,7 +1,7 @@
 ---
 title: The Physics of Miracles | Free Book
-date: 2024-10-21T01:41:26.445Z
-updated: 2024-10-26T19:30:49.136Z
+date: 2024-12-31T16:57:33.797Z
+updated: 2025-01-06T16:08:17.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/277690b999cd8537c4866a701716882278161d9fdd9362da6b3aa875c4cce9eb.jpg
@@ -184,3 +184,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/277690b999cd8537c4866a701716882
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210117957-9781632657480-captured-the-betty-and-barney-hill-ufo-experience-60th-anniversary-edition/"><u>Captured! The Betty and Barney Hill UFO Experience (60th Anniversary Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117955-9780892546893-far-from-this-land/"><u>Far From This Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117967-9781633411852-four-elements-of-the-wise/"><u>Four Elements of the Wise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117962-9781612834658-paranormal-confessions/"><u>Paranormal Confessions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117960-9781632657428-the-ancient-alien-question-10th-anniversary-edition/"><u>The Ancient Alien Question, 10th Anniversary Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117956-9781612834665-the-shamans-book-of-living-and-dying/"><u>The Shaman's Book of Living and Dying | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117964-9781612834481-this-life-is-yours/"><u>This Life Is Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210117966-9781632657459-ufos-and-the-deep-state/"><u>UFOs and the Deep State | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

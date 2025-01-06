@@ -1,7 +1,7 @@
 ---
 title: The Spiritual Doorway in the Brain | Free Book
-date: 2024-10-21T21:32:17.736Z
-updated: 2024-10-26T20:15:42.518Z
+date: 2025-01-03T16:27:50.792Z
+updated: 2025-01-06T16:13:40.728Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d53f6faf67527adb629d2aebbac22b5db82945e074d94f0d2d8ce757d2e6bba9.jpg
@@ -197,3 +197,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d53f6faf67527adb629d2aebbac22b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209931889-9781786784032-damanhur/"><u>Damanhur | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209931876-9781786784506-potions-elixirs-brews/"><u>Potions, Elixirs & Brews | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209931878-9781788174039-the-cancer-misfit/"><u>The Cancer Misfit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209931883-9781913462109-the-english-heretic-collection/"><u>The English Heretic Collection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209931880-9781788174602-the-mindflow-method/"><u>The MINDFLOW© Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209932263-9781250623478-the-toltec-way/"><u>The Toltec Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209932431-9781945252440-you-can-choose-your-life/"><u>You Can Choose Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209932428-9781952155031-you-have-been-given-a-gift/"><u>You Have Been Given a Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933317-9781670223944-youre-doing-great-sweetie/"><u>You're Doing Great Sweetie | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

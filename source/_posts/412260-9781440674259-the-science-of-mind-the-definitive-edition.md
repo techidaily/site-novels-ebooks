@@ -1,7 +1,7 @@
 ---
 title: "The Science of Mind: The Definitive Edition | Free Book"
-date: 2024-10-24T01:43:31.045Z
-updated: 2024-10-26T22:38:59.392Z
+date: 2025-01-02T16:46:54.156Z
+updated: 2025-01-06T16:54:19.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/633d55097538413a60e57f805b187067f3268a25a1543ca00b13a8eda8ccd643.jpg
@@ -164,3 +164,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/633d55097538413a60e57f805b18706
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210208243-9780998652481-consciousness-is-all-4th-ed/"><u>Consciousness Is All (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210208389-9781597145190-full-ecology/"><u>Full Ecology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207990-9781952146138-misfit-in-hell-to-heaven-expat/"><u>Misfit in Hell to Heaven Expat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210208334-9781528767804-telepathy-genuine-and-fraudulent-with-a-preface-by-sir-oliver-lodge/"><u>Telepathy - Genuine and Fraudulent - With a Preface by Sir Oliver Lodge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207967-9780578833491-the-complete-astrology-and-intuitive-guide-to-2021/"><u>The Complete Astrology and Intuitive Guide To 2021 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207088-9781913816285-the-sacred-revival/"><u>THE SACRED REVIVAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207169-9780593139493-your-intuition-led-you-here/"><u>Your Intuition Led You Here | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

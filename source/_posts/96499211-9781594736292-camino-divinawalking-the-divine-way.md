@@ -1,7 +1,7 @@
 ---
 title: Camino Divina—Walking the Divine Way | Free Book
-date: 2024-12-20T21:55:46.275Z
-updated: 2024-12-27T16:10:08.882Z
+date: 2025-01-04T16:12:41.031Z
+updated: 2025-01-06T16:33:14.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71c04a16164549d13f634357b99c0191c170a082ca2f8893e3a0e9e0f4945431.jpg
@@ -139,15 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71c04a16164549d13f634357b99c019
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621288-9781632659224-a-call-from-heaven/"><u>A Call From Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621285-9781632659323-ancient-giants-of-the-americas/"><u>Ancient Giants of the Americas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621286-9781632659712-awaken-your-divine-intuition/"><u>Awaken Your Divine Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621282-9781632658920-conscious-ink-the-hidden-meaning-of-tattoos/"><u>Conscious Ink: The Hidden Meaning of Tattoos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621289-9781632659736-lightworker-relationships/"><u>Lightworker Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621297-9781601633941-mind-wars/"><u>Mind Wars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210524580-9781797221021-desk-yoga-deck/"><u>Desk Yoga Deck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210524540-9781885928368-magic/"><u>Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210525164-9781783255207-manifesting-for-beginners-nine-steps-to-attracting-a-life-you-love/"><u>Manifesting for Beginners: Nine Steps to Attracting a Life You Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210525158-9781841815268-your-crystals-your-journey-your-journal/"><u>Your Crystals, Your Journey, Your Journal | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

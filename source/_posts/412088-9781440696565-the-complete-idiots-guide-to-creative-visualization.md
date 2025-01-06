@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Creative Visualization | Free Book
-date: 2024-10-25T22:33:54.928Z
-updated: 2024-10-26T19:04:00.826Z
+date: 2025-01-04T16:10:30.090Z
+updated: 2025-01-06T17:03:58.879Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3839f6d1f6c00a9e7dac953b00a227acd650a07442bbb342e10a9532742f0812.jpg
@@ -169,3 +169,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3839f6d1f6c00a9e7dac953b00a227a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210199809-9781631597077-10-minute-magic-spells/"><u>10-Minute Magic Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199891-9781592338016-crystals-for-energy-healing/"><u>Crystals for Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199949-9780760361177-in-focus-meditation/"><u>In Focus Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200040-9780760364994-in-focus-reiki/"><u>In Focus Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199863-9780760365847-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199845-9780760362297-the-dictionary-of-dreams/"><u>The Dictionary of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199948-9781631595769-the-ultimate-guide-to-crystal-grids/"><u>The Ultimate Guide to Crystal Grids | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

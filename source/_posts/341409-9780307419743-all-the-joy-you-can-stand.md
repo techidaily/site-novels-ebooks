@@ -1,7 +1,7 @@
 ---
 title: All the Joy You Can Stand | Free Book
-date: 2024-10-22T02:55:32.341Z
-updated: 2024-10-26T22:29:18.953Z
+date: 2025-01-05T16:49:16.001Z
+updated: 2025-01-06T16:12:52.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b6bc97f3814b2111b6e6e41228cfab09a6943c9a4ef8e1b7f3d5dfa2ed497bf.jpg
@@ -198,3 +198,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b6bc97f3814b2111b6e6e41228cfab
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210309589-9781801349659-10-guided-meditations-for-anxiety/"><u>10 Guided Meditations For Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309029-9781908421487-great-moments-of-modern-mediumship/"><u>Great Moments of Modern Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309600-9781801348591-guided-meditations-for-deep-sleep-relaxation-anxiety-depression-2-in-1/"><u>Guided Meditations For Deep Sleep, Relaxation, Anxiety & Depression (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309597-9781801348553-manifesting-money-abundance-blueprint-the-law-of-attraction/"><u>Manifesting Money & Abundance Blueprint- The Law Of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309737-9781638143086-the-mountain-and-valley-people/"><u>The Mountain and Valley People | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

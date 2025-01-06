@@ -1,7 +1,7 @@
 ---
 title: What the Bible Says About... | Free Book
-date: 2024-10-21T21:29:15.405Z
-updated: 2024-10-26T20:04:03.996Z
+date: 2025-01-02T16:01:45.503Z
+updated: 2025-01-06T16:38:08.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fada6e670eb3ab3ec8a82f60abd869d8fc164fe3406a6d85f62312ef9382b1aa.jpg
@@ -140,3 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fada6e670eb3ab3ec8a82f60abd869d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210325289-9781982150464-at-heavens-door/"><u>At Heaven's Door | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210325000-9781510768109-the-modern-witchs-guide-to-natural-magick/"><u>The Modern Witch's Guide to Natural Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324985-9781507217573-the-modern-witchcraft-guide-to-runes/"><u>The Modern Witchcraft Guide to Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324993-9781507217948-the-witchs-guide-to-wellness/"><u>The Witch's Guide to Wellness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

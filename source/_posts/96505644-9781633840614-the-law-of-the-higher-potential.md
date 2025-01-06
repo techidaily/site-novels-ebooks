@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2024-12-26T19:55:16.975Z
-updated: 2024-12-27T22:28:14.716Z
+date: 2024-12-31T17:01:19.393Z
+updated: 2025-01-06T16:14:37.303Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,18 +135,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138591999-9781469746562-a-beautiful-mind-wasted/"><u>A Beautiful Mind Wasted | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591835-9781449739836-firing-on-all-cylinders/"><u>Firing on All Cylinders | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591983-9781462400218-i-stand-with-courage/"><u>I Stand with Courage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591777-9781469738420-interior-lights-in-a-dark-universe/"><u>Interior Lights in a Dark Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591876--journal-magic/"><u>Journal M.A.G.I.C. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591825-9781462049950-spirit-speaks-are-you-listening/"><u>Spirit Speaks. Are You Listening? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592008-9781462400973-talking-dogs/"><u>Talking Dogs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591814-9781462071098-the-big-picture/"><u>The Big Picture | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591933-9781462053308-whats-next-papa/"><u>What’S Next, Papa? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210473369-9781787138902-astro-power/"><u>Astro Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470841-9781777878429-embodied/"><u>Embodied | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470919-9789354621055-meditations/"><u>Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210474223-9781922691323-the-test-of-time/"><u>The Test of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210474172-9781638141440-what-god-has/"><u>What God Has... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210472677-9780253014641-where-the-spirits-ride-the-wind/"><u>Where the Spirits Ride the Wind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

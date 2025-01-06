@@ -1,7 +1,7 @@
 ---
 title: Journeys into the Unknown | Free Book
-date: 2024-10-21T23:08:10.085Z
-updated: 2024-10-26T19:04:39.175Z
+date: 2025-01-01T16:55:49.951Z
+updated: 2025-01-06T16:41:50.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90a8608658f81bc5df6a380ac28deb7084df4f96f6100fc8e9af9d5d9100aa87.jpg
@@ -165,3 +165,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90a8608658f81bc5df6a380ac28deb7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209865438-9780938001720-angels-of-miracles-and-manifestation/"><u>Angels of Miracles and Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865472-9780938001744-celestine-light-magickal-sigils-of-heaven-and-earth/"><u>Celestine Light Magickal Sigils of Heaven and Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865237-9780997560855-foundations-of-near-death-research/"><u>Foundations of Near-Death Research | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865524-9781916411012-i-am-enough/"><u>I Am Enough | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865346-9781773232508-prayer/"><u>Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865232-9781916468610-the-dark-night-of-the-soul/"><u>The Dark Night of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865455-9780999494905-the-magical-unfolding/"><u>The Magical Unfolding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865597-9781773232669-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

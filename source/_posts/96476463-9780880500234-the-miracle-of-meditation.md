@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-12-27T03:04:22.805Z
-updated: 2024-12-27T23:24:06.106Z
+date: 2024-12-30T16:11:49.557Z
+updated: 2025-01-06T16:34:42.780Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,13 +166,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1969559-9780804181044-angel-power/"><u>Angel Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1980053-9781583947333-mystery-school-in-hyperspace/"><u>Mystery School in Hyperspace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1973644-9780895565389-the-master-game/"><u>The Master Game | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1964089-9781782797920-traditional-witchcraft-and-the-path-to-the-mysteries/"><u>Traditional Witchcraft and the Path to the Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648160-9781631958397-a-book-about-you/"><u>A Book About YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210646868-9781608688449-hagitude/"><u>Hagitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648314-9781087748085-lo-que-dios-dice-sobre-nuestros-cuerpos/"><u>Lo que Dios dice sobre nuestros cuerpos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648003-9781684931033-the-man-who-tapped-the-secrets-of-the-universe/"><u>The Man Who Tapped the Secrets of the Universe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

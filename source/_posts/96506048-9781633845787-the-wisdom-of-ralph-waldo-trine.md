@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Ralph Waldo Trine | Free Book
-date: 2024-12-27T00:58:58.943Z
-updated: 2024-12-27T19:22:46.941Z
+date: 2025-01-03T16:36:44.436Z
+updated: 2025-01-06T16:40:13.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399143e33e364df922e51683bcdc0dfe214d.jpg
@@ -146,13 +146,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138569713-9780595764785-being-remarkable/"><u>Being Remarkable | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569673-9781450207997-how-did-i-miss-all-this-before/"><u>How Did I Miss All This Before? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569700-9781452500638-the-tao-of-mermaids/"><u>The Tao of Mermaids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569690-9781449707248-when-i-discovered-i-was-awesome/"><u>When I Discovered I Was Awesome | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404499-9781646547227-all-shades-between/"><u>All Shades Between | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404465-9781662432354-from-darkness-to-light/"><u>From Darkness to Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404440-9798985030716-innocent-again/"><u>Innocent Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404357-9780799356953-my-pad-met-engele/"><u>My pad met engele | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404229-9781735740140-quantum-golf-2nd-edition/"><u>Quantum Golf 2nd Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404438-9781396318450-the-unknown-life-of-jesus-christ/"><u>The Unknown Life of Jesus Christ | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

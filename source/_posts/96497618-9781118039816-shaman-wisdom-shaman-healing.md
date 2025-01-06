@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2024-12-24T16:22:30.434Z
-updated: 2024-12-28T01:46:32.560Z
+date: 2025-01-03T16:57:09.255Z
+updated: 2025-01-06T16:08:40.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,13 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138620408-9781722520144-how-to-attract-good-luck-condensed-classics/"><u>How to Attract Good Luck (Condensed Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138620403-9781722520120-how-to-attract-money-condensed-classics/"><u>How to Attract Money (Condensed Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138620412-9781722520267-the-game-of-life-and-how-to-play-it-condensed-classics/"><u>The Game of Life And How to Play it (Condensed Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138620407-9781722520229-the-secret-of-the-ages-condensed-classics/"><u>The Secret of the Ages (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508872-9781636304649-dear-dad-do-you-know/"><u>Dear Dad, Do You Know? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511577-9781910559680-kitchen-witch/"><u>Kitchen Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508931-9780998987088-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508945-9781088017265-prayer-in-the-presence-of-god/"><u>PRAYER in the PRESENCE of GOD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210509000-9780645262698-seeds-of-self-care/"><u>Seeds of Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511246-9781737699200-sensual-intelligence-the-lost-iq/"><u>Sensual Intelligence: The Lost IQ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508939-9781957343020-spirit-speaks-within-you/"><u>Spirit Speaks Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508895-9789382585237-the-journey-continues/"><u>The Journey Continues | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

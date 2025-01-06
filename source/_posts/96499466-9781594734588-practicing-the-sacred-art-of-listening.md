@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2024-12-23T21:57:30.963Z
-updated: 2024-12-28T00:39:34.219Z
+date: 2025-01-01T16:44:04.064Z
+updated: 2025-01-06T16:10:33.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,15 +167,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138575816-9781475921373-after-the-light/"><u>After the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575641-9781450257978-colloquies/"><u>Colloquies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575733-9781475946833-heart-whispers/"><u>Heart Whispers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575762-9781450238595-its-no-secret/"><u>It's No Secret | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575672-9781462039371-mantras-and-musical-solutions/"><u>Mantras and Musical Solutions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575711-9781450219297-stimulating-awareness-about-life/"><u>Stimulating Awareness About Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428922-9781683488057-babaji/"><u>BABAJI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429009-9780958723053-pathways-to-higher-consciousness/"><u>Pathways to Higher Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428916-9781662447952-quotes-the-famous-and-not-so-famous/"><u>Quotes: The Famous and Not so Famous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428766-9780762474288-the-night-school/"><u>The Night School | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429008-9781913816445-ways-of-the-soul/"><u>Ways of the Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

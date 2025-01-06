@@ -1,7 +1,7 @@
 ---
 title: A Textbook of Theosophy | Free Book
-date: 2024-10-23T03:24:06.722Z
-updated: 2024-10-26T16:46:51.064Z
+date: 2025-01-05T16:23:02.891Z
+updated: 2025-01-06T16:22:31.738Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ec487a215c0f025811fadbfb96087ef6b50fc19ca29fa11a349478a8a3dc02f.jpg
@@ -159,3 +159,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ec487a215c0f025811fadbfb96087e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210131396-9781761035623-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210131404-9781761035746-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210131397-9781761035777-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210131394-9781761035593-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

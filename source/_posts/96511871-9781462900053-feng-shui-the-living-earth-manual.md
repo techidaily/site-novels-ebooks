@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2024-12-26T16:38:30.621Z
-updated: 2024-12-28T02:35:00.246Z
+date: 2024-12-31T16:40:40.913Z
+updated: 2025-01-06T16:45:30.582Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,15 +148,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1142781-9780857010056-chen/"><u>Chen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144298-9780810875128-historical-dictionary-of-witchcraft-2nd-ed/"><u>Historical Dictionary of Witchcraft (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144064-9781118456446-mindfulness-workbook-for-dummies/"><u>Mindfulness Workbook For Dummies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1142783-9780857010070-seeking-the-spirit-of-the-book-of-change/"><u>Seeking the Spirit of The Book of Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1143533-9781608822935-the-tao-of-bipolar/"><u>The Tao of Bipolar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1142784-9780857010087-traditional-chinese-medicine-approaches-to-cancer/"><u>Traditional Chinese Medicine Approaches to Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349216-9782226306869-cinq-eloges-de-lepreuve/"><u>Cinq éloges de l'épreuve | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349231-9782226306845-larchipel-des-saints/"><u>L'Archipel des saints | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349423-9782226303141-lesprit-du-yoga/"><u>L'Esprit du yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349218-9782226306883-la-confrerie-de-la-danse-sacree/"><u>La Confrérie de la danse sacrée | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349264-9782226297501-le-reve-et-ses-interpretations-en-islam/"><u>Le Rêve et ses interprétations en Islam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349424-9782226291202-le-reve-eveille-libre/"><u>Le Rêve éveillé libre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349411-9782226303165-paroles-de-verite/"><u>Paroles de vérité | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349376-9782226290595-un-homme-trahi/"><u>Un homme trahi | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

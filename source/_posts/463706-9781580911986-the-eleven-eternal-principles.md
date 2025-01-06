@@ -1,7 +1,7 @@
 ---
 title: The Eleven Eternal Principles | Free Book
-date: 2024-10-21T18:03:57.486Z
-updated: 2024-10-27T05:08:02.515Z
+date: 2025-01-01T16:27:46.707Z
+updated: 2025-01-06T16:22:30.264Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3d9a90895a204272e29d36cce002cf680083d512d0f3a53cb19175a45e7a50f8.jpg
@@ -193,3 +193,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3d9a90895a204272e29d36cce002cf6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210053468-9780998741420-ama-deus-curando-com-a-energia-sagrado-do-universo/"><u>Ama-Deus Curando com a Energia Sagrado do Universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210054425-9781647533557-in-communication-with-the-deceased/"><u>In Communication With The Deceased | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210053300-9780990446897-reiki-21st-century-updated-methods-teachings-attunements-from-a-20th-century-master/"><u>Reiki 21st Century Updated Methods, Teachings, Attunements from a 20th Century Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210053376-9780648748014-she-walks/"><u>She Walks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210053671-9780982676967-stark-raving-zen/"><u>Stark Raving Zen | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

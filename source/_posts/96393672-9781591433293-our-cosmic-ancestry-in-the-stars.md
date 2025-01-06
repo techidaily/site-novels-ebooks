@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2024-12-24T16:06:56.863Z
-updated: 2024-12-27T23:59:18.953Z
+date: 2025-01-04T16:24:22.466Z
+updated: 2025-01-06T16:06:32.489Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,15 +191,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209732445-9781788173605-crystals-for-energy-protection/"><u>Crystals for Energy Protection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209734648-9781787133402-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209733632-9781722523572-self-mastery-through-conscious-autosuggestion-original-classic-edition/"><u>Self-Mastery Through Conscious Autosuggestion (Original Classic Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209733677-9781609259259-tarot-card-combinations/"><u>Tarot Card Combinations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209732469-9781984856609-the-new-stone-age/"><u>The New Stone Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209733413-9781507212639-the-witchs-book-of-love/"><u>The Witch's Book of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746671-9780593581377-remember-love/"><u>Remember Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746086-9798885044820-the-intuition-experiment/"><u>The Intuition Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210745628-9798987229217-what-you-want-wants-you/"><u>What You Want Wants You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210745597-9781088085035-you-have-another-you/"><u>You Have Another You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746483-9781634243414-youre-not-alone/"><u>You’re Not Alone | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

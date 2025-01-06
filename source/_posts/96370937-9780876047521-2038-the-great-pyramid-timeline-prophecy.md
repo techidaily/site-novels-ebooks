@@ -1,7 +1,7 @@
 ---
 title: 2038 The Great Pyramid Timeline Prophecy | Free Book
-date: 2024-12-22T02:42:13.748Z
-updated: 2024-12-27T22:53:40.580Z
+date: 2025-01-05T17:04:15.089Z
+updated: 2025-01-06T17:04:55.453Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1eb900475374970b6dbc69b5f89cf7563d3.jpg
@@ -137,15 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209824373-9781644616444-el-tarot-de-los-druidas/"><u>El tarot de los druidas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824259-9781644615294-enciclopedia-del-esoterismo/"><u>Enciclopedia del esoterismo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824374-9781644616482-geminis/"><u>Géminis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824369-9781644616420-iniciarse-en-el-viaje-astral/"><u>Iniciarse en el viaje astral | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824372-9781644616390-los-suenos-interpretarlos-y-dirigirlos/"><u>Los sueños: interpretarlos y dirigirlos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824375-9781644616475-tauro/"><u>Tauro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761698-9781683641353-high-magick/"><u>High Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761689-9781683649397-mindfulness-meditation-for-pain-relief/"><u>Mindfulness Meditation for Pain Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761685-9781622031627-resurrecting-jesus/"><u>Resurrecting Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761663-9781683648215-ritual/"><u>Ritual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761670-9781683648833-roar-like-a-goddess/"><u>Roar Like a Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761674-9781683649236-the-heart-of-who-we-are/"><u>The Heart of Who We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761669-9781683648987-yoga-nidra/"><u>Yoga Nidra | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

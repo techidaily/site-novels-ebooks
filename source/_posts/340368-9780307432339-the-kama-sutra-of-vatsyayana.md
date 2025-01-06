@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2024-10-23T21:02:38.169Z
-updated: 2024-10-26T20:47:23.843Z
+date: 2024-12-31T16:36:03.415Z
+updated: 2025-01-06T16:00:29.762Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c7b2c8970a8d0efaa54a1daaf0121db7c9716cf8411af0f48a3be145f2172096.jpg
@@ -169,3 +169,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c7b2c8970a8d0efaa54a1daaf0121db
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210301479-9781916045163-crystal-spell-kit-instruction-booklet/"><u>Crystal Spell Kit Instruction Booklet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301097-9781638230168-divine-keys-to-unlocking-your-destiny/"><u>DIVINE KEYS TO UNLOCKING YOUR DESTINY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301091-9781736872826-harder-than-i-thought-easier-than-i-feared/"><u>Harder Than I Thought, Easier Than I Feared | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301090-9781908421500-here-and-hereafter/"><u>Here and Hereafter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210302048-9781782406983-secrets-of-color-healing/"><u>Secrets of Color Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301482-9781916045187-the-candle-magic-banishing-and-purification-instruction-booklet/"><u>The Candle Magic Banishing and Purification Instruction Booklet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301551-9781774815069-the-prophet/"><u>The Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210302104-9781735471082-venus-juice/"><u>Venus Juice | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

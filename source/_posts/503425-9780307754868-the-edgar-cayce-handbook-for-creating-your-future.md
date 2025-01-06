@@ -1,7 +1,7 @@
 ---
 title: The Edgar Cayce Handbook for Creating Your Future | Free Book
-date: 2024-10-25T04:16:32.192Z
-updated: 2024-10-27T00:41:24.039Z
+date: 2024-12-30T16:55:33.403Z
+updated: 2025-01-06T17:04:41.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2fa3e7bf9829e6c9fa85a31d70356da82a57293ff5da65909efbaa20c23f630.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2fa3e7bf9829e6c9fa85a31d70356d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210032674-9781632201362-strange/"><u>Strange | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032996-9781628730968-the-complete-book-of-devils-and-demons/"><u>The Complete Book of Devils and Demons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210033054-9781628731378-the-little-book-of-curses-and-maledictions-for-everyday-use/"><u>The Little Book of Curses and Maledictions for Everyday Use | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210034897-9781578597284-the-new-witch/"><u>The New Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Turning the Mind Into an Ally | Free Book
-date: 2024-10-23T17:16:26.450Z
-updated: 2024-10-26T22:52:30.557Z
+date: 2024-12-31T16:36:49.223Z
+updated: 2025-01-06T16:50:29.677Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2777f438d7c6f780e29bd686b88ca3a331f17e0773c14e04f3e6f3a54d80f06e.jpg
@@ -188,3 +188,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2777f438d7c6f780e29bd686b88ca3a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210178621-9781528968249-a-b-c-of-indian-astrology/"><u>A B C of Indian Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210179058-9788792633637-marseille-tarot/"><u>Marseille Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210179396-9781000291315-the-way-of-power/"><u>The Way of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210179265-9780762473779-the-witchy-homestead/"><u>The Witchy Homestead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210177960-9781662405419-what-lies-beyond-faith/"><u>What Lies beyond Faith | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

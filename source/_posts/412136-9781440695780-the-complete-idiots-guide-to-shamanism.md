@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Shamanism | Free Book
-date: 2024-10-26T05:25:17.097Z
-updated: 2024-10-26T19:17:01.662Z
+date: 2024-12-30T16:09:29.673Z
+updated: 2025-01-06T16:24:36.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63965f08980bc1f310f9eb9ecf0f859424baab2e7c52efc6738b9c25c8b293df.jpg
@@ -161,3 +161,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63965f08980bc1f310f9eb9ecf0f859
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210200999-9781908005151-art-of-mindful-silence/"><u>Art of Mindful Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200996-9781908005137-art-of-mindful-walking/"><u>Art of Mindful Walking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202532-9781641605748-becoming-a-hollow-bone/"><u>Becoming a Hollow Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201517-9781647465773-becoming-whole/"><u>Becoming Whole | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202121-9781788174817-healing-is-the-new-high/"><u>Healing Is the New High | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200997-9781908005540-mindfulness-the-art-of-managing-anger/"><u>Mindfulness & the Art of Managing Anger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200973-9781782401230-mindfulness-the-natural-world/"><u>Mindfulness & the Natural World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200731-9781610580502-the-best-meditations-on-the-planet/"><u>The Best Meditations on the Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201660-9781735740126-trouble-in-paradise/"><u>Trouble In Paradise | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

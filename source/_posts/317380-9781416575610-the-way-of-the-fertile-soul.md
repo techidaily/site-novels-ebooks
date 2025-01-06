@@ -1,7 +1,7 @@
 ---
 title: The Way of the Fertile Soul | Free Book
-date: 2024-10-23T20:20:27.128Z
-updated: 2024-10-27T05:39:23.740Z
+date: 2025-01-03T16:27:42.608Z
+updated: 2025-01-06T16:34:59.033Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/370a9b9ed43d148ef2ae087c91c2d2dc76fb5881b608d410bbb25f82bf346a83.jpg
@@ -181,3 +181,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/370a9b9ed43d148ef2ae087c91c2d2d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210335129-9781797209548-animal-power/"><u>Animal Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210335377-9780593420874-awakening-the-crystals/"><u>Awakening the Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334614-9781506480404-blessings-for-the-long-night-poems-and-meditations-to-help-you-through-depression/"><u>Blessings for the Long Night: Poems and Meditations to Help You through Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210335824-9781623176945-soul-authority/"><u>Soul Authority | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334915-9782357288317-the-virgin-of-the-world-of-hermes-mercurius-trismegistos/"><u>The Virgin of the World of Hermes Mercurius Trismegistos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334717-9780834844087-the-wakeful-body/"><u>The Wakeful Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334937-9781631953705-timeless/"><u>Timeless | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

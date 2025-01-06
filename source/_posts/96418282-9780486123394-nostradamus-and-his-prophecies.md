@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2024-12-23T00:54:22.178Z
-updated: 2024-12-27T16:52:48.653Z
+date: 2025-01-01T16:24:47.926Z
+updated: 2025-01-06T16:52:39.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,13 +151,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209657603-9781620236291-awakening-angel-connections/"><u>Awakening Angel Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209656667-9781602354524-facing-the-sky/"><u>Facing the Sky | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209654050-9781789040456-mind-spirit-detox/"><u>Mind-Spirit Detox | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209654053-9781789040258-training-wheels/"><u>Training Wheels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710070-9781959143123-todo-era-mentira/"><u>¡TODO ERA MENTIRA! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710100-9789692792110-a-kick-in-the-attitude/"><u>A Kick In The Attitude! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710097-9798985202847-the-secret-of-crossings/"><u>The Secret of Crossings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710040-9781958895474-thrusting-against-negative-forces/"><u>Thrusting Against Negative Forces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710242-9781504081047-vital-message/"><u>Vital Message | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

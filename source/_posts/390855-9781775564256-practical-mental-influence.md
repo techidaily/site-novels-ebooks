@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2024-10-26T05:27:19.686Z
-updated: 2024-10-27T00:24:27.541Z
+date: 2025-01-01T16:03:01.989Z
+updated: 2025-01-06T16:18:51.093Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adbb2b346cbb317d8e70d2366f4918763b54367eaa35bcc4f4e2cfa95c65c681.jpg
@@ -156,3 +156,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adbb2b346cbb317d8e70d2366f49187
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210237038-9781885928320-alchemy-unveiled/"><u>Alchemy Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237613-9780645096316-awakening/"><u>AWAKENING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210236747-9781641604000-brujas/"><u>Brujas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237037-9781885928337-how-to-develop-your-occult-powers/"><u>How to Develop Your Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237557-9781735026237-the-book-of-jared/"><u>The Book of Jared | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210238310-9780835630818-the-chakras/"><u>The Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210238644-9780648873969-wanting-to-be-me/"><u>Wanting to be Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237745-9781916045125-witchcraft-and-the-old-religion/"><u>Witchcraft and The Old Religion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

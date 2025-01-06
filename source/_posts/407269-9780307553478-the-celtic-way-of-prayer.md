@@ -1,7 +1,7 @@
 ---
 title: The Celtic Way of Prayer | Free Book
-date: 2024-10-22T16:03:21.427Z
-updated: 2024-10-27T01:36:28.544Z
+date: 2024-12-31T16:36:03.140Z
+updated: 2025-01-06T16:21:51.976Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3bd92a686849a9a4765181fd0fe9f76060dcb1e4706cddd31b1829df96bcfbee.jpg
@@ -185,3 +185,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3bd92a686849a9a4765181fd0fe9f76
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210197891-9781631599750-crystal-grids-handbook/"><u>Crystal Grids Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198002-9781592338009-crystals-for-positive-manifestation/"><u>Crystals for Positive Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197953-9781782408093-mindfulness-for-students/"><u>Mindfulness for Students | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198024-9781782407119-secrets-of-chakras/"><u>Secrets of Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197978-9781627882972-spellcraft-for-a-magical-year/"><u>Spellcraft for a Magical Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198087-9781631595363-the-ultimate-guide-to-numerology/"><u>The Ultimate Guide to Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197989-9780760367834-the-zenned-out-guide-to-understanding-auras/"><u>The Zenned Out Guide to Understanding Auras | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

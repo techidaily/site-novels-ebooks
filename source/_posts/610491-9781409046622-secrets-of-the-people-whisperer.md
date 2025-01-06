@@ -1,7 +1,7 @@
 ---
 title: Secrets Of The People Whisperer | Free Book
-date: 2024-10-20T23:09:08.007Z
-updated: 2024-10-27T03:08:25.814Z
+date: 2024-12-31T17:03:47.095Z
+updated: 2025-01-06T16:12:01.840Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/731bfba353e1464756b767e89f224dca546dc04dbe517e4aba80ba42bfc984fe.jpg
@@ -161,3 +161,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/731bfba353e1464756b767e89f224dc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209858537-9788792980540-a-life-changing-journey-with-a-master/"><u>A Life Changing Journey with a Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858595-9781532307560-dare-to-know-who-you-are/"><u>DARE TO KNOW WHO YOU ARE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858519-9780999494721-dream-a-better-dream/"><u>Dream A Better Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858780-9781912635054-dreaming-of-a-divine-life-second-edition/"><u>Dreaming of a Divine Life (Second Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858430-9780692984741-elhaz-ablaze/"><u>Elhaz Ablaze | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858676-9780692082508-la-sabiduria-del-sonar/"><u>LA SABIDURÍA DEL SOÑAR | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858509-9781999963002-the-art-of-the-intuitive-healer-volume-2/"><u>The art of the intuitive healer. Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858546-9780997118582-true-ghost-stories-and-hauntings/"><u>True Ghost Stories and Hauntings | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

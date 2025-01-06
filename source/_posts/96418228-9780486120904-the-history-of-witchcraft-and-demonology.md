@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2024-12-23T20:48:48.324Z
-updated: 2024-12-27T20:25:02.677Z
+date: 2024-12-30T16:08:36.945Z
+updated: 2025-01-06T16:29:04.181Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,16 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209649436-9781620559734-awakening-your-crystals/"><u>Awakening Your Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649430-9781620559758-boost-your-natural-energy/"><u>Boost Your Natural Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649432-9781620558645-opening-doors-within-3rd-ed/"><u>Opening Doors Within (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649426-9781620558454-operative-witchcraft/"><u>Operative Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649427-9781620559079-rosicrucian-america/"><u>Rosicrucian America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649431-9781620558881-russian-black-magic/"><u>Russian Black Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209649428-9781620558669-the-yoni-egg/"><u>The Yoni Egg | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707061-9781915393739-happy-birthday-love-elvis/"><u>Happy Birthday-Love, Elvis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707755-9780645523744-light-ignited-miracles-unleashed/"><u>Light Ignited, Miracles Unleashed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707597-9780875169347-living-enlightened/"><u>Living Enlightened | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210706839-9798886161878-man-rejected-me-but-god-chose-me/"><u>Man Rejected Me but God Chose Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707494-9781788179584-nine-days-of-eternity/"><u>Nine Days of Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707742-9780645523737-she-energy/"><u>She Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210707745-9781956368345-the-wayfarer/"><u>The Wayfarer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: You're Not Who You Think You Are | Free Book
-date: 2024-10-25T04:31:34.335Z
-updated: 2024-10-26T23:21:39.772Z
+date: 2025-01-02T16:39:15.564Z
+updated: 2025-01-06T16:34:16.855Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4688bb93400c38c88e038edacaa770b0c14f56e6192c2180fc508df07db3f7b.jpg
@@ -185,3 +185,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4688bb93400c38c88e038edacaa770
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210233098-9781633412385-espiritismo/"><u>Espiritismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233091-9781633412378-hoodoo-justice-magic/"><u>Hoodoo Justice Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233093-9781633412408-pure-magic/"><u>Pure Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233092-9781633412095-saturn/"><u>Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233090-9781633412026-spiritual-cleansing/"><u>Spiritual Cleansing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233096-9781950253203-the-7-energies-of-the-soul/"><u>The 7 Energies of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233662-9781631953163-the-mermaid-method/"><u>The Mermaid Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233095-9781633412392-the-witch-at-the-forests-edge/"><u>The Witch at the Forest's Edge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233097-9781881098829-the-witches-almanac-2022-2023-standard-edition-issue-41/"><u>The Witches' Almanac 2022-2023 Standard Edition Issue 41 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

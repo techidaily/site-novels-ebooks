@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2024-12-22T19:39:52.898Z
-updated: 2024-12-28T02:04:26.129Z
+date: 2025-01-02T16:04:29.112Z
+updated: 2025-01-06T16:38:57.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,14 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1752771-9781618520791-heads-up-dreaming/"><u>Heads-Up Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1753630-9781780287850-pilgrimage-to-iona/"><u>Pilgrimage to Iona | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1755761-9780857011732-the-four-dragons/"><u>The Four Dragons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1753632-9781780288246-the-phoenix-generation/"><u>The Phoenix Generation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1755929-9781618520814-you-a-spiritual-being-on-a-spiritual-journey/"><u>YOU: A Spiritual Being on a Spiritual Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611615-9781684980918-angel-within/"><u>Angel Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611712-9781638121350-angels-to-aliens/"><u>Angels to Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210609608-9781911163190-colour-therapy/"><u>Colour Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210609586-9781911163213-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210609874-9781911042860-fix-your-home/"><u>Fix Your Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611731-9789811848575-love-is-everything/"><u>Love is Everything | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2024-12-22T02:10:38.734Z
-updated: 2024-12-27T20:55:26.612Z
+date: 2024-12-31T16:48:09.875Z
+updated: 2025-01-06T16:16:13.722Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,15 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209547536-9781609256418-consult-your-inner-psychic/"><u>Consult Your Inner Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209547074-9781632658227-hollands-grimoire-of-magickal-correspondence/"><u>Holland's Grimoire of Magickal Correspondence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209548350-9781785356100-living-space/"><u>Living Space | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209545957-9781528786430-myths-and-dreams/"><u>Myths and Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209547537-9781609255978-quantum-affirmations/"><u>Quantum Affirmations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209547538-9781609252809-they-dont-see-what-i-see/"><u>They Don't See What I See | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668449-9781948302463-anthroposophical-guidelines/"><u>Anthroposophical Guidelines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668093-9781662454295-chortle/"><u>Chortle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210667870-9798986491325-dimes-from-heaven/"><u>Dimes From Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668034-9780876128015-finding-the-joy-within-you/"><u>Finding the Joy Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666719-9781399402699-finding-the-language-of-grace/"><u>Finding the Language of Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668160-9780648776161-guide-to-the-new-age/"><u>Guide to the New Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668400-9798218072049-my-blue-cells/"><u>My Blue Cells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668095-9781662484346-such-a-journey/"><u>Such a Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210668038-9798886168594-the-power-of-gods-consciousness/"><u>The Power of God's Consciousness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

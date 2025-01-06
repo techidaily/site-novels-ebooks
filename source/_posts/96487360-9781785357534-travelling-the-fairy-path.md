@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2024-12-25T23:03:51.882Z
-updated: 2024-12-27T19:10:17.789Z
+date: 2025-01-05T16:14:41.120Z
+updated: 2025-01-06T16:02:07.884Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,15 +153,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1757245--blood-of-avalon/"><u>Blood of Avalon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1759790-9781599217239-crazy-sexy-cancer-tips/"><u>Crazy Sexy Cancer Tips | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/175605-9781416500179-experiencing-the-next-world-now/"><u>Experiencing the Next World Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763375-9781776583645-historic-ghosts-and-ghost-hunters/"><u>Historic Ghosts and Ghost Hunters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/176192-9781416500575-three-men-seeking-monsters/"><u>Three Men Seeking Monsters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763349-9781776583126-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210612791-9780760373477-in-focus-wicca/"><u>In Focus Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611901-9798986225012-overcoming-the-drug-addiction-i-never-had/"><u>Overcoming The Drug Addiction I Never Had | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210613518-9781523510962-real-happiness-10th-anniversary-edition-2nd-ed/"><u>Real Happiness, 10th Anniversary Edition (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210613066-9781529905625-what-is-meditation/"><u>What is Meditation? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

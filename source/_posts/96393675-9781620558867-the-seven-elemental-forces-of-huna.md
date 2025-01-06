@@ -1,7 +1,7 @@
 ---
 title: The Seven Elemental Forces of Huna | Free Book
-date: 2024-12-26T20:40:07.201Z
-updated: 2024-12-27T17:18:56.175Z
+date: 2025-01-02T16:44:40.224Z
+updated: 2025-01-06T16:51:02.624Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1cf2774f26d28a10672b591c6afd98d9f6.jpg
@@ -183,18 +183,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209738494-9781785358692-ive-never-met-a-dead-person-i-didnt-like/"><u>I've Never Met A Dead Person I Didn't Like | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209739650-9781547574605-liderazgo-mejorar-la-comunicacion-en-los-negocios-e-influir-facilmente-en-los-miembros-del-equipo-para-lograr-el-exito/"><u>Liderazgo : Mejorar La Comunicación En Los Negocios E Influir Fácilmente En Los Miembros Del Equipo Para Lograr El Éxito | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209740259-9781925117882-omservations/"><u>Omservations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209737952-9781507212653-spellcrafting/"><u>Spellcrafting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209735431-9780008353193-the-frozen-river/"><u>The Frozen River | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209742300-9781722523244-the-miracle-habits/"><u>The Miracle Habits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209742304-9781722522667-the-power-of-your-subconscious-mind-with-study-guide/"><u>The Power of Your Subconscious Mind with Study Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209739504-9781848668072-this-book-will-make-you-mindful/"><u>This Book Will Make You Mindful | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209738784-9780895566225-trump-is-a-four-letter-word/"><u>Trump Is a Four Letter Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210747635-9781803410159-a-reason-to-carry-on/"><u>A Reason to Carry On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746675-9780593579749-astrolit/"><u>AstroLit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210747821-9781957547343-autumns-diary-of-dreams/"><u>Autumn's Diary of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210747705-9781637743737-glow-worthy/"><u>Glow-Worthy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746941-9781645021698-love-nature-magic/"><u>Love, Nature, Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210747832-9781914447716-once-upon-a-real-life/"><u>Once Upon A Real Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210747205-9781544538143-soil-spirit/"><u>Soil & Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210747197-9798889266396-spiral/"><u>Spiral | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210747789-9781662482373-this-is-your-book-that-will-help-to-enhance-your-life/"><u>This is Your Book that Will Help to Enhance Your Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

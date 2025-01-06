@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2024-12-26T21:23:11.457Z
-updated: 2024-12-27T23:47:34.263Z
+date: 2024-12-31T16:52:07.117Z
+updated: 2025-01-06T16:44:44.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -141,13 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209844903-9780994565211-7-steps-to-emotional-freedom/"><u>7 Steps to Emotional Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844663-9781782808930-coolected-poems/"><u>COOLECTED POEMS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844909-9781911134145-quareia-the-adept/"><u>Quareia The Adept | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209844842-9781945026188-the-gateways/"><u>The Gateways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210765829-9781685680251-afirmaciones-cientificas-para-la-curacion-scientific-healing-affirmationsspanish/"><u>Afirmaciones científicas para la curación (Scientific Healing Affirmations—Spanish) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210767570-9781000818987-intrusions/"><u>Intrusions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210766000-9781087940878-mentally-fit-a-guide-to-engaging-the-mind-body-and-spirit/"><u>Mentally Fit: A Guide to Engaging the Mind, Body and Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210765966-9781736679395-no-gold-without-the-dragon-2nd-ed/"><u>No Gold Without the Dragon (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210766601-9788293725398-original-resistance/"><u>Original Resistance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210765920-9798886440805-whose-daughter-am-i/"><u>WHOSE DAUGHTER AM I | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

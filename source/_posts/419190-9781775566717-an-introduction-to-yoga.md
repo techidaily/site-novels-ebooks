@@ -1,7 +1,7 @@
 ---
 title: An Introduction to Yoga | Free Book
-date: 2024-10-20T00:34:01.466Z
-updated: 2024-10-26T17:00:24.386Z
+date: 2025-01-01T16:36:04.477Z
+updated: 2025-01-06T16:21:42.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b9a6617d08d4f8d7baee9e33398d5cdf2ac39e9c9978bb1db116a8100ed49f95.jpg
@@ -148,3 +148,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b9a6617d08d4f8d7baee9e33398d5cd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210170547-9781643345185-a-donde-vas-pequeno-juan/"><u>¿A dónde vas Pequeño Juan? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170455-9781631599408-10-minute-moon-rituals/"><u>10-Minute Moon Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170474-9781838219123-angels-and-you/"><u>ANGELS AND YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170539-9781643344690-dios-de-amor-tus-mensajes-y-mis-poemas-de-amor/"><u>Dios De Amor, Tus Mensajes Y Mis Poemas De Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170601-9781643341033-el-bosque/"><u>El Bosque | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170522-9781643344324-mas-alla-de-mi-verdad/"><u>Más Allá De Mi Verdad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170570-9781643341132-para-enamorarme/"><u>Para Enamorarme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170457-9780711255265-the-astrology-fix/"><u>The Astrology Fix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170586-9781643344249-un-espiritu-se-es-y-un-alma-se-posee/"><u>Un Espíritu Se es y un Alma se Posee | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

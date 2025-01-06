@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2024-12-24T03:04:01.233Z
-updated: 2024-12-28T00:02:57.538Z
+date: 2025-01-04T16:55:21.784Z
+updated: 2025-01-06T16:46:37.971Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,16 +187,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1221614-9781780997155-awaken-your-inner-faerie-in-30-days/"><u>Awaken Your Inner Faerie In 30 Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221615-9781780998916-beyond-god/"><u>Beyond God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221618-9781780996486-dear-poppyseed/"><u>Dear Poppyseed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221620-9781780997933-divine-guidance/"><u>Divine Guidance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221621-9781780995397-drinking-the-four-winds/"><u>Drinking the Four Winds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1220547-9781776526796-occultism-and-common-sense/"><u>Occultism and Common-Sense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1220041-9780892545605-the-book-of-lilith/"><u>The Book of Lilith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361759-9781761037214-celtic-mythology/"><u>Celtic Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362173-9781640869882-conexion-con-el-universo/"><u>Conexión con el Universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361835-9781637303702-from-waves-i-rise/"><u>From Waves, I Rise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362084-9781662424700-navigating-the-pandemic/"><u>Navigating the Pandemic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362076-9781771622769-richard-wagamese-selected/"><u>Richard Wagamese Selected | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362086-9781662415562-summer-haikai/"><u>Summer Haikai | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361957-9781608687817-the-afterlife-frequency/"><u>The Afterlife Frequency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210362138-9781087974781-the-journey-of-discovering-inner-peace/"><u>The Journey of Discovering Inner Peace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

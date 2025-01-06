@@ -1,7 +1,7 @@
 ---
 title: The Life of Buddha and Its Lessons | Free Book
-date: 2024-10-23T03:07:36.040Z
-updated: 2024-10-27T00:30:02.519Z
+date: 2025-01-01T16:17:49.153Z
+updated: 2025-01-06T16:24:48.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e3772088743327981be1cc96a9c83db709b039f696efde5172cd2545aba9e32.jpg
@@ -136,3 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e3772088743327981be1cc96a9c83d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210185735-9781908421418-facts/"><u>Facts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185767-9780648886907-leadership-for-the-new-millennium/"><u>Leadership for the New Millennium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185791-9781908421456-more-light/"><u>More Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185854-9781636760506-the-lonesome-thread/"><u>The Lonesome Thread | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185841-9788792633699-the-oracle-travels-light/"><u>The Oracle Travels Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

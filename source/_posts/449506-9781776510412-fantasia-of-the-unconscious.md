@@ -1,7 +1,7 @@
 ---
 title: Fantasia of the Unconscious | Free Book
-date: 2024-10-24T05:23:36.694Z
-updated: 2024-10-26T20:09:36.062Z
+date: 2025-01-04T16:19:31.800Z
+updated: 2025-01-06T16:04:05.749Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/904fe76c231de8ecfecb5b192ec97cbaa597faf6929154136726a48e4c687965.jpg
@@ -160,3 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/904fe76c231de8ecfecb5b192ec97cb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210101239-9781922456014-breakthrough/"><u>BREAKTHROUGH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101848-9781989838723-guided-mindfulness-meditations-for-stressed-out-adults-beginners-meditation-bedtime-stories-hypnosis-for-self-healing-deep-sleep-anxiety-relaxation-insomnia-ove/"><u>Guided Mindfulness Meditations for Stressed Out Adults Beginners Meditation, Bedtime Stories & Hypnosis For Self-Healing, Deep Sleep, Anxiety, Relaxation, Insomnia & Overthinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101337-9781734337839-hell-no-reincarnation/"><u>Hell No, Reincarnation? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101435-9781504064545-survival-lessons/"><u>Survival Lessons | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-12-21T20:53:27.016Z
-updated: 2024-12-27T22:01:37.926Z
+date: 2025-01-01T16:29:43.999Z
+updated: 2025-01-06T16:49:40.345Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,18 +238,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1433500-9781136602696-a-companion-to-yi-jing-numerology-and-cosmology/"><u>A Companion to Yi jing Numerology and Cosmology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424604-9781780286945-beyond-the-occult/"><u>Beyond the Occult | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1426734--heaven-on-earth/"><u>Heaven on Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1429457-9781608827503-mindfulness-for-prolonged-grief/"><u>Mindfulness for Prolonged Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424603-9781780286266-prayers-of-manifestation/"><u>Prayers of Manifestation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424605-9781780286952-supernatural/"><u>Supernatural | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424595-9781780286150-the-gene-keys/"><u>The Gene Keys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424602-9781780286242-the-last-pope/"><u>The Last Pope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424594-9781780286136-your-soul-contract-decoded/"><u>Your Soul Contract Decoded | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545395-9781399704908-astrology-self-care-aquarius/"><u>Astrology Self-Care: Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545400-9781399704861-astrology-self-care-capricorn/"><u>Astrology Self-Care: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545393-9781399704717-astrology-self-care-leo/"><u>Astrology Self-Care: Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545386-9781399704625-astrology-self-care-taurus/"><u>Astrology Self-Care: Taurus | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

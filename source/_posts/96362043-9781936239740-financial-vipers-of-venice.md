@@ -1,7 +1,7 @@
 ---
 title: Financial Vipers of Venice | Free Book
-date: 2024-11-24T21:08:43.643Z
-updated: 2024-11-27T19:06:05.786Z
+date: 2025-01-03T16:39:33.530Z
+updated: 2025-01-06T16:19:50.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf70277606d3f7799e20c490b0b531163059.jpg
@@ -137,16 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96261033-9781788172707-chakras-made-easy/"><u>Chakras Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96261034-9781788172721-energy-healing-made-easy/"><u>Energy Healing Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96291666-9781401956578-grow-a-new-body/"><u>Grow a New Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96261032-9781788172677-reiki-made-easy/"><u>Reiki Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96261224-9781493034666-spooky-oregon-2nd-ed/"><u>Spooky Oregon (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96261035-9781788172752-tarot-made-easy/"><u>Tarot Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96272949-9781547531349-tu-otro-cuerpo/"><u>Tu otro Cuerpo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773045-9781649696151-inside-the-mind-of-a-wizard/"><u>Inside the Mind of a Wizard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773043-9781685834913-o-tranquil-and-wealthy-soul/"><u>O Tranquil and Wealthy Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773040-9781922405326-periodic-poetry/"><u>Periodic Poetry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773141-9781649697578-the-kindred-spirit-love-oracle-book/"><u>The Kindred Spirit Love Oracle Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773134-9781649692672-the-quintessential-journey/"><u>The Quintessential Journey | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

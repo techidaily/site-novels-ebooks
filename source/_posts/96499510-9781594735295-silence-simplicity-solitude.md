@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2024-12-26T17:58:26.534Z
-updated: 2024-12-27T22:09:20.509Z
+date: 2025-01-02T16:48:25.608Z
+updated: 2025-01-06T17:04:35.095Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,18 +145,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138576154-9781475915785-a-healers-guide-to-miracles/"><u>A Healer's Guide to Miracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576033-9781440123986-beyond-reason/"><u>Beyond Reason | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575940-9781469790367-how-the-word-heals/"><u>How the Word Heals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575924-9781469709000-how-to-lay-on-the-altar-without-wiggling/"><u>How to Lay on the Altar Without Wiggling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575895-9781450224369-imagine-forgiveness/"><u>Imagine Forgiveness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575930-9781440103926-seven-letters-to-live-by-respect/"><u>Seven Letters to Live By: Respect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576113-9781449774431-speak-your-healing-from-the-homosexual-deception/"><u>Speak Your Healing from the Homosexual Deception | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575993-9780595827121-the-gods-in-their-cities/"><u>The Gods in Their Cities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576074-9780595806775-the-promise-of-heaven/"><u>The Promise of Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431604-9780645281514-an-introduction-to-spirituality/"><u>An Introduction to Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431603-9780646851525-find-your-way/"><u>Find Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431602-9781957234984-intuitive-moon-rituals/"><u>Intuitive Moon Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433110-9781786786081-myung-sung/"><u>Myung Sung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210432855-9781684860081-satans-masterpiece-and-the-way-to-freedom/"><u>Satan's Masterpiece, And The Way To Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210432942-9780760371404-the-ultimate-guide-to-psychic-abilities/"><u>The Ultimate Guide to Psychic Abilities | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

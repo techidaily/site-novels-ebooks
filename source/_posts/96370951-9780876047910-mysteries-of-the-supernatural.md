@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Supernatural | Free Book
-date: 2024-12-26T21:44:31.126Z
-updated: 2024-12-27T22:09:45.996Z
+date: 2025-01-05T16:18:50.119Z
+updated: 2025-01-06T16:46:42.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566938aa6bc3f19a4f2c2da321ce85b9b240.jpg
@@ -142,16 +142,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209838180-9780991345748-a-journey-of-possibilities/"><u>A Journey of Possibilities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838168-9780992365332-poetry-for-inspiration-faith-truth-and-healing-where-we-are-now-series-volume-2/"><u>Poetry for Inspiration, Faith, Truth and Healing: Where We Are Now Series - Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838360-9781495111679-soul-realized-unlocking-the-sacred-keys-to-becoming-a-divine-human/"><u>Soul Realized: Unlocking the Sacred Keys to Becoming a Divine Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838341-9780992843021-the-charge-of-the-goddess-the-poetry-of-doreen-valiente/"><u>The Charge of the Goddess - The Poetry of Doreen Valiente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838270-9780984660445-the-gurus-gift/"><u>The Guru's Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838249-9780692024980-the-kama-sutra-kitchen/"><u>The Kama Sutra Kitchen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838339-9780992843038-where-witchcraft-lives/"><u>Where Witchcraft Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761859-9781591798644-awakening-into-oneness/"><u>Awakening into Oneness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761846-9781604073324-falling-into-grace/"><u>Falling into Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761847-9781591798866-how-to-read-the-akashic-records/"><u>How to Read the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761837-9781591798514-instant-enlightenment/"><u>Instant Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761840-9781649631060-reverse-meditation/"><u>Reverse Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761854-9781604074642-the-guru-question/"><u>The Guru Question | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761844-9781622031665-the-radiance-sutras/"><u>The Radiance Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761839-9781591799016-the-sacred-yes/"><u>The Sacred Yes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761849-9781591798804-true-meditation/"><u>True Meditation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2024-12-23T17:42:20.403Z
-updated: 2024-12-27T18:12:00.643Z
+date: 2025-01-01T16:13:52.394Z
+updated: 2025-01-06T16:50:47.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,15 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209528928-9780876048924-edgar-cayces-atlantis/"><u>Edgar Cayce's Atlantis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209528929-9780876049686-experiments-in-a-search-for-god/"><u>Experiments in a Search For God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209531337-9781785358449-haunted/"><u>Haunted | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209531334-9781785357671-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209530510-9780892546176-magical-uses-for-magnets/"><u>Magical Uses for Magnets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209531336-9781785358173-you-are-not-your-thoughts/"><u>You Are Not Your Thoughts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664315-9782889700547-ces-mots-que-nous-pouvons-dire-a-nos-defunts/"><u>Ces mots que nous pouvons dire à nos défunts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664275-9782889700721-legendes-et-messages-des-pierres-therapeutiques/"><u>Légendes et messages des pierres thérapeutiques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664311-9782889700530-messages-de-vos-huiles-essentielles/"><u>Messages de vos huiles essentielles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664269-9782889700752-sinitier-a-lart-des-runes-divinatoires/"><u>S'initier à l'art des runes divinatoires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664261-9782889700776-signes-interpreter-les-messages-que-nous-envoie-lunivers/"><u>Signes : interpréter les messages que nous envoie l'univers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

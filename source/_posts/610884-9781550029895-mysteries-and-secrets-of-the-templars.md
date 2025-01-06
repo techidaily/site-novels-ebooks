@@ -1,7 +1,7 @@
 ---
 title: Mysteries and Secrets of the Templars | Free Book
-date: 2024-10-22T21:16:37.707Z
-updated: 2024-10-26T21:25:53.871Z
+date: 2025-01-03T16:16:30.391Z
+updated: 2025-01-06T16:17:27.808Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20debf9d9432bd912ff7828f9814c39f8bac07877db214a1741c0ac7ea1e76da.jpg
@@ -158,3 +158,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20debf9d9432bd912ff7828f9814c39
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209860142-9780998184210-astrological-predictions-for-the-age-of-light/"><u>Astrological Predictions for the Age of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860286-9780987314604-channelling-entities/"><u>Channelling Entities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860521-9781732285217-dying-on-purpose/"><u>Dying On Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860269-9780994319210-one-path-many-lights/"><u>One Path, Many Lights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860285-9780994606211-soul-regression-therapy-past-life-regression-and-between-life-regression-healing-current-life-wounds-and-trauma/"><u>Soul Regression Therapy - Past Life Regression and Between Life Regression, Healing Current Life Wounds and Trauma | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

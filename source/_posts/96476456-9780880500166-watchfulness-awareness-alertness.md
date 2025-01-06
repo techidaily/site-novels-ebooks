@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2024-12-25T03:13:53.663Z
-updated: 2024-12-27T16:09:41.851Z
+date: 2025-01-04T16:01:10.558Z
+updated: 2025-01-06T16:05:02.089Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,17 +164,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1918496-9781583949825-a-search-in-secret-egypt/"><u>A Search in Secret Egypt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1924704-9780698408753-angels/"><u>Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1918552-9780804152181-psychic-children/"><u>Psychic Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1920844-9780786487523-the-conscious-mind-and-the-material-world/"><u>The Conscious Mind and the Material World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/191952-9780767910934-the-feng-shui-of-abundance/"><u>The Feng Shui of Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1924732-9780698137226-the-secret-teachers-of-the-western-world/"><u>The Secret Teachers of the Western World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1924696-9780698408067-the-simple-road/"><u>The Simple Road | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/191953-9780767910972-witch-crafting/"><u>Witch Crafting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644795-9798986216652-26-strings/"><u>26 Strings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644799-9780997228175-mindful-practice-of-falun-gong-chinese-edition/"><u>法輪功的正念實踐 Mindful Practice of Falun Gong (Chinese Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644956-9781591434566-catching-the-ascension-wave/"><u>Catching the Ascension Wave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644653-9781959018179-spirit-guides/"><u>Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644825-9780349431758-tapping-in/"><u>Tapping In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644955-9781591434405-the-ancient-tradition-of-angels/"><u>The Ancient Tradition of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644954-9781591434467-the-first-female-pharaoh/"><u>The First Female Pharaoh | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644691-9781959018117-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644777-9781955985697-waking-up-to-feeling/"><u>Waking Up to Feeling | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

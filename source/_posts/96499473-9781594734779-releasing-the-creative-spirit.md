@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2024-12-26T18:59:59.786Z
-updated: 2024-12-28T00:22:36.333Z
+date: 2025-01-02T16:40:48.127Z
+updated: 2025-01-06T16:13:20.592Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,14 +182,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138575820-9780595844531-a-soul-promise/"><u>A Soul Promise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575889-9781449741945-god-rocks/"><u>God Rocks! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575832-9781490847658-reality-check/"><u>Reality Check | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575841-9781440161018-you-are-love/"><u>You Are Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575863-9781450234276-you-dont-need-talent-to-succeed/"><u>You Don’T Need Talent to Succeed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431531-9780473608262-a-quiet-breath-of-wind/"><u>A Quiet Breath of Wind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429237-9780593332290-let-your-light-shine/"><u>Let Your Light Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429199-9780762478750-potions/"><u>Potions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431509-9780578338521-psychedelic-integration-101/"><u>Psychedelic Integration 101 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431522-9788792633835-tarot-for-romeo-and-juliet/"><u>Tarot for Romeo and Juliet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429239-9780593420713-the-way-of-the-goddess/"><u>The Way of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431537-9781946088581-women-of-spirit/"><u>Women of Spirit | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

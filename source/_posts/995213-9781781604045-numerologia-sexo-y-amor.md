@@ -1,7 +1,7 @@
 ---
 title: Numerología, sexo y amor | Free Book
-date: 2024-12-21T01:36:21.507Z
-updated: 2024-12-28T01:26:12.424Z
+date: 2025-01-03T16:34:04.354Z
+updated: 2025-01-06T16:49:30.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e0314e8b2aff624c0dc7b1e4f235a55997ab19a4d32a40c2a41f8fedd46908a.jpg
@@ -134,16 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e0314e8b2aff624c0dc7b1e4f235a5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126134-9781609256289-a-ufo-hunters-guide/"><u>A UFO Hunter's Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126127-9781609250232-the-tree-of-enchantment/"><u>The Tree of Enchantment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126150-9781609256296-the-way-of-the-oracle/"><u>The Way of the Oracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126122-9781609255084-trance-portation/"><u>Trance-Portation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126125-9781609251055-transition-now/"><u>Transition Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126152-9781609250799-we-are-not-alone/"><u>We Are Not Alone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126156-9781609256142-weird-ways-of-witchcraft/"><u>Weird Ways of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342626-9781528764346-graphology-and-children-a-collection-of-historical-articles-on-the-analysis-and-guidance-of-children-through-handwriting/"><u>Graphology and Children - A Collection of Historical Articles on the Analysis and Guidance of Children Through Handwriting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342625-9781528767682-mind-reading-and-beyond/"><u>Mind-Reading and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342701-9781098096618-pieces/"><u>Pieces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342749-9781098087180-remember-to-enjoy-the-journey/"><u>Remember to Enjoy the Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342111-9781684039142-the-mindful-college-student/"><u>The Mindful College Student | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210342635-9781737648222-unravel-the-thread/"><u>Unravel the Thread | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

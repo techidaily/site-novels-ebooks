@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2024-12-22T16:34:28.446Z
-updated: 2024-12-27T21:57:47.773Z
+date: 2025-01-02T16:01:00.683Z
+updated: 2025-01-06T16:47:47.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,13 +147,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209577127-9781628721508-a-field-guide-to-demons-vampires-fallen-angels-and-other-subversive-spirits/"><u>A Field Guide to Demons, Vampires, Fallen Angels and Other Subversive Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209577169-9781628732726-the-bedside-dream-dictionary/"><u>The Bedside Dream Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209577318-9781628730722-the-world-according-to-cycles/"><u>The World According to Cycles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209576215-9781628732184-witches-craft/"><u>Witches' Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210681914-9781734687118-awaken-in-nature/"><u>Awaken In Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210679265-9781910559796-home-to-her/"><u>Home to Her | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210680785-9781800990609-let-it-go/"><u>Let It Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210681866-9798822901155-open-arms/"><u>Open Arms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210679355-9781591435020-shamanic-experience/"><u>Shamanic Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210681885-9781736787472-the-vision-partner-journal/"><u>The Vision Partner Journal | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

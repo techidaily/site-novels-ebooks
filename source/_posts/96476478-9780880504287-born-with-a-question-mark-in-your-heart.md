@@ -1,7 +1,7 @@
 ---
 title: Born With a Question Mark in Your Heart | Free Book
-date: 2024-12-23T23:27:48.044Z
-updated: 2024-12-28T00:02:28.045Z
+date: 2024-12-30T16:16:22.515Z
+updated: 2025-01-06T16:04:32.230Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f885342066bdc3b498e7939ef186e37a9e69.jpg
@@ -171,18 +171,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f88
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/203004-9780759520820-guilt-is-the-teacher-love-is-the-lesson/"><u>Guilt is the Teacher, Love is the Lesson | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2032726-9781493012404-haunted-colleges-and-universities/"><u>Haunted Colleges and Universities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2029268-9780698198661-it-works-deluxe-edition/"><u>It Works DELUXE EDITION | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2032792-9781461746461-spooky-massachusetts/"><u>Spooky Massachusetts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2032790-9781493032488-spooky-texas-2nd-ed/"><u>Spooky Texas (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2029335-9781466874930-the-best-advice-in-six-words/"><u>The Best Advice in Six Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203076-9780759522893-the-celestine-vision/"><u>The Celestine Vision | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203145-9780759522060-touched-by-angels/"><u>Touched by Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203121-9780759523609-who-is-your-guardian-angel/"><u>Who Is Your Guardian Angel? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655296-9781454907992-a-good-day/"><u>A Good Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655305-9781454913771-a-spell-a-day/"><u>A Spell a Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655229-9781435170285-all-you-need-is-love-and-pets/"><u>All You Need Is Love . . . and Pets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655346-9781454922995-change-your-energy/"><u>Change Your Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655186-9781435168190-make-every-day-beautiful/"><u>Make Every Day Beautiful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655156-9781435166325-poems-that-will-change-your-life/"><u>Poems That Will Change Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655383-9781454927549-spirit-drumming/"><u>Spirit Drumming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655360-9781454925781-the-occult-book/"><u>The Occult Book | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

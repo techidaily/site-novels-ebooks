@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2024-12-20T16:15:41.204Z
-updated: 2024-12-28T00:54:17.835Z
+date: 2025-01-01T16:34:43.816Z
+updated: 2025-01-06T16:48:55.422Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,14 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1985908-9781780282244-the-deeper-secret/"><u>The Deeper Secret | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1981015-9781609259877-the-evidence-for-phantom-hitch-hikers/"><u>The Evidence for Phantom Hitch-Hikers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1985905-9781780282121-the-secret-american-dream/"><u>the Secret American Dream | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1985245-9781476788050-the-soul-searchers-handbook/"><u>The Soul Searcher's Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1981013-9781609259853-the-travelers-guide-to-the-astral-plane/"><u>The Traveler's Guide to the Astral Plane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649240-9782384550111-a-suggestive-inquiry-into-the-hermetic-mystery-and-alchemy/"><u>A Suggestive Inquiry into the Hermetic Mystery and Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648330-9782017166184-lastrologie/"><u>L'astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648332-9782017166177-le-corps-messager-de-lame/"><u>Le corps messager de l'âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649112-9780760376379-moon-spells/"><u>Moon Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210650166-9781623177911-new-moon-magic/"><u>New Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648552-9789394701045-river-of-moksha/"><u>River of Moksha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649464-9781685269715-spiritually-defining-seasons/"><u>Spiritually Defining Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210649167-9781088063965-the-shift-now-master-fast/"><u>The SHIFT NOW Master Fast | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648841-9798986284019-you-are-deathless/"><u>You Are Deathless | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

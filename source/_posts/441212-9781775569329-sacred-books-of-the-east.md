@@ -1,7 +1,7 @@
 ---
 title: Sacred Books of the East | Free Book
-date: 2024-10-26T03:05:31.751Z
-updated: 2024-10-26T23:02:43.115Z
+date: 2025-01-02T16:12:16.849Z
+updated: 2025-01-06T16:43:18.526Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16ead13e3ae6f31a1c0b50fa38833a1ed95e785484b29e7d91c03dfc10f273c1.jpg
@@ -141,3 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16ead13e3ae6f31a1c0b50fa38833a1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210133269-9781786785275-success-is-not-a-fluke/"><u>Success is Not a Fluke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133663-9781953791061-the-deep-touch/"><u>The deep touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133345-9780593196786-the-enneagram-for-beginners/"><u>The Enneagram for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133694-9781953791207-wellness/"><u>WELLNESS | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-12-25T01:58:11.951Z
-updated: 2024-12-27T21:55:19.860Z
+date: 2024-12-30T17:01:04.678Z
+updated: 2025-01-06T16:04:05.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,18 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1168107--messages-from-spirit/"><u>Messages from Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168327-9781577317883-the-gift/"><u>The Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168328-9781577317876-the-gift-of-our-compulsions/"><u>The Gift of Our Compulsions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168344-9781577318941-the-mindfulness-code/"><u>The Mindfulness Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168345-9781577317968-the-miracle-of-the-breath/"><u>The Miracle of the Breath | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168805-9781577313113-the-power-of-now/"><u>The Power of Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168807-9781577318651-the-power-of-stillness/"><u>The Power of Stillness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168816-9781577318330-the-secret-history-of-dreaming/"><u>The Secret History of Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168817-9781577318590-the-secret-spiritual-world-of-children/"><u>The Secret Spiritual World of Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355669-9780578969688-astrological-mavericks/"><u>Astrological Mavericks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355820-9781644113011-flower-essences-from-the-witchs-garden/"><u>Flower Essences from the Witch's Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355695-9781999254827-instant-kundalini/"><u>Instant Kundalini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355815-9781591433989-mastering-your-5d-self/"><u>Mastering Your 5D Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355814-9781591434108-origins-of-the-gods/"><u>Origins of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355816-9781591434160-spirit-marriage/"><u>Spirit Marriage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355817-9781591434368-spirit-weaver/"><u>Spirit Weaver | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355819-9781644112977-the-light-of-god-2nd-ed/"><u>The Light of God (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355821-9781644113127-the-twilight-of-pluto/"><u>The Twilight of Pluto | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

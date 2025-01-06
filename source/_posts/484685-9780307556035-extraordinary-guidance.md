@@ -1,7 +1,7 @@
 ---
 title: Extraordinary Guidance | Free Book
-date: 2024-10-20T02:32:13.410Z
-updated: 2024-10-26T16:41:22.423Z
+date: 2025-01-03T16:39:21.192Z
+updated: 2025-01-06T16:48:17.095Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fcbbbecaf8f02dcb8e06b0bbd1f16a963c679f30ef82011f09d10a5cc5717055.jpg
@@ -162,3 +162,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fcbbbecaf8f02dcb8e06b0bbd1f16a9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209994133-9780786451388-an-introduction-to-parapsychology-5th-ed/"><u>An Introduction to Parapsychology, 5th ed. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209994196-9781476609447-death-and-consciousness/"><u>Death and Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209994379-9781476624518-disappearing-object-phenomenon/"><u>Disappearing Object Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209995358-9781476635842-fat-talk/"><u>Fat Talk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209995064-9781476631974-psience-fiction/"><u>Psience Fiction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209995013-9781476631202-the-elements-of-parapsychology/"><u>The Elements of Parapsychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209995254-9781476633688-the-paranormal-surrounds-us/"><u>The Paranormal Surrounds Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209995659-9781476639185-the-spirit-transcendent/"><u>The Spirit Transcendent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209994817-9781476631714-writing-and-the-body-in-motion/"><u>Writing and the Body in Motion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

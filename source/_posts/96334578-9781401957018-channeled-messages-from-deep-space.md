@@ -1,7 +1,7 @@
 ---
 title: Channeled Messages from Deep Space | Free Book
-date: 2024-11-25T17:17:35.106Z
-updated: 2024-11-27T17:29:21.711Z
+date: 2025-01-05T16:37:19.083Z
+updated: 2025-01-06T16:49:40.334Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f7b764cbb04d2a03ae69325a1bbdf28490.jpg
@@ -230,16 +230,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96204111-9780547527321-green-mountain-ghosts-ghouls-unsolved-mysteries/"><u>Green Mountain Ghosts, Ghouls & Unsolved Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96192730-9781620558577-introduction-to-magic/"><u>Introduction to Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96201136-9781507161692-la-energia-sanadora-del-reiki-un-libro-para-principiantes-para-una-mejor-comprension/"><u>La energía sanadora del Reiki: Un libro para principiantes para una mejor comprensión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96193305-9781612833811-reading-the-runes/"><u>Reading the Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96192729-9781620558546-revolt-against-the-modern-world/"><u>Revolt Against the Modern World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96197985-9781633410855-the-book-of-pendulum-healing/"><u>The Book of Pendulum Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96193308-9781684031351-the-heartfulness-way/"><u>The Heartfulness Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770637-9781959018773-celtic-mythology/"><u>Celtic Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770333-9798886540178-healing-with-gemstones/"><u>Healing with Gemstones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770132-9789152738191-modern-mediumship/"><u>Modern Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770767-9781684988389-the-second-life/"><u>The Second Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770098-9781638145448-the-truth-about-your-healing/"><u>The Truth About Your Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770227-9781088078938-women-standing-strong-together-vol-ii/"><u>Women Standing Strong Together Vol II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770670-9798886850147-wonderful-words-of-wisdom/"><u>Wonderful Words of Wisdom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

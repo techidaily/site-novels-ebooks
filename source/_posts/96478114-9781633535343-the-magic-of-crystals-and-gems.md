@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2024-12-21T19:16:36.105Z
-updated: 2024-12-27T23:43:51.199Z
+date: 2025-01-05T16:03:32.888Z
+updated: 2025-01-06T16:23:43.757Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,16 +181,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1729455-9781501100680-angeles-de-luz-divina-angels-of-divine-light-spanish-edition/"><u>Ángeles de Luz Divina (Angels of Divine Light Spanish edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1724714-9781476775746-angels-of-divine-light/"><u>Angels of Divine Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1716816-9781466877863-divine-prescriptions/"><u>Divine Prescriptions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1716377-9781776537365-evolution-of-life-and-form/"><u>Evolution of Life and Form | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1725827-9780857011510-principles-of-eft-emotional-freedom-technique/"><u>Principles of EFT (Emotional Freedom Technique) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1726104-9781609257088-the-art-practice-of-creative-visualization/"><u>The Art & Practice of Creative Visualization | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1725062-9781466878631-the-truth-behind-men-in-black/"><u>The Truth Behind Men In Black | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595545-9781922499059-charlies-poem/"><u>Charlies Poem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595623-9798986228617-finding-my-soul/"><u>Finding My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595748-9781452103273-horrorscopes/"><u>Horrorscopes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595639-9780645178050-the-path/"><u>The Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595611-9798885902885-thoughts-of-serenity/"><u>Thoughts of Serenity | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

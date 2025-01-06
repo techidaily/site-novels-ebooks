@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2024-12-23T00:31:06.141Z
-updated: 2024-12-27T16:26:25.083Z
+date: 2024-12-31T16:27:14.927Z
+updated: 2025-01-06T16:47:36.693Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -212,13 +212,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209728898-9780806536422-goth-magick-an-enchanted-grimoire/"><u>Goth Magick: An Enchanted Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727868-9780806539591-the-wicca-book-of-days/"><u>The Wicca Book of Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209727459-9780806539584-wicca-a-to-z/"><u>Wicca A to Z | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209729450-9780806538655-wicca-for-life/"><u>Wicca for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742726-9781667447667-apprenez-a-mediter/"><u>Apprenez à méditer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742647-9781667443645-fas-saibhir-agus-tu-ag-dul-isteach-sa-domhan-na-haoise-orga-le-trachtairi-meditation/"><u>Fás Saibhir agus tú ag Dul isteach sa Domhan na hAoise Órga (le Tráchtairí Meditation) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742961-9781841815480-find-your-focus/"><u>Find Your Focus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742655-9781667445168-megan-va-in-barca-a-vela/"><u>Megan va in barca a vela | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742719-9781667447391-recuperacao-e-prevencao-covid-19-e-outras-doencas/"><u>Recuperação e Prevenção: Covid-19 e outras Doenças | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742625-9781667445342-recupero-e-prevenzione-covid-19-e-altre-malattie/"><u>Recupero e Prevenzione: Covid-19 e altre Malattie | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

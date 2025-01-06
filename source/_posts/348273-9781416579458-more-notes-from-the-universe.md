@@ -1,7 +1,7 @@
 ---
 title: More Notes From the Universe | Free Book
-date: 2024-10-25T04:35:39.229Z
-updated: 2024-10-26T23:27:01.287Z
+date: 2025-01-03T16:40:41.933Z
+updated: 2025-01-06T16:32:59.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/379019f87352d9d2082177bc22d38f1228fbb3ca6a46cb1fadbfb8d9130bb112.jpg
@@ -169,3 +169,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/379019f87352d9d2082177bc22d38f1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210270388-9781538707630-dreamers-dictionary/"><u>Dreamer's Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270547-9781250780256-heal-from-within/"><u>Heal from Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270268-9781071595480-impostor-eu-nunca-mais/"><u>Impostor, eu? Nunca mais... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270470-9781582708515-modern-merlin/"><u>Modern Merlin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270642-9781250773838-the-body-code/"><u>The Body Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270645-9781250766786-the-complete-book-of-astrology/"><u>The Complete Book of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270649-9781250279552-the-kickass-coven/"><u>The Kickass Coven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270585-9781250828729-the-science-of-breath-the-essential-works-of-yogi-ramacharaka/"><u>The Science of Breath: The Essential Works of Yogi Ramacharaka | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

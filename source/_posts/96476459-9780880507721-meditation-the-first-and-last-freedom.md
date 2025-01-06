@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2024-12-21T21:23:17.637Z
-updated: 2024-12-27T19:59:58.426Z
+date: 2025-01-02T16:49:07.447Z
+updated: 2025-01-06T16:51:54.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,18 +175,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1938658-9780835630535-a-new-science-of-the-paranormal/"><u>A New Science of the Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1931505-9781476621333-a-world-in-a-grain-of-sand/"><u>A World in a Grain of Sand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/195589-9781596255487-an-enquiry-concerning-human-understanding/"><u>An Enquiry Concerning Human Understanding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/194600--antique-affair/"><u>Antique Affair | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/193231-9780767911528-breaking-open-the-head/"><u>Breaking Open the Head | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/195591-9781596258532-dialogues-concerning-natural-religion/"><u>Dialogues Concerning Natural Religion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1938655-9780835631389-man-visible-and-invisible-2nd-ed/"><u>Man, Visible and Invisible (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1956479-9780812998399-the-light-between-us/"><u>The Light Between Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1938592-9780835630405-the-reality-of-esp/"><u>The Reality of ESP | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210645051-9781645679042-kitchen-witchery-for-everyday-magic/"><u>Kitchen Witchery for Everyday Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644978-9781644118269-light-messages-from-the-pleiades/"><u>Light Messages from the Pleiades | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210645036-9781250887825-simple-success/"><u>Simple Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210645012-9781250886477-tarot-therapy/"><u>Tarot Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210645024-9781645677826-the-cottage-witchs-guide-to-magic/"><u>The Cottage Witch's Guide to Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210645005-9781645679813-the-tarot-astrology-handbook/"><u>The Tarot & Astrology Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

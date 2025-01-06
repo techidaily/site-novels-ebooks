@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2024-12-22T00:40:09.081Z
-updated: 2024-12-27T20:33:46.834Z
+date: 2025-01-04T16:57:36.347Z
+updated: 2025-01-06T16:54:41.730Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,18 +144,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138585921-9781450282017-divagating-through-the-tarot/"><u>Divagating Through the Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138586184-9781449710606-extraordinary-living-a-lifestyle-worth-pursuing/"><u>Extraordinary Living: a Lifestyle Worth Pursuing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138586036-9781452544724-feng-shui-coaching/"><u>Feng Shui Coaching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138586823-9781462012510-in-memory-of-the-good-old-days/"><u>In Memory of the Good Old Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138585813-9781462020249-life-is-too-short/"><u>Life Is Too Short | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138586064-9781450264471-moments-in-time/"><u>Moments in Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138586065-9781452533452-the-lenten-moon/"><u>The Lenten Moon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138585853-9781462004799-the-pathway-beyond/"><u>The Pathway Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138586521-9781491778562-volume-iii-clinical-and-medical-hypnotherapy/"><u>Volume Iii Clinical and Medical Hypnotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451387-9781662439148-at-first-click/"><u>At First Click | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451390-9780762480210-buzzfeed-unsolved-supernatural/"><u>BuzzFeed Unsolved Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451321-9780966137866-imagining-einstein/"><u>Imagining Einstein | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451326-9781945026928-meditation/"><u>Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450525-9781504068215-sand-and-foam/"><u>Sand and Foam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450510-9781504067959-the-history-of-spiritualism/"><u>The History of Spiritualism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451395-9781940849911-the-prophet/"><u>The Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210451087-9780762475681-the-queen-of-wands/"><u>The Queen of Wands | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

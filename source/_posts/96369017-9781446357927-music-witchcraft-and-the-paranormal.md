@@ -1,7 +1,7 @@
 ---
 title: Music, Witchcraft and the Paranormal | Free Book
-date: 2024-11-25T17:28:03.213Z
-updated: 2024-11-27T23:02:15.408Z
+date: 2025-01-02T16:39:17.449Z
+updated: 2025-01-06T16:17:31.683Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/824849f88568044cb778bb35098294032212fd9721553ac1111758a73a30f9bb.jpg
@@ -142,17 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/824849f88568044cb778bb350982940
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96316670-9781401950644-bridging-two-realms/"><u>Bridging Two Realms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316672-9781401955243-mind-to-matter/"><u>Mind to Matter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316671-9781781803745-pisces-moon-sign/"><u>Pisces Moon Sign | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316688-9781401950613-playing-the-matrix/"><u>Playing the Matrix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316661-9781401949778-remembering-the-light-within/"><u>Remembering the Light Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316682-9781401950415-the-lifetimes-when-jesus-and-buddha-knew-each-other/"><u>The Lifetimes When Jesus and Buddha Knew Each Other | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316691-9781401952921-the-sacred-science/"><u>The Sacred Science | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316674-9781781804391-the-toltec-secret/"><u>The Toltec Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780573-9781803411613-beyond-sustainability/"><u>Beyond Sustainability | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780785-9781398488359-eds-odyssey-how-i-met-buddha-and-the-aliens/"><u>Ed’s Odyssey How I Met Buddha and the Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780652-9781649794086-four-seasons-of-your-life/"><u>Four Seasons of Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780577-9781803411460-spirituality-rekindled/"><u>Spirituality Rekindled | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

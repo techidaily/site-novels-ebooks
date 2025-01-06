@@ -1,7 +1,7 @@
 ---
 title: Hurry Up and Meditate | Free Book
-date: 2024-10-23T17:10:09.341Z
-updated: 2024-10-26T20:48:28.732Z
+date: 2025-01-02T16:11:35.363Z
+updated: 2025-01-06T16:06:33.162Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/474f436a36bf156a0b9259341af8d46c1d5e82fa2f69a0b7606cce8daa473846.jpg
@@ -146,3 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/474f436a36bf156a0b9259341af8d46
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209913712-9781982150433-a-kitchen-witchs-guide-to-recipes-for-love-romance/"><u>A Kitchen Witch's Guide to Recipes for Love & Romance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913264-9781789042528-is-this-a-dream/"><u>Is This a Dream? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913043-9781733343718-stormys-words-of-wisdom/"><u>Stormy's Words of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913263-9781785359095-the-hidden-goddess/"><u>The Hidden Goddess | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

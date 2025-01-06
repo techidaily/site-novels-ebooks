@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2024-12-21T17:40:13.784Z
-updated: 2024-12-27T16:33:18.501Z
+date: 2025-01-03T16:27:24.630Z
+updated: 2025-01-06T16:37:19.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,14 +178,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209606251-9788497639286-el-misterio-de-las-vidas-pasadas/"><u>El misterio de las vidas pasadas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209612299-9781547570034-meditacion-guia-de-atencion-plena-para-eliminar-el-estres-la-ansiedad-y-la-depresion/"><u>Meditación: Guía De Atención Plena Para Eliminar El Estrés, La Ansiedad Y La Depresión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209612303-9781547567546-meditacion-guia-impresionante-para-principiantes-por-gabriyell-buechner/"><u>Meditación: Guía Impresionante Para Principiantes Por Gabriyell Buechner | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209611644-9781547570010-meditacion-las-mejores-tecnicas-de-meditacion-para-reducir-el-estres-y-la-ira/"><u>Meditación: Las Mejores Técnicas De Meditación Para Reducir El Estrés Y La Ira . | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209611630-9781547569953-meditacion-tecnicas-sencillas-de-relajacion/"><u>Meditación: Técnicas Sencillas De Relajación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690409-9781399707947-acceptance/"><u>Acceptance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690331-9780711277199-astrology-magick/"><u>Astrology Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690773-9781639033065-awaken-my-soul/"><u>Awaken My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690800-9780760377642-in-focus-psychic-development/"><u>In Focus Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690926-9781932794519-magnificent-you/"><u>Magnificent You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690788-9798886165272-the-ninth-level-of-enlightenment/"><u>The Ninth Level of Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690330-9780760378069-the-witchs-complete-guide-to-tarot/"><u>The Witch's Complete Guide to Tarot | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Celtic Wisdom | Free Book
-date: 2024-10-19T20:59:43.012Z
-updated: 2024-10-27T05:00:33.599Z
+date: 2025-01-03T17:00:38.308Z
+updated: 2025-01-06T16:15:15.924Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a1abc6f16ba3554761a83f3544d4e1e00b2f2aec1585d955a86e0a8ff31cb10d.jpg
@@ -157,3 +157,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a1abc6f16ba3554761a83f3544d4e1e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210199658-9781631595875-light-magic-for-dark-times/"><u>Light Magic for Dark Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199737-9781631592096-meditation-made-simple/"><u>Meditation Made Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199780-9781610586405-one-zentangle-a-day/"><u>One Zentangle A Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199738-9781631591624-the-love-sex-and-relationship-dream-dictionary/"><u>The Love, Sex, and Relationship Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199753-9781631598340-the-ultimate-guide-to-witchcraft/"><u>The Ultimate Guide to Witchcraft | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

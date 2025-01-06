@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2024-12-24T02:06:08.378Z
-updated: 2024-12-27T19:19:06.334Z
+date: 2024-12-30T16:12:55.903Z
+updated: 2025-01-06T16:36:23.685Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,18 +164,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209660732-9781547573103-a-vida-em-annwn/"><u>A Vida Em Annwn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209659129-9780762494576-buddhas-office/"><u>Buddha's Office | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209658114-9782824632124-ce-que-lau-dela-leur-a-appris/"><u>Ce que l'au-delà leur a appris | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209657959-9781493040889-haunted-north-carolina-2nd-ed/"><u>Haunted North Carolina (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209660753-9781547574575-meditacao-guia-passo-a-passo-para-iniciantes-para-a-atencao-plena-e-uma-conexao-mais-profunda-consigo-mesmo/"><u>Meditação: Guia Passo A Passo Para Iniciantes Para A Atenção Plena E Uma Conexão Mais Profunda Consigo Mesmo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209660873-9781547579648-meditacion-aprenda-a-meditar-para-una-experiencia-espiritual-felicidad-y-exito/"><u>Meditación: Aprenda A Meditar Para Una Experiencia Espiritual (Felicidad Y Éxito) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209659105-9780738285313-stop-missing-your-life/"><u>Stop Missing Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209658641-9781401949358-the-wisdom-codes/"><u>The Wisdom Codes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209660756-9781547578757-una-mente-plena-a-traves-de-la-guia-de-meditacion-diaria/"><u>Una Mente Plena a Través de la Guía de Meditación Diaria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710302-9781642506914-close-to-the-bone/"><u>Close to the Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710264-9781642504484-let-go-now/"><u>Let Go Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710313-9781642507751-magical-trees/"><u>Magical Trees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710283-9781642505382-new-beginnings/"><u>New Beginnings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710247-9781642502893-prayers-for-healing/"><u>Prayers for Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710267-9781642504507-sacred-codes-in-times-of-crisis/"><u>Sacred Codes in Times of Crisis | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

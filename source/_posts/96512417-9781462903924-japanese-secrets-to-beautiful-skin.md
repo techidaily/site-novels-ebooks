@@ -1,7 +1,7 @@
 ---
 title: Japanese Secrets to Beautiful Skin | Free Book
-date: 2024-12-25T02:32:11.719Z
-updated: 2024-12-28T02:30:33.375Z
+date: 2025-01-04T16:14:19.976Z
+updated: 2025-01-06T16:14:33.787Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a2d516e87dc805d32dedd408649c5fc567d1c8dbf6ef063cd58958b8b5212655.jpg
@@ -149,18 +149,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a2d516e87dc805d32dedd408649c5fc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1164029-9781101633755-afterlife/"><u>Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/116665-9780749919818-barefoot-doctors-handbook-for-heroes/"><u>Barefoot Doctor's Handbook for Heroes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1163981-9781101632161-some-nerve/"><u>Some Nerve | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1164413--the-episodes/"><u>The Episodes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1162047-9780761849469-the-outline-of-parapsychology/"><u>The Outline of Parapsychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1163986-9781101601525-the-power-of-meditation/"><u>The Power of Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/116679-9781582186399-the-soul-of-the-indian/"><u>The Soul of the Indian | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1163972-9781101628409-why-me-why-this-why-now/"><u>Why Me? Why This? Why Now? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1164094-9781608827763-why/"><u>Why? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355469-9781774816141-echoes-from-the-orient/"><u>Echoes from the Orient | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355573-9781908421555-faces-of-the-living-dead/"><u>Faces of the Living Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355344-9781462923168-feng-shui-before-after/"><u>Feng Shui Before & After | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355639-9781736959442-letters-to-heaven-and-back/"><u>Letters to Heaven and Back | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355649-9781999923280-mirrors-of-the-mind-metaphoric-narratives-in-healing/"><u>Mirrors of the Mind - Metaphoric Narratives in Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355638-9780645132212-our-benevolent-cosmos/"><u>Our Benevolent Cosmos | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

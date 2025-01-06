@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2024-12-25T20:33:37.563Z
-updated: 2024-12-27T21:18:38.046Z
+date: 2025-01-05T16:25:23.176Z
+updated: 2025-01-06T17:01:27.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -132,18 +132,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1297504-9781609254889-best-tarot-practices/"><u>Best Tarot Practices | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1315795-9781583946640-emas-odyssey/"><u>Ema's Odyssey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1316751-9781608681204-guardians-of-being/"><u>Guardians of Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1315787-9781400046867-sacred-contracts/"><u>Sacred Contracts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1297513-9780892545780-songlines-of-the-soul/"><u>Songlines of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1316764-9781609256708-the-hades-moon/"><u>The Hades Moon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1297515-9780892545827-the-moons-nodes/"><u>The Moon's Nodes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1297509-9781609259143-the-mystery-of-the-seven-vowels/"><u>The Mystery of the Seven Vowels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1316765-9781881098010-the-witches-almanac-issue-33-spring-2014-spring-2015/"><u>The Witches' Almanac: Issue 33, Spring 2014-Spring 2015 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367967-9781633412415-blackthorns-protection-magic/"><u>Blackthorn's Protection Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367961-9781612834764-how-to-live-a-happily-ever-afterlife/"><u>How to Live a Happily Ever Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367971-9781633412484-liber-null-psychonaut/"><u>Liber Null & Psychonaut | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367968-9781633412491-predictive-astrology/"><u>Predictive Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367962-9781612834818-protect-your-light/"><u>Protect Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367970-9781633412477-the-alchemists-handbook/"><u>The Alchemist's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367969-9781633412446-the-big-book-of-candle-magic/"><u>The Big Book of Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367966-9781633412323-the-creative-pendulum/"><u>The Creative Pendulum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367965-9781633412002-the-magic-of-the-sword-of-moses/"><u>The Magic of the Sword of Moses | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

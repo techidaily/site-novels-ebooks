@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2024-12-22T03:05:01.358Z
-updated: 2024-12-27T22:50:25.482Z
+date: 2024-12-31T16:28:18.690Z
+updated: 2025-01-06T16:42:39.892Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,17 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209637320-9780429577666-jean-despagnets-the-summary-of-physics-restored/"><u>Jean D'Espagnet's The Summary of Physics Restored | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209636704-9781547571970-liderazgo-habilidades-para-influenciar-comunicar-efectivamente-y-alcanzar-objetivos/"><u>Liderazgo: Habilidades Para Influenciar, Comunicar Efectivamente Y Alcanzar Objetivos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209636694-9781547571741-liderazgo-motiva-a-tus-empleados-e-influye-facilmente-en-las-personas-crecimiento-personal/"><u>Liderazgo: Motiva a Tus Empleados E Influye Fácilmente en Las Personas (Crecimiento Personal) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209636710-9781547573158-meditacao-como-superar-o-medo-a-raiva-e-a-depressao/"><u>Meditação : Como Superar O Medo, A Raiva E A Depressão | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209638210-9781547572984-meditacao-aprenda-a-lidar-com-a-ansiedade-e-viva-uma-vida-mais-calma-atencao-plena/"><u>Meditação: Aprenda A Lidar Com A Ansiedade E Viva Uma Vida Mais Calma (Atenção Plena) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209636718-9781547573882-meditacao-aprenda-meditacao-permaneca-positivo-e-cure-se-embasado-cientificamente/"><u>Meditação: Aprenda Meditação, Permaneça Positivo E Cure-se (Embasado Cientificamente) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209636712-9781547573608-meditation-guide-pour-novices-sur-pleine-conscience-et-connexion-plus-profonde-avec-vous-meme/"><u>Méditation : Guide Pour Novices Sur Pleine Conscience Et Connexion Plus Profonde Avec Vous-même | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209638202-9781733707008-the-big-bamboozle/"><u>The Big Bamboozle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703148-9780875169255-book-of-solace/"><u>Book of Solace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703001-9781401971243-spirit-talker/"><u>Spirit Talker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703083-9781958405178-the-quantum-being/"><u>The Quantum Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703099-9781778058516-you-are-love/"><u>You Are Love | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

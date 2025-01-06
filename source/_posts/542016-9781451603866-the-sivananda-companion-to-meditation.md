@@ -1,7 +1,7 @@
 ---
 title: The Sivananda Companion to Meditation | Free Book
-date: 2024-10-21T03:05:30.558Z
-updated: 2024-10-27T01:19:19.877Z
+date: 2024-12-31T16:27:32.542Z
+updated: 2025-01-06T16:02:17.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fbc35a4282d1899c9c2c20762ee41f3be6bde0803282a32cbc25a4ca5e75802d.jpg
@@ -166,3 +166,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fbc35a4282d1899c9c2c20762ee41f3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209883273-9781783253883-a-dictionary-of-dream-symbols/"><u>A Dictionary of Dream Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882409-9781087817729-codex-illuminatus/"><u>Codex Illuminatus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882557-9781119584766-ghost-hunting-for-dummies/"><u>Ghost-Hunting For Dummies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883291-9780753734117-labyrinth-meditations/"><u>Labyrinth Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882460-9781643676654-rushing-to-sunset/"><u>Rushing to Sunset | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883625-9781644110256-the-druidic-art-of-divination/"><u>The Druidic Art of Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883624-9781591433675-the-rebel-angels-among-us/"><u>The Rebel Angels among Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

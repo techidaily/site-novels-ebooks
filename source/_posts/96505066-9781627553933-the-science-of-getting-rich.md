@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2024-12-26T18:34:07.124Z
-updated: 2024-12-28T02:42:54.698Z
+date: 2025-01-02T16:50:56.321Z
+updated: 2025-01-06T16:48:49.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,15 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138580579-9781450294041-a-manual-for-the-modern-mystic/"><u>A Manual for the Modern Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580725-9781452537191-beautys-way/"><u>Beauty’S Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580826-9781452558806-becoming-the-healer/"><u>Becoming the Healer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138581136-9781452532820-inspired-spiritual-wisdom-from-a-cat-named-sam-moo/"><u>Inspired Spiritual Wisdom from a Cat Named Sam-Moo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580715-9781617647031-ovnis/"><u>Ovnis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580655-9781462000562-small-steps-huge-changes/"><u>Small Steps, Huge Changes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440309-9780008520373-aries-2023-your-personal-horoscope/"><u>Aries 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440312-9780008520403-cancer-2023-your-personal-horoscope/"><u>Cancer 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440308-9780008520397-gemini-2023-your-personal-horoscope/"><u>Gemini 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440310-9780008520410-leo-2023-your-personal-horoscope/"><u>Leo 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440313-9780008520441-scorpio-2023-your-personal-horoscope/"><u>Scorpio 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440311-9780008520380-taurus-2023-your-personal-horoscope/"><u>Taurus 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440314-9780008520427-virgo-2023-your-personal-horoscope/"><u>Virgo 2023: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210440307-9780008520366-your-personal-horoscope-2023/"><u>Your Personal Horoscope 2023 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

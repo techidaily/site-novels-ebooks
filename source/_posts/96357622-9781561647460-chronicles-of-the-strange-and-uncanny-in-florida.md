@@ -1,7 +1,7 @@
 ---
 title: Chronicles of the Strange and Uncanny in Florida | Free Book
-date: 2024-11-25T21:26:51.804Z
-updated: 2024-11-27T17:14:59.988Z
+date: 2025-01-03T17:04:05.990Z
+updated: 2025-01-06T16:22:19.255Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce015e0475ce278eec2f74db690fa7d3ca82.jpg
@@ -138,18 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96260999-9781788172684-astrology-made-easy/"><u>Astrology Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96261007-9781788172783-connecting-with-the-fairies-made-easy/"><u>Connecting with the Fairies Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96260047-9780740787911-dream-it-dare-it-do-it/"><u>Dream It, Dare It, Do It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96261000-9781788172738-feng-shui-made-easy/"><u>Feng Shui Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96237457-9781846014567-journey-into-mindfulness/"><u>Journey into Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96260778-9782268100234-la-maitrise-parfaite/"><u>La Maîtrise parfaite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96261001-9781788172806-tantra-made-easy/"><u>Tantra Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96237056-9781785358050-the-fall-2nd-ed/"><u>The Fall (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96260998-9781788172257-witchery/"><u>Witchery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772866-9781922439642-extra-ordinary/"><u>Extra Ordinary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772834-9781922405081-full-ideals/"><u>Full Ideals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772841-9781649694669-reflections/"><u>Reflections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772827-9781925939040-the-grass-root-friend/"><u>The Grass-Root Friend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772825-9781925819571-twenty-three-years-of-lessons/"><u>Twenty Three Years of Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772858-9781649699800-what-if/"><u>WHAT IF | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

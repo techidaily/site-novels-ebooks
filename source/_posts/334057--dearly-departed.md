@@ -1,7 +1,7 @@
 ---
 title: Dearly Departed | Free Book
-date: 2024-10-22T04:01:23.875Z
-updated: 2024-10-26T16:54:13.415Z
+date: 2025-01-05T16:31:50.242Z
+updated: 2025-01-06T16:35:11.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1776edbed615db6dc7a51bbee27503eac1a045d11d4a1b6350bddae403b77d29.jpg
@@ -144,3 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1776edbed615db6dc7a51bbee27503e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210294996-9781642995336-dispensing-truth/"><u>Dispensing Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294938-9781641405393-dragonfliesfrom-broken-to-beautiful/"><u>Dragonflies...From Broken to Beautiful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294834-9781644588079-from-pitfalls-to-purpose/"><u>From Pitfalls To Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294887-9781635254587-guide-to-your-ethereal-eternal-soul/"><u>Guide To Your Ethereal Eternal Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294890-9781641147811-healing-prayers-for-women-in-jesus-name/"><u>Healing Prayers for Women in Jesus' Name | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294767-9781640286139-i-am-a-gift/"><u>I Am a Gift | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

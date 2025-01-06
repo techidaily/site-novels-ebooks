@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2024-12-26T17:25:26.121Z
-updated: 2024-12-28T03:03:50.513Z
+date: 2025-01-05T16:57:43.488Z
+updated: 2025-01-06T17:04:17.860Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,16 +181,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1172373-9781780998275-live-issues/"><u>Live Issues | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172374-9781780998930-no-name-no-number/"><u>No Name No Number | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172682-9781932073539-the-soul-solution/"><u>The Soul Solution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172703-9781577316992-the-ten-things-to-do-when-your-life-falls-apart/"><u>The Ten Things to Do When Your Life Falls Apart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172698-9781577319832-the-way-of-the-happy-woman/"><u>The Way of the Happy Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172692-9781932073379-trager-for-self-healing/"><u>Trager for Self-Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172379-9781780999807-what-aging-men-want/"><u>What Aging Men Want | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355836-9781644115244-discover-your-soul-mission/"><u>Discover Your Soul Mission | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355875-9781250803771-reading-tea-leaves/"><u>Reading Tea Leaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355860-9781250803757-the-golden-key-the-complete-original-edition/"><u>The Golden Key: The Complete Original Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355834-9781644114537-the-science-of-subtle-energy/"><u>The Science of Subtle Energy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

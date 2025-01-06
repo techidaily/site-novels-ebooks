@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Libra | Free Book
-date: 2024-11-01T18:39:33.264Z
-updated: 2024-11-07T17:08:25.460Z
+date: 2025-01-05T16:47:26.182Z
+updated: 2025-01-06T16:47:44.757Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9c3e734e63a96b466b3af667a3a62c89c9.jpg
@@ -168,13 +168,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209851405-9781947151291-45-ways-to-excellent-life/"><u>45 Ways to Excellent Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851401-9780983542810-a-fish-made-of-water/"><u>A Fish Made of Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851187-9780648108405-ainslie-meares-on-meditation/"><u>Ainslie Meares on Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851059-9780998870212-aphrodite-emerges/"><u>Aphrodite Emerges | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851305-9780995881105-beyond-surviving/"><u>Beyond Surviving | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851598-9780692914427-god-given/"><u>God Given | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851597-9783962460037-healed-of-cancer/"><u>Healed of Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209851496-9780984136049-my-subconscious-mind/"><u>My Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845656-9781454952602-a-little-bit-of-angel-numbers/"><u>A Little Bit of Angel Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845585-9783988313317-dark-psychology-and-manipulation/"><u>DARK PSYCHOLOGY AND MANIPULATION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845725--gods-itinerary/"><u>God's Itinerary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845780-9781088157619-the-prophet-daniel/"><u>The Prophet Daniel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845657-9781454950042-your-blueprint-for-pleasure/"><u>Your Blueprint for Pleasure | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

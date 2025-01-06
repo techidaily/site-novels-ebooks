@@ -1,7 +1,7 @@
 ---
 title: Make Up Your Mind to Be Happy | Free Book
-date: 2024-11-03T18:28:25.840Z
-updated: 2024-11-07T16:17:57.791Z
+date: 2025-01-03T16:26:18.891Z
+updated: 2025-01-06T16:05:39.594Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6390825bfede81050f5295315166d3340a.jpg
@@ -138,12 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209841342-9780980784619-a-new-chapter/"><u>A New Chapter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841400-9780996278034-ama-deus/"><u>Ama-Deus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841462-9781939438386-mind-control-in-the-united-states/"><u>Mind Control In The United States | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841369-9780990584872-release-your-vision-torch/"><u>Release Your Vision Torch! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841373-9780996531511-stepping-into-the-platinum-age/"><u>Stepping into the Platinum Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841460-9780692538128-the-emerald-doorway/"><u>THE EMERALD DOORWAY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841476-9780986297816-zakisms/"><u>Zakisms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816443-9781644116661-alphabets-and-the-mystery-traditions/"><u>Alphabets and the Mystery Traditions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816449-9781644118351-dendera-temple-of-time/"><u>Dendera, Temple of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816447-9781644118047-living-wands-of-the-druids/"><u>Living Wands of the Druids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816448-9781644118306-pleiadian-soul-healing/"><u>Pleiadian Soul Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816445-9781644117453-the-hermetic-tree-of-life/"><u>The Hermetic Tree of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816450-9781644118375-theurgy-theory-and-practice/"><u>Theurgy: Theory and Practice | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

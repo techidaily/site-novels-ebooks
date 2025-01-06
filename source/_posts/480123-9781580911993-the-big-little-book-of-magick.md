@@ -1,7 +1,7 @@
 ---
 title: The Big Little Book of Magick | Free Book
-date: 2024-10-26T02:52:07.111Z
-updated: 2024-10-27T01:22:21.984Z
+date: 2025-01-01T16:56:10.200Z
+updated: 2025-01-06T16:17:31.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8674f1e1e074d9ae4874d5ef03f8f390fbaadc588e4bbc2129871813e8558439.jpg
@@ -172,3 +172,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8674f1e1e074d9ae4874d5ef03f8f39
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210094197-9781401959746-chica-why-not/"><u>Chica, Why Not? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094270-9780593232026-karma/"><u>Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094572-9781735349213-radical-enlightenment-my-guy-on-the-9th-floor/"><u>Radical Enlightenment: My Guy On The 9th Floor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094003-9781789044751-scavengers-of-beauty/"><u>Scavengers of Beauty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094009-9781789044997-walks-with-sam/"><u>Walks With Sam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094004-9781789043037-wisdom-from-the-spirit-world/"><u>Wisdom From the Spirit World | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

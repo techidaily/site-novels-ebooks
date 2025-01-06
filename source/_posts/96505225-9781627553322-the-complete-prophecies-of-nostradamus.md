@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2024-12-26T18:08:54.809Z
-updated: 2024-12-28T02:04:55.777Z
+date: 2025-01-03T16:00:20.709Z
+updated: 2025-01-06T16:27:45.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,17 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138588413-9781462039951-a-new-order-of-the-ages/"><u>A New Order of the Ages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588140-9781475906806-it-will-be-all-right-in-the-morning/"><u>It Will Be All Right in the Morning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588498-9781475915983-mending-the-heart-tending-the-soul/"><u>Mending the Heart, Tending the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588186-9781452544342-no-longer-lonely/"><u>No Longer Lonely | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588476-9781452543482-recognizing-a-gift-from-god/"><u>Recognizing a Gift from God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588442-9781475964141-saturdays-child/"><u>Saturday's Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588180-9781452544106-spirited-clearings/"><u>Spirited Clearings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138588353-9781452542751-whispers-of-a-heart-from-the-other-side/"><u>Whispers of a Heart from the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454305-9781774816585-abraham-lincoln/"><u>Abraham Lincoln | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454334-9781736855416-modern-day-mystic/"><u>Modern Day Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454383-9789814952798-motivation-journal/"><u>Motivation Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454243-9781088001738-new-earth-prophecies/"><u>New Earth Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454199-9780991010998-party-of-twelve/"><u>Party of Twelve | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454197-9786277544812-power-to-create-wealth/"><u>Power to Create Wealth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454266-9780578348551-the-art-signs-of-spiritual-awakening/"><u>The Art & Signs of Spiritual Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454391-9798985487619-the-gratitude-beads/"><u>The Gratitude Beads | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

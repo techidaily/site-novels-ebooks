@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2024-12-24T16:41:09.597Z
-updated: 2024-12-28T02:17:14.681Z
+date: 2025-01-01T16:45:38.743Z
+updated: 2025-01-06T16:24:16.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,13 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138545012-9781401935054-all-is-well/"><u>All Is Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545011-9781401927714-chants-of-a-lifetime/"><u>Chants of a Lifetime | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545009-9781401922306-cosmos/"><u>CosMos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545016-9781401939793-feng-shui-simply/"><u>Feng Shui Simply | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210383658-9781777662028-energy-and-weight-loss-the-weight-loss-pill-to-understanding-dense-energies-from-humans-environments-ghosts-and-past-lives-that-cause-weight-gain/"><u>ENERGY AND WEIGHT LOSS The "Weight Loss Pill " to Understanding Dense Energies from Humans, Environments, Ghosts, and Past Lives that Cause Weight Gain! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210389809-9781493047185-haunted-oklahoma/"><u>Haunted Oklahoma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210389810-9781493047925-haunted-wisconsin-2nd-ed/"><u>Haunted Wisconsin (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210383631-9788792980977-inawainge-one-who-sees/"><u>Iñawaingé - one who sees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210385435-9782017150060-lunivers-a-toujours-un-plan/"><u>L'univers a toujours un plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210385649-9781667414270-mindfulness-la-guia-completa-de-meditacion-para-principiantes/"><u>Mindfulness: La guía completa de meditación para principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382663-9781623176921-mirrors-in-the-earth/"><u>Mirrors in the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210385627-9781667409634-seja-resiliente-contra-o-estresse-e-se-acalme/"><u>Seja resiliente contra o estresse e se acalme! | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

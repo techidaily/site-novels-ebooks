@@ -1,7 +1,7 @@
 ---
 title: The Merciful God of Prophecy | Free Book
-date: 2024-10-22T05:47:46.060Z
-updated: 2024-10-27T03:07:38.863Z
+date: 2025-01-04T16:25:50.763Z
+updated: 2025-01-06T16:37:03.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0448496632b892404283ce2c4ef8aa85461871c5734151539de097103e428e9.jpg
@@ -130,3 +130,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0448496632b892404283ce2c4ef8aa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210254247-9781398702158-astrosex-aquarius/"><u>Astrosex: Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254249-9781398702134-astrosex-capricorn/"><u>Astrosex: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254266-9781398702035-astrosex-leo/"><u>Astrosex: Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254257-9781398702073-astrosex-libra/"><u>Astrosex: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254281-9781398702172-astrosex-pisces/"><u>Astrosex: Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254263-9781398701977-astrosex-taurus/"><u>Astrosex: Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254151-9781398810396-atlantis-and-other-lost-worlds/"><u>Atlantis and Other Lost Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210254159-9781398810044-secret-wisdom/"><u>Secret Wisdom | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

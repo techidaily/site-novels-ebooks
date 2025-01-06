@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2024-12-23T23:18:02.382Z
-updated: 2024-12-27T16:25:02.681Z
+date: 2024-12-31T16:11:40.824Z
+updated: 2025-01-06T16:02:12.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,17 +166,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138623062-9781401954178-already-here/"><u>Already Here | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622185-9780761870869-eight-brief-lessons-on-life/"><u>Eight Brief Lessons on Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623689-9781250214492-forest-bathing/"><u>Forest Bathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623090-9780834842052-from-mindfulness-to-insight/"><u>From Mindfulness to Insight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138623548-9780762465989-magical-places/"><u>Magical Places | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622060-9781351103725-religious-literacy-in-hospice-care/"><u>Religious Literacy in Hospice Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622035-9781608685578-the-jewel-of-abundance/"><u>The Jewel of Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621385-9781601639240-zombies/"><u>Zombies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529418-9781638747628-armed-with-god/"><u>Armed with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529388-9781639039258-positives/"><u>Positives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529378-9781639610679-scattered-smothered-and-yet-covered-by-the-grace-of-god/"><u>Scattered, Smothered, and Yet Covered by the Grace of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530288-9780998688732-tantra-iluminado/"><u>Tantra Iluminado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529435-9781639035960-the-journey/"><u>The Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529402-9781639617524-thy-will-be-done/"><u>Thy Will Be Done | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

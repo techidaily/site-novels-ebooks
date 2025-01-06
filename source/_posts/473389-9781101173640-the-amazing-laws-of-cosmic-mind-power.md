@@ -1,7 +1,7 @@
 ---
 title: The Amazing Laws of Cosmic Mind Power | Free Book
-date: 2024-10-22T02:40:26.920Z
-updated: 2024-10-26T21:47:48.294Z
+date: 2024-12-30T17:03:43.416Z
+updated: 2025-01-06T16:31:15.528Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e803a08e54f2f9ea26baf53cc5b5c17ca048b271056876f96ec8ac9f93bceaa.jpg
@@ -170,3 +170,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e803a08e54f2f9ea26baf53cc5b5c1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210082084-9781401929473-awakening-the-sacred-body/"><u>Awakening the Sacred Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080562-9781911134510-magical-knowledge-ii-the-initiate/"><u>Magical Knowledge II - The Initiate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080566-9781911134534-magical-knowledge-iii-contacts-of-the-adept/"><u>Magical Knowledge III - Contacts of the Adept | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080322-9780648862116-mystic-at-the-edge/"><u>MYSTIC AT THE EDGE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080347-9781734815733-the-antidote/"><u>The Antidote | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210081440-9781473588882-the-key-to-the-tarot/"><u>The Key To The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080380-9781948626224-the-shamans-mind/"><u>The Shaman's Mind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

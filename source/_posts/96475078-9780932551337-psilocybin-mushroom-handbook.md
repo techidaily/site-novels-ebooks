@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2024-12-21T21:17:28.336Z
-updated: 2024-12-27T23:53:03.605Z
+date: 2025-01-05T16:42:45.547Z
+updated: 2025-01-06T16:46:59.554Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,17 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/185866-9781595470621-a-work-of-saturn/"><u>A Work of Saturn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1840239-9780698401617-looking-at-mindfulness/"><u>Looking at Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1830267-9780807010839-meditations-of-the-heart/"><u>Meditations of the Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1839869-9781459730922-mysteries-and-secrets-the-16-book-complete-codex/"><u>Mysteries and Secrets: The 16-Book Complete Codex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/186036-9781595470669-the-golden-chain-of-homer/"><u>The Golden Chain of Homer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1829964-9781476777856-the-path/"><u>The Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/184065-9781595470034-the-realness-of-witchcraft-in-america/"><u>The Realness of Witchcraft in America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1830279-9781583949443-the-sacred-ego/"><u>The Sacred Ego | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632718-9781959018087-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632791-9798986395425-beyond-love/"><u>Beyond Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210633577-9798887573144-guaranteed-freedom-victory-and-success-through-the-lord-jesus-christ/"><u>Guaranteed Freedom, Victory, And Success Through The Lord Jesus Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210633842-9781493046935-haunted-hotels-2nd-ed/"><u>Haunted Hotels (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210633906-9781784886110-prosperity-practices/"><u>Prosperity Practices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632713-9781959018056-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632727-9781959018025-runes/"><u>Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632721-9780645247510-strange-events/"><u>Strange Events | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210633903-9781784885823-the-witchs-home/"><u>The Witch's Home | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

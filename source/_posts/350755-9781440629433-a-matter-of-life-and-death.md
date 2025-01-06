@@ -1,7 +1,7 @@
 ---
 title: A Matter of Life and Death | Free Book
-date: 2024-10-25T22:41:29.269Z
-updated: 2024-10-26T20:55:07.594Z
+date: 2024-12-31T16:57:42.597Z
+updated: 2025-01-06T16:56:35.144Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3ff88bee8614127838d7760bf0c07dc2c8635fcc3adef952311bc4f6547d848.jpg
@@ -179,3 +179,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3ff88bee8614127838d7760bf0c07d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210271670-9781952146015-amping-your-abilities/"><u>Amping Your Abilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273226-9781736789322-confessions-of-a-preachers-kid/"><u>Confessions Of A Preacher's Kid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210272624-9781910559642-muddy-mysticism/"><u>Muddy Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273234-9781737105596-staying-power/"><u>Staying Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210272762-9781735855820-the-soul-discovery-journalbook/"><u>The Soul-Discovery Journalbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210272337-9781722526269-your-invisible-power-and-attaining-your-desires-original-classic-edition/"><u>Your Invisible Power and Attaining Your Desires (Original Classic Edition) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

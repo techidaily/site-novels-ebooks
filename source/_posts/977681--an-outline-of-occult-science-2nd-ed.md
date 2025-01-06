@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2024-12-23T20:07:21.420Z
-updated: 2024-12-28T02:30:40.743Z
+date: 2025-01-02T16:09:03.815Z
+updated: 2025-01-06T16:58:38.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,13 +131,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1220040-9780892546220-amulets-talismans-and-magical-jewelry/"><u>Amulets, Talismans, and Magical Jewelry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219264-9780698147850-stitches/"><u>Stitches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219217-9781101633731-the-book-of-knowing-and-worth/"><u>The Book of Knowing and Worth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219168-9781101620274-whole-health/"><u>Whole Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361742-9780578977508-mindfulness-and-mysticism/"><u>Mindfulness and Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361536-9780982339916-step-into-your-miracle-zone/"><u>Step Into Your Miracle Zone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361665-9781911134596-the-magical-knowledge-trilogy/"><u>The Magical Knowledge Trilogy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361694-9781910559666-walking-with-persephone/"><u>Walking with Persephone | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

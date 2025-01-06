@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2024-12-21T21:25:57.017Z
-updated: 2024-12-28T00:49:21.749Z
+date: 2024-12-31T16:17:55.373Z
+updated: 2025-01-06T16:54:23.675Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,14 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1237937-9780761861089-adjusting-to-lifes-changing-seasons/"><u>Adjusting to Life's Changing Seasons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1224572-9781609259099-embrace-yes/"><u>Embrace Yes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1230262-9781780992808-identity-and-the-quartered-circle/"><u>Identity and the Quartered Circle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1245839-9781476713090-making-marks/"><u>Making Marks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1224575-9781609259273-runecasters-handbook/"><u>Runecaster's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365835-9781736939918-aspire/"><u>Aspire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364420-9780645073263-etica-yogica-per-una-mente-equilibrata/"><u>Etica Yogica per Una Mente Equilibrata | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364074-9781648410963-evergreen-ape/"><u>Evergreen Ape | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364076-9781648410420-kitchen-witch/"><u>Kitchen Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365846-9780983285410-self-belonging/"><u>Self Belonging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363960-9781637305645-stirring-the-pot/"><u>Stirring the Pot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365829-9781914996214-the-lion-and-the-tiger/"><u>THE LION and THE TIGER | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365843-9781802271652-the-magic-of-healing-touch/"><u>The Magic of Healing Touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365700-9781087984407-unapologetic/"><u>Unapologetic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

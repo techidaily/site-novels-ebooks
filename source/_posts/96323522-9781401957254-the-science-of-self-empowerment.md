@@ -1,7 +1,7 @@
 ---
 title: The Science of Self-Empowerment | Free Book
-date: 2024-10-31T17:44:08.606Z
-updated: 2024-11-07T16:54:43.628Z
+date: 2025-01-04T16:28:46.358Z
+updated: 2025-01-06T17:00:25.757Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc95324fa154e7d769cae63fdb8bae584f5ad79.jpg
@@ -189,14 +189,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc9532
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209846466-9780648002383-lucky-astrology-aquarius/"><u>Lucky Astrology - Aquarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846480-9780648002338-lucky-astrology-cancer/"><u>Lucky Astrology - Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846471-9780648002604-lucky-astrology-libra/"><u>Lucky Astrology - Libra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846476-9780648002390-lucky-astrology-pisces/"><u>Lucky Astrology - Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846467-9780648002369-lucky-astrology-sagittarius/"><u>Lucky Astrology - Sagittarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846474-9780648002345-lucky-astrology-scorpio/"><u>Lucky Astrology - Scorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846478-9780648002307-lucky-astrology-taurus/"><u>Lucky Astrology - Taurus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846472-9780648002352-lucky-astrology-virgo/"><u>Lucky Astrology - Virgo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209846440-9780994540454-the-journey-to-my-life-purpose/"><u>The Journey to my Life Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829648-9781398834682-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829857-9781722527853-dick-sutphens-wisdom/"><u>Dick Sutphen's Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829892-9781977234261-riding-with-ghosts-angels-and-the-spirits-of-the-dead/"><u>Riding with Ghosts, Angels, and the Spirits of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210828084-9781960159786-sigue-adelante/"><u>Sigue Adelante | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829181-9781623177768-the-road-to-eleusis/"><u>The Road to Eleusis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210827957-9781640285316-voices-bumps-thumps-and-jumps/"><u>Voices, Bumps, Thumps, and Jumps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210828188-9780525507475-when-things-dont-go-your-way/"><u>When Things Don't Go Your Way | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

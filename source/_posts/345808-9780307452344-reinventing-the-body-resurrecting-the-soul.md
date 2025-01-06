@@ -1,7 +1,7 @@
 ---
 title: Reinventing the Body, Resurrecting the Soul | Free Book
-date: 2024-10-22T21:19:39.273Z
-updated: 2024-10-27T03:08:00.137Z
+date: 2025-01-03T17:00:49.695Z
+updated: 2025-01-06T16:03:02.955Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/53d32b1f7d88970c2fadd618b99d3ec69bad500b2b9d8db099f8f65576d1a54e.jpg
@@ -213,3 +213,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/53d32b1f7d88970c2fadd618b99d3ec
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210265489-9781647462390-battling-fear-with-faith/"><u>Battling Fear with Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210264794-9780578158822-evolving-times-learn-2-love-2-live-together/"><u>Evolving Times Learn 2 Love 2 Live Together | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266245-9781591434269-gaia-alchemy/"><u>Gaia Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265944-9781476642666-jb-rhine/"><u>J.B. Rhine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266072-9781788176477-living-in-tune/"><u>Living in Tune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265036-9781087941905-my-grieving-process/"><u>My grieving Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265736-9782017140689-suis-ton-ame-elle-connait-le-chemin/"><u>Suis ton âme, elle connait le chemin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265796-9781473598478-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key To The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266108-9780762475872-the-practical-witchs-love-spell-book/"><u>The Practical Witch's Love Spell Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

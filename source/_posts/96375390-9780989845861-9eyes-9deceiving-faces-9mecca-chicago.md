@@ -1,7 +1,7 @@
 ---
 title: "9Eyes 9Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2024-11-25T20:59:35.069Z
-updated: 2024-11-27T19:48:28.720Z
+date: 2024-12-30T17:02:45.228Z
+updated: 2025-01-06T16:06:34.770Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1916589fcdeaeb04308e2aba53c6677cbf523ee96329b3edd900c8897604c9e0.jpg
@@ -140,16 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1916589fcdeaeb04308e2aba53c6677
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96179334-9781785356049-aspecting-the-goddess/"><u>Aspecting the Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96178906-9781547527069-curso-rapido-sobre-magia-do-caos-a-magia-moderna-que-todos-usam-e-ninguem-conta/"><u>Curso rápido sobre magia do caos. A magia moderna que todos usam e ninguém conta | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96178136-9781612834177-fortune-telling-with-playing-cards/"><u>Fortune Telling with Playing Cards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96179881-9781634242271-liber-420/"><u>Liber 420 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96178142-9780892546770-one-truth-and-one-spirit/"><u>One Truth and One Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96178141-9781633410497-son-of-chicken-qabalah/"><u>Son of Chicken Qabalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96178137-9781633411098-the-big-book-of-runes-and-rune-magic/"><u>The Big Book of Runes and Rune Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768250-9781639190775-todo-el-zodiaco-cancer/"><u>Todo el Zodiaco. Cáncer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768255-9781639190836-todo-el-zodiaco-capricornio/"><u>Todo el Zodiaco. Capricornio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768252-9781639190812-todo-el-zodiaco-escorpion/"><u>Todo el Zodiaco. Escorpión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768251-9781639190805-todo-el-zodiaco-libra/"><u>Todo el Zodiaco. Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768256-9781639190843-todo-el-zodiaco-piscis/"><u>Todo el Zodiaco. Piscis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768253-9781639190829-todo-el-zodiaco-sagitario/"><u>Todo el Zodiaco. Sagitario | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

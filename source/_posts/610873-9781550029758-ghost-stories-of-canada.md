@@ -1,7 +1,7 @@
 ---
 title: Ghost Stories of Canada | Free Book
-date: 2024-10-26T04:19:00.796Z
-updated: 2024-10-27T02:25:00.072Z
+date: 2025-01-01T16:18:17.950Z
+updated: 2025-01-06T16:02:37.943Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9295d175071ff7e7d01ec82da30c65dc82c7a66bcd5d64393dc2c243b6c8511e.jpg
@@ -185,3 +185,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9295d175071ff7e7d01ec82da30c65d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209859814-9781911134336-the-quareia-apprentice-study-guide/"><u>The Quareia Apprentice Study Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859816-9789387669482-the-seven-laws-of-teaching/"><u>The Seven Laws of Teaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860012-9781732030008-unbox-yourself/"><u>Unbox Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860052-9780648308713-wtf/"><u>WTF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859932-9781732044715-your-return-to-freedom/"><u>Your Return to Freedom | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

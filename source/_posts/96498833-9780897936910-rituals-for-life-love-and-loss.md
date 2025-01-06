@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2024-12-23T16:10:26.836Z
-updated: 2024-12-28T02:40:43.580Z
+date: 2025-01-01T16:24:44.017Z
+updated: 2025-01-06T16:01:40.827Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,13 +179,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621202-9781601635938-ad-after-disclosure/"><u>A.D. After Disclosure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621201-9781601637369-crash-when-ufos-fall-from-the-sky/"><u>Crash: When UFOs Fall From the Sky | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621200-9781601635402-on-the-edge-of-reality/"><u>On the Edge of Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621198-9781632658876-the-gods-never-left-us/"><u>The Gods Never Left Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518965-9781777476014-beloved-i-can-show-you-heaven/"><u>Beloved, I Can Show You Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519627-9781098095567-broken-crushed-shattered-mended-healed/"><u>Broken, Crushed, Shattered, Mended, Healed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519633-9781639034055-life-interrupted/"><u>Life Interrupted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519628-9781639615964-my-five-guiding-principles/"><u>My Five Guiding Principles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519630-9781639613229-seeds-for-enlightenment-101/"><u>Seeds for Enlightenment 101 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519925-9781669357605-summary-of-mark-epsteins-the-zen-of-therapy/"><u>Summary of Mark Epstein's The Zen of Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519021-9798985440300-the-building-blocks-of-meditation/"><u>The Building Blocks of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518972-9781733301510-the-essential-manifesting-guidebook-2020/"><u>The Essential Manifesting Guidebook 2020 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

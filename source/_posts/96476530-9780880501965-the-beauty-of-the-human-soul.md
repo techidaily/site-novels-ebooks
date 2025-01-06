@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2024-12-26T01:06:58.505Z
-updated: 2024-12-27T18:59:06.843Z
+date: 2025-01-05T16:17:08.631Z
+updated: 2025-01-06T16:11:45.200Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,18 +183,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1685627-9781609259433-a-spirit-walkers-guide-to-shamanic-tools/"><u>A Spirit Walker's Guide to Shamanic Tools | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1684767-9781780288413-chakra-wisdom-oracle-toolkit/"><u>Chakra Wisdom Oracle Toolkit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1684765-9781780287836-earth-blessings/"><u>Earth Blessings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1691130-9781459729957-haunted-incredible-true-stories-of-ghostly-encounters-2-book-bundle/"><u>Haunted — Incredible True Stories of Ghostly Encounters 2-Book Bundle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1684757-9781583948385-healing-magic-10th-anniversary-edition/"><u>Healing Magic, 10th Anniversary Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1687915-9781583947920-the-ayahuasca-test-pilots-handbook/"><u>The Ayahuasca Test Pilots Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1684766-9781780287843-the-dawn-of-genius/"><u>The Dawn of Genius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1688976-9781317787136-the-psychospiritual-clinicians-handbook/"><u>The Psychospiritual Clinician's Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1689042-9781317760580-the-therapists-notebook-for-integrating-spirituality-in-counseling-ii/"><u>The Therapist's Notebook for Integrating Spirituality in Counseling II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592449-9780760373729-breathe/"><u>Breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593325-9781476644806-ghosted/"><u>Ghosted! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593260-9781524881887-haunted-in-america/"><u>Haunted in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210591795-9798985236712-its-a-tango-not-a-war/"><u>It's a Tango, Not a War | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593201-9782017166160-le-garcon-qui-chevauchait-un-ane/"><u>Le garçon qui chevauchait un âne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593482-9781841815312-manifesting-with-crystals/"><u>Manifesting with Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592377-9798985892680-never-forgotten/"><u>Never Forgotten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593462-9781399700672-still-points/"><u>Still Points | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210591818-9798985991673-when-silence-is-misunderstood/"><u>When Silence is Misunderstood | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

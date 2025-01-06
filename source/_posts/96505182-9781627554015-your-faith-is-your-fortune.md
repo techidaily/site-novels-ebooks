@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2024-12-21T23:29:38.846Z
-updated: 2024-12-27T17:31:22.881Z
+date: 2025-01-04T16:06:59.966Z
+updated: 2025-01-06T16:30:09.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,18 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138584078-9781462037124-beyond-cell-memory/"><u>Beyond Cell Memory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584093-9781452532981-from-fear-to-freedom/"><u>From Fear to Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138585086-9781452538716-journey-with-gwen/"><u>Journey with Gwen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584366-9781452540627-post-cards-from-the-void/"><u>Post Cards from the Void | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584808-9781462033850-psychic-beauty-energy-cords-psychic-exercises/"><u>Psychic Beauty ~ Energy Cords & Psychic Exercises ~ | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584290-9781450286015-shadow-place/"><u>Shadow Place | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138585305-9781475940237-the-acts-of-creation/"><u>The Acts of Creation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584409-9781450294010-tribute-to-a-common-man/"><u>Tribute to a Common Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584552-9781449743642-your-destiny-and-your-palace/"><u>Your Destiny and Your Palace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450304-9781667420349-megan-e-a-radio-um-show-na-estrada/"><u>Megan e a Rádio Um Show na Estrada | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450231-9781667419602-mindfulnes-paso-a-paso-guia-basica-para-principiantes/"><u>Mindfulnes Paso a paso: guía básica para principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450248-9781667421247-yoga-para-iniciantes-yoga-magica-as-melhores-posturas-suaves/"><u>Yoga para iniciantes: Yoga mágica- as melhores posturas suaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450218-9781667421216-yoga-para-principiantes-yoga-magico-las-mejores-posturas-de-yoga-suave/"><u>Yoga para principiantes: Yoga Mágico - Las mejores posturas de yoga suave | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

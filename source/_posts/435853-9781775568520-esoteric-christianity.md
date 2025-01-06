@@ -1,7 +1,7 @@
 ---
 title: Esoteric Christianity | Free Book
-date: 2024-10-26T02:29:43.121Z
-updated: 2024-10-27T04:39:25.240Z
+date: 2025-01-03T16:40:06.505Z
+updated: 2025-01-06T16:43:17.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bd921180379fd65adf3cc443e100686dc7a9fe310b5ef00a6ba2c28c4356396.jpg
@@ -187,3 +187,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bd921180379fd65adf3cc443e10068
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210191995-9781683692782-chasing-ghosts/"><u>Chasing Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191935-9781789042412-crystal-prescriptions/"><u>Crystal Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191726-9781953791801-i-sing-my-psalm-volume-2/"><u>I Sing My Psalm Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191588-9780711259171-me-time/"><u>Me Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192129-9781735974842-you-know-its-a-verb-right/"><u>You Know it's a Verb, Right? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

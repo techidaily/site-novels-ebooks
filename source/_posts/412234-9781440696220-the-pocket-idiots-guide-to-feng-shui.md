@@ -1,7 +1,7 @@
 ---
 title: The Pocket Idiot's Guide to Feng Shui | Free Book
-date: 2024-10-21T03:43:44.643Z
-updated: 2024-10-26T19:43:00.150Z
+date: 2025-01-01T16:07:31.890Z
+updated: 2025-01-06T16:44:49.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18dbdc887d19985ea260d8dbaf9a0f9d05a679a3594e9d3b97c7fe6e35fc849.jpg
@@ -170,3 +170,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18dbdc887d19985ea260d8dbaf9a0f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210206443-9781087885988-100-love-spells/"><u>100 Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206402-9781420972610-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206036-9781954345386-emotional-rags-to-spiritual-riches/"><u>Emotional Rags to Spiritual Riches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206318-9781087934433-live-in-one-light-creating-heaven-on-earth-with-the-light-of-life-within/"><u>Live in One Light - Creating Heaven on Earth with the Light of Life within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206295-9781934532997-senses-of-the-soul/"><u>Senses of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206035-9781954345263-small-space/"><u>Small Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206422-9781420972603-the-law-of-success/"><u>The Law of Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207075-9781722526139-think-and-grow-rich-and-the-richest-man-in-babylon-original-classic-editions/"><u>Think and Grow Rich and The Richest Man in Babylon (Original Classic Editions) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

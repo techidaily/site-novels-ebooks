@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2024-12-25T22:10:54.985Z
-updated: 2024-12-28T02:09:20.042Z
+date: 2024-12-31T16:33:53.228Z
+updated: 2025-01-06T16:10:55.613Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,16 +249,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1337379-9780988677302-body-signals/"><u>Body Signals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1338603-9780985247928-diannas-way/"><u>Dianna's Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1322633-9780988432758-en-glimt-av-nad/"><u>En Glimt Av Nad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1322231-9780804151139-laugh-i-thought-id-die-if-i-didnt/"><u>Laugh! I Thought I'd Die (If I Didn't) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1322659-9781609257309-tarot-of-ceremonial-magick/"><u>Tarot of Ceremonial Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1337380-9780988677319-the-practical-shaman/"><u>The Practical Shaman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1331247-9781938289149-understanding-human-design/"><u>Understanding Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210368472-9781638448167-from-the-past-lifetime/"><u>From the Past Lifetime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210373674-9781797210360-money-magic/"><u>Money Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210374563-9781087985718-remember/"><u>Remember | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210373710-9782017166092-shine-on/"><u>Shine on | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210368477-9781098095840-the-perception-of-trauma/"><u>The Perception of Trauma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367985-9781633412705-witch-please/"><u>Witch, Please | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

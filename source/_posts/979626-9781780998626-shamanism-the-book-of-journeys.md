@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2024-12-27T03:08:55.873Z
-updated: 2024-12-28T01:12:15.227Z
+date: 2024-12-30T16:52:17.197Z
+updated: 2025-01-06T16:11:50.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,15 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1245934-9781471112393-conversations-with-heaven/"><u>Conversations with Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1275338-9781609257729-living-the-wheel/"><u>Living the Wheel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1245861-9781451698589-the-sacred-history/"><u>The Sacred History | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1250685-9780892546626-the-wedding-of-sophia/"><u>The Wedding of Sophia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1273870-9780804150859-why-people-dont-heal-and-how-they-can/"><u>Why People Don't Heal and How They Can | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1249254-9781782195061-wild-things-they-dont-tell-us/"><u>Wild Things They Don't Tell Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367895-9781638148715-angel-eyes/"><u>Angel Eyes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367859-9781736589892-ash-and-spirit/"><u>Ash and Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367692-9781662432866-conscious-exploration-for-the-advanced-soul/"><u>Conscious Exploration for the Advanced Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367898-9781644689042-from-addiction-to-recovery/"><u>From Addiction to Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367958-9781612834801-the-art-of-breathing/"><u>The Art of Breathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367281-9781472948564-the-breathing-revolution/"><u>The Breathing Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367663-9781396320255-the-day-of-wisdom-according-to-number-vibration/"><u>The Day of Wisdom According to Number Vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367956-9781612834771-the-tiny-book-of-big-manifesting/"><u>The Tiny Book of Big Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210366659-9781953806567-wisdom-of-the-silver-sisters-guiding-grace/"><u>Wisdom of the Silver Sisters - Guiding Grace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

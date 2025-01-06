@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Intuition | Free Book
-date: 2024-12-25T16:21:53.740Z
-updated: 2024-12-27T21:46:00.362Z
+date: 2025-01-02T17:00:03.836Z
+updated: 2025-01-06T16:56:07.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc91bdc663b6f65fa5b3200c18dc7433ba47.jpg
@@ -144,17 +144,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209840844-9780990584834-365-daily-vision-nuggets/"><u>365 Daily Vision Nuggets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840920-9780994369321-astrology/"><u>ASTROLOGY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840989-9780984002900-mary-magdalene-beckons/"><u>Mary Magdalene Beckons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840928-9781513602851-nikola-tesla-afterlife-comments-on-paraphysical-concepts-volume-one/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts, Volume One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841008-9780977512669-pranayama-the-breath-of-yoga/"><u>Pranayama the Breath of Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840981-9780984002931-sublime-union/"><u>Sublime Union | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840882-9780992433833-the-deeper-the-sorrow-the-stronger-the-spirit/"><u>The Deeper the Sorrow, The Stronger the Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209841167-9780994359315-where-the-light-lives/"><u>Where The Light Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762239-9781786857361-calm/"><u>Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762238-9781786857392-happiness/"><u>Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762205-9781786858856-how-to-relax/"><u>How to Relax | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762230-9781786857422-inspiration/"><u>Inspiration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762197-9781787830486-live-your-best-life/"><u>Live Your Best Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762201-9781786858887-slow/"><u>Slow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762207-9781786859334-the-little-book-of-the-zodiac/"><u>The Little Book of the Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762234-9781786857453-wisdom/"><u>Wisdom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Unsolved Mysteries of the Sea | Free Book
-date: 2024-10-19T18:20:35.321Z
-updated: 2024-10-26T22:43:31.577Z
+date: 2025-01-02T16:26:07.046Z
+updated: 2025-01-06T16:12:38.240Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b736eec006f7395c8a3849e9bc6ec37ce5327aa063c4f8a263bc82a1fa3ed77b.jpg
@@ -151,3 +151,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b736eec006f7395c8a3849e9bc6ec37
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209861734-9781948172912-beyond-the-cross/"><u>Beyond the Cross | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861853-9780999228418-ensoulment/"><u>Ensoulment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861743-9781948172936-laying-up-treasures-in-heaven/"><u>Laying Up Treasures In Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861705-9780999858622-member-heal-thyself/"><u>Member Heal Thyself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861954-9781999392116-soothsaying-tarot-and-the-mantegna-revealed/"><u>Soothsaying Tarot and the Mantegna Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862007-9781732241268-the-language-of-dreams/"><u>The Language of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861972-9781949169713-the-story-of-ada/"><u>The Story of Ada | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

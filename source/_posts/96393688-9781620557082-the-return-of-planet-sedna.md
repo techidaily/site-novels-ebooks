@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2024-12-24T22:37:37.649Z
-updated: 2024-12-28T00:58:22.331Z
+date: 2025-01-05T16:26:59.716Z
+updated: 2025-01-06T16:05:52.836Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,17 +205,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209749541-9781984826824-coming-home-to-yourself/"><u>Coming Home to Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209753707-9780762496167-ignite-your-light/"><u>Ignite Your Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748901-9781071500712-il-tuo-altro-corpo/"><u>Il Tuo Altro Corpo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209749072-9781071500309-la-revolucion-de-la-quema-de-sostenes-lo-quemamos-o-no/"><u>La revolución de la quema de sostenes: ¿lo quemamos o no? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209750872-9781578595570-lost-civilizations/"><u>Lost Civilizations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209749035-9781547550050-sanacion-por-empatia-y-guia-para-la-supervivencia-emocional-espiritual-y-psicologica/"><u>Sanación por Empatía y Guía para la Supervivencia Emocional, Espiritual y Psicológica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748980-9781547599202-scrivi-per-essere-felice/"><u>Scrivi per essere felice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209749336-9781452182865-ten-to-zen/"><u>Ten to Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751122-9781684985104-101-provelations/"><u>101 Provelations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751208-9798987551219-a-secret-gathering/"><u>A Secret Gathering | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751128-9781684988426-diversionary/"><u>Diversionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751235-9780991510276-the-connoisseur-of-time-an-invitation-to-presence/"><u>The Connoisseur of Time: An Invitation to Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210750968-9781805455776-the-role-of-age-gender-and-socioeconomic-status-in-spiritual-intelligence-in-adolescents-and-young-adults/"><u>The role of age gender and socioeconomic status in spiritual intelligence in adolescents and young adults | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

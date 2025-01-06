@@ -1,7 +1,7 @@
 ---
 title: Blueprint for Holistic Healing | Free Book
-date: 2024-12-23T20:56:29.834Z
-updated: 2024-12-28T02:54:58.746Z
+date: 2025-01-01T16:16:47.361Z
+updated: 2025-01-06T16:52:18.063Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0c3fcfbb9f190d1a66c5dd6334d24e3be0.jpg
@@ -139,16 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209842495-9780996935210-blooming-into-mindfulness/"><u>Blooming into Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842378-9780994072535-el-proposito-viaje-emocional-de-tu-alma/"><u>El propósito: Viaje emocional de tu alma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842593-9780997222470-epic-sexy-you/"><u>Epic Sexy You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842782-9780978505646-finding-your-perfect-sexual-match/"><u>Finding Your Perfect Sexual Match | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842767-9780996870917-on-this-day/"><u>On This Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842426-9780993790478-uthathashaya/"><u>उद्देश्य | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842427-9780994072504-4k6o4kl4k6v4kn4k6v4k6u4kn/"><u>நோக்கம் | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210764668-9798886446012-conquering-through-it-all/"><u>Conquering Through It All | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210764784-9781722527730-expand-your-magnificent-mind/"><u>Expand Your Magnificent Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210764591-9782889701308-experimenter-le-voyage-astral/"><u>Expérimenter le voyage astral | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210764781-9781446382325-the-tarot-spreads-yearbook/"><u>The Tarot Spreads Yearbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

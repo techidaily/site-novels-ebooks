@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-26T18:10:33.276Z
-updated: 2024-12-27T18:34:38.111Z
+date: 2025-01-05T16:43:34.952Z
+updated: 2025-01-06T16:14:29.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,16 +156,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209544166-9781547534784-6bue6yer44gu6auy6b2i6icf44gu5liw55wmicjnnphmg7pjga7oq5boqzxjgagpioobqatqeobhoobpuobhoocimwkobqixiuobiobquaikomvtw/"><u>黄金の高齢者の世界 (瞑想の論評と) に歩いている間に豊かな成長 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209543758-9781449701055-a-living-epistle/"><u>A Living Epistle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209542642-9781881217282-ambassadors-between-worlds-intergalactic-gateway-to-a-new-earth/"><u>Ambassadors Between Worlds, Intergalactic Gateway to a New Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209544370-9781547551835-conversazioni-con-il-padre/"><u>Conversazioni con il Padre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209543969-9781547552269-megan-und-die-verlorene-katze/"><u>Megan und die verlorene Katze | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209543940-9781547551644-revelacion-a-baron-a-deschauer/"><u>Revelación a Baron A. Deschauer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209544140-9781547555154-revelacoes-a-baron-a-deschauer/"><u>Revelações a Baron A. Deschauer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666541-9781786787415-a-spell-a-day/"><u>A Spell a Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666525-9781623178741-i-ching-the-oracle/"><u>I Ching, the Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666595-9781633413108-tarot-mirror-of-the-soul/"><u>Tarot: Mirror of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210666491-9781788179164-the-bigger-picture/"><u>The Bigger Picture | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

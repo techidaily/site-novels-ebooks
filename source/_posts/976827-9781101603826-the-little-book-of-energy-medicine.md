@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2024-12-26T00:03:02.588Z
-updated: 2024-12-27T19:57:34.080Z
+date: 2025-01-04T16:14:45.025Z
+updated: 2025-01-06T17:00:27.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,16 +192,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1207455-9781780999579-grimoire-of-a-kitchen-witch/"><u>Grimoire of a Kitchen Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207457-9781780994604-healing-divination/"><u>Healing Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207458-9781780999760-how-to-lavish-a-leo/"><u>How to Lavish a Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207463-9781782790037-new-reiki-software-for-divine-living/"><u>New Reiki Software for Divine Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207181-9781101615669-tapping-into-wealth/"><u>Tapping Into Wealth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1204923-9780307830470-the-pathwork-of-self-transformation/"><u>The Pathwork of Self-Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207437-9781442222281-the-scientific-basis-of-astrology/"><u>The Scientific Basis of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360018-9781636768915-agents-of-evolution/"><u>Agents of Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359776-9781637303405-cracking-the-healers-code/"><u>Cracking the Healer's Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360023-9781640869721-en-torno-a-la-interaccion-con-los-espiritus/"><u>En torno a la interacción con los espíritus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360096-9781948011617-feng-shui-for-real-estate/"><u>Feng Shui for Real Estate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360061-9781647538880-heart-of-wisdom-new-edition/"><u>Heart Of Wisdom - New Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360037-9780988233690-maluhia-the-happy-city/"><u>Maluhia, The Happy City | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360085-9781737462248-where-compassion-begins/"><u>Where Compassion Begins | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

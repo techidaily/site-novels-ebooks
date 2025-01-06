@@ -1,7 +1,7 @@
 ---
 title: Stories from the Other Side | Free Book
-date: 2024-11-05T17:03:25.456Z
-updated: 2024-11-07T17:17:05.187Z
+date: 2025-01-02T16:46:19.248Z
+updated: 2025-01-06T16:27:12.882Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a44611615474af793bfb24f78449e6425107cce13.jpg
@@ -159,13 +159,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a4461161
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209842495-9780996935210-blooming-into-mindfulness/"><u>Blooming into Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842378-9780994072535-el-proposito-viaje-emocional-de-tu-alma/"><u>El propósito: Viaje emocional de tu alma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842593-9780997222470-epic-sexy-you/"><u>Epic Sexy You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842782-9780978505646-finding-your-perfect-sexual-match/"><u>Finding Your Perfect Sexual Match | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842809-9780993462603-life-and-death-making-sense-of-it/"><u>Life and Death - Making Sense of It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842767-9780996870917-on-this-day/"><u>On This Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842426-9780993790478-uthathashaya/"><u>उद्देश्य | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842427-9780994072504-4k6o4kl4k6v4kn4k6v4k6u4kn/"><u>நோக்கம் | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817344-9781401976460-a-time-for-grace/"><u>A Time for Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817279-9781529903683-let-healing-happen/"><u>Let Healing Happen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818808-9781956744835-news-from-the-unconscious-realm/"><u>News from the Unconscious Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818448-9781250325761-the-books-of-enoch/"><u>The Books of Enoch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817133-9781250902740-the-magic-of-tarot/"><u>The Magic of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817164-9781250910455-the-way-home/"><u>The Way Home | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

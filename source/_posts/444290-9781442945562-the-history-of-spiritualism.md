@@ -1,7 +1,7 @@
 ---
 title: The History of Spiritualism | Free Book
-date: 2024-10-24T21:50:45.030Z
-updated: 2024-10-26T19:54:20.772Z
+date: 2025-01-05T16:54:08.455Z
+updated: 2025-01-06T16:03:56.255Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb2d4e2d37bb5eebb99e38fbbf4385dc6ccbb5e8fcb940adc25ca044fe6f4a19.jpg
@@ -134,3 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb2d4e2d37bb5eebb99e38fbbf4385d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210144120-9781615649327-chakra-healing/"><u>Chakra Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210143869-9781087920603-inspired-by-k/"><u>Inspired By K | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210144210-9781735814018-owl-magic/"><u>Owl Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210144195-9781777282912-the-false-healer/"><u>The False Healer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210146254-9781786785404-the-wisdom-of-a-broken-heart/"><u>The Wisdom of a Broken Heart | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

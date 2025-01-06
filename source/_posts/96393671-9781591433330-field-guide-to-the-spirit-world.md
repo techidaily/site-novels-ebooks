@@ -1,7 +1,7 @@
 ---
 title: Field Guide to the Spirit World | Free Book
-date: 2024-12-21T23:15:28.694Z
-updated: 2024-12-27T19:20:11.093Z
+date: 2025-01-04T16:59:15.468Z
+updated: 2025-01-06T16:52:26.219Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f9627ce9889a5066fd40f398ff9914148716f.jpg
@@ -207,17 +207,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f962
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209730893-9780806539508-candlelight-spells/"><u>Candlelight Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209732439-9781401958107-the-universe-always-has-a-plan/"><u>The Universe Always Has a Plan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209730484-9780806539621-the-wicca-garden/"><u>The Wicca Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209729473-9780806539652-the-wicca-spellbook/"><u>The Wicca Spellbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209730203-9780806539669-the-wiccans-dictionary-of-prophecy-and-omens/"><u>The Wiccan's Dictionary of Prophecy and Omens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209731435-9780806539607-wicca-candle-magick/"><u>Wicca Candle Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209729728-9780806538679-wicca-for-one/"><u>Wicca for One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209730697-9780806539638-wicca-love-spells/"><u>Wicca Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210743265-9781837830800-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210743676-9780762484249-enchanted-foraging/"><u>Enchanted Foraging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210743332-9782755666892-le-livre-des-morts-tibetains/"><u>Le Livre Des Morts Tibétains | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210743324-9782755666885-les-transit-planetaire/"><u>Les Transit Planétaire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210745576-9781088082430-morning-manna/"><u>Morning Manna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210743679-9781538740972-spiritual-anatomy/"><u>Spiritual Anatomy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

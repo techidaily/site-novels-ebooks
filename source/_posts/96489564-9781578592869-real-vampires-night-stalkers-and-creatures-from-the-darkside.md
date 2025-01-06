@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-12-26T23:50:34.997Z
-updated: 2024-12-27T22:09:59.508Z
+date: 2024-12-31T16:11:26.429Z
+updated: 2025-01-06T16:58:59.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,17 +213,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1801211-9781476789774-change-me-prayers/"><u>Change Me Prayers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1799006-9781612833361-freedom-and-resolve/"><u>Freedom and Resolve | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791925-9781780288604-how-to-find-your-spirit-animal/"><u>How to Find Your Spirit Animal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791396-9781782795254-life-without-elgar/"><u>Life Without Elgar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791741-9780786484461-parapsychology-in-the-twenty-first-century/"><u>Parapsychology in the Twenty-First Century | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791401-9781782796138-the-case-of-the-disappearing-cancer/"><u>The Case of the Disappearing Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791402-9781782795278-the-heart-of-the-hereafter/"><u>The Heart of the Hereafter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1791407-9781782795414-the-woven-word/"><u>The Woven Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628684-9781087895956-a-slice-of-light/"><u>A Slice of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626157-9780645416510-body-wisdom/"><u>Body Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626209-9798986580883-empowering-motivational-team-building-leadership-wide-ruled-lined-personal-journal-diary-note/"><u>Empowering, Motivational, Team-building, Leadership Wide-Ruled Lined Personal Journal, Diary, & Note | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628743-9781685265458-god-loves-us-all-greatly-caring-for-ourselves-as-we-care-for-our-beloved-sick-pets/"><u>God Loves Us All Greatly: Caring for Ourselves as We Care for Our Beloved Sick Pets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626160-9781684930913-god-man/"><u>God-Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628790-9780986330957-pain/"><u>Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210627730-9781398824270-the-occult-magic-witchcraft/"><u>The Occult, Magic & Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628704-9798985751451-trauma-inspired/"><u>Trauma-Inspired | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

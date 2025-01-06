@@ -1,7 +1,7 @@
 ---
 title: The Complete Idiot's Guide to Rumi Meditations | Free Book
-date: 2024-10-21T18:11:13.566Z
-updated: 2024-10-27T02:06:00.376Z
+date: 2025-01-02T17:03:33.096Z
+updated: 2025-01-06T16:47:20.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cfa3b00ac9e37cd18c1ae4867b72b5f300f7e5953086afd51a4ab05f07736ef.jpg
@@ -155,3 +155,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cfa3b00ac9e37cd18c1ae4867b72b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210291933-9781098019129-gods-truthful-truths/"><u>God's Truthful Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291917-9781098053406-how-long-the-night/"><u>How Long the Night | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291998-9781645699392-our-fathers-business/"><u>Our Father's Business | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291908-9781098003258-the-darkness-awaits/"><u>The Darkness Awaits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291829-9781644922835-with-a-humble-heart/"><u>With a Humble Heart | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

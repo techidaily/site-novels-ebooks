@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Mysterious Essenes | Free Book
-date: 2024-12-20T21:35:51.781Z
-updated: 2024-12-27T18:30:49.799Z
+date: 2024-12-31T16:24:00.765Z
+updated: 2025-01-06T17:01:41.143Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1682a8a7aa5bc6a00a5d4d4f134ff00a15.jpg
@@ -146,16 +146,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209842971-9781911134091-quareia-the-initiate/"><u>Quareia The Initiate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209843052-9781911134107-quareia-the-initiate/"><u>Quareia The Initiate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842972-9781911134084-quareia-the-initiate-book-eight/"><u>Quareia The Initiate Book Eight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842969-9781911134060-quareia-the-initiate-book-six/"><u>Quareia The Initiate Book Six | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209843008-9781945262012-spirit-says-be-inspired/"><u>Spirit Says ... Be Inspired | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209843020-9780997220766-the-neurophysiology-of-enlightenment/"><u>The Neurophysiology of Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209843000-9781942838678-the-woman-i-am-now/"><u>The Woman I Am Now! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210765079-9780646872971-2023-water-rabbit-year/"><u>2023 WATER RABBIT YEAR | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210765164-9781958921203-signs/"><u>Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210765076-9781950330546-the-complete-prophecies-of-nostradamus/"><u>The Complete Prophecies of Nostradamus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210764972-9786069344255-your-future-by-numerology/"><u>Your Future by Numerology | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

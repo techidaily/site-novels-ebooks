@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2024-12-22T19:27:06.414Z
-updated: 2024-12-27T23:20:19.771Z
+date: 2025-01-01T16:52:58.800Z
+updated: 2025-01-06T16:46:56.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,13 +158,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138568287-9781469761459-arcane-lore/"><u>Arcane Lore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568253-9781462021635-be-your-own-amazing-genie/"><u>Be Your Own Amazing Genie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568340-9781462019502-soul-sisters-come-on-to-my-house/"><u>Soul Sisters, Come on to My House | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568329-9781440199110-the-ghosts-of-belcourt-castle/"><u>The Ghosts of Belcourt Castle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398638-9781667413044-a-life-of-dreams/"><u>A Life of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398634-9781667412665-arquitectura-del-mas-alla-vida/"><u>Arquitectura Del Mas Alla Vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398708-9781667410463-escribir-para-sanar/"><u>Escribir para sanar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399013-9780995395268-messages-from-the-spirit-realm/"><u>Messages From The Spirit Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398747-9781667414201-mindfulness-consejos-practicos-para-entrenarse-en-mindfulness/"><u>Mindfulness: consejos prácticos para entrenarse en Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398673-9781667414195-minfulness-una-guia-practica-al-mindfulness-para-principiantes/"><u>Minfulness: Una Guía Práctica al Mindfulness para Principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399147-9789388760898-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399158-9789389716634-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

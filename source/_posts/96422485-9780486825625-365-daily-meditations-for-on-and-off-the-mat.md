@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-12-23T23:16:53.048Z
-updated: 2024-12-27T21:36:14.319Z
+date: 2024-12-31T16:00:16.236Z
+updated: 2025-01-06T17:04:48.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,14 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209667371-9781547576562-meditacion-atencion-plena-para-que-los-principiantes-aumenten-la-confianza-elimine-la-depresion-de-su-vida/"><u>Meditación: Atención Plena Para Que Los Principiantes Aumenten La Confianza (Elimine La Depresión De Su Vida) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667993-9781645670049-plant-magic-for-the-beginner-witch/"><u>Plant Magic for the Beginner Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667947-9781507211458-the-astrology-dictionary/"><u>The Astrology Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667644-9781632658166-the-benham-book-of-palmistry-revised/"><u>The Benham Book of Palmistry, Revised | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667766-9781493043811-the-big-book-of-illinois-ghost-stories/"><u>The Big Book of Illinois Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711808-9781454936718-a-little-bit-of-goddess/"><u>A Little Bit of Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711802-9781454936121-a-little-bit-of-numerology/"><u>A Little Bit of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711783-9781454933892-a-little-bit-of-pendulums/"><u>A Little Bit of Pendulums | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711791-9781454933694-a-little-bit-of-reiki/"><u>A Little Bit of Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711785-9781454933762-a-little-bit-of-shamanism/"><u>A Little Bit of Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711794-9781454934691-the-crystal-witch/"><u>The Crystal Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711787-9781454934547-the-power-of-crystal-healing/"><u>The Power of Crystal Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

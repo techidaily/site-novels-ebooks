@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-12-25T16:32:46.506Z
-updated: 2024-12-27T23:43:05.508Z
+date: 2024-12-31T16:02:00.695Z
+updated: 2025-01-06T16:34:23.099Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,18 +162,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209625059-9781250236623-chakras/"><u>Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209622550-9781473374270-clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209616476-9781616498047-find-your-light/"><u>Find Your Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209625071-9781250319319-infinite-potential/"><u>Infinite Potential | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209617649-9781439666302-michigans-haunted-lighthouses/"><u>Michigan's Haunted Lighthouses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209625028-9781510746770-mindfulness-for-surviving-lifes-challenges/"><u>Mindfulness for Surviving Life's Challenges | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209622957-9780762495726-revolutionary-witchcraft/"><u>Revolutionary Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209625088-9781250200464-the-power-of-heart/"><u>The Power of Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209616522-9781507211069-your-goddess-year/"><u>Your Goddess Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692923-9780008589332-aries-2024-your-personal-horoscope/"><u>Aries 2024: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692926-9780008589363-cancer-2024-your-personal-horoscope/"><u>Cancer 2024: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692928-9780008589356-gemini-2024-your-personal-horoscope/"><u>Gemini 2024: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692924-9780008589370-leo-2024-your-personal-horoscope/"><u>Leo 2024: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692929-9780008589394-libra-2024-your-personal-horoscope/"><u>Libra 2024: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692927-9780008589349-taurus-2024-your-personal-horoscope/"><u>Taurus 2024: Your Personal Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

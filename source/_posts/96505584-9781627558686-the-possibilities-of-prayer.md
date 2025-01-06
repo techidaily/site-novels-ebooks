@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2024-12-22T19:40:32.447Z
-updated: 2024-12-28T02:50:29.527Z
+date: 2025-01-03T16:00:24.646Z
+updated: 2025-01-06T16:17:27.893Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,16 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138590533-9781452542706-bound-by-destiny/"><u>Bound by Destiny | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138590691-9781452536279-conscious-mastery/"><u>Conscious Mastery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138590480-9781452539287-dial-love-divine-intelligence-almighty-love-light-omnipresent-vibrational-energy/"><u>Dial Love: Divine Intelligence Almighty Love, Light Omnipresent Vibrational Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138590599-9781452550930-inspired-by-reiki-energy/"><u>Inspired by Reiki Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138590522-9781452551388-the-great-spirit-says/"><u>The Great Spirit Says | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138590314-9781462031207-the-path/"><u>The Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138590357-9781452545738-want-your-dreams/"><u>Want Your Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210464462-9781646287840-ancient-wisdom-for-modern-needs/"><u>Ancient Wisdom for Modern Needs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210464677-9781639611171-blessings-stresses-and-lessons-from-the-bible/"><u>Blessings, Stresses, and Lessons from the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210463570-9780960075744-engaging-my-magic-within/"><u>Engaging My Magic Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210464657-9781098084202-healing/"><u>Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465687-9780593541081-how-to-take-care/"><u>How to Take Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210463602-9781638447689-purgatory/"><u>Purgatory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465101-9781639036257-quotes-that-will-inspire-and-encourage-you-in-your-journey/"><u>Quotes That Will Inspire and Encourage You In Your Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465717-9781401969141-the-healing-wisdom-of-dreams/"><u>The Healing Wisdom of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465730-9780593316580-the-ruin-of-all-witches/"><u>The Ruin of All Witches | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

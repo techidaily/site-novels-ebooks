@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of a Satanist | Free Book
-date: 2024-11-23T16:43:37.366Z
-updated: 2024-11-27T19:50:40.105Z
+date: 2025-01-01T16:14:31.301Z
+updated: 2025-01-06T16:05:40.947Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290f30e1c936b63c2de7854a4594e4b69411.jpg
@@ -160,16 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96292649-9781473676640-aquarius/"><u>Aquarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96292647-9781473676688-aries/"><u>Aries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96292651-9781473676893-capricorn/"><u>Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96292645-9781473676725-gemini/"><u>Gemini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96292648-9781473676664-pisces/"><u>Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96292646-9781473676701-taurus/"><u>Taurus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96292650-9781473676626-virgo/"><u>Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773258-9781685830212-a-journey-of-self-healing/"><u>A Journey of Self-Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773234-9781649691958-brilliant-minds-in-captivity/"><u>Brilliant Minds in Captivity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773276-9781685830168-grace-to-you/"><u>GRACE TO YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773223-9781649699299-married-but-single-wives-without-husbands/"><u>Married, But Single; Wives Without Husbands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773281-9781649695109-the-human-mind/"><u>The Human Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773250-9781649691040-the-path-to-freedom/"><u>THE PATH TO FREEDOM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773287-9781685833848-unpacking-my-shit/"><u>Unpacking My Shit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210773216-9781922381736-wholly-phool/"><u>Wholly Phool | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Reincarnation of Edgar Cayce? | Free Book
-date: 2024-10-25T23:06:44.770Z
-updated: 2024-10-26T21:12:42.697Z
+date: 2025-01-04T16:57:54.422Z
+updated: 2025-01-06T17:03:26.230Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/54ae141c159da46dc2d51bc41c239632a6bcd215a9918238e3917c0a6233a4f4.jpg
@@ -195,3 +195,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/54ae141c159da46dc2d51bc41c23963
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209951819-9781547846382-astrology-zone-the-year-ahead-2019/"><u>Astrology Zone The Year Ahead 2019 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209951895-9781634242967-sparky/"><u>SPARKY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209949789-9781441182975-tales-of-darkness/"><u>Tales of Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209949829-9781441186034-tales-of-lights-and-shadows/"><u>Tales of Lights and Shadows | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

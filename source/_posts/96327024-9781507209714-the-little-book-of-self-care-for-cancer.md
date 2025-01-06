@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Cancer | Free Book
-date: 2024-11-05T16:31:44.820Z
-updated: 2024-11-07T17:22:25.314Z
+date: 2025-01-02T16:37:12.368Z
+updated: 2025-01-06T16:03:12.442Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc77010266581c0d7b9341443fd3de9c5ed.jpg
@@ -168,9 +168,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209850928-9781945031014-how-to-live-with-a-psychic/"><u>How to Live with a Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850921-9780983696414-message-for-the-tribe-of-many-colors/"><u>Message for the Tribe of Many Colors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850935-9780997261059-sweat/"><u>Sweat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850936-9780648101710-weird/"><u>Weird | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845546-9798889269649-beautiful-women-a-view-from-the-heart/"><u>Beautiful Women: A View from the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845561-9781088143278-manifesting-your-dream-life/"><u>MANIFESTING YOUR DREAM LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845432-9798822915527-precious-gems/"><u>Precious Gems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845544-9781684931842-the-healing-light/"><u>The Healing Light | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Real History of the End of the World | Free Book
-date: 2024-10-19T21:52:18.898Z
-updated: 2024-10-27T00:24:05.827Z
+date: 2024-12-31T16:49:15.956Z
+updated: 2025-01-06T16:39:49.974Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a9ed1587a72f9cf27a6c44d50cb09027363d194c8aac5536d3fb095b80dde6e7.jpg
@@ -169,3 +169,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a9ed1587a72f9cf27a6c44d50cb0902
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209939372-9781982154684-contemporary-prayers-to-whatever-works/"><u>Contemporary Prayers to Whatever Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939413-9781982150273-finding-faeries/"><u>Finding Faeries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939323-9781646040926-healing-with-shungite/"><u>Healing with Shungite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209938930-9781946764652-moments-of-joy/"><u>Moments of Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939379-9781982154233-our-moment-of-choice/"><u>Our Moment of Choice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209940611-9781734426533-saying-yes-to-life/"><u>Saying Yes to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939416-9781982152208-seasonal-self-care-rituals/"><u>Seasonal Self-Care Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209940676-9788269149494-symbiosis/"><u>Symbiosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209940375-9780008406332-witch-please-empowerment-and-enlightenment-for-the-modern-mystic/"><u>Witch, Please: Empowerment and Enlightenment for the Modern Mystic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

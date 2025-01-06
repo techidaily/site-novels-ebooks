@@ -1,7 +1,7 @@
 ---
 title: Everything I've Ever Learned About Change | Free Book
-date: 2024-11-06T18:01:20.328Z
-updated: 2024-11-07T16:23:37.151Z
+date: 2025-01-01T16:59:21.586Z
+updated: 2025-01-06T16:27:46.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d98a6879544e81b2d42c45bbab9d16bc55ef12cb5b81ed64b007b1a35bf6c1c4.jpg
@@ -142,11 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d98a6879544e81b2d42c45bbab9d16b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209842868-9781629213675-map-of-desire/"><u>Map of Desire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842965-9781911134046-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842968-9781911134053-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842966-9781911134077-quareia-the-initiate/"><u>Quareia The Initiate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842971-9781911134091-quareia-the-initiate/"><u>Quareia The Initiate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209842969-9781911134060-quareia-the-initiate-book-six/"><u>Quareia The Initiate Book Six | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818880-9781685680190-jornada-para-a-autorrealizacao/"><u>Jornada para a Autorrealização | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818840-9781915889973-the-mind-detective/"><u>The Mind Detective | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818827-9780646862965-your-happily-ever-after/"><u>Your Happily Ever After | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818879-9780876129593-naputstviya-na-paramahansa-jogananda/"><u>Напътствия на Парамаханса Йогананда | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

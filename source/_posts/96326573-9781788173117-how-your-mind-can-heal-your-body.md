@@ -1,7 +1,7 @@
 ---
 title: How Your Mind Can Heal Your Body | Free Book
-date: 2024-11-04T16:04:06.662Z
-updated: 2024-11-07T16:46:00.060Z
+date: 2025-01-03T16:51:19.050Z
+updated: 2025-01-06T16:52:57.809Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae21f464db4b729cc585ccad327ca47566d7.jpg
@@ -210,12 +210,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209848938-9781680328721-chakras-for-beginners-restful-yoga-for-stressful-times-how-to-balance-chakras/"><u>Chakras For Beginners: Restful Yoga For Stressful Times - How To Balance Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209849118-9780995735118-labyrinth-a-w/"><u>Labyrinth A-Ω | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209849098-9789535945208-love-outside-the-box/"><u>Love Outside The Box | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209848896-9781635017007-meditation-techniques-for-beginners-the-daily-meditation-ritual-lifestyle-the-best-kept-secrets-about-meditation-techniques-meditation-exercises-meditation-tran/"><u>Meditation Techniques For Beginners: The Daily Meditation Ritual Lifestyle: The Best Kept Secrets about Meditation Techniques, Meditation Exercises, Meditation Transcendental & Meditation Motivation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209848866-9781634282697-secret-ways-of-how-letting-go-empowers-your-life-discover-the-seat-of-the-soul-live-longer-happy-mind-slim-healthy-body-start-your-longer-life-today-2-in-1-box-/"><u>Secret Ways Of How Letting GO Empowers Your Life: Discover The Seat Of The Soul & Live Longer! Happy Mind, Slim & Healthy Body. Start Your Longer Life Today! - 2 In 1 Box Set: 2 In 1 Box Set: Book 1: Daily Meditation Ritual + Book 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209848864-9781634282888-wherever-you-go-mindfulness-in-every-day-life-is-with-you-2-in-1-box-set/"><u>WHEREVER YOU GO! Mindfulness In Every Day LIFE Is With YOU! - 2 In 1 Box Set | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209848949-9781681270197-yoga-for-weight-loss-for-beginners-peace-bliss/"><u>Yoga For Weight Loss For Beginners - Peace & Bliss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210836604-9798987452455-a-lifetime-of-healing/"><u>A Lifetime of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210836658-9780645011302-becoming-gutsy-and-formidable/"><u>Becoming Gutsy and Formidable | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210836539-9798986988610-birth-time-rectification/"><u>Birth Time Rectification | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210838426-9781952692659-healing-our-way-home/"><u>Healing Our Way Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210835946-9783988263483-household-gods/"><u>Household Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210838062-9782019469443-le-kybalion-et-les-7-lois-cosmiques/"><u>Le Kybalion et les 7 lois cosmiques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210835737-9798987742907-rebels-of-kindness/"><u>Rebels Of Kindness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210838409-9781401965075-the-highest-level-of-enlightenment/"><u>The Highest Level of Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210836596-9781088117859-the-question-of-freemasonry/"><u>The Question of Freemasonry | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Casebook: Alien Implants | Free Book"
-date: 2024-10-25T03:06:12.180Z
-updated: 2024-10-27T05:32:03.006Z
+date: 2025-01-01T16:17:04.052Z
+updated: 2025-01-06T16:49:54.765Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/346d2774956400ae6c8ae6ae01f94679c809c34d5c1ec2c84ce561624276d88b.jpg
@@ -147,3 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/346d2774956400ae6c8ae6ae01f9467
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210193493-9781642501391-letters-from-a-better-me/"><u>Letters From A Better Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193512-9781609251932-morning-notes/"><u>Morning Notes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193532-9781642501896-mystical-crystals/"><u>Mystical Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193518-9781609258146-practice-random-acts-of-kindness/"><u>Practice Random Acts of Kindness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

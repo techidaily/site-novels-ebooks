@@ -1,7 +1,7 @@
 ---
 title: Out of Darkness into the Light | Free Book
-date: 2024-10-23T21:19:16.234Z
-updated: 2024-10-26T18:50:56.234Z
+date: 2025-01-05T16:57:30.344Z
+updated: 2025-01-06T16:44:06.170Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccb55f18a2426205e9ffece4097b7b532a48e8b999c71477468dfcceb80229e8.jpg
@@ -132,3 +132,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccb55f18a2426205e9ffece4097b7b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210167418-9781647010034-be-good-to-people-be-good-to-yourself/"><u>Be Good to People Be Good to Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167612-9781643506692-dreams-and-symbols/"><u>Dreams and Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167476-9781645847564-dwelling-in-possibility/"><u>Dwelling in Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167370-9781646280179-ideas-forever/"><u>Ideas Forever | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167538-9781684561308-in-the-midst-of-my-trials/"><u>In the Midst of My Trials | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167379-9781642147926-overstanding-understanding/"><u>Overstanding & Understanding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167271-9781645848011-spiritual-blooming/"><u>Spiritual Blooming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167073-9781684092260-the-mscp-principle/"><u>The MSCP Principle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166983-9781640821910-your-name-is-written-on-the-palm-of-my-hands/"><u>Your Name Is Written on the Palm of My Hands | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

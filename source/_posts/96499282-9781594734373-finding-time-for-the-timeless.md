@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2024-12-25T20:30:03.638Z
-updated: 2024-12-27T18:05:41.332Z
+date: 2025-01-03T17:04:27.860Z
+updated: 2025-01-06T16:07:30.906Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,13 +219,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621378-9781601639745-ghosts-of-war/"><u>Ghosts of War | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621381-9781601639608-lore-of-the-ghost/"><u>Lore of the Ghost | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621380-9781601639585-magickal-connections/"><u>Magickal Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621374-9781601634672-the-power-of-angels/"><u>The Power of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528990-9781955312394-arethas-food-for-the-mind/"><u>Aretha's Food for The Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528709-9798985753400-invocations/"><u>Invocations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529374-9781685171940-it-takes-two/"><u>It Takes Two | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528181-9781909141711-mindful-relationships/"><u>Mindful Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529087-9781736398296-science-subtle-energies-and-spirituality/"><u>Science, Subtle Energies, and Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529162-9798885830058-the-patient-is-wearing-lipstick/"><u>The Patient Is Wearing Lipstick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528516-9781529082128-wild-card/"><u>Wild Card | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529309-9780645073287-yama-niyama/"><u>Yama Niyama | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528150-9781912085941-yoga-and-resilience/"><u>Yoga and Resilience | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

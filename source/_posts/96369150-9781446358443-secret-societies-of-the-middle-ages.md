@@ -1,7 +1,7 @@
 ---
 title: Secret Societies of the Middle Ages | Free Book
-date: 2024-11-25T21:35:53.301Z
-updated: 2024-11-27T18:00:27.507Z
+date: 2025-01-02T17:04:37.053Z
+updated: 2025-01-06T16:28:14.044Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b775347a9552b96b09b72b89bf9a5e980fd2777.jpg
@@ -157,13 +157,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b77534
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96316908-9781401931148-along-the-path-to-enlightenment/"><u>Along the Path to Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316911-9781401932589-nothing-is-too-good-to-be-true/"><u>Nothing Is Too Good to Be True | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316897-9781401930219-soul-coaching/"><u>Soul Coaching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316904-9781401930875-what-if/"><u>What If? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803181-9798822912250-admit-it-youre-god/"><u>Admit It, You're God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803289-9783988312075-chakras-healing-for-beginners/"><u>CHAKRAS HEALING FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210805353-9781667452555-from-the-other-side-of-the-moon/"><u>From the other side of the moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210805317-9781667451602-il-gioco-dellincarnazione/"><u>Il gioco dell'incarnazione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803164-9798885057493-my-journey/"><u>My Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802992-9788794430043-the-attack-on-the-ferris-wheel/"><u>THE ATTACK ON THE FERRIS WHEEL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803027-9781957917290-the-heart-of-fear/"><u>The Heart of Fear | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

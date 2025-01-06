@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2024-12-21T01:09:55.397Z
-updated: 2024-12-27T18:19:48.170Z
+date: 2025-01-03T16:41:40.247Z
+updated: 2025-01-06T16:18:44.368Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,13 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138571146-9781440181580-awakening-of-the-soul/"><u>Awakening of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571204-9780595609918-creature-comforts-private-pen-pals/"><u>Creature Comforts: Private Pen Pals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571166-9781452531953-the-little-book-of-positive-actions/"><u>The Little Book of Positive Actions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571149-9780595805617-the-mechanism/"><u>The Mechanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410939-9781644115657-dreamtimes-and-thoughtforms/"><u>Dreamtimes and Thoughtforms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411002-9781638143680-love-and-surrender/"><u>LOVE AND SURRENDER | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410936-9781644115060-microdosing-with-amanita-muscaria/"><u>Microdosing with Amanita Muscaria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410937-9781644115008-proof-of-spiritual-phenomena/"><u>Proof of Spiritual Phenomena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410938-9781644115176-tom-sawyer-a-modern-day-messenger-from-god/"><u>Tom Sawyer: A Modern-Day Messenger from God | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

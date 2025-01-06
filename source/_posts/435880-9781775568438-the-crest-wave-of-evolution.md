@@ -1,7 +1,7 @@
 ---
 title: The Crest-Wave of Evolution | Free Book
-date: 2024-10-23T04:50:38.421Z
-updated: 2024-10-27T01:23:14.133Z
+date: 2025-01-05T16:03:40.718Z
+updated: 2025-01-06T16:24:27.433Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/39b3617dd9edc2bf066a989cd62f3c50bc75f0bb693610ff18ab139c532d46b5.jpg
@@ -174,3 +174,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/39b3617dd9edc2bf066a989cd62f3c5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210132053-9781787135765-cosmic-power/"><u>Cosmic Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132689-9789464072228-dear-heaven/"><u>Dear Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132702-9781953791115-i-sing-my-psalm/"><u>I Sing My Psalm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210131800-9780795316944-mediums-rare/"><u>Mediums Rare | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132461-9781952871153-transformation/"><u>Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132697-9788792633644-what-is-not/"><u>What is Not | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

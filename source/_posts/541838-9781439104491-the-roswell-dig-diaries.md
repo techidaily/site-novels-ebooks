@@ -1,7 +1,7 @@
 ---
 title: The Roswell Dig Diaries | Free Book
-date: 2024-10-19T17:15:25.229Z
-updated: 2024-10-26T22:35:47.174Z
+date: 2024-12-31T16:24:01.248Z
+updated: 2025-01-06T17:03:11.952Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/64b8a6e7734f5f5e090a0980c36f4e7b88e8acea57d0a1e3308cfee88e26297b.jpg
@@ -167,3 +167,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/64b8a6e7734f5f5e090a0980c36f4e7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209983774-9781644110522-astrology-for-mystics/"><u>Astrology for Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983775-9781644111192-sacred-geometry-language-of-the-angels/"><u>Sacred Geometry: Language of the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983779-9781644111291-secrets-of-the-druids-2nd-ed/"><u>Secrets of the Druids (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983778-9781591433750-shamanic-mysteries-of-peru/"><u>Shamanic Mysteries of Peru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983484-9781734815504-standing/"><u>STANDING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983776-9781644110447-the-lost-pillars-of-enoch/"><u>The Lost Pillars of Enoch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983460-9781420967203-thought-vibration/"><u>Thought Vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983002-9781071532669-word-rijk-bij-het-binnenwandelen-in-de-wereld-van-het-gouden-tijdperk-met-meditatiecommentaar/"><u>Word rijk bij het binnenwandelen in de wereld van het gouden tijdperk (met meditatiecommentaar) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983476-9781420967265-your-invisible-power/"><u>Your Invisible Power | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

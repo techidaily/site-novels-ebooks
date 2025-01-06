@@ -1,7 +1,7 @@
 ---
 title: Essential Psychic Healing | Free Book
-date: 2024-10-25T23:51:42.582Z
-updated: 2024-10-26T19:14:12.957Z
+date: 2025-01-04T16:08:47.475Z
+updated: 2025-01-06T16:35:22.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61185660969fa49f9c7e60f05e23fe8ece7c7e674148834acd441c4afb4081d7.jpg
@@ -171,3 +171,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61185660969fa49f9c7e60f05e23fe8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209847347-9780646967769-beyond-ascension-2012-2nd-ed/"><u>Beyond Ascension 2012 (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847337-9780994031730-how-will-you-be-remembered/"><u>How Will You Be Remembered? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847155-9781945894077-kundalini-yoga/"><u>Kundalini yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847651-9781628840315-spiritual-awakening/"><u>Spiritual Awakening | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

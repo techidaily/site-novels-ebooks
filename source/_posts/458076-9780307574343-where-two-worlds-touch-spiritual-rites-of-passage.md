@@ -1,7 +1,7 @@
 ---
 title: "Where Two Worlds Touch: Spiritual Rites of Passage | Free Book"
-date: 2024-10-21T19:19:07.581Z
-updated: 2024-10-26T23:38:54.829Z
+date: 2025-01-01T16:36:02.467Z
+updated: 2025-01-06T16:50:20.567Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e2d1c9ffdf729927e15aa94e31770c03737bc0f631edd34914f1d4279d31456f.jpg
@@ -155,3 +155,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e2d1c9ffdf729927e15aa94e31770c0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210103370-9781250790682-chakras-food-and-you/"><u>Chakras, Food, and You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103342-9781250769541-manifesting/"><u>Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103153-9781071546949-meditation-pour-les-debutants/"><u>Méditation pour les Débutants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103358-9781250794918-the-edinburgh-lectures-on-mental-science-and-other-essential-works/"><u>The Edinburgh Lectures on Mental Science: And Other Essential Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103345-9781250212634-the-kingdom/"><u>The Kingdom | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

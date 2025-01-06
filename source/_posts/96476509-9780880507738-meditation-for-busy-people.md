@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2024-12-27T00:26:03.535Z
-updated: 2024-12-27T23:40:07.275Z
+date: 2025-01-01T16:36:14.851Z
+updated: 2025-01-06T16:30:05.849Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -178,13 +178,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209528065-9780876048894-edgar-cayce-on-the-reincarnation-of-famous-people/"><u>Edgar Cayce on the Reincarnation of Famous People | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209528164-9780753733561-tiny-healer-meditation/"><u>Tiny Healer: Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209528157-9780753733585-tiny-healer-mindfulness/"><u>Tiny Healer: Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209528066-9780876049075-twelve-positive-habits-of-spiritually-centered-people/"><u>Twelve Positive Habits of Spiritually Centered People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664224-9782889700844-le-cahier-dactivites-des-gardiennes-spirituelles/"><u>Le cahier d'activités des gardiennes spirituelles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664005-9781667435374-megan-fait-face-a-la-derision/"><u>Megan fait face à la dérision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664046-9781667436203-megan-va-allo-zoo/"><u>Megan Va allo Zoo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664235-9782889700509-ouvrir-les-portes-de-ses-vies-anterieures/"><u>Ouvrir les portes de ses vies antérieures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664139-9781667438931-anarrwsh-kai-prolhpsh-covid-19-kai-alles-astheneies/"><u>Ανάρρωση και πρόληψη: Covid-19 και άλλες ασθένειες | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664066-9781667439341-biblos-gia-kathhmerino-dialogismo/"><u>Βίβλος για καθημερινό διαλογισμό | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

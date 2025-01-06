@@ -1,7 +1,7 @@
 ---
 title: The New Temple and the Second Coming | Free Book
-date: 2024-10-23T23:47:07.727Z
-updated: 2024-10-27T03:21:03.748Z
+date: 2025-01-05T16:41:40.301Z
+updated: 2025-01-06T16:29:14.691Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae3b4a9c03384d39777b99098162a90353cf125b75e14f99e321d5386ea38ac6.jpg
@@ -180,3 +180,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae3b4a9c03384d39777b99098162a90
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210229149-9781952874437-exponiendo-practicas-espiritualistas-curativas/"><u>Exponiendo Prácticas Espiritualistas Curativas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228848-9780813174532-ghosts-of-old-louisville/"><u>Ghosts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228613-9780813174501-haunts-of-old-louisville/"><u>Haunts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228574-9780813174471-phantoms-of-old-louisville/"><u>Phantoms of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229382-9781732823884-rise/"><u>RISE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229431-9781951943325-spirits-speak/"><u>Spirits Speak | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Your Invisible Power and How to Use It | Free Book
-date: 2024-12-21T21:29:22.999Z
-updated: 2024-12-28T00:45:26.101Z
+date: 2024-12-31T16:17:26.901Z
+updated: 2025-01-06T16:07:46.369Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035b03b1cc767fa3501b8a4d68e2e51d3180.jpg
@@ -140,13 +140,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138567895-9780595895175-a-practical-guide-for-the-spiritist/"><u>A Practical Guide for the Spiritist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567794-9780595735631-as-easy-as-breathing/"><u>As Easy as Breathing: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567799-9781462022045-e-mails-to-my-grandchildren/"><u>E-Mails to My Grandchildren | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567773-9780595780310-loving-a-woman-well/"><u>Loving a Woman Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398457-9781667410401-il-viaggio-di-megan/"><u>Il viaggio di Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398477-9781667408910-mindfulness-la-atencion-plena-se-hace-mas-presente-a-traves-de-la-meditacion/"><u>Mindfulness: La atención plena se hace más presente a través de la meditación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398476-9781667414263-mindfulness-meditacion-guiada-de-mindfulness-para-principiantes/"><u>Mindfulness: meditación guiada de Mindfulness para principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398449-9781667411996-vozes-do-alem/"><u>Vozes do além | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: We Live Too Short and Die Too Long | Free Book
-date: 2024-10-22T20:24:52.910Z
-updated: 2024-10-26T22:47:47.612Z
+date: 2025-01-01T16:20:32.314Z
+updated: 2025-01-06T16:53:07.649Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6223e046894158e4a4238380bc7eb8b274fc16d7961977a0cce663f6333edec3.jpg
@@ -151,3 +151,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6223e046894158e4a4238380bc7eb8b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209974005-9780892546794-astrologys-higher-octaves/"><u>Astrology's Higher Octaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974004-9781633411968-entering-hekates-garden/"><u>Entering Hekate's Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974000-9781633412101-mountain-conjure-and-southern-root-work/"><u>Mountain Conjure and Southern Root Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974003-9781633411937-personal-magic/"><u>Personal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974007-9781633412057-psychic-self-defense/"><u>Psychic Self-Defense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209973997-9781633411944-sex-witch/"><u>Sex Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974002-9781633412033-taking-up-the-runes/"><u>Taking Up the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974006-9781633411982-the-way-of-the-water-priestess/"><u>The Way of the Water Priestess | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

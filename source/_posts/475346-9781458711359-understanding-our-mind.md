@@ -1,7 +1,7 @@
 ---
 title: Understanding Our Mind | Free Book
-date: 2024-10-21T03:56:43.846Z
-updated: 2024-10-27T01:22:50.778Z
+date: 2025-01-01T16:38:10.101Z
+updated: 2025-01-06T16:32:10.178Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ca583141811290d62e7fc857df17fc8ab575eb0cd6fe91506c563b0970bd0731.jpg
@@ -140,3 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ca583141811290d62e7fc857df17fc8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210090032-9781952982064-absolutely-perfect/"><u>Absolutely Perfect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210090029-9780578714110-beyond-mind-the-milela-theory-chetana-yoga-the-next-step-in-human-evolution-2nd-ed/"><u>BEYOND MIND--THE MILELA THEORY, CHETANA YOGA-The next step in Human Evolution (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091059-9781515445449-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210089909-9781528769570-the-tarot-of-the-bohemians-the-most-ancient-book-in-the-world-for-the-use-of-initiates/"><u>The Tarot of the Bohemians - The Most Ancient Book in the World for the Use of Initiates | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

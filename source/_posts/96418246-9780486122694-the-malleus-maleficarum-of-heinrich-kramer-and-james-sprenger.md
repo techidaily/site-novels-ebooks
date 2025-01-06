@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2024-12-20T23:50:59.717Z
-updated: 2024-12-27T21:39:37.328Z
+date: 2025-01-03T17:02:23.244Z
+updated: 2025-01-06T16:38:45.996Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,16 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209653873-9780857013415-chinese-shamanic-tiger-qigong/"><u>Chinese Shamanic Tiger Qigong | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652300-9781912807086-earth-divination-earth-magic/"><u>Earth Divination, Earth Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652345-9781493040841-haunted-ohio-2nd-ed/"><u>Haunted Ohio (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209653739-9781722522315-magic-of-faith/"><u>Magic of Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652338-9781493040780-spooky-california-2nd-ed/"><u>Spooky California (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209652346-9781493040803-spooky-new-york-tales-of-hauntings-strange-happenings-and-other-local-lore-2nd-ed/"><u>Spooky New York: Tales Of Hauntings, Strange Happenings, And Other Local Lore (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209653878-9781787750449-taiji-as-moving-meditation/"><u>Taiji As Moving Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708538-9781915393791-happy-birthday-love-elizabeth/"><u>Happy Birthday-Love, Elizabeth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708548-9781915393814-happy-birthday-love-oscar/"><u>Happy Birthday-Love, Oscar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708604-9780349433264-the-little-book-of-love-magic/"><u>The Little Book of Love Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210709921-9780645602814-the-meditation-activists-travel-guide/"><u>The Meditation Activist's Travel Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210709974-9780876127551-the-science-of-religion/"><u>The Science of Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210709837-9780834845008-we-heal-together/"><u>We Heal Together | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

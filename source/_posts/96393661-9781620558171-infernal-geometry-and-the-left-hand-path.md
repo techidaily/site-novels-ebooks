@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2024-12-23T01:58:23.466Z
-updated: 2024-12-27T23:21:17.263Z
+date: 2025-01-05T16:54:22.302Z
+updated: 2025-01-06T17:05:06.282Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,14 +203,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209699318-9781547583980-ansiedade-liberte-se-da-ansiedade-e-da-depressao/"><u>Ansiedade : Liberte-se Da Ansiedade E Da Depressão | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699287-9781634242523-black-jack/"><u>Black Jack | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699340-9781547584598-meditacao-como-meditar-guia-para-iniciantes-para-aumentar-a-energia-live-without-stress/"><u>Meditação : Como Meditar Guia Para Iniciantes Para Aumentar A Energia (Live Without Stress) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699338-9781547586714-meditacao-como-alcancar-a-paz-interior-e-encontrar-a-felicidade-real/"><u>Meditação: Como Alcançar A Paz Interior E Encontrar A Felicidade Real | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209699329-9781547584949-meditacao-guia-de-iniciantes-para-alcancar-o-estado-zen-e-se-livrar-do-stress/"><u>Meditação: Guia De Iniciantes Para Alcançar O Estado Zen E Se Livrar Do Stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210730939-9781958518373-carry-on/"><u>Carry On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210731122-9798987435809-elements-of-my-soul/"><u>Elements of My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210730903-9781990867101-losing-you-finding-me/"><u>Losing You, Finding Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210730630-9781952692611-peace-is-this-moment/"><u>Peace Is This Moment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210730623-9781401971489-radical-tarot/"><u>Radical Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210729833-9781958434253-the-war-on-health/"><u>The War on Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210730313-9781455613687-voodoo-fire-in-haiti/"><u>Voodoo Fire In Haiti | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

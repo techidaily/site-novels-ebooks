@@ -1,7 +1,7 @@
 ---
 title: The World's Most Mysterious Murders | Free Book
-date: 2024-10-24T03:46:12.793Z
-updated: 2024-10-27T01:03:23.848Z
+date: 2025-01-05T16:55:10.619Z
+updated: 2025-01-06T17:00:20.189Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e4bd7097c99da53a3efc2b7912ec822bbd2399607c45cbcc083636e139afcde.jpg
@@ -166,3 +166,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e4bd7097c99da53a3efc2b7912ec82
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209863081-9780990536154-earth-etudes-for-elul/"><u>Earth Etudes for Elul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863264-9781935214496-empath-empowerment-in-30-days/"><u>Empath Empowerment in 30 Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863178-9781999731939-love-sex-nakedness-and-the-divine/"><u>Love, Sex, Nakedness and the Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863095-9780995699922-reversing-the-race-to-global-destruction/"><u>Reversing the Race to Global Destruction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862880-9781789264661-the-path-leads-here/"><u>The Path Leads Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863028-9780692164259-when-life-hits-the-fan/"><u>When Life Hits the Fan | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

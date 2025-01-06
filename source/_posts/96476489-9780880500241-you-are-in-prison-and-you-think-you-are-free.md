@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-12-27T03:12:14.388Z
-updated: 2024-12-28T02:35:12.796Z
+date: 2024-12-31T16:45:35.833Z
+updated: 2025-01-06T16:12:21.788Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,13 +170,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2085846-9781493015788-haunted-hollywood-2nd-ed/"><u>Haunted Hollywood (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2085847-9781493015801-haunted-philadelphia/"><u>Haunted Philadelphia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2083636-9781614291718-living-mindfully/"><u>Living Mindfully | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2084287-9781433688881-the-battle-plan-for-prayer/"><u>The Battle Plan for Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656150-9789895377336-atlantis-rising/"><u>ATLANTIS RISING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656153-9798985826937-guardiana-de-la-sabiduria/"><u>Guardiana de la Sabiduría | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656011-9781578598083-nightmares/"><u>Nightmares | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655965-9781454946489-shadow-work/"><u>Shadow Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656115-9780578399461-transcending-form-ascend-to-the-stars/"><u>Transcending Form: Ascend to the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656029-9781454941071-wicca-nature-magic/"><u>Wicca Nature Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

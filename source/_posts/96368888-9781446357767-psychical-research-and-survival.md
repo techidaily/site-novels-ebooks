@@ -1,7 +1,7 @@
 ---
 title: Psychical Research and Survival | Free Book
-date: 2024-11-24T18:26:37.071Z
-updated: 2024-11-27T18:38:23.285Z
+date: 2025-01-02T16:19:48.326Z
+updated: 2025-01-06T16:20:07.232Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e1773637d63b2cf046deae37eb848ccca9c1991.jpg
@@ -146,15 +146,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e17736
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96311976-9788472459526-antologia/"><u>Antología | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96311895-9781616406370-astrology-and-your-past-lives/"><u>Astrology and Your Past Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96311891-9781616409692-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96311984-9788499883274-el-fin-del-materialismo/"><u>El fin del materialismo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96311905-9781945934384-how-to-get-what-you-want/"><u>How to Get What You Want | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96311965-9780895566140-the-golden-flower/"><u>The Golden Flower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210774011-9781959811053-claim-your-light-unlock-your-capacity-to-become-a-more-vibrant-and-authentic-person/"><u>Claim Your Light: : Unlock Your Capacity to Become a More Vibrant and Authentic Person | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210774072-9780834845046-good-fengshui/"><u>Good Fengshui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210775788-9798889130437-mindfulness-unlock-the-power-of-presence-and-achieve-inner-peace-with-the-ultimate-guide-to-mindfulness/"><u>Mindfulness: Unlock the Power of Presence and Achieve Inner Peace with the Ultimate Guide to Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210774009-9798889130413-well-being-unlock-your-inner-potential-and-achieve-optimal-well-being/"><u>Well-being: Unlock Your Inner Potential and Achieve Optimal Well-being | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

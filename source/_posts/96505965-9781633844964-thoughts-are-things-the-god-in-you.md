@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-12-23T03:11:57.752Z
-updated: 2024-12-27T18:45:17.010Z
+date: 2024-12-30T16:45:31.468Z
+updated: 2025-01-06T16:10:24.241Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,18 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138566230-9781401922634-adventures-of-a-psychic/"><u>Adventures of a Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566229-9781401932114-an-autobiography-of-george-washington/"><u>An Autobiography of George Washington | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566228-9781401922603-astrology-through-a-phychics-eyes/"><u>Astrology Through a Phychic's Eyes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566237-9781401946807-conversations-with-history/"><u>Conversations with History | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138565813-9780880500937-falling-in-love-with-darkness/"><u>Falling in Love With Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138560203-9781939681874-order-of-the-sacred-earth/"><u>Order of the Sacred Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138559107-9781789502770-poltergeists/"><u>Poltergeists | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138561271-9780281078059-see-love-be/"><u>See, Love, Be | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138564923-9780880504553-the-psychology-of-the-esoteric-2nd-ed/"><u>The Psychology of the Esoteric (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393736-9780834844148-body-astrology/"><u>Body Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394851-9780998560366-comi/"><u>COMI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394833-9781736892213-ezekiels-awakening-into-light/"><u>Ezekiel's Awakening Into Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395508-9780811870740-fortune-telling-birthday-book/"><u>Fortune-Telling Birthday Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210395503-9780811870726-fortune-telling-book-of-dreams/"><u>Fortune-Telling Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393724-9780834844216-pause-rest-be/"><u>Pause, Rest, Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394790-9781087989204-pray-what-you-preach/"><u>Pray What You Preach: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394676-9781645314363-swipe/"><u>Swipe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

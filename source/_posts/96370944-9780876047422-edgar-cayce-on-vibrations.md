@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on Vibrations | Free Book
-date: 2024-12-20T19:12:19.936Z
-updated: 2024-12-27T17:19:22.714Z
+date: 2024-12-30T16:25:47.694Z
+updated: 2025-01-06T16:57:11.007Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc5535059efc28d07ed5501f222c0f4085ec0eb6.jpg
@@ -134,16 +134,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc55350
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209825624-9781529315981-daily-calm/"><u>Daily Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209826509-9780008366360-leo-2021-your-personal-horoscope/"><u>Leo 2021: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209824473-9781644618127-rituals-of-white-magic/"><u>Rituals of white magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209826507-9780008366339-taurus-2021-your-personal-horoscope/"><u>Taurus 2021: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209826143-9781507213551-the-green-witchs-grimoire/"><u>The Green Witch's Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209825373-9781797200941-the-rituals/"><u>The Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209826508-9780008366377-virgo-2021-your-personal-horoscope/"><u>Virgo 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761782-9781683647638-how-to-be-loving/"><u>How to Be Loving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761786-9781683648628-opening-to-darkness/"><u>Opening to Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761781-9781622034680-tending-the-heart-fire/"><u>Tending the Heart Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761790-9781649631381-the-three-conditions/"><u>The Three Conditions | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

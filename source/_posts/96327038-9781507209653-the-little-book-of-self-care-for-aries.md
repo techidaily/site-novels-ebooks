@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Aries | Free Book
-date: 2024-11-05T17:27:54.459Z
-updated: 2024-11-07T18:10:46.113Z
+date: 2024-12-31T16:54:02.248Z
+updated: 2025-01-06T16:03:18.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c673df5f0e24e4004b6764826ed31b1d645.jpg
@@ -178,11 +178,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209853360-9781945604645-claim-your-healing/"><u>Claim Your Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853655-9780692938942-gotta-kidney/"><u>Gotta Kidney?! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853597-9788792252227-integral-meditation/"><u>Integral Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853388-9780648089315-the-4-pillars-of-life/"><u>The 4 Pillars of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853454-9781999738754-the-path-to-happy/"><u>The path to HAPPY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853466-9780648147602-wake-up/"><u>Wake Up! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847311-9781960752758-at-the-feet-of-the-master/"><u>At the Feet of the Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847281-9781841815527-find-your-power-crystals/"><u>Find Your Power: Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847278-9781841815565-find-your-power-mindfulness/"><u>Find Your Power: Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847406-9798889452393-heaven-knows-why/"><u>HEAVEN KNOWS WHY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847421-9781685681067-vive-sin-miedo/"><u>Vive sin miedo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847324-9798988315711-who-are-you-exploration-of-your-souls-journeys/"><u>Who Are You ? Exploration of Your Soul's Journeys | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Christmas Conversation Piece | Free Book
-date: 2024-10-25T16:05:52.419Z
-updated: 2024-10-27T00:27:16.984Z
+date: 2025-01-05T16:51:42.205Z
+updated: 2025-01-06T16:44:38.634Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f322877e0e85c2c58dd3acda58f7cc20af04a9f598ef2fd4f7c8adb77e2aadbc.jpg
@@ -160,3 +160,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f322877e0e85c2c58dd3acda58f7cc2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210297891-9781645593300-a-quote-of-evidence/"><u>A Quote of Evidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297895-9781636300160-how-to-have-the-favor-of-god/"><u>How to Have the Favor of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297364-9781644586051-she-wasnt-just-a-kitty/"><u>She Wasn't Just A Kitty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297715-9781644684733-the-replacement-theory-the-power-of-pain-and-prayer/"><u>The Replacement Theory: The Power of Pain and Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298197-9781644680636-three-simple-words/"><u>Three Simple Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298061-9781644680902-who-am-i/"><u>Who Am I? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297535-9781990346033-eshyo-odin-spravochnik-ce-5/"><u>ЕЩЁ ОДИН СПРАВОЧНИК CE-5 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
