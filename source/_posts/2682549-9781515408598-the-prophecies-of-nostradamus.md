@@ -1,7 +1,7 @@
 ---
 title: The Prophecies of Nostradamus | Free Book
-date: 2024-10-20T18:29:17.866Z
-updated: 2024-10-26T17:19:31.581Z
+date: 2025-01-06T03:35:09.824Z
+updated: 2025-01-13T05:04:45.729Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/90d5251a644948aefbd06004e502c1715b9048a228a1eac59e47a4eeb4ff28d9.jpg
@@ -138,3 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/90d5251a644948aefbd06004e502c17
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210926308-9781903353448-dialogues/"><u>Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926311-9781903353561-soul-symbol-and-imagination/"><u>Soul, Symbol and Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926309-9781903353363-the-family-legacy/"><u>The Family Legacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926330-9781903353400-vocational-astrology/"><u>Vocational Astrology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

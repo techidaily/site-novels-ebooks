@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Celtic Witchcraft | Free Book
-date: 2024-10-26T04:36:41.122Z
-updated: 2024-10-27T02:45:04.772Z
+date: 2025-01-05T21:59:43.943Z
+updated: 2025-01-12T16:59:13.889Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f1cb621c0d4c8ea701491a83f84c6498a3eb55be71dca2f50f8a9f79c75eaca.jpg
@@ -131,3 +131,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f1cb621c0d4c8ea701491a83f84c64
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211256860-9798890613424-do-you-know-who-you-really-are/"><u>Do You Know Who You Really Are? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211256560--everyday-awakening/"><u>Everyday Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211257369-9782017229599-human-design/"><u>Human design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211257371-9782017289678-le-livre-des-morts-tibetain/"><u>Le livre des morts tibétain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211257236-9781528997294-manuals-of-life/"><u>Manuals of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211256054--mindfulness-in-reading/"><u>Mindfulness in Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211256126-9798869228000-vedic-hymns/"><u>Vedic Hymns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211257227-9789948764816-rsal-ln-tsl/"><u>رسائل لن تصل | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

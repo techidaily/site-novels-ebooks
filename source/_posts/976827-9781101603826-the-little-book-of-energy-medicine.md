@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2025-01-04T16:14:45.025Z
-updated: 2025-01-06T17:00:27.290Z
+date: 2025-01-06T17:16:04.534Z
+updated: 2025-01-12T21:42:27.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,16 +192,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210360018-9781636768915-agents-of-evolution/"><u>Agents of Evolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210359776-9781637303405-cracking-the-healers-code/"><u>Cracking the Healer's Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360023-9781640869721-en-torno-a-la-interaccion-con-los-espiritus/"><u>En torno a la interacción con los espíritus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360096-9781948011617-feng-shui-for-real-estate/"><u>Feng Shui for Real Estate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360061-9781647538880-heart-of-wisdom-new-edition/"><u>Heart Of Wisdom - New Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360037-9780988233690-maluhia-the-happy-city/"><u>Maluhia, The Happy City | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360085-9781737462248-where-compassion-begins/"><u>Where Compassion Begins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211379929-9780061853272-eternal-echoes/"><u>Eternal Echoes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211380825-9798822950962-fulfilled/"><u>Fulfilled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211380732--love-and-numbers/"><u>Love and Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211380330-9783892016700-mein-leben-das-ich-selbst-gewahlt/"><u>Mein Leben, das ich selbst gewählt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211378155-9780062434951-the-power-of-mercury/"><u>The Power of Mercury | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211380174--your-body-already-knows/"><u>Your Body Already Knows | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

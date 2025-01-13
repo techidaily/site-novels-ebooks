@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2025-01-01T16:08:31.054Z
-updated: 2025-01-06T16:27:45.413Z
+date: 2025-01-05T19:02:07.839Z
+updated: 2025-01-13T06:17:57.479Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,15 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210382029-9781774816257-abraham-lincoln/"><u>Abraham Lincoln | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210382002-9781774816004-autobiography-of-a-yogi/"><u>Autobiography of a Yogi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210381512-9781087998190-beneath-the-surface/"><u>Beneath The Surface | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210381448-9780760370964-dark-goddess-magick/"><u>Dark Goddess Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210381484-9781945169632-emotional-wholeness/"><u>Emotional Wholeness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210382040-9781736679340-wake-up-awakening-through-reflection/"><u>Wake Up! Awakening Through Reflection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211391883-9782017289821-heritage-emotionnel/"><u>Héritage Emotionnel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392600-9798330254378-insights/"><u>Insights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211391871-9782385640675-le-mini-guide-ultime-du-magnetisme/"><u>Le Mini-guide ultime du magnétisme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211391870-9782889702794-pratiquer-la-magie-verte/"><u>Pratiquer la magie verte | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392539-9781916529182-sensual-soul-shine/"><u>Sensual Soul Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392447-9798822947177-the-alien-gods-10-commandments/"><u>The Alien Gods: 10 Commandments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392552-9798869378422-the-future-of-man/"><u>The Future of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211392011-9781782744542-witches-spells-magic/"><u>Witches, Spells & Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

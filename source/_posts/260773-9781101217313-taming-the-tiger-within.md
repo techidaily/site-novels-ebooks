@@ -1,7 +1,7 @@
 ---
 title: Taming the Tiger Within | Free Book
-date: 2024-10-23T05:44:03.416Z
-updated: 2024-10-27T02:28:11.213Z
+date: 2025-01-07T23:55:05.108Z
+updated: 2025-01-13T04:38:28.513Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce53691af74b8a61b0bb5bb6e463ef7e7a0571bb52b66ecec0a6b137a2d354df.jpg
@@ -172,3 +172,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce53691af74b8a61b0bb5bb6e463ef7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211141802-9781644117439-encounters-with-mermaids-2nd-ed/"><u>Encounters with Mermaids (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141753-9781591435211-rediscovering-turtle-island/"><u>Rediscovering Turtle Island | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141752--the-geoengineered-transhuman-2nd-ed/"><u>The Geoengineered Transhuman (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141751-9781591434917-the-realized-light-of-the-twelve-dimensions/"><u>The Realized Light of the Twelve Dimensions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141754-9781591435259-the-secret-life-of-mother-mary/"><u>The Secret Life of Mother Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141750-9781591434894-the-ufo-paradox/"><u>The UFO Paradox | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

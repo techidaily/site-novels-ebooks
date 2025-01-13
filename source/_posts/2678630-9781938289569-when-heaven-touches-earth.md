@@ -1,7 +1,7 @@
 ---
 title: When Heaven Touches Earth | Free Book
-date: 2024-10-21T02:29:59.860Z
-updated: 2024-10-26T20:14:48.958Z
+date: 2025-01-08T02:53:27.090Z
+updated: 2025-01-12T19:29:27.119Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7be40b8b0dc36fd422ae9993be08e9a3a5c1e570b221a4538bb15fbe723f5256.jpg
@@ -201,3 +201,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7be40b8b0dc36fd422ae9993be08e9a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210895328-9781958921302-akasha/"><u>Akasha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210895244-9781625531131-common-mystics-present-ghosts-on-the-road-vol-1-murders-mysterious-deaths/"><u>Common Mystics Present Ghosts on the Road Vol. 1 Murders & Mysterious Deaths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210895308-9798987160619-confidently-mindful/"><u>Confidently Mindful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210896559-9781649631473-the-art-of-you/"><u>The Art of You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210896562-9781649632494-the-inner-tarot/"><u>The Inner Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210895387-9781685269913-what-is-the-carat-of-your-diamond/"><u>What is the Carat of Your Diamond? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210895551-9781515446217-you/"><u>You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210895300-9781960466099-soobsheniya-iz-misticheskih-kart/"><u>Сообщения из мистических карт | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

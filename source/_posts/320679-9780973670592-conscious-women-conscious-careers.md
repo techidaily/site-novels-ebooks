@@ -1,7 +1,7 @@
 ---
 title: Conscious Women - Conscious Careers | Free Book
-date: 2024-10-21T01:02:46.393Z
-updated: 2024-10-27T05:13:12.559Z
+date: 2025-01-07T00:55:45.366Z
+updated: 2025-01-12T16:38:17.343Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a58bfaa37355ce4e8202e834e0d9eaa84a481a3a55f2aaa64d743ab1039551.jpg
@@ -145,3 +145,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a58bfaa37355ce4e8202e834e0d9e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210850025-9781446359211-jungian-spirituality/"><u>Jungian Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850553-9798886859300-the-arrow-of-a-second-chance/"><u>The Arrow of a Second Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850094-9781504085694-the-sorcerers-handbook/"><u>The Sorcerer's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850963-9781398831957-the-wiccan-guide-to-self-care/"><u>The Wiccan Guide to Self-care | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

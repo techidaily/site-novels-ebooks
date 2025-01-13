@@ -1,7 +1,7 @@
 ---
 title: Japanese Secrets to Beautiful Skin | Free Book
-date: 2025-01-04T16:14:19.976Z
-updated: 2025-01-06T16:14:33.787Z
+date: 2025-01-07T04:54:41.864Z
+updated: 2025-01-13T06:25:00.410Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a2d516e87dc805d32dedd408649c5fc567d1c8dbf6ef063cd58958b8b5212655.jpg
@@ -149,15 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a2d516e87dc805d32dedd408649c5fc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210355469-9781774816141-echoes-from-the-orient/"><u>Echoes from the Orient | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355573-9781908421555-faces-of-the-living-dead/"><u>Faces of the Living Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355344-9781462923168-feng-shui-before-after/"><u>Feng Shui Before & After | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355639-9781736959442-letters-to-heaven-and-back/"><u>Letters to Heaven and Back | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355649-9781999923280-mirrors-of-the-mind-metaphoric-narratives-in-healing/"><u>Mirrors of the Mind - Metaphoric Narratives in Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355638-9780645132212-our-benevolent-cosmos/"><u>Our Benevolent Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373526-9798990783232-liberandote-de-libro-de-ejercicio/"><u>Liberándote de... libro de ejercicio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373465-9780648510635-taotuning/"><u>TaoTuning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373445-9781646494217-the-lightness-of-being/"><u>The Lightness of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373519-9798990195226-yoga-sutras-of-patanjali-part-one-pada-one-sutras-11-129/"><u>Yoga Sutras of Patanjali Part One, Pada One Sutras 1.1 - 1.29 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Bhagavad Gita for Modern Times | Free Book
-date: 2024-10-24T03:18:37.121Z
-updated: 2024-10-26T20:53:26.499Z
+date: 2025-01-07T04:08:16.737Z
+updated: 2025-01-13T01:36:54.038Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1c1b670f27462a297cc441cbd2ea6452f5efd090e442af20cdfe4efeda127d5.jpg
@@ -176,3 +176,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1c1b670f27462a297cc441cbd2ea64
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210882852-9781088174661-a-day-of-darkness/"><u>A Day of Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882857-9781088186657-authority-and-power-for-todays-ministry/"><u>AUTHORITY AND POWER FOR TODAY'S MINISTRY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882845-9781088167137-the-glorious-arrest-of-a-family/"><u>THE GLORIOUS ARREST OF A FAMILY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883111-9780834845299-the-lost-art-of-silence/"><u>The Lost Art of Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883116-9780834845305-the-luminous-self/"><u>The Luminous Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883306-9781837831593-the-lunar-year/"><u>The Lunar Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884475-9781646043255-the-modern-art-of-brujeria/"><u>The Modern Art of Brujería | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Vampires | Free Book
-date: 2024-10-24T21:32:15.082Z
-updated: 2024-10-26T20:04:36.272Z
+date: 2025-01-09T03:57:07.750Z
+updated: 2025-01-13T00:19:12.487Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bfd29a9a831833690b30dc9a5f05a8a27e13622d96cca0e3c969aba147b2964e.jpg
@@ -174,3 +174,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bfd29a9a831833690b30dc9a5f05a8a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211142284-9781952353345-jahrtausendealte-geheimnisse-eines-meisterheilers/"><u>Jahrtausendealte Geheimnisse eines Meisterheilers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141820-9781644119921-maurice-nicoll/"><u>Maurice Nicoll | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141899-9798888500477-raise-your-frequency-transform-your-life/"><u>Raise Your Frequency, Transform Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141896-9798888500118-runas-nordicas/"><u>Runas nórdicas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141898-9798888500408-the-easy-way-to-learn-astrology/"><u>The Easy Way to Learn Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141816-9781644119280-voudon-gnosticism/"><u>Voudon Gnosticism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

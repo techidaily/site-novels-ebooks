@@ -1,7 +1,7 @@
 ---
 title: "The Rat in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-20T03:22:52.462Z
-updated: 2024-10-27T04:38:11.774Z
+date: 2025-01-06T23:14:34.072Z
+updated: 2025-01-12T22:26:52.855Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c35135bfc0dea86f88e1370183d253b1c156b6508916df7f481ee3a57bd07f18.jpg
@@ -166,3 +166,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c35135bfc0dea86f88e1370183d253b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239550--anubisancient-egypts-lord-of-death-and-protection/"><u>Anubis—Ancient Egypt’s Lord of Death and Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239549--how-to-read-and-interpret-a-birth-chart/"><u>How to Read and Interpret a Birth Chart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240210-9782385640446-les-enfants-de-la-lumiere/"><u>Les enfants de la Lumière | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239548--magick-for-all-seasons/"><u>Magick for All Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239551--my-good-friend-the-rattlesnake/"><u>My Good Friend the Rattlesnake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239547-9781633413566-secrets-of-romani-fortune-telling/"><u>Secrets of Romani Fortune-Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239553--soul-growth-astrology/"><u>Soul Growth Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239552-9781950253548-the-shamans-book-of-extraordinary-practices/"><u>The Shaman's Book of Extraordinary Practices | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

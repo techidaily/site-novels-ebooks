@@ -1,7 +1,7 @@
 ---
 title: John the Baptist and the Last Gnostics | Free Book
-date: 2024-10-24T04:12:32.590Z
-updated: 2024-10-27T00:30:11.584Z
+date: 2025-01-05T18:28:38.778Z
+updated: 2025-01-12T18:24:27.686Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/781bce34c72f040eab5ab396fe1fad6b7c0571613f039939d3cb19f587e6b5e6.jpg
@@ -163,3 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/781bce34c72f040eab5ab396fe1fad6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211342553-9781803818511-a-gift-called-gracy/"><u>A Gift Called Gracy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211342813-9798869367273-cosmic-hemp-pathways/"><u>Cosmic Hemp Pathways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211342216-9798869351579-inicios-a-la-luz-de-la-luna/"><u>Inicios a la Luz de la Luna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211342294-9798894580289-numerology/"><u>Numerology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

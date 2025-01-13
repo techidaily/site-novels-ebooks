@@ -1,7 +1,7 @@
 ---
 title: Cracking the Symbol Code | Free Book
-date: 2024-10-21T02:45:44.748Z
-updated: 2024-10-26T19:56:04.269Z
+date: 2025-01-05T22:38:05.061Z
+updated: 2025-01-12T21:20:31.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c3289a1ce24393200a26cbf6d2ae47e751e550bb2d398a28aead680f6d9035a.jpg
@@ -159,3 +159,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c3289a1ce24393200a26cbf6d2ae47
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211310125-9798869060129-cannastrology/"><u>Cannastrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211310021-9798869303233-doctor-who-astrology/"><u>Doctor Who Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211309996-9798869295316-moon-magick/"><u>Moon Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211310974--the-mindful-body/"><u>The Mindful Body | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

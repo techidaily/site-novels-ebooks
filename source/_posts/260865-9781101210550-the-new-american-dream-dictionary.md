@@ -1,7 +1,7 @@
 ---
 title: The New American Dream Dictionary | Free Book
-date: 2024-10-23T01:11:58.122Z
-updated: 2024-10-27T01:12:15.455Z
+date: 2025-01-08T19:18:13.260Z
+updated: 2025-01-13T00:52:33.088Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0b53aadc47c2e5dec9e830513be2b1f37c7edf5a03fd688a8c5a9ef7109f4e4.jpg
@@ -141,3 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0b53aadc47c2e5dec9e830513be2b1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211141803-9781644117491-celtic-tree-alphabets-2nd-ed/"><u>Celtic Tree Alphabets (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141805-9781644117996-psychedelics-and-the-coming-singularity/"><u>Psychedelics and the Coming Singularity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141815-9781644119105-song-of-the-dark-man/"><u>Song of the Dark Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141806-9781644118023-the-way-of-imagination/"><u>The Way of Imagination | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

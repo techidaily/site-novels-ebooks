@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2025-01-04T16:01:10.558Z
-updated: 2025-01-06T16:05:02.089Z
+date: 2025-01-11T16:27:48.201Z
+updated: 2025-01-13T02:36:27.856Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,18 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210644795-9798986216652-26-strings/"><u>26 Strings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644799-9780997228175-mindful-practice-of-falun-gong-chinese-edition/"><u>法輪功的正念實踐 Mindful Practice of Falun Gong (Chinese Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644956-9781591434566-catching-the-ascension-wave/"><u>Catching the Ascension Wave | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644653-9781959018179-spirit-guides/"><u>Spirit Guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644825-9780349431758-tapping-in/"><u>Tapping In | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644955-9781591434405-the-ancient-tradition-of-angels/"><u>The Ancient Tradition of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644954-9781591434467-the-first-female-pharaoh/"><u>The First Female Pharaoh | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644691-9781959018117-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644777-9781955985697-waking-up-to-feeling/"><u>Waking Up to Feeling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/266709-9780307419958-boundless-energy/"><u>Boundless Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2667973-9781501158698-golden/"><u>Golden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2666126-9780735213593-hallelujah-anyway/"><u>Hallelujah Anyway | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/266704-9780307381514-the-joy-of-living/"><u>The Joy of Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/266711-9780307381606-the-power-of-purpose/"><u>The Power of Purpose | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

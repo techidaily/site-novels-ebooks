@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2025-01-05T16:25:23.176Z
-updated: 2025-01-06T17:01:27.669Z
+date: 2025-01-05T22:09:41.480Z
+updated: 2025-01-13T06:20:18.140Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -132,18 +132,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210367967-9781633412415-blackthorns-protection-magic/"><u>Blackthorn's Protection Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367961-9781612834764-how-to-live-a-happily-ever-afterlife/"><u>How to Live a Happily Ever Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367971-9781633412484-liber-null-psychonaut/"><u>Liber Null & Psychonaut | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367968-9781633412491-predictive-astrology/"><u>Predictive Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367962-9781612834818-protect-your-light/"><u>Protect Your Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367970-9781633412477-the-alchemists-handbook/"><u>The Alchemist's Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367969-9781633412446-the-big-book-of-candle-magic/"><u>The Big Book of Candle Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367966-9781633412323-the-creative-pendulum/"><u>The Creative Pendulum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367965-9781633412002-the-magic-of-the-sword-of-moses/"><u>The Magic of the Sword of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383465-9798330236428-have-we-lived-before-2/"><u>Have We Lived Before 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383487-9798330236978-selfish-healing/"><u>Selfish Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383507-9798330237708-siempre-hay-una-esperanza/"><u>Siempre hay una Esperanza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383492-9780645738636-the-complete-teachings-of-modern-wicca-for-the-seeker/"><u>The Complete Teachings of Modern Wicca For the Seeker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383486-9781088173145-trust-the-flow/"><u>Trust the Flow | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

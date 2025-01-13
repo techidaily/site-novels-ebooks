@@ -1,7 +1,7 @@
 ---
 title: The Sworn Book of Honorius | Free Book
-date: 2024-10-25T03:31:02.479Z
-updated: 2024-10-27T05:17:44.973Z
+date: 2025-01-10T21:51:42.622Z
+updated: 2025-01-13T00:50:51.129Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9482eba9ae7cd38a087750d35d3952e21357702df39adeaad69db743df6ebe4.jpg
@@ -172,3 +172,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9482eba9ae7cd38a087750d35d3952
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211150231-9780008667634-aquarius-2025-your-personal-horoscope/"><u>Aquarius 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150230-9780008667627-capricorn-2025-your-personal-horoscope/"><u>Capricorn 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150227-9780008667597-libra-2025-your-personal-horoscope/"><u>Libra 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150228-9780008667603-scorpio-2025-your-personal-horoscope/"><u>Scorpio 2025: Your Personal Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

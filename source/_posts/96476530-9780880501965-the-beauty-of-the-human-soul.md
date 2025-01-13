@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2025-01-05T16:17:08.631Z
-updated: 2025-01-06T16:11:45.200Z
+date: 2025-01-10T22:16:49.271Z
+updated: 2025-01-13T00:42:48.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,18 +183,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210592449-9780760373729-breathe/"><u>Breathe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593325-9781476644806-ghosted/"><u>Ghosted! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593260-9781524881887-haunted-in-america/"><u>Haunted in America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210591795-9798985236712-its-a-tango-not-a-war/"><u>It's a Tango, Not a War | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593201-9782017166160-le-garcon-qui-chevauchait-un-ane/"><u>Le garçon qui chevauchait un âne | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593482-9781841815312-manifesting-with-crystals/"><u>Manifesting with Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210592377-9798985892680-never-forgotten/"><u>Never Forgotten | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593462-9781399700672-still-points/"><u>Still Points | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210591818-9798985991673-when-silence-is-misunderstood/"><u>When Silence is Misunderstood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593843-9781683250340-acuario/"><u>Acuario | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593842-9781683250333-capricornio/"><u>Capricornio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593840-9781683250319-escorpio/"><u>Escorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593841-9781683250326-sagitario/"><u>Sagitario | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593838-9781683250296-virgo/"><u>Virgo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

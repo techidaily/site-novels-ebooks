@@ -1,7 +1,7 @@
 ---
 title: Transformative Imagery | Free Book
-date: 2024-10-22T19:22:10.768Z
-updated: 2024-10-26T17:15:19.154Z
+date: 2025-01-08T03:01:56.728Z
+updated: 2025-01-12T19:17:03.866Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f4229ce795c8b0d2dca6709717a1b47d8aa04a0d92c9b228b540c40951d6fa9.jpg
@@ -178,3 +178,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f4229ce795c8b0d2dca6709717a1b4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211327378-9780358198550-bitchcraft/"><u>Bitchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327645-9781837642335-cunning-folk-and-familiar-spirits/"><u>Cunning Folk and Familiar Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327781-9781898595595-the-financial-universe/"><u>The Financial Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329089-9780062456250-the-happy-medium/"><u>The Happy Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211327443-9781328566270-true-heart-intuitive-tarot/"><u>True Heart Intuitive Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329177-9780061915949-unfinished-business/"><u>Unfinished Business | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

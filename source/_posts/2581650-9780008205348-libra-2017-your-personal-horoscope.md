@@ -1,7 +1,7 @@
 ---
 title: "Libra 2017: Your Personal Horoscope | Free Book"
-date: 2024-10-19T20:33:51.353Z
-updated: 2024-10-26T16:13:01.562Z
+date: 2025-01-10T20:15:22.471Z
+updated: 2025-01-13T00:25:37.985Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc198899cd98af303024d099e6c6109207aaeb44ee0bab4271c3c83a3d6d316a.jpg
@@ -160,3 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc198899cd98af303024d099e6c6109
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211237108-9781778353390-death-by-distraction/"><u>Death by Distraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237015-9798869163769-luz-que-consuela-a-los-afligidos/"><u>Luz que consuela a los afligidos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237022-9780975640302-the-book-about-a-book/"><u>The Book about a Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237019-9783892017639-the-path-of-forgetting/"><u>The Path of Forgetting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237049-9798890419200-the-pathway-to-healing-is-painful/"><u>The Pathway to Healing Is Painful | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

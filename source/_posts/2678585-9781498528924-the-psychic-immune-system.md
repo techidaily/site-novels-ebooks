@@ -1,7 +1,7 @@
 ---
 title: The Psychic Immune System | Free Book
-date: 2024-10-23T23:55:59.755Z
-updated: 2024-10-26T18:09:31.494Z
+date: 2025-01-06T23:45:01.622Z
+updated: 2025-01-12T16:05:16.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3f3d402f1f50268393074c91e3a88f25c075aa06518c8e313393d078331f974.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3f3d402f1f50268393074c91e3a88f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210884477-9781646042777-herbal-tea-magic-for-the-modern-witch/"><u>Herbal Tea Magic for the Modern Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884541-9781612437712-the-healing-power-of-smudging/"><u>The Healing Power of Smudging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884593-9781646043446-the-healing-power-of-the-pineal-gland/"><u>The Healing Power of the Pineal Gland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884577-9781646042210-the-little-book-of-rootwork/"><u>The Little Book of Rootwork | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

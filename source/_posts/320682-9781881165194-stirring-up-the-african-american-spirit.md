@@ -1,7 +1,7 @@
 ---
 title: Stirring Up the African American Spirit | Free Book
-date: 2024-10-23T23:15:16.925Z
-updated: 2024-10-27T05:34:33.113Z
+date: 2025-01-06T03:09:43.243Z
+updated: 2025-01-13T05:41:20.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b1fd496140a65d4f5d327cb02eb5292ec5d8f77e92f4feb56c9124c98c6381e.jpg
@@ -143,3 +143,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b1fd496140a65d4f5d327cb02eb529
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210851618-9781088144749-a-mediums-voice/"><u>A Medium's Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851569-9781739279158-children-of-god/"><u>Children of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851550-9781088115930-clueless-wise/"><u>Clueless & Wise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851424-9781800079786-spirituality-for-every-day/"><u>Spirituality for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851423-9781800077850-the-little-book-of-zen/"><u>The Little Book of Zen | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

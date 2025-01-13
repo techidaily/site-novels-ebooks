@@ -1,7 +1,7 @@
 ---
 title: "The Horse in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-19T20:58:46.132Z
-updated: 2024-10-27T02:43:37.639Z
+date: 2025-01-09T18:31:46.550Z
+updated: 2025-01-12T17:45:18.289Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/71d4b3ef8c169d420e50d959c512c2efd43e8b40b5d12e3507d5f7d56f17e944.jpg
@@ -166,3 +166,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/71d4b3ef8c169d420e50d959c512c2e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211244657-9781439188705-born-on-a-rotten-day/"><u>Born on a Rotten Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211244641-9781451643725-songs-of-the-arcturians/"><u>Songs of the Arcturians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211244134--the-little-book-of-manifesting/"><u>The Little Book of Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211244521-9781439147627-the-medicine-wheel/"><u>The Medicine Wheel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211244535-9781416561972-the-mind-of-the-soul/"><u>The Mind of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211244554-9781668070512-the-shadow-work-journal/"><u>The Shadow Work Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211244394-9781439148075-the-tao-of-health-sex-and-longevity/"><u>The Tao of Health, Sex, and Longevity | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

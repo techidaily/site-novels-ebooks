@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2025-01-05T16:14:41.120Z
-updated: 2025-01-06T16:02:07.884Z
+date: 2025-01-07T21:24:54.723Z
+updated: 2025-01-12T20:27:25.161Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,13 +153,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210612791-9780760373477-in-focus-wicca/"><u>In Focus Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210611901-9798986225012-overcoming-the-drug-addiction-i-never-had/"><u>Overcoming The Drug Addiction I Never Had | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210613518-9781523510962-real-happiness-10th-anniversary-edition-2nd-ed/"><u>Real Happiness, 10th Anniversary Edition (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210613066-9781529905625-what-is-meditation/"><u>What is Meditation? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2609950-9781856753685-the-little-book-of-inner-peace/"><u>The Little Book of Inner Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2609963-9781841814650-the-qigong-bible/"><u>The Qigong Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260942-9781101210147-visits-from-the-afterlife/"><u>Visits from the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260946-9781101204214-walking-in-the-garden-of-souls/"><u>Walking in the Garden of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260957-9781101203163-whats-missing/"><u>What's Missing? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

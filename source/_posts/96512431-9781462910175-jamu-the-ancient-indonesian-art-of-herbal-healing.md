@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2024-12-30T17:01:04.678Z
-updated: 2025-01-06T16:04:05.348Z
+date: 2025-01-08T02:34:02.522Z
+updated: 2025-01-12T16:29:00.651Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,18 +175,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210355669-9780578969688-astrological-mavericks/"><u>Astrological Mavericks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355820-9781644113011-flower-essences-from-the-witchs-garden/"><u>Flower Essences from the Witch's Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355695-9781999254827-instant-kundalini/"><u>Instant Kundalini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355815-9781591433989-mastering-your-5d-self/"><u>Mastering Your 5D Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355814-9781591434108-origins-of-the-gods/"><u>Origins of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355816-9781591434160-spirit-marriage/"><u>Spirit Marriage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355817-9781591434368-spirit-weaver/"><u>Spirit Weaver | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355819-9781644112977-the-light-of-god-2nd-ed/"><u>The Light of God (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355821-9781644113127-the-twilight-of-pluto/"><u>The Twilight of Pluto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374283-9781528799881-aradia-queen-of-witchcraft/"><u>Aradia, Queen of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373624-9781503639843-global-ayahuasca/"><u>Global Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373539-9798330204366-hes-not-gone/"><u>He's Not Gone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373540-9791029916458-histeria-e-fenomenos-psiquicos/"><u>Histeria e Fenômenos Psíquicos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374282-9781528799874-malleus-maleficarum-hammer-of-the-witches/"><u>Malleus Maleficarum: Hammer of the Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374360--the-grounding-companion/"><u>The Grounding Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374281-9781528799898-the-magus/"><u>The Magus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374314--the-witch-of-the-forests-guide-to-folklore-magick/"><u>The Witch of the Forest's Guide to Folklore Magick | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

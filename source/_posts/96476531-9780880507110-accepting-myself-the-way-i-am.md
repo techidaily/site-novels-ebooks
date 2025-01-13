@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2025-01-01T16:48:36.919Z
-updated: 2025-01-06T16:34:43.073Z
+date: 2025-01-07T20:52:34.503Z
+updated: 2025-01-12T23:33:18.586Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,16 +163,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210594029-9781667434957-la-felicita-illusoria/"><u>La felicità illusoria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210594072-9781667432144-recuperation-et-prevention-covid-19-et-autres-maladies/"><u>Récupération et Prévention : Covid-19 et autres Maladies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593965-9781667435138-scatena-la-prosperita-interiore/"><u>Scatena La Prosperità Interiore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210594048-9781667434117-simbolos-de-cura-dos-antigos-eslavos-glagolitico-arte-terapia/"><u>Símbolos de Cura dos Antigos Eslavos. Glagolítico. Arte terapia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593751-9798218018191-the-betrayal-how-i-continue-to-overcome-its-not-personal-its-facts-revised/"><u>The Betrayal & HOW I CONTINUE TO OVERCOME IT'S NOT PERSONAL - IT'S FACTS (REVISED) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593990-9781667434599-tranquillita/"><u>Tranquillità | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210593916-9781667434063-sakal-sa-magana-ka-pakanaka/"><u>स्कूल से मेगन की पिकनिक | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593856-9781683250470-curso-aprendiz-de-bruja/"><u>Curso aprendiz de Bruja | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593854-9781683250456-el-tarot/"><u>El tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593845-9781683250364-guia-para-interpretar-los-suenos/"><u>Guía para interpretar los sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593844-9781683250357-piscis/"><u>Piscis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593855-9781683250463-tarot-expres/"><u>Tarot exprés | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

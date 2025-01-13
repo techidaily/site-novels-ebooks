@@ -1,7 +1,7 @@
 ---
 title: Imperfect Spirituality | Free Book
-date: 2024-10-25T20:23:14.488Z
-updated: 2024-10-26T18:52:11.001Z
+date: 2025-01-05T19:01:33.526Z
+updated: 2025-01-13T03:05:31.345Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/040076aa808ba1fe15fd37a582e05f7440ed757d33889d5b345eb97779602dc6.jpg
@@ -151,3 +151,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/040076aa808ba1fe15fd37a582e05f7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211099520-9781803412849-50-years-50-lessons/"><u>50 Years - 50 Lessons! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211106579-9781960952691-calebs-journey/"><u>Caleb's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103688-9782354321666-etre-et-vibration/"><u>Etre et vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211105365--manifest-your-true-essence/"><u>Manifest Your True Essence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103559-9782355995385-n-103-le-verbe-createur-et-la-formulation-de-linitiation/"><u>N. 103 Le Verbe créateur et la formulation de l'initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103561-9782355995378-n102-franc-maconnerie-traditionnelle-et-monde-moderne/"><u>N.102 Franc-Maçonnerie traditionnelle et monde moderne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211105952-9798888513477-satans-prison/"><u>Satan's Prison | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211106530-9781960861603-the-gift-of-depression/"><u>The Gift of Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103908-9780875169507-time-for-hope/"><u>Time for Hope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

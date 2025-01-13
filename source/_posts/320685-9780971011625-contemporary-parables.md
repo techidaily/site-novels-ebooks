@@ -1,7 +1,7 @@
 ---
 title: Contemporary Parables | Free Book
-date: 2024-10-24T21:19:00.283Z
-updated: 2024-10-27T05:38:20.892Z
+date: 2025-01-06T04:49:49.237Z
+updated: 2025-01-12T20:03:56.614Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f62fc4ad91d93562cfff2a945be64097fccf872f2ce342c306f9161732968c.jpg
@@ -144,3 +144,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f62fc4ad91d93562cfff2a945be64
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210852206-9798987850008-ayni/"><u>AYNI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210852294-9798985566741-coming-back-to-the-present/"><u>Coming Back to the Present | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210856877-9780744076424-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857106-9781493069873-spooky-virginia-2nd-ed/"><u>Spooky Virginia (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210852276-9780648792789-the-great-unlearning/"><u>The Great Unlearning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210852201-9781739443016-the-light-book/"><u>The Light Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210852215-9781961227019-three-days-and-three-nights/"><u>Three Days and Three Nights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857167-9798888511053-your-spiritual-brain/"><u>Your Spiritual Brain | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

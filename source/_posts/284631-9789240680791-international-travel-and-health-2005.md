@@ -1,7 +1,7 @@
 ---
 title: International travel and health 2005 | Free Book
-date: 2024-10-21T19:08:48.092Z
-updated: 2024-10-27T00:09:56.002Z
+date: 2025-01-09T01:48:10.195Z
+updated: 2025-01-13T00:21:28.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70ce2c4fa9c82923de1bbb7e2d12c9e17f7126d7feedb95e523b88eaba562fb1.jpg
@@ -137,3 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70ce2c4fa9c82923de1bbb7e2d12c9e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210867990-9780811749688-big-book-of-new-jersey-ghost-stories/"><u>Big Book of New Jersey Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867998-9780811752657-big-book-of-ohio-ghost-stories/"><u>Big Book of Ohio Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867943-9780811742160-big-book-of-virginia-ghost-stories/"><u>Big Book of Virginia Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867928-9780811741101-monsters-of-pennsylvania/"><u>Monsters of Pennsylvania | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867962-9780811745772-monsters-of-west-virginia/"><u>Monsters of West Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867959-9780811745017-monsters-of-wisconsin/"><u>Monsters of Wisconsin | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

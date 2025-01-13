@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2025-01-02T16:15:16.784Z
-updated: 2025-01-06T16:06:15.353Z
+date: 2025-01-05T19:13:51.832Z
+updated: 2025-01-13T01:19:20.782Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,17 +167,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210655536-9781454936794-prosperity-magick/"><u>Prosperity Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655502-9781454934714-wiccan-kitchen/"><u>Wiccan Kitchen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655566-9781454939030-zodiac-signs-cancer/"><u>Zodiac Signs: Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655569-9781454939047-zodiac-signs-capricorn/"><u>Zodiac Signs: Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655572-9781454939054-zodiac-signs-gemini/"><u>Zodiac Signs: Gemini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655568-9781454939078-zodiac-signs-libra/"><u>Zodiac Signs: Libra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655570-9781454939092-zodiac-signs-sagittarius/"><u>Zodiac Signs: Sagittarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655573-9781454939108-zodiac-signs-scorpio/"><u>Zodiac Signs: Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/269438-9780743293679-another-door-opens/"><u>Another Door Opens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2686734-9780895565600-every-day-a-holy-day/"><u>Every Day a Holy Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2698359-9781785355714-mindful-soul-soulful-mind/"><u>Mindful Soul, Soulful Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2682549-9781515408598-the-prophecies-of-nostradamus/"><u>The Prophecies of Nostradamus | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

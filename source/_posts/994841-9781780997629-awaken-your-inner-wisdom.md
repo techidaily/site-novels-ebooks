@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2024-12-30T16:25:55.704Z
-updated: 2025-01-06T16:49:43.290Z
+date: 2025-01-11T17:01:33.174Z
+updated: 2025-01-12T19:38:21.701Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,16 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210340281-9780578946559-i-didnt-ask-for-this-devotional/"><u>I Didn't Ask For This Devotional | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340317-9781641845557-lifes-changeful-interruptions/"><u>Life's Changeful Interruptions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340366-9781914264207-mann-of-two-worlds/"><u>Mann of Two Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340110-9781802271423-only-a-thought-away/"><u>Only A Thought Away | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340210-9781955885157-the-two-universes-of-self/"><u>The Two Universes of Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340300-9781948979672-whispers-from-the-hollow-bone/"><u>Whispers from the Hollow Bone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340088-9781955897112-white-rainbows/"><u>White Rainbows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350922-9780062415004-invincible-living/"><u>Invincible Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350932-9780062437150-material-girl-mystical-world/"><u>Material Girl, Mystical World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350902-9780062325495-momstrology/"><u>Momstrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350996-9780061762673-more-than-money/"><u>More Than Money | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211351023-9780061753497-sacred-circles/"><u>Sacred Circles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211350958-9780061754579-totems/"><u>Totems | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

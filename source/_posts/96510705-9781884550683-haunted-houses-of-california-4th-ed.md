@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2024-12-31T16:13:30.006Z
-updated: 2025-01-06T16:32:03.182Z
+date: 2025-01-11T17:04:24.246Z
+updated: 2025-01-12T18:43:47.956Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,17 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210426814-9781510769304-already-whole/"><u>Already Whole | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428228-9780645206432-believing-in-me/"><u>believing in ME | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428200-9781956216042-born-giving-birth-to-a-new-you/"><u>Born Giving Birth to a New You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210426456-9781401965105-daily-reflections-from-dr-david-r-hawkins/"><u>Daily Reflections from Dr. David R. Hawkins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210425982-9781639614219-incessant-ramblings-of-a-wilderness-survivor/"><u>Incessant Ramblings of a Wilderness Survivor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210427372-9781913768256-the-roman-calendar/"><u>The Roman Calendar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210425975-9781098097578-the-second-promise/"><u>The Second Promise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210427203-9781088016381-two-near-death-experiences/"><u>Two Near-Death Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439120--a-tea-witchs-crystal-brews/"><u>A Tea Witch’s Crystal Brews | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439119--celtic-hedge-witcherya-modern-approach/"><u>Celtic Hedge Witchery—A Modern Approach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439121--entering-hekates-cauldron/"><u>Entering Hekate's Cauldron | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439118--this-is-chaos-embracing-the-future-of-magic/"><u>This Is Chaos: Embracing the Future of Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

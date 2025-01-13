@@ -1,7 +1,7 @@
 ---
 title: Haunted Hartlepool and East Durham | Free Book
-date: 2024-10-26T01:28:24.246Z
-updated: 2024-10-27T01:29:46.568Z
+date: 2025-01-11T17:44:54.767Z
+updated: 2025-01-12T16:09:01.081Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f88fb858550e93ea5d717e58749e55b90e3d4ca689bcf9d935bd47ccfe86d237.jpg
@@ -143,3 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f88fb858550e93ea5d717e58749e55b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211123793-9781088027486-let-me-live/"><u>Let me Live! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123417-9798891750012-live-wide/"><u>Live Wide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123862-9781088022429-love-overcame/"><u>Love Overcame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123780-9781087990958-the-luciferians/"><u>The Luciferians | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

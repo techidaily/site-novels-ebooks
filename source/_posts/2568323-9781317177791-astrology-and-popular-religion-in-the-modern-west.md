@@ -1,7 +1,7 @@
 ---
 title: Astrology and Popular Religion in the Modern West | Free Book
-date: 2024-10-20T05:32:08.183Z
-updated: 2024-10-27T02:21:22.299Z
+date: 2025-01-10T03:52:51.276Z
+updated: 2025-01-12T17:12:02.353Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b6b8fbcd121a7be8f34d51f8776857adb2f6b586e9023bffde24b72cb5c1490.jpg
@@ -180,3 +180,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b6b8fbcd121a7be8f34d51f8776857
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211314586-9781416594161-even-more-notes-from-the-universe/"><u>Even More Notes From the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314915-9781507201916-how-to-interpret-dreams/"><u>How to Interpret Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314698-9781507201886-how-to-read-tarot/"><u>How to Read Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314734-9781439196519-tao-i/"><u>Tao I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314616-9781507210987-tarot-for-self-care/"><u>Tarot for Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314745-9781982174361-the-dabblers-guide-to-witchcraft/"><u>The Dabbler's Guide to Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314670-9781440501692-the-everything-vampire-book/"><u>The Everything Vampire Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314669-9781451612622-the-miracle-of-water/"><u>The Miracle of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314773-9781451672848-the-new-game-of-life-and-how-to-play-it/"><u>The New Game of Life and How to Play It | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

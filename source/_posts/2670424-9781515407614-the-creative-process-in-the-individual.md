@@ -1,7 +1,7 @@
 ---
 title: The Creative Process in the Individual | Free Book
-date: 2024-10-20T17:29:54.087Z
-updated: 2024-10-27T01:44:41.934Z
+date: 2025-01-10T02:14:55.100Z
+updated: 2025-01-12T17:21:11.762Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbd4046f6e7d9610809283dc38c4764d35be851c973b72093c5a0fcb4887b6d4.jpg
@@ -140,3 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbd4046f6e7d9610809283dc38c4764
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210934868-9781800651784-5-minute-magic-for-modern-wiccans/"><u>5-Minute Magic for Modern Wiccans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934887-9781782495093-everyday-palmistry/"><u>Everyday Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934888-9781800651418-the-modern-guide-to-crystal-chakra-healing/"><u>The Modern Guide to Crystal Chakra Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934877-9781800650459-the-modern-guide-to-crystal-healing/"><u>The Modern Guide to Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934870-9781800652408-your-magical-garden/"><u>Your Magical Garden | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

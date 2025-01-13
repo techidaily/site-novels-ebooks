@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - The Cailleach | Free Book
-date: 2024-10-21T23:44:41.260Z
-updated: 2024-10-27T04:08:33.829Z
+date: 2025-01-07T21:11:27.544Z
+updated: 2025-01-13T06:10:47.141Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce11624ac1cd0327cf3df8efad70aafdeaa7753e3e7ea01f0702412b9ebcac5d.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce11624ac1cd0327cf3df8efad70aaf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211127801-9781398484078-rewiring-the-human-brain-how-extra-terrestrials-shape-humanity/"><u>Rewiring the Human Brain: How Extra-terrestrials Shape Humanity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128400-9781736737064-the-4c-heart/"><u>The 4C Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128301-9781955136938-utterances-from-heaven/"><u>Utterances from "Heaven " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128424-9781912914340-you-matter/"><u>You Matter | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

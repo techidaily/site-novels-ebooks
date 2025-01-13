@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2024-12-31T16:26:53.764Z
-updated: 2025-01-06T16:56:35.297Z
+date: 2025-01-08T21:47:39.059Z
+updated: 2025-01-12T16:58:20.730Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,18 +262,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210630007-9781642504187-a-mothers-courage-to-awaken/"><u>A Mother's Courage to Awaken | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210630768-9783986537524-dark-persuasion/"><u>DАRK PЕRSUАSION | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210630428-9780008518295-out-of-the-woods-a-tale-of-positivity-kindness-and-courage/"><u>Out of the Woods: A tale of positivity, kindness and courage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632036-9781639610426-seek-adapt-endure/"><u>Seek. Adapt. Endure. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210629980-9781609252595-teens-with-the-courage-to-give/"><u>Teens with the Courage to Give | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210630387-9781608688012-the-holy-wild-grimoire/"><u>The Holy Wild Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210630649-9780760377093-the-tarot-spellbook/"><u>The Tarot Spellbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210630650-9780760376621-the-ultimate-guide-to-crystals/"><u>The Ultimate Guide to Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210630985-9789948041337-agna-khoatry/"><u>أَجِنَّة خواطري | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641124-9780750955355-haunted-hartlepool-and-east-durham/"><u>Haunted Hartlepool and East Durham | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641110-9780750958745-haunted-highgate/"><u>Haunted Highgate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641131-9780750956987-haunted-isle-of-sheppey/"><u>Haunted Isle of Sheppey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641139-9780750957823-haunted-kirkcaldy/"><u>Haunted Kirkcaldy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641135-9780750961158-haunted-tyrone/"><u>Haunted Tyrone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2641112-9780752498737-haunted-wexford/"><u>Haunted Wexford | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

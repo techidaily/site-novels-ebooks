@@ -1,7 +1,7 @@
 ---
 title: Buddhism for Busy People (2nd ed.) | Free Book
-date: 2024-10-24T00:13:25.672Z
-updated: 2024-10-26T16:00:12.889Z
+date: 2025-01-06T22:40:44.584Z
+updated: 2025-01-13T03:18:03.535Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8069068796480622c8f359312782d2c26df66feadab7b758806c6b6e927870a6.jpg
@@ -160,3 +160,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8069068796480622c8f359312782d2c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877265-9781612831251-god-is-not-dead/"><u>God Is Not Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877259-9781612830520-how-quantum-activism-can-save-civilization/"><u>How Quantum Activism Can Save Civilization | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877246-9781612831282-how-to-photograph-the-paranormal/"><u>How to Photograph the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877262-9781612832876-mental-radio/"><u>Mental Radio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877269-9781612833156-out-of-body-experiences/"><u>Out of Body Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877258-9781612832418-signs-of-the-times/"><u>Signs of the Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877251-9781609258672-the-disinformation-guide-to-ancient-aliens-lost-civilizations-astonishing-archaeology-hidden-history/"><u>The Disinformation Guide to Ancient Aliens, Lost Civilizations, Astonishing Archaeology & Hidden History | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877266-9781612833231-the-future-is-yours/"><u>The Future Is Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877270-9781612833088-ufos-ets-and-alien-abductions/"><u>UFOs, ETs, and Alien Abductions | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

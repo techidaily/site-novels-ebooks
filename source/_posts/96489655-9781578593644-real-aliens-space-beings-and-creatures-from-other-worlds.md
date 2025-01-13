@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-01-05T16:07:40.378Z
-updated: 2025-01-06T16:01:54.124Z
+date: 2025-01-07T17:52:29.470Z
+updated: 2025-01-12T18:57:04.556Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,16 +264,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210500801-9781644115381-being-nature-4th-ed/"><u>Being Nature (4th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500802-9781644115466-chakras-en-la-practica-chamanica-2nd-ed/"><u>Chakras en la práctica chamánica (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500807-9781644115503-escribe-el-guion-de-la-vida-que-quieres/"><u>Escribe el guion de la vida que quieres | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500805-9781644115527-lecciones-de-los-12-arcangeles/"><u>Lecciones de los 12 Arcángeles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500806-9781644115619-radical-regeneration/"><u>Radical Regeneration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500803-9781644115343-the-dharma-of-direct-experience/"><u>The Dharma of Direct Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500800-9781644115329-the-story-of-gaia/"><u>The Story of Gaia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173115-9781848589582-ghosts/"><u>Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173125-9781848589438-greatest-mysteries-of-the-unexplained/"><u>Greatest Mysteries of the Unexplained | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173148-9781848587878-poltergeists/"><u>Poltergeists | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173150-9781848587885-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173145-9781848587175-secret-wisdom/"><u>Secret Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173146-9781848586543-the-book-of-reflection-simple-steps-to-self-discovery/"><u>The Book of Reflection: Simple Steps to Self Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173132-9781848588493-the-dark-history-of-the-occult/"><u>The Dark History of the Occult | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

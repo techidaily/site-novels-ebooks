@@ -1,7 +1,7 @@
 ---
 title: "MYSTERY-MAYHEM:CHRONICLE USA | Free Book"
-date: 2025-01-01T16:52:41.351Z
-updated: 2025-01-06T16:05:07.951Z
+date: 2025-01-08T23:25:45.592Z
+updated: 2025-01-12T17:18:10.326Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b629334482a128390c36ad4018a228f91e165a.jpg
@@ -134,18 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b6293
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210640751-9781647842901-a-revolution-beyond-death/"><u>A Revolution Beyond Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210639927-9781637772799-born-to-serve-with-love/"><u>Born to Serve with Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640665-9780648525028-giving-spirit-a-voice/"><u>Giving Spirit A Voice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640256-9781639035496-i-promise-youre-healed/"><u>I Promise You're Healed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640334-9798985990911-into-your-soul-a-beginners-guide-to-past-life-regression/"><u>Into Your Soul - A Beginner's Guide to Past Life Regression | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640753-9798218046828-refined/"><u>Refined | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640320-9781914083624-taxi-for-spirit-2/"><u>Taxi for 'Spirit' 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640290-9798885401395-the-search-for-dry-land/"><u>The Search for Dry Land | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210640698-9781685262235-the-unmerciful-pain/"><u>The Unmerciful Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/264994--deep-health/"><u>Deep Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2648519-9780752489568-extreme-hauntings/"><u>Extreme Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2648050-9780752493046-haunted-farnham/"><u>Haunted Farnham | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647645-9780750956444-haunted-stirling/"><u>Haunted Stirling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647688-9780750959926-paranormal-kent/"><u>Paranormal Kent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2649626-9781786780096-pause-for-thought/"><u>Pause for Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2648035-9780752492599-shadows-on-the-sea/"><u>Shadows on the Sea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2648578-9780752498072-the-poltergeist-prince-of-london/"><u>The Poltergeist Prince of London | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

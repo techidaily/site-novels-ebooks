@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2025-01-02T16:04:29.112Z
-updated: 2025-01-06T16:38:57.869Z
+date: 2025-01-12T03:22:10.979Z
+updated: 2025-01-12T20:49:59.006Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,15 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210611615-9781684980918-angel-within/"><u>Angel Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210611712-9781638121350-angels-to-aliens/"><u>Angels to Aliens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210609608-9781911163190-colour-therapy/"><u>Colour Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210609586-9781911163213-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210609874-9781911042860-fix-your-home/"><u>Fix Your Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210611731-9789811848575-love-is-everything/"><u>Love is Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260638-9781101218945-phenomenon/"><u>Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260660-9781101210321-prophecy/"><u>Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2608950-9780553419627-surviving-death/"><u>Surviving Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260769-9781101209738-sylvia-brownes-book-of-dreams/"><u>Sylvia Browne's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260773-9781101217313-taming-the-tiger-within/"><u>Taming the Tiger Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260439-9781101220054-the-haunting-of-the-presidents/"><u>The Haunting of the Presidents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260865-9781101210550-the-new-american-dream-dictionary/"><u>The New American Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260889-9781101204238-the-science-of-vampires/"><u>The Science of Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2604998-9781250130617-yoga/"><u>Yoga | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

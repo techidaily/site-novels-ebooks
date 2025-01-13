@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-30T16:10:29.546Z
-updated: 2025-01-06T16:50:54.765Z
+date: 2025-01-08T05:00:31.047Z
+updated: 2025-01-12T16:11:49.509Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,18 +149,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210440085-9780760371800-art-practice-of-spiritual-herbalism/"><u>Art & Practice of Spiritual Herbalism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210439993-9780578337692-astrotheatre/"><u>AstroTheatre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210439745-9781396317439-healing-yourself/"><u>Healing Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210439544-9781722526801-it-works/"><u>It Works | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210439814-9781685740405-return-with-memory/"><u>Return With Memory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210439540-9781578597932-the-fortune-telling-book/"><u>The Fortune-Telling Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440086-9780760371787-the-ultimate-guide-to-channeling/"><u>The Ultimate Guide to Channeling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210439542-9781578597918-the-witch-book/"><u>The Witch Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440097-9781792381577-winning-the-silent-battle/"><u>Winning the Silent Battle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446131-9798330374243-66-de-zile-pentru-a-ti-schimba-viata/"><u>66 de zile pentru a-ți schimba viața | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446013--be-like-the-wind/"><u>Be Like the Wind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446076-9781961827073-case-files-of-the-rocky-mountain-paranormal-research-society-volume-2/"><u>Case Files of the Rocky Mountain Paranormal Research Society Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446019--pagan-portals-a-guide-to-pilgrimage/"><u>Pagan Portals - A Guide to Pilgrimage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446018--pagan-portals-mestra-the-shapeshifter/"><u>Pagan Portals - Mestra the Shapeshifter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446140-9781964959092-romanian-edition/"><u>Romanian Edition | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

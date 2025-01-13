@@ -1,7 +1,7 @@
 ---
 title: Walking in the Garden of Souls | Free Book
-date: 2024-10-26T03:06:15.895Z
-updated: 2024-10-26T23:24:30.165Z
+date: 2025-01-08T23:13:47.488Z
+updated: 2025-01-12T22:01:24.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/81a087558ef3a8806433d12f7036a0d86ddb49b58c16e743b8b6103d01fb4a2f.jpg
@@ -155,3 +155,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/81a087558ef3a8806433d12f7036a0d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211145207-9781804530184-aries/"><u>Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145205-9781804530337-cancer/"><u>Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145199-9781804530320-gemini/"><u>Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145203-9781804530344-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145194-9781804530368-libra/"><u>Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145196-9781804530382-sagittarius/"><u>Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145198-9781804530375-scorpio/"><u>Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145201-9781804530191-taurus/"><u>Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145191-9781804530351-virgo/"><u>Virgo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

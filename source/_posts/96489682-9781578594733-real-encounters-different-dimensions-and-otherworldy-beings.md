@@ -1,7 +1,7 @@
 ---
 title: Real Encounters, Different Dimensions and Otherworldy Beings | Free Book
-date: 2024-12-31T16:41:07.663Z
-updated: 2025-01-06T17:04:33.375Z
+date: 2025-01-08T21:05:20.555Z
+updated: 2025-01-13T02:04:42.301Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b273a8c87c7523d78d7bba2b756bea76fb2aa126254209547006b3841007d749.jpg
@@ -256,15 +256,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b273a8c87c7523d78d7bba2b756bea7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210503032-9781633412743-hoodoo-herbal/"><u>Hoodoo Herbal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210502927-9781608687640-medium-mentor/"><u>Medium Mentor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210503033-9781633412682-mexican-sorcery/"><u>Mexican Sorcery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210503027-9781612834788-the-awake-dreamer/"><u>The Awake Dreamer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210502694-9780645139242-the-balance-theory/"><u>The Balance Theory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210503030-9781633412293-the-ufo-hotspot-compendium/"><u>The UFO Hotspot Compendium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2199541-9781474008457-ghost-writers/"><u>Ghost Writers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2195024-9781317505822-modern-psychology-and-ancient-wisdom-2nd-ed/"><u>Modern Psychology and Ancient Wisdom (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2197690-9781569808009-mojave-incident/"><u>Mojave Incident | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/219222-9780385515214-my-descent-into-death/"><u>My Descent Into Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2199181-9781504022606-the-book-of-the-damned/"><u>The Book of the Damned | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2198167-9781787135703-the-little-book-of-mindfulness/"><u>The Little Book of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2198319-9781501135743-the-past-life-perspective/"><u>The Past Life Perspective | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2194848-9780835631952-the-presence-of-the-infinite/"><u>The Presence of the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2198392--zen-on-the-run/"><u>Zen on the Run | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

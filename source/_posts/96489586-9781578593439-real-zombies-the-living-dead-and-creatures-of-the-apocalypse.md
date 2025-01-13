@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2024-12-31T16:22:13.438Z
-updated: 2025-01-06T16:30:18.183Z
+date: 2025-01-09T20:49:15.980Z
+updated: 2025-01-13T04:13:34.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,14 +236,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210533604-9781398814479-leo/"><u>Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534056-9781638855651-phineas-parkhurst-quimby/"><u>PHINEAS PARKHURST QUIMBY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533925-9780645088717-the-new-angel-messages/"><u>The New Angel Messages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533872-9781739722913-the-triple-c-method/"><u>The Triple C Method® | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534028-9781637107553-thom-jons/"><u>Thom Jons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2260834-9781623170462-mushroom-essences/"><u>Mushroom Essences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2260799-9780804179980-quantum-healing-revised-and-updated/"><u>Quantum Healing (Revised and Updated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2257723-9781608683703-secular-meditation/"><u>Secular Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2262112-9781501135545-the-37th-parallel/"><u>The 37th Parallel | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

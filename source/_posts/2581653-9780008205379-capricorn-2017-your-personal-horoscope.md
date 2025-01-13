@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2017: Your Personal Horoscope | Free Book"
-date: 2024-10-19T19:06:05.453Z
-updated: 2024-10-27T05:06:10.654Z
+date: 2025-01-08T16:31:56.176Z
+updated: 2025-01-12T21:32:44.214Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32e8435c38dcab5e8c51ab53a97b7ef4564dd70f98c5a9f84bd2388d0bbd7730.jpg
@@ -160,3 +160,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32e8435c38dcab5e8c51ab53a97b7ef
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239541--a-witch-alone/"><u>A Witch Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239538-9781612835051-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239537-9781612834900-becoming-baba-yaga/"><u>Becoming Baba Yaga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239539--chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239535--healing-psychedelics/"><u>Healing Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239534-9781612835006-heavenly-alliance/"><u>Heavenly Alliance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239533--palmistry/"><u>Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239540-9781938918933-the-witches-almanac-20252026-standard-edition-issue-44/"><u>The Witches' Almanac 2025–2026 Standard Edition Issue 44 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2025-01-02T16:49:07.447Z
-updated: 2025-01-06T16:51:54.508Z
+date: 2025-01-10T19:14:59.385Z
+updated: 2025-01-12T22:10:59.533Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,15 +175,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210645051-9781645679042-kitchen-witchery-for-everyday-magic/"><u>Kitchen Witchery for Everyday Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644978-9781644118269-light-messages-from-the-pleiades/"><u>Light Messages from the Pleiades | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210645036-9781250887825-simple-success/"><u>Simple Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210645012-9781250886477-tarot-therapy/"><u>Tarot Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210645024-9781645677826-the-cottage-witchs-guide-to-magic/"><u>The Cottage Witch's Guide to Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210645005-9781645679813-the-tarot-astrology-handbook/"><u>The Tarot & Astrology Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2669998-9781515407676-conscious-union-with-god/"><u>Conscious Union with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2669996-9781515407638-creative-mind/"><u>Creative Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2669995-9781515407621-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670001-9781515407706-experiencing-the-holy-spirit/"><u>Experiencing the Holy Spirit | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

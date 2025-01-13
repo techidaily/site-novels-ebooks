@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-01T16:29:43.999Z
-updated: 2025-01-06T16:49:40.345Z
+date: 2025-01-10T00:41:44.185Z
+updated: 2025-01-13T06:00:53.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,13 +238,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210545395-9781399704908-astrology-self-care-aquarius/"><u>Astrology Self-Care: Aquarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545400-9781399704861-astrology-self-care-capricorn/"><u>Astrology Self-Care: Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545393-9781399704717-astrology-self-care-leo/"><u>Astrology Self-Care: Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545386-9781399704625-astrology-self-care-taurus/"><u>Astrology Self-Care: Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2472824-9789350573464-ank-jyotish-vigyan-yavm-bhavishyafal-hindi/"><u>Ank Jyotish Vigyan yavm Bhavishyafal (Hindi) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2472910-9781101906095-ghosts-from-our-past/"><u>Ghosts from Our Past | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2472830-9789350573570-hasth-rekha-vigyan-hindi/"><u>HASTH REKHA VIGYAN (Hindi) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2472833-9789350573631-lal-kitab-hindi/"><u>LAL KITAB (Hindi) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2472966-9781618521095-reclaiming-your-sacred-path/"><u>Reclaiming Your Sacred Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2473023-9781780289397-the-mindfulness-key/"><u>The Mindfulness Key | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2024-12-30T16:45:06.182Z
-updated: 2025-01-06T16:02:22.646Z
+date: 2025-01-06T22:55:20.703Z
+updated: 2025-01-13T03:11:49.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,13 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210341278--angels-are-with-you-now/"><u>Angels Are with You Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210341745-9781914447181-how-to-really-go-with-the-flow/"><u>How To REALLY Go With The Flow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210341417-9781735624433-stillness-touch/"><u>Stillness Touch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210341762-9781774816011-the-tao/"><u>The Tao | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352256-9798869387509-breaking-the-curse/"><u>Breaking the Curse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352278-9791223001424-die-zwolf-seelen/"><u>Die zwölf Seelen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352269-9791223001400-les-douze-voies-de-lame/"><u>Les Douze Voies de l'Âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352260-9791223001417-los-doce-signos/"><u>Los Doce Signos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352265-9791223000694-the-ultimate-guide-on-how-to-become-famous-and-make-your-mark/"><u>The Ultimate Guide on How to Become Famous and Make Your Mark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352263-9791223001257-zodiac-revelations/"><u>Zodiac Revelations | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

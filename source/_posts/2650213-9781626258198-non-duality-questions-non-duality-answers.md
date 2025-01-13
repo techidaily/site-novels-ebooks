@@ -1,7 +1,7 @@
 ---
 title: Non-Duality Questions, Non-Duality Answers | Free Book
-date: 2024-10-19T18:44:06.187Z
-updated: 2024-10-27T03:28:23.183Z
+date: 2025-01-11T06:17:50.586Z
+updated: 2025-01-13T00:27:59.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62aec1d37d073a9d9c7b5df7f8bc8b8392812421296384886403353ab3ef39f8.jpg
@@ -207,3 +207,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62aec1d37d073a9d9c7b5df7f8bc8b8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211058387-9781960748676-astrologie/"><u>Astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053739-9780760388822-indian-spirituality/"><u>Indian Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053453-9781662495168-manual-de-tecnicas-para-la-construccion-personal/"><u>MANUAL DE TÉCNICAS PARA LA CONSTRUCCIÓN PERSONAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053730-9780760388846-norse-mysticism/"><u>Norse Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211054237-9781841815756-past-life-astrology/"><u>Past Life Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058507-9781916775145-the-republic-of-the-soul/"><u>The Republic of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058512-9781916775114-the-republic-of-the-soul/"><u>The Republic of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058575-9783988314888-third-eye-awakening/"><u>THIRD EYE AWAKENING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211058517-9798885832243-who-told-you-that/"><u>Who Told You That? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

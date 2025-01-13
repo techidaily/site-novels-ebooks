@@ -1,7 +1,7 @@
 ---
 title: In Tune With The Infinite | Free Book
-date: 2024-10-21T16:55:04.240Z
-updated: 2024-10-26T18:28:16.307Z
+date: 2025-01-08T22:32:55.604Z
+updated: 2025-01-12T18:15:18.137Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7151f01d7948d707fc72060f4bf2a40b6d214d5a41837ee9ab6f283eb021da86.jpg
@@ -133,3 +133,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7151f01d7948d707fc72060f4bf2a40
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210933006-9781912992355-creating-gaia-culture/"><u>Creating Gaia Culture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934352-9781782492726-crystal-energy/"><u>Crystal Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934635-9781782496229-discovering-signs-and-symbols/"><u>Discovering Signs and Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933007-9781915776006-encounters-with-vidar/"><u>Encounters with Vidar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933012-9781855844643-human-beings-experiences-beyond-the-gates-of-death/"><u>Human Being's Experiences Beyond The Gates of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934344-9781800652392-manifest-your-everything/"><u>Manifest Your Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933119--the-stupendous-story-of-us/"><u>The Stupendous Story of Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

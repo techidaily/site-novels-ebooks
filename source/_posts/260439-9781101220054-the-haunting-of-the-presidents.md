@@ -1,7 +1,7 @@
 ---
 title: The Haunting of the Presidents | Free Book
-date: 2024-10-25T21:16:06.033Z
-updated: 2024-10-27T04:02:40.037Z
+date: 2025-01-08T21:30:15.803Z
+updated: 2025-01-13T02:32:34.864Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6810cc955f8e0baca12e3ca4112aa983bead09ba68d4d2cf258bdeb3f26733b3.jpg
@@ -159,3 +159,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6810cc955f8e0baca12e3ca4112aa98
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211131849-9798868930461-all-the-flowers-that-i-won/"><u>All the flowers that I won | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131762-9798868905155-broken-scepters-stories-of-the-christiandom-episodes-of-the-holy-inquisition/"><u>BROKEN SCEPTERS: Stories of the Christiandom. Episodes of the Holy Inquisition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131769-9781801520638-coelbren/"><u>Coelbren | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131650-9781454952459-metaphysical-af/"><u>Metaphysical AF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211132577-9781977267986-six-pathways-to-happiness-volume-2/"><u>Six Pathways to Happiness Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131713-9798889265160-the-7-secrets-to-creating-a-life-you-love/"><u>The 7 Secrets to Creating a Life You Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131768-9781801520942-the-meditation-retreat-manual/"><u>The Meditation Retreat Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131618-9781837963034-when-therapy-doesnt-work/"><u>When Therapy Doesn't Work | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2025-01-05T16:51:42.563Z
-updated: 2025-01-06T16:00:00.381Z
+date: 2025-01-10T02:00:40.435Z
+updated: 2025-01-13T01:59:41.382Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,18 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210401453-9780645271515-call-of-the-era/"><u>Call of the Era | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399517-9781946088390-feminine-callings/"><u>Feminine Callings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210401239-9781638149873-get-real-with-god/"><u>Get Real with GOD | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399453-9781801520256-monsters/"><u>Monsters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210401429-9781956803198-the-diary-of-a-soul/"><u>The Diary of a Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210400656-9781982178161-the-mexican-witch-lifestyle/"><u>The Mexican Witch Lifestyle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210401489-9781737850212-unravel-the-bullsht/"><u>Unravel the Bullsh*t | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210400307-9781507218426-who-do-the-stars-say-you-are/"><u>Who Do the Stars Say You Are? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210400678-9781982185633-wild-witchcraft/"><u>Wild Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211416270-9781684351275-a-guide-to-sky-monsters/"><u>A Guide to Sky Monsters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414929-9798987674949-journey-to-true-self/"><u>Journey to True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414911-9791280027016-riconosci-e-guarisci-te-stesso-tramite-la-forza-dello-spirito/"><u>Riconosci e guarisci te stesso tramite la forza dello Spirito | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211415123-9781964959078-russian-edition-treasures-of-darkness-volume-2/"><u>Russian Edition - Treasures of Darkness: Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414926-9781396326158-the-realness-of-witch-craft-in-america/"><u>The Realness of Witch-craft in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211415170-9781964959061-traversing-the-pathways/"><u>Traversing the Pathways | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

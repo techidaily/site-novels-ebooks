@@ -1,7 +1,7 @@
 ---
 title: The Poltergeist Prince of London | Free Book
-date: 2024-10-21T19:47:40.780Z
-updated: 2024-10-27T02:42:54.264Z
+date: 2025-01-10T20:14:37.901Z
+updated: 2025-01-12T17:44:42.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6e7e22e7d512bc6b26d7723391ed8c91a12daca8db504d6d441528a891e10031.jpg
@@ -145,3 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6e7e22e7d512bc6b26d7723391ed8c9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211040301-9798887934112-a-turbulent-life/"><u>A Turbulent Life ? ? ? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211040216-9781088279427-joana/"><u>Joana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211040291-9781662480973-poems-to-measure-what-you-treasure-in-your-life/"><u>Poems to Measure What you Treasure in Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211040628-9781399729475-sacred-rituals/"><u>Sacred Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211040275-9781088273814-terapia-de-brujeria/"><u>Terapia de Brujería | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2025-01-05T16:41:45.177Z
-updated: 2025-01-06T16:09:56.426Z
+date: 2025-01-08T17:20:09.058Z
+updated: 2025-01-13T04:44:30.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,17 +143,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210344519--dreams-and-how-to-guide-them/"><u>Dreams and How to Guide Them | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344852-9781633412361-hoodoo-your-love/"><u>Hoodoo Your Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344745-9780008501990-how-to-catch-a-dream-21-ways-to-dream-and-live-bigger-and-better/"><u>How to Catch A Dream: 21 Ways to Dream (and Live) Bigger and Better | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210345127-9781934532485-the-21-stages-of-meditation/"><u>The 21 Stages of Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344807-9781493058631-the-big-book-of-california-ghost-stories/"><u>The Big Book of California Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344558-9781591812555-the-open-path/"><u>The Open Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344454-9780578751283-the-perks-of-being-terminal/"><u>The Perks of Being Terminal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344559-9781591812258-what-is-self/"><u>What Is Self? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211353699--activating-our-12-stranded-dna/"><u>Activating Our 12-Stranded DNA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352898-9798869368980-colores-espirituales-y-sus-significados-en-colegio-del-espiritu-santo-nueva-edicion-en-espanol/"><u>COLORES ESPIRITUALES y sus significados - En COLEGIO DEL ESPÍRITU SANTO - Nueva Edición en Español | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211353698--crystals-for-psychic-self-defense/"><u>Crystals for Psychic Self-Defense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352933-9798869364401-dont-image-sont-toi-edition-francaise/"><u>DONT IMAGE SONT TOI? Édition française | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352930-9798869363725-initiation-to-wicca/"><u>Initiation to Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211354485-9782385640606-la-puissance-des-rituels/"><u>La puissance des rituels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211354540-9781803412542-pagan-portals-spellcraft-and-spellwork/"><u>Pagan Portals - Spellcraft and Spellwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211354346--the-queens-path/"><u>The Queen's Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352900-9798869369703-duhovnye-cveta-i-ih-znachenie-v-shkole-svyatogo-duha-novoe-russkoe-izdanie/"><u>ДУХОВНЫЕ ЦВЕТА и их значение - В ШКОЛЕ СВЯТОГО ДУХА - Новое русское издание | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

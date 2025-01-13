@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2024-10-26T04:01:47.928Z
-updated: 2024-10-26T17:09:46.365Z
+date: 2025-01-11T20:34:57.524Z
+updated: 2025-01-12T22:04:33.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/59142fc985656626a735a6843613f1b340165a2d214ca7d443ea63e79684275a.jpg
@@ -133,3 +133,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/59142fc985656626a735a6843613f1b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932992-9781855843462-eurythmy-therapy/"><u>Eurythmy Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932993-9781855844551-life-beyond-death/"><u>Life Beyond Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932994-9781906999582-mapping-the-millennium/"><u>Mapping the Millennium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932990-9781855844636-the-lively-interchange-between-the-living-and-the-dead/"><u>The Lively Interchange Between The Living and The Dead | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

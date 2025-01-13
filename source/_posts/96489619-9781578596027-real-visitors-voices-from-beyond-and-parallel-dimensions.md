@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2025-01-04T16:00:07.100Z
-updated: 2025-01-06T16:41:04.622Z
+date: 2025-01-07T23:17:24.393Z
+updated: 2025-01-12T22:05:04.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,13 +254,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210557710-9781734226546-anorexia-more-articles-from-thejournal-1999-2006-with-a-focus-on-anorexia/"><u>Anorexia - More articles from theJournal (1999-2006) with a focus on Anorexia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557754-9781662416613-checkmate/"><u>Checkmate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557711-9781990346071-poradnik-ce-5/"><u>PORADNIK CE-5 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557738-9780760373712-trust-the-universe/"><u>Trust the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527971-9780811740692-haunted-maryland/"><u>Haunted Maryland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527933-9780811752978-haunted-western-pennsylvania/"><u>Haunted Western Pennsylvania | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527934-9780811753074-monsters-of-new-york/"><u>Monsters of New York | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527930-9781493043859-the-big-book-of-missouri-ghost-stories/"><u>The Big Book of Missouri Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527931-9781493043910-the-big-book-of-ohio-ghost-stories/"><u>The Big Book of Ohio Ghost Stories | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

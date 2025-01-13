@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2025-01-03T16:00:20.709Z
-updated: 2025-01-06T16:27:45.372Z
+date: 2025-01-05T19:08:04.620Z
+updated: 2025-01-12T18:34:21.324Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,17 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210454305-9781774816585-abraham-lincoln/"><u>Abraham Lincoln | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454334-9781736855416-modern-day-mystic/"><u>Modern Day Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454383-9789814952798-motivation-journal/"><u>Motivation Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454243-9781088001738-new-earth-prophecies/"><u>New Earth Prophecies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454199-9780991010998-party-of-twelve/"><u>Party of Twelve | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454197-9786277544812-power-to-create-wealth/"><u>Power to Create Wealth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454266-9780578348551-the-art-signs-of-spiritual-awakening/"><u>The Art & Signs of Spiritual Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454391-9798985487619-the-gratitude-beads/"><u>The Gratitude Beads | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455276-9798330397693-mastering-alchemy/"><u>Mastering Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455278-9798330397822-secretele-maestrului-alchimist/"><u>Secretele maestrului alchimist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455277-9798330397761-secretos-del-maestro-alquimista/"><u>Secretos del Maestro Alquimista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455275-9798330397730-segredos-do-mestre-alquimista/"><u>Segredos do Mestre Alquimista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455245-9781396325717-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455180-9781956198355-the-practitioner-handbook-for-spiritual-mind-healing-4th-ed/"><u>The Practitioner Handbook for Spiritual Mind Healing (4th ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

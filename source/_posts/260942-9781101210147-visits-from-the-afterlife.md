@@ -1,7 +1,7 @@
 ---
 title: Visits from the Afterlife | Free Book
-date: 2024-10-26T00:23:28.255Z
-updated: 2024-10-27T01:58:16.849Z
+date: 2025-01-07T19:36:07.277Z
+updated: 2025-01-12T18:01:31.434Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ef1805d13df3c8243fe9914ef6ab6287dc0e6af17853109f92a90dacc79624a.jpg
@@ -155,3 +155,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ef1805d13df3c8243fe9914ef6ab62
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211145190-9781804530399-capricorn/"><u>Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145113-9781801292221-master-your-mind-and-energy-to-heal-your-body/"><u>Master Your Mind and Energy to Heal Your Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145175-9781804530412-pisces/"><u>Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145132-9781800693159-the-little-book-of-mantras/"><u>The Little Book of Mantras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145134-9781800693135-the-little-book-of-numerology/"><u>The Little Book of Numerology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

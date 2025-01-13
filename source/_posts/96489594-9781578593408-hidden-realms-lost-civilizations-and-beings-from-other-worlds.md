@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2025-01-03T16:31:58.557Z
-updated: 2025-01-06T16:49:11.999Z
+date: 2025-01-07T19:47:55.862Z
+updated: 2025-01-13T02:27:08.491Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,14 +227,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210539579-9781447482840-a-dialogue-concerning-witches-and-witchcrafts/"><u>A Dialogue Concerning Witches and Witchcrafts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210540101-9781447488583-practical-mysticism-a-little-book-for-normal-people/"><u>Practical Mysticism - A Little Book for Normal People | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210539866-9781447499275-recovering-the-ancient-magic/"><u>Recovering the Ancient Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210539385-9781473385641-the-gypsy-queen-dream-book-and-fortune-teller-divination-series/"><u>The Gypsy Queen Dream Book and Fortune Teller (Divination Series) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210539279-9781446549483-witchcraft-and-witchcraft-trials-in-orkney-and-shetland-folklore-history-series/"><u>Witchcraft and Witchcraft Trials in Orkney and Shetland (Folklore History Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2417866-9781509823338-a-very-mindful-christmas/"><u>A Very Mindful Christmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2416121-9780786450879-children-who-remember-previous-lives/"><u>Children Who Remember Previous Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2418879-9781782794509-on-being-human/"><u>On Being Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2418881-9781785350313-pagan-portals-meditation/"><u>Pagan Portals - Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2418884-9781782799917-paradise-and-promises/"><u>Paradise and Promises | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2418890-9781785351587-the-book-of-becoming/"><u>The Book of Becoming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2417032-9781782799443-the-book-of-destiny/"><u>The Book of Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2416028-9780698404250-the-book-of-mastery/"><u>The Book of Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2417190-9781780288956-wake-the-fck-up/"><u>Wake the F*ck Up | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

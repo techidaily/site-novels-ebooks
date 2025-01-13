@@ -1,7 +1,7 @@
 ---
 title: New Revolutions for a Small Planet | Free Book
-date: 2024-10-25T21:53:47.889Z
-updated: 2024-10-26T18:43:08.490Z
+date: 2025-01-06T22:49:51.191Z
+updated: 2025-01-12T20:37:52.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95ce9d7c3eafcb9c2f8efba7a22d404a8e5494b780c8909daa652558f5772455.jpg
@@ -169,3 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95ce9d7c3eafcb9c2f8efba7a22d404
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211313255--astrologic/"><u>Astrologic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211311931-9781803414751-beyond-our-self-image/"><u>Beyond Our Self-Image | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211312511-9788441549500-el-legado-de-una-bruja-celta/"><u>El legado de una bruja celta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211312730--the-divine-frequency/"><u>The Divine Frequency | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

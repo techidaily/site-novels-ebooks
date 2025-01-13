@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2025-01-01T16:34:43.816Z
-updated: 2025-01-06T16:48:55.422Z
+date: 2025-01-10T18:45:34.088Z
+updated: 2025-01-13T00:37:50.213Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,18 +167,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210649240-9782384550111-a-suggestive-inquiry-into-the-hermetic-mystery-and-alchemy/"><u>A Suggestive Inquiry into the Hermetic Mystery and Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648330-9782017166184-lastrologie/"><u>L'astrologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648332-9782017166177-le-corps-messager-de-lame/"><u>Le corps messager de l'âme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210649112-9780760376379-moon-spells/"><u>Moon Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650166-9781623177911-new-moon-magic/"><u>New Moon Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648552-9789394701045-river-of-moksha/"><u>River of Moksha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210649464-9781685269715-spiritually-defining-seasons/"><u>Spiritually Defining Seasons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210649167-9781088063965-the-shift-now-master-fast/"><u>The SHIFT NOW Master Fast | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648841-9798986284019-you-are-deathless/"><u>You Are Deathless | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670399-9781515410393-mental-chemistry/"><u>Mental Chemistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670397-9781515410089-metaphysical-bible-dictionary/"><u>Metaphysical Bible Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670417-9781515407348-the-ascent-of-man/"><u>The Ascent of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670432-9781515408666-the-christian-book-of-mystical-verse/"><u>The Christian Book of Mystical Verse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670429-9781515408581-the-complete-works-of-e-m-bounds/"><u>The Complete Works of E. M. Bounds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670424-9781515407614-the-creative-process-in-the-individual/"><u>The Creative Process in the Individual | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Man with the Inexplicable Life | Free Book
-date: 2025-01-05T16:40:35.095Z
-updated: 2025-01-06T16:05:05.615Z
+date: 2025-01-10T05:49:39.043Z
+updated: 2025-01-12T23:58:53.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090d7a673c820c62b2b8653378e4a7827ca4.jpg
@@ -170,16 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210659509-9798985627138-inspired-meditations-book-ii/"><u>Inspired Meditations Book II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659510-9798985627152-inspired-meditations-book-iii/"><u>Inspired Meditations Book III | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659821-9781685702731-know-your-future/"><u>Know Your Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210660657-9798986782058-numerology-for-brilliance-2nd-ed/"><u>Numerology for Brilliance (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659796-9781952692482-the-mindfulness-bell-thich-nhat-hanh-memorial-issue-89-2022/"><u>The Mindfulness Bell: Thich Nhat Hanh Memorial Issue 89, 2022 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659493-9781951879136-the-spiritual-design-wave-3/"><u>The SPIRITUAL DESIGN WAVE 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659820-9781638740889-thoughts-from-a-mothers-love/"><u>Thoughts from a Mother's Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/308424-9780965804271-bhagavad-gita-for-modern-times/"><u>Bhagavad Gita for Modern Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/295380--buddhism-for-busy-people-2nd-ed/"><u>Buddhism for Busy People (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/295843-9780553904505-cosmic-love/"><u>Cosmic Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/296566-9781416565420-epiphanies/"><u>Epiphanies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/297427-9780553904925-new-moon-astrology/"><u>New Moon Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/302310-9781416565437-ocean-oracle/"><u>Ocean Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/302390-9781101211830-psychic-children/"><u>Psychic Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/301647--tarot-masterclass/"><u>Tarot Masterclass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/301300-9781416545224-the-energy-healing-experiments/"><u>The Energy Healing Experiments | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

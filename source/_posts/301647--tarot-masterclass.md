@@ -1,7 +1,7 @@
 ---
 title: Tarot Masterclass | Free Book
-date: 2024-10-22T05:33:04.671Z
-updated: 2024-10-27T01:00:30.099Z
+date: 2025-01-05T23:27:34.911Z
+updated: 2025-01-12T20:58:55.149Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a6cd6817b0fdbedc4fa9467ff8640589832ec3cf1813a7f61dfcf23f86cf893.jpg
@@ -153,3 +153,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a6cd6817b0fdbedc4fa9467ff86405
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877672-9781088174555-2020-and-beyond-prophetic-breaking-news-2-of-4/"><u>2020 and Beyond Prophetic Breaking News - 2 of 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877374-9781633411753-asatru/"><u>Asatru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877452-9781915409034-astrology-for-beginners/"><u>Astrology For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877371-9781633410442-fairies-pookas-and-changelings/"><u>Fairies, Pookas, and Changelings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877456-9781959224976-make-your-dream-come-true/"><u>Make Your Dream Come True! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877503-9782384551538-ruysbroeck-and-the-mystics/"><u>Ruysbroeck and the Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877437-9781685680459-vnutrennij-pokoj/"><u>Внутренний покой | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

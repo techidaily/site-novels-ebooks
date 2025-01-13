@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2025-01-02T16:21:30.210Z
-updated: 2025-01-06T16:18:26.058Z
+date: 2025-01-06T21:06:02.919Z
+updated: 2025-01-13T00:48:54.228Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,15 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210410935-9781644115305-activate-your-super-human-potential/"><u>Activate Your Super-Human Potential | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410930-9781644114575-embodying-the-mystery/"><u>Embodying the Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410931-9781644114643-lightbringers-of-the-north/"><u>Lightbringers of the North | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410929-9781644114315-sacred-geometry-of-the-starcut-diagram-2nd-ed/"><u>Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410932-9781644114759-the-kabbalah-of-light/"><u>The Kabbalah of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410933-9781644114780-witch-wisdom-for-magical-aging/"><u>Witch Wisdom for Magical Aging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423851-9781800653900-guardian-angels/"><u>Guardian Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423759--humanity-on-the-threshold/"><u>Humanity on the Threshold | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423839-9789948747185-the-immortal-scent/"><u>The Immortal Scent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423850-9781800653955-wiccan-self-care-spells/"><u>Wiccan Self-care Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423848-9781800653610-your-dream-handbook/"><u>Your Dream Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423797-9789948756002-khoatr/"><u>خواطر | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

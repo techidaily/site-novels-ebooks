@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2025-01-05T16:59:16.448Z
-updated: 2025-01-06T16:31:49.325Z
+date: 2025-01-09T20:08:19.632Z
+updated: 2025-01-13T04:16:02.508Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,17 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210395573-9780811875905-celtic-wisdom/"><u>Celtic Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395575-9780811875912-chakra/"><u>Chakra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395967-9781452163659-cosmos-sexy-sutra/"><u>Cosmo's Sexy Sutra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395547-9781452136707-fortune-telling-book-of-colors/"><u>Fortune-Telling Book of Colors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395669-9781452120270-spirit-animals/"><u>Spirit Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395803-9781452158198-the-golden-book-of-fortune-telling/"><u>The Golden Book of Fortune-Telling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395931-9781452127255-the-little-book-of-angels/"><u>The Little Book of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210396183-9780593538548-the-magick-of-birthdays/"><u>The Magick of Birthdays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211404131-9781763547612-finding-joy-when-life-gets-tough/"><u>Finding Joy When Life Gets Tough | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211401434-9781786851031-live-better/"><u>Live Better | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403675-9781396326332-max-heindels-letters-to-students/"><u>Max Heindel's Letters to Students | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211402844-9783989734258-the-case-against-spiritualism/"><u>The Case Against Spiritualism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211404214-9798330274932-the-celestial-stoner/"><u>The Celestial Stoner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403960-9781958997826-the-disciples-manual/"><u>The Disciples Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211403202--the-golden-grimoire/"><u>The Golden Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211404011-9781990823848-why-me/"><u>Why Me? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

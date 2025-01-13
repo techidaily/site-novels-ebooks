@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2025-01-01T16:42:45.079Z
-updated: 2025-01-06T17:04:31.015Z
+date: 2025-01-05T21:27:52.720Z
+updated: 2025-01-13T04:28:27.915Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,14 +153,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210389811-9781493046317-haunted-connecticut-2nd-ed/"><u>Haunted Connecticut (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389812-9781493045778-haunted-illinois-2nd-ed/"><u>Haunted Illinois (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389815-9781493044863-spooky-florida-2nd-ed/"><u>Spooky Florida (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210390085-9781953450654-the-light-of-egypt-or-the-science-of-the-soul-and-the-stars-two-volumes-in-one/"><u>The Light of Egypt; Or, the Science of the Soul and the Stars [Two Volumes in One] | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389971-9781737464129-the-natural-law-of-attraction/"><u>The Natural Law Of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394062-9781507300480-aliens-god-and-the-bible/"><u>Aliens, God, and the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211395255--magic-memory-and-natural-philosophy-in-the-sixteenth-and-seventeenth-centuries/"><u>Magic, Memory and Natural Philosophy in the Sixteenth and Seventeenth Centuries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211396865-9781528799355-palmistry-a-manual-of-cheirosophy/"><u>Palmistry - A Manual of Cheirosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211396870-9781528799294-possession-demoniacal-and-other/"><u>Possession - Demoniacal and Other | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394112-9781507300527-spirits-speak-of-conspiracies-mysteries/"><u>Spirits Speak of Conspiracies & Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394169-9781507301135-the-numbers-of-your-life/"><u>The Numbers of Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211396866-9781528799843-the-physical-phenomena-of-mysticism-with-especial-reference-to-the-stigmata-divine-and-diabolic/"><u>The Physical Phenomena of Mysticism - With Especial Reference to the Stigmata, Divine and Diabolic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394163-9781507300091-the-ufo-phenomenon/"><u>The UFO Phenomenon | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

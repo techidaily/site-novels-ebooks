@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2025-01-01T16:45:38.743Z
-updated: 2025-01-06T16:24:16.046Z
+date: 2025-01-11T03:48:21.306Z
+updated: 2025-01-13T03:18:04.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,17 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210383658-9781777662028-energy-and-weight-loss-the-weight-loss-pill-to-understanding-dense-energies-from-humans-environments-ghosts-and-past-lives-that-cause-weight-gain/"><u>ENERGY AND WEIGHT LOSS The "Weight Loss Pill " to Understanding Dense Energies from Humans, Environments, Ghosts, and Past Lives that Cause Weight Gain! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389809-9781493047185-haunted-oklahoma/"><u>Haunted Oklahoma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210389810-9781493047925-haunted-wisconsin-2nd-ed/"><u>Haunted Wisconsin (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210383631-9788792980977-inawainge-one-who-sees/"><u>Iñawaingé - one who sees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210385435-9782017150060-lunivers-a-toujours-un-plan/"><u>L'univers a toujours un plan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210385649-9781667414270-mindfulness-la-guia-completa-de-meditacion-para-principiantes/"><u>Mindfulness: La guía completa de meditación para principiantes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210382663-9781623176921-mirrors-in-the-earth/"><u>Mirrors in the Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210385627-9781667409634-seja-resiliente-contra-o-estresse-e-se-acalme/"><u>Seja resiliente contra o estresse e se acalme! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211393920-9781250266835-a-monks-guide-to-happiness/"><u>A Monk's Guide to Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394058-9781507301418-living-a-life-in-balance/"><u>Living a Life in Balance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211393909-9781507300534-skeleton-keys/"><u>Skeleton Keys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394037-9781507301111-tarot-for-the-fiction-writer/"><u>Tarot for the Fiction Writer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211393878-9781507301685-the-healthy-witch/"><u>The Healthy Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211393424-9781466834835-the-mothman-prophecies/"><u>The Mothman Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211393922-9781429987998-ufo-hunters/"><u>UFO Hunters | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2025-01-02T16:48:25.608Z
-updated: 2025-01-06T17:04:35.095Z
+date: 2025-01-06T00:59:58.482Z
+updated: 2025-01-13T06:09:58.584Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,15 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210431604-9780645281514-an-introduction-to-spirituality/"><u>An Introduction to Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210431603-9780646851525-find-your-way/"><u>Find Your Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210431602-9781957234984-intuitive-moon-rituals/"><u>Intuitive Moon Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210433110-9781786786081-myung-sung/"><u>Myung Sung | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210432855-9781684860081-satans-masterpiece-and-the-way-to-freedom/"><u>Satan's Masterpiece, And The Way To Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210432942-9780760371404-the-ultimate-guide-to-psychic-abilities/"><u>The Ultimate Guide to Psychic Abilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441721--co-creating-with-nature/"><u>Co-Creating with Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441229-9798330354313-head-heart-crotch-connections/"><u>Head, Heart, Crotch Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441830--palmistry-for-happiness/"><u>Palmistry for Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441723--sacred-forest-bathing/"><u>Sacred Forest Bathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441440-9798330358267-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441832--the-languages-of-magic/"><u>The Languages of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441722--the-psychedelic-shaman/"><u>The Psychedelic Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441765--the-sacred-mushroom-3rd-ed/"><u>The Sacred Mushroom (3rd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

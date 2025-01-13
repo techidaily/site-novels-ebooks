@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2024-12-31T16:40:40.913Z
-updated: 2025-01-06T16:45:30.582Z
+date: 2025-01-07T18:01:49.045Z
+updated: 2025-01-12T23:58:37.651Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,17 +148,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210349216-9782226306869-cinq-eloges-de-lepreuve/"><u>Cinq éloges de l'épreuve | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349231-9782226306845-larchipel-des-saints/"><u>L'Archipel des saints | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349423-9782226303141-lesprit-du-yoga/"><u>L'Esprit du yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349218-9782226306883-la-confrerie-de-la-danse-sacree/"><u>La Confrérie de la danse sacrée | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349264-9782226297501-le-reve-et-ses-interpretations-en-islam/"><u>Le Rêve et ses interprétations en Islam | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349424-9782226291202-le-reve-eveille-libre/"><u>Le Rêve éveillé libre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349411-9782226303165-paroles-de-verite/"><u>Paroles de vérité | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349376-9782226290595-un-homme-trahi/"><u>Un homme trahi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211366241--365-happy-bedtime-mantras/"><u>365 Happy Bedtime Mantras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211367292--el-diario-de-la-chica-con-suerte/"><u>El diario de la chica con suerte | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211367291--el-diario-del-369/"><u>El diario del 369 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211368232-9781250082169-queer-astrology-for-men/"><u>Queer Astrology for Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211367645-9781429985413-talking-to-the-dead/"><u>Talking to the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211368716-9781926231648-vivre-avec-ame/"><u>Vivre avec Âme | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

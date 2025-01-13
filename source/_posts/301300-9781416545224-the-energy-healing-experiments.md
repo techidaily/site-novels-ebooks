@@ -1,7 +1,7 @@
 ---
 title: The Energy Healing Experiments | Free Book
-date: 2024-10-21T02:48:38.426Z
-updated: 2024-10-26T21:00:04.608Z
+date: 2025-01-07T18:01:13.089Z
+updated: 2025-01-13T02:54:00.629Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6bd2d68af13d1532f027f4ef2653cc8c0b9cceaab71108049fb4d15486f6f037.jpg
@@ -185,3 +185,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6bd2d68af13d1532f027f4ef2653cc8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877363-9781633411579-enochian-vision-magick/"><u>Enochian Vision Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877369-9781633411517-extraterrestrial-contact/"><u>Extraterrestrial Contact | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877365-9781633411432-grimoire-of-aleister-crowley/"><u>Grimoire of Aleister Crowley | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877364-9781934708590-hidden-wisdom/"><u>Hidden Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877362-9781633411173-magickal-astrology/"><u>Magickal Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877358-9781633410886-mindful-dreaming/"><u>Mindful Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877368-9781633411531-sacred-smoke/"><u>Sacred Smoke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877359-9781633411524-the-cia-ufo-papers/"><u>The CIA UFO Papers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877361-9781633411616-the-practice-of-enochian-magick/"><u>The Practice of Enochian Magick | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2024-12-30T16:45:31.468Z
-updated: 2025-01-06T16:10:24.241Z
+date: 2025-01-09T05:34:14.053Z
+updated: 2025-01-13T00:51:09.202Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,17 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210393736-9780834844148-body-astrology/"><u>Body Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394851-9780998560366-comi/"><u>COMI | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394833-9781736892213-ezekiels-awakening-into-light/"><u>Ezekiel's Awakening Into Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395508-9780811870740-fortune-telling-birthday-book/"><u>Fortune-Telling Birthday Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210395503-9780811870726-fortune-telling-book-of-dreams/"><u>Fortune-Telling Book of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210393724-9780834844216-pause-rest-be/"><u>Pause, Rest, Be | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394790-9781087989204-pray-what-you-preach/"><u>Pray What You Preach: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394676-9781645314363-swipe/"><u>Swipe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400637-9798894581354-dating/"><u>Dating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400523-9798330266081-dreamers-doers/"><u>Dreamers & Doers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400569-9798330238484-fuel-minds-phase-7/"><u>Fuel Minds: Phase 7 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400630-9798330268825-the-mindful-revolution/"><u>The Mindful Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400515-9798987071724-when-spirits-speak/"><u>When Spirits Speak | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

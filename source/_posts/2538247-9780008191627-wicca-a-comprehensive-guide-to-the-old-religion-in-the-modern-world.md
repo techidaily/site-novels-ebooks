@@ -1,7 +1,7 @@
 ---
 title: "Wicca: A comprehensive guide to the Old Religion in the modern world | Free Book"
-date: 2024-10-25T20:42:09.443Z
-updated: 2024-10-26T17:33:45.582Z
+date: 2025-01-08T00:12:29.517Z
+updated: 2025-01-13T01:04:57.818Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ecc15414c7d5101a96a43cc8d0c135c9dd7013c0e1089cbd37afd0847fbf4ee.jpg
@@ -176,3 +176,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ecc15414c7d5101a96a43cc8d0c135
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211333818-9781803414393-crystal-creed/"><u>Crystal Creed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332763-9789362619792-divine-timing-oracle-guidebook-unlocking-the-tapestry-of-time/"><u>Divine Timing Oracle Guidebook (Unlocking the Tapestry of Time! ) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332780-9798893810240-just-when-you-thought-you-knew/"><u>Just When You Thought You Knew | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333815-9781803412139-sacred-bones-magic-bones/"><u>Sacred Bones, Magic Bones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211333816-9781803413143-the-science-of-sound/"><u>The Science of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332902-9789362610744-yeshustan-living-a-heavenly-life/"><u>Yeshustan Living A Heavenly Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332532-9798869177605-hvkhrz-khmt-l-45-dkvt-mh-hv-rh-vykh-zh-ynh-t-hyyv-lntsh-hvvyh-l-krvv-lmvvt-nde/"><u>הוכרז כמת ל -45 דקות - מה שהוא ראה ואיך זה שינה את חייו לנצח - חוויה של קרוב למוות (NDE) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

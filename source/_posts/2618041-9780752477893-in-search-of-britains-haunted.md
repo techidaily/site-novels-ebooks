@@ -1,7 +1,7 @@
 ---
 title: In Search of Britain's Haunted | Free Book
-date: 2024-10-21T20:07:16.563Z
-updated: 2024-10-26T20:04:27.316Z
+date: 2025-01-08T19:47:03.953Z
+updated: 2025-01-13T05:23:23.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/644e71f30fe0b04b7a50e87da48d414fa9315d8d0e865adc3a0fc66381c1213d.jpg
@@ -144,3 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/644e71f30fe0b04b7a50e87da48d414
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211066373-9789359043456-the-blue-island-experiences-of-a-new-arrival-beyond-the-veil/"><u>The Blue Island: Experiences of A New Arrival Beyond The Veil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066393-9789359043777-the-enlightenment-of-the-world/"><u>The Enlightenment of the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066374-9789359043852-the-other-world-or-glimpses-of-the-supernatural-being-facts-records-and-traditons/"><u>The Other World; or, Glimpses Of The Supernatural Being Facts Records And Traditons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066391-9789359046389-the-spirit-land/"><u>The Spirit Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066390-9789359043296-thought-forms/"><u>Thought-Forms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066385-9789359043630-unveiled-mysteries/"><u>Unveiled Mysteries | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

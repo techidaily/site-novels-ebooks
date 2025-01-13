@@ -1,7 +1,7 @@
 ---
 title: Metaphysical Bible Dictionary | Free Book
-date: 2024-10-19T21:51:40.021Z
-updated: 2024-10-26T16:27:35.063Z
+date: 2025-01-10T17:52:38.409Z
+updated: 2025-01-12T21:02:24.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/77b719288b68331ed980c4a73f77966a529cf5f6d48013e21d7f80d22ccdb473.jpg
@@ -134,3 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/77b719288b68331ed980c4a73f77966
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210934775-9781782496212-be-your-own-astrologer/"><u>Be Your Own Astrologer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934793-9781800651739-the-book-of-norse-magic/"><u>The Book of Norse Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934781-9781782495222-the-little-pocket-book-of-mindfulness/"><u>The Little Pocket Book of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934789-9781782497554-the-self-healing-revolution/"><u>The Self-healing Revolution | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

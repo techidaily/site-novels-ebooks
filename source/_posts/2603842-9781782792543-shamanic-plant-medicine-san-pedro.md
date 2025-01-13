@@ -1,7 +1,7 @@
 ---
 title: Shamanic Plant Medicine - San Pedro | Free Book
-date: 2024-10-22T19:53:12.322Z
-updated: 2024-10-26T18:20:07.222Z
+date: 2025-01-08T17:39:04.913Z
+updated: 2025-01-13T04:24:08.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/74e970a795584c2550d2d060beb6f08a28986b71e6d9551de9f65fb16da0e727.jpg
@@ -150,3 +150,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/74e970a795584c2550d2d060beb6f08
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211128452-9798868925122-el-rey-de-los-mendigos/"><u>El Rey de los Mendigos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128795-9798868930041-el-ultimo-pasajero/"><u>El Último Pasajero | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211129447-9781761187940-everyday-folklore/"><u>Everyday Folklore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130213-9781914271502-hot-erotic-short-stories-3-in-1naughty-adult-collection/"><u>Hot Erotic Short Stories 3 in 1Naughty Adult Collection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128641-9798888517505-next-a-little-guide-about-moving-forward-from-imposter-syndrome-fear-perfectionism-and-certainty/"><u>NEXT: A Little Guide About Moving Forward from Imposter Syndrome, Fear, Perfectionism, and Certainty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130477-9781604736649-shadows-and-cypress/"><u>Shadows and Cypress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128550-9798885254434-strong-woman-arisen/"><u>Strong Woman Arisen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130085-9781454949848-the-rainbow-witch/"><u>The Rainbow Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211128752-9781739394530-the-transformation-keys-unleash-your-best-self/"><u>The Transformation Keys: Unleash Your Best Self | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

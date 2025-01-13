@@ -1,7 +1,7 @@
 ---
 title: Life Power and How to Use It | Free Book
-date: 2025-01-02T16:43:08.666Z
-updated: 2025-01-06T17:01:49.089Z
+date: 2025-01-08T00:28:53.112Z
+updated: 2025-01-12T21:31:18.670Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f8b0d68c30dc559a17ffd4ac5d1f54a86a.jpg
@@ -135,15 +135,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210492780-9780711271739-earth-magick/"><u>Earth Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210493275-9780711266018-hello-rainbow/"><u>Hello Rainbow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210491915-9781786786784-hurt-healing-healed/"><u>Hurt, Healing, Healed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210492540-9781612437507-real-ghost-stories/"><u>Real Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210492866-9781990093425-return-of-the-avatars/"><u>Return of the Avatars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210493313-9781956665017-wellness-for-winners/"><u>Wellness for Winners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476316--close-encounters/"><u>Close Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476671-9781907767494-prophecy-and-power-2nd-ed/"><u>Prophecy and Power (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476485-9781839388712-rosicrucianism/"><u>Rosicrucianism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476413-9781839388699-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476238-9781397665300-the-sixth-book-of-moses-and-the-seventh-book-of-moses/"><u>The Sixth Book of Moses and The Seventh Book of Moses | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

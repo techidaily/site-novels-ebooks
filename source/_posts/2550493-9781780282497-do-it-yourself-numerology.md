@@ -1,7 +1,7 @@
 ---
 title: Do It Yourself Numerology | Free Book
-date: 2024-10-20T02:15:10.662Z
-updated: 2024-10-26T17:35:59.945Z
+date: 2025-01-11T20:49:27.614Z
+updated: 2025-01-13T01:08:04.436Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/861348c07cc722536836365fb6072dd8879549faa1ba26014cc827351e9cce24.jpg
@@ -174,3 +174,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/861348c07cc722536836365fb6072dd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211266838-9798869266798-cosmic-cannabis/"><u>Cosmic Cannabis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266843-9798893305333-fifty-words-of-encouragement-just-for-you/"><u>Fifty Words of Encouragement Just For You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266715-9781958921579-goddess/"><u>Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266737-9781446313381-the-crystal-collector/"><u>The Crystal Collector | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211266812-9798890612793-the-magic-in-my-clouds/"><u>The Magic In My Clouds | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

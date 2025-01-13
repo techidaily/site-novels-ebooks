@@ -1,7 +1,7 @@
 ---
 title: Haunted Tunbridge Wells | Free Book
-date: 2024-10-22T22:32:53.926Z
-updated: 2024-10-26T23:12:11.692Z
+date: 2025-01-10T05:30:27.565Z
+updated: 2025-01-13T04:45:25.152Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff491e1546585afa1ece1498f2b8e3802135348f373ae52f0bb38b5183fc80e4.jpg
@@ -138,3 +138,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff491e1546585afa1ece1498f2b8e38
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211166476-9798822924871-my-supernatural-life/"><u>My Supernatural Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166456-9780760388310-owl-magick/"><u>Owl Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166548-9798987974056-peace/"><u>Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166448-9780760388983-phantom-phenomena/"><u>Phantom Phenomena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166535-9781958104088-the-murdered-dead-speak-book-i/"><u>The Murdered Dead Speak: Book I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166459-9780711289628-the-witchs-book-of-spells/"><u>The Witch's Book of Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166455-9780760390245-vampires/"><u>Vampires | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2025-01-02T16:25:24.737Z
-updated: 2025-01-06T16:02:33.676Z
+date: 2025-01-09T16:44:57.908Z
+updated: 2025-01-12T18:33:53.573Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,17 +155,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210399450-9781087900766-i-am-the-mind-of-god-creation-a-world-of-words/"><u>''I AM'' The Mind of God: Creation: A World of Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399393-9781088008485-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399399-9781088008409-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399439-9798985067118-nourish/"><u>Nourish | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399236-9789388760867-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399175-9789389716610-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399165-9789389716627-the-secret-of-imagining/"><u>The Secret of Imagining | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399241-9789389157635-the-seven-laws-of-teaching/"><u>The Seven Laws of Teaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414909-9783892016366-da-dove-vengo-dove-vado-il-viaggio-della-tua-anima/"><u>Da dove vengo? Dove vado? Il viaggio della tua anima | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414873--healing-the-liminal/"><u>Healing the Liminal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414307-9781634244534-my-cosmic-trigger/"><u>My Cosmic Trigger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414832--the-healing-nature-of-trees/"><u>The Healing Nature of Trees | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

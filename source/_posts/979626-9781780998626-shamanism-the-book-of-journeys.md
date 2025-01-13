@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2024-12-30T16:52:17.197Z
-updated: 2025-01-06T16:11:50.459Z
+date: 2025-01-08T22:19:57.990Z
+updated: 2025-01-13T02:50:51.021Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,18 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210367895-9781638148715-angel-eyes/"><u>Angel Eyes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367859-9781736589892-ash-and-spirit/"><u>Ash and Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367692-9781662432866-conscious-exploration-for-the-advanced-soul/"><u>Conscious Exploration for the Advanced Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367898-9781644689042-from-addiction-to-recovery/"><u>From Addiction to Recovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367958-9781612834801-the-art-of-breathing/"><u>The Art of Breathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367281-9781472948564-the-breathing-revolution/"><u>The Breathing Revolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367663-9781396320255-the-day-of-wisdom-according-to-number-vibration/"><u>The Day of Wisdom According to Number Vibration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210367956-9781612834771-the-tiny-book-of-big-manifesting/"><u>The Tiny Book of Big Manifesting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210366659-9781953806567-wisdom-of-the-silver-sisters-guiding-grace/"><u>Wisdom of the Silver Sisters - Guiding Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383358-9798330229765-come-decodificare-la-voce-di-dio-5-modi/"><u>Come decodificare la voce di Dio - 5 modi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383359-9798330229741-como-decodificar-a-voz-de-deus-5-maneiras/"><u>Como decodificar a voz de Deus - 5 maneiras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383386--you-are-not-your-trauma-healing-journal/"><u>You Are Not Your Trauma Healing Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383360-9798330229789-kak-rasshifrovat-golos-boga-5-sposobov/"><u>Как расшифровать голос Бога - 5 способов | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

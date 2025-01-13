@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2024-12-31T16:11:26.429Z
-updated: 2025-01-06T16:58:59.793Z
+date: 2025-01-10T16:55:59.496Z
+updated: 2025-01-13T00:10:30.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,17 +213,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210628684-9781087895956-a-slice-of-light/"><u>A Slice of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210626157-9780645416510-body-wisdom/"><u>Body Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210626209-9798986580883-empowering-motivational-team-building-leadership-wide-ruled-lined-personal-journal-diary-note/"><u>Empowering, Motivational, Team-building, Leadership Wide-Ruled Lined Personal Journal, Diary, & Note | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210628743-9781685265458-god-loves-us-all-greatly-caring-for-ourselves-as-we-care-for-our-beloved-sick-pets/"><u>God Loves Us All Greatly: Caring for Ourselves as We Care for Our Beloved Sick Pets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210626160-9781684930913-god-man/"><u>God-Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210628790-9780986330957-pain/"><u>Pain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210627730-9781398824270-the-occult-magic-witchcraft/"><u>The Occult, Magic & Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210628704-9798985751451-trauma-inspired/"><u>Trauma-Inspired | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622914-9781936740055-apocalypse-not/"><u>Apocalypse Not | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622924-9781573445658-change-your-life/"><u>Change Your Life! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2640563-9780857012548-cultivating-qi/"><u>Cultivating Qi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622899-9781632280121-get-well-wishes/"><u>Get Well Wishes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622889-9781936740284-the-art-of-living-joyfully/"><u>The Art of Living Joyfully | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

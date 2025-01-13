@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-01-05T16:34:34.535Z
-updated: 2025-01-06T16:00:55.785Z
+date: 2025-01-06T03:48:29.687Z
+updated: 2025-01-13T01:09:15.908Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,15 +192,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210562412-9781935492214-el-descanso-pleno/"><u>El descanso pleno | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562409-9781935492108-living-the-spiritual-principles-of-health-and-well-being/"><u>Living the Spiritual Principles of Health and Well-Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562414-9781935492023-serving-amp-giving/"><u>Serving &amp; Giving | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562315-9781734574197-star-quest-navigator-navigator/"><u>Star Quest: Navigator: Navigator | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562411-9781893020887-the-rest-of-your-life/"><u>The Rest of Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562419-9781893020795-you-are-the-blessings/"><u>You Are the Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/253600-9789004132429-astrology-and-numerology-in-medieval-and-early-modern-catalonia/"><u>Astrology and numerology in medieval and early modern Catalonia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2536700-9781501138270-how-the-secret-changed-my-life/"><u>How The Secret Changed My Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2534857-9781626256514-letters-to-my-grandson/"><u>Letters to My Grandson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2536439-9780008191498-the-ghost-whisperer/"><u>The Ghost Whisperer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2535703-9781784501754-transformative-imagery/"><u>Transformative Imagery | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

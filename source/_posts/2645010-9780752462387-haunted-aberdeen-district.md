@@ -1,7 +1,7 @@
 ---
 title: Haunted Aberdeen & District | Free Book
-date: 2024-10-21T21:58:11.879Z
-updated: 2024-10-26T23:15:19.645Z
+date: 2025-01-11T18:17:41.580Z
+updated: 2025-01-13T02:40:59.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e565e38715b67fbb27657f0b8788cd202c130933b7769a9a9503614a6753996e.jpg
@@ -154,3 +154,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e565e38715b67fbb27657f0b8788cd2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211010400-9781088238721-valio-la-pena/"><u>¡VALIÓ LA PENA! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010402-9781088238004-mori-y-ahora/"><u>Morí, ¿y ahora? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010401-9781088238165-nuevamente-juntos/"><u>Nuevamente Juntos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010398-9781088243558-the-cliff-house/"><u>THE CLIFF HOUSE | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

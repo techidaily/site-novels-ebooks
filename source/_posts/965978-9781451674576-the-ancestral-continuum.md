@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2025-01-05T16:57:43.488Z
-updated: 2025-01-06T17:04:17.860Z
+date: 2025-01-10T01:08:11.427Z
+updated: 2025-01-12T19:19:54.351Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,13 +181,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210355836-9781644115244-discover-your-soul-mission/"><u>Discover Your Soul Mission | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355875-9781250803771-reading-tea-leaves/"><u>Reading Tea Leaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355860-9781250803757-the-golden-key-the-complete-original-edition/"><u>The Golden Key: The Complete Original Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355834-9781644114537-the-science-of-subtle-energy/"><u>The Science of Subtle Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375384-9781800652446-crystal-connections/"><u>Crystal Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375204--just-ask-spirit/"><u>Just Ask Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211374825-9782017230069-lastrologie-des-maitres-de-linde/"><u>L'astrologie des maîtres de l'Inde | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375385-9781800652453-mindful-homes/"><u>Mindful Homes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375438-9780061748950-papal-magic/"><u>Papal Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

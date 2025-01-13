@@ -1,7 +1,7 @@
 ---
 title: Life Is Eternal Newness | Free Book
-date: 2024-12-31T16:42:02.714Z
-updated: 2025-01-06T16:11:51.269Z
+date: 2025-01-10T23:12:28.623Z
+updated: 2025-01-13T04:02:07.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/401eadd4a6682fc0a19d06409c8fcef884a5bbafed8e152b63b0fa647d872b6f.jpg
@@ -139,14 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/401eadd4a6682fc0a19d06409c8fcef
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210348300-9782226382368-vous-me-coucherez-nu-sur-la-terre-nue/"><u> "Vous me coucherez nu sur la terre nue " | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348599-9782226375018-cinq-eloges-de-la-rencontre/"><u>Cinq éloges de la rencontre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348679-9782226342416-don-et-pardon/"><u>Don et pardon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348674-9782226335661-elements-de-psychologie-spirituelle/"><u>Éléments de psychologie spirituelle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348215-9782226386526-message-des-hommes-vrais-au-monde-mutant-2nd-ed/"><u>Message des hommes vrais au monde mutant (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364306-9781528799577-county-folk-lore-volume-ii-examples-of-printed-folk-lore-concerning-the-north-riding-of-yorkshire-york-and-the-ainsty/"><u>County Folk-Lore - Volume II - Examples of Printed Folk-Lore Concerning the North Riding of Yorkshire, York and the Ainsty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364318-9781528799560-county-folk-lore-volume-v-examples-of-printed-folk-lore-concerning-lincolnshire/"><u>County Folk-Lore - Volume V - Examples of Printed Folk-Lore Concerning Lincolnshire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364308-9781528799782-fortune-telling-for-everyone-a-complete-manual-of-fortune-telling-by-astrology-cards-tea-leaves-palmistry-phrenology-and-other-methods/"><u>Fortune Telling for Everyone - A Complete Manual of Fortune-Telling by Astrology, Cards, Tea Leaves, Palmistry, Phrenology, and Other Methods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364316-9781528799393-the-healing-hand/"><u>The Healing Hand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364311-9781528799775-the-lancashire-witches-a-classic-article-on-the-history-of-witchcraft-in-england/"><u>The Lancashire Witches - A Classic Article on the History of Witchcraft in England | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364322-9781528799683-the-occult-sciences-witchcraft-and-low-magic/"><u>The Occult Sciences - Witchcraft and Low Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364310-9781528799836-the-soul-of-things-or-psychometric-researches-and-discoveries/"><u>The Soul of Things or Psychometric - Researches and Discoveries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364319-9781528799850-witchcraft-and-black-magic/"><u>Witchcraft and Black Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Secrets of the Combined Astrology | Free Book
-date: 2024-10-21T03:25:09.587Z
-updated: 2024-10-26T20:26:10.159Z
+date: 2025-01-12T04:58:57.406Z
+updated: 2025-01-12T21:31:31.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/532c8766dd92335afa76af3473af27c0cea979765e798cca83a1ed121fe50a89.jpg
@@ -138,3 +138,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/532c8766dd92335afa76af3473af27c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211308841-9798869294258-de-vuelta-a-la-vida/"><u>De Vuelta a la Vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211308837-9798990415102-fierce-boundaries/"><u>Fierce Boundaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211308773-9781777481919-kundalini-awakening/"><u>Kundalini Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211309365-9782385640453-le-guide-de-lancrage/"><u>Le guide de l'ancrage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211309298--read-life-accurately/"><u>Read Life Accurately | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211308983-9781922428714-russian-edition-legacy-of-sonship/"><u>Russian Edition - Legacy of Sonship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211308756-9798869294616-the-moral-journey/"><u>The Moral Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211309122--the-zodiac-year/"><u>The Zodiac Year | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

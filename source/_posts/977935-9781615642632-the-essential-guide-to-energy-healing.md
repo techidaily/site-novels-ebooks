@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2025-01-04T16:55:21.784Z
-updated: 2025-01-06T16:46:37.971Z
+date: 2025-01-10T16:55:24.251Z
+updated: 2025-01-12T22:27:12.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,17 +187,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210361759-9781761037214-celtic-mythology/"><u>Celtic Mythology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210362173-9781640869882-conexion-con-el-universo/"><u>Conexión con el Universo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361835-9781637303702-from-waves-i-rise/"><u>From Waves, I Rise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210362084-9781662424700-navigating-the-pandemic/"><u>Navigating the Pandemic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210362076-9781771622769-richard-wagamese-selected/"><u>Richard Wagamese Selected | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210362086-9781662415562-summer-haikai/"><u>Summer Haikai | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361957-9781608687817-the-afterlife-frequency/"><u>The Afterlife Frequency | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210362138-9781087974781-the-journey-of-discovering-inner-peace/"><u>The Journey of Discovering Inner Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383076-9781957811109-davidji/"><u>Davidji | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383088-9781957811918-discourses-volume-1-2013-2014/"><u>Discourses Volume 1, 2013-2014 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383077-9781957811024-discourses-volume-3-2016/"><u>Discourses Volume 3, 2016 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383053-9781957811062-discourses-volume-5-2018/"><u>Discourses Volume 5, 2018 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383161-9798330222988-el-poder-de-la-eleccion/"><u>El Poder de la Elección | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383199-9798990896918-know-thy-sound/"><u>Know Thy Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383101-9781957811147-notes-to-sadhakas/"><u>Notes to Sadhakas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383113-9798330221707-steigende-schlange/"><u>Steigende Schlange | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383245-9798990836419-the-sober-church/"><u>The SOBER Church | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

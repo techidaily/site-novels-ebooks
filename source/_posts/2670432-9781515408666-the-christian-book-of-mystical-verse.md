@@ -1,7 +1,7 @@
 ---
 title: The Christian Book of Mystical Verse | Free Book
-date: 2024-10-25T02:00:05.938Z
-updated: 2024-10-27T04:00:53.209Z
+date: 2025-01-07T16:11:50.269Z
+updated: 2025-01-13T05:18:04.878Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f5c9d72b7e02b02fc8334e2c75f3da6c9155b5dd7c9cbbff8029a5d3843aebb.jpg
@@ -150,3 +150,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f5c9d72b7e02b02fc8334e2c75f3da
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210935177-9781667457932-cambio-de-paradigma/"><u>Cambio de Paradigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210935105-9781667457345-el-abogado-del-alma/"><u>El Abogado del Alma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210935168-9781667457734-le-second-moi/"><u>Le second MOI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934987-9781800651807-natures-blessings/"><u>Nature's Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210935116-9781667458465-plantilla-de-exito-empresarial-de-noe/"><u>Plantilla de Exito Empresarial de Noé | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934989-9781800650701-the-book-of-witchy-wellbeing/"><u>The Book of Witchy Wellbeing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934986-9781782497530-the-green-cure/"><u>The Green Cure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210935013-9781782499084-the-inner-world-of-night-dreams/"><u>The Inner World of Night Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934994-9781782495215-the-little-pocket-book-of-meditation/"><u>The Little Pocket Book of Meditation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

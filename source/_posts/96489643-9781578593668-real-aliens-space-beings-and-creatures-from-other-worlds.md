@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-01-03T16:28:21.677Z
-updated: 2025-01-06T16:30:36.870Z
+date: 2025-01-08T20:57:54.604Z
+updated: 2025-01-12T20:42:35.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,16 +262,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210495478-9781647843199-007-the-great-tao-of-spiritual-science-series-07/"><u>生命奧秘全書007：大道靈學探討與研究之機緣（體驗篇）: The Great Tao of Spiritual Science Series 07 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210495264-9780998276588-lsd-my-problem-child-4th-edition/"><u>LSD My Problem Child (4th Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210495433-9780971567481-manifest-your-sacred-ambition/"><u>Manifest Your Sacred Ambition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210496314-9781737870319-the-good-news-file/"><u>The Good News File | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210495483-9781914447440-transforming-through-the-human-experience/"><u>Transforming Through The Human Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210495382-9798985352313-tribes-of-light/"><u>Tribes of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210495374-9798985450514-unstuck/"><u>Unstuck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477942-9781667479408-cuando-el-divorcio-es-imprescindible/"><u>Cuando el divorcio es imprescindible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2129387--sun-signs/"><u>Sun Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477908-9781507304334-the-magick-of-lenormand/"><u>The Magick of Lenormand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120495-9780892546299-the-tantric-alchemist/"><u>The Tantric Alchemist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120395-9781633410138-walking-among-us/"><u>Walking Among Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120479-9780857012036-white-moon-on-the-mountain-peak/"><u>White Moon on the Mountain Peak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2129456-9780349404646-working-with-spirit-guides/"><u>Working With Spirit Guides | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

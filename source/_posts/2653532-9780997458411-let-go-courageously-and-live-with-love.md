@@ -1,7 +1,7 @@
 ---
 title: Let Go Courageously and Live with Love | Free Book
-date: 2024-10-22T21:16:54.011Z
-updated: 2024-10-27T03:19:52.845Z
+date: 2025-01-08T23:56:30.508Z
+updated: 2025-01-12T21:01:05.276Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d2b5d1649128216d65995c149cc9476ef4f7674e6821279139cf9e13f126a78.jpg
@@ -147,3 +147,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d2b5d1649128216d65995c149cc947
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210968369-9781088232088-beyond-the-veil/"><u>Beyond the veil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968335-9782384551712-forgotten-truths/"><u>Forgotten Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968364-9780991880355-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968366-9781088225684-stronger-than-ever/"><u>STRONGER THAN EVER | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968326-9781960159328-supraconscious/"><u>Supraconscious | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968359-9781088225738-the-book-of-truths/"><u>The Book Of Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968363-9781088225790-the-conquest-of-peace/"><u>THE CONQUEST OF PEACE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968370-9781088225875-the-return/"><u>The Return | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968361-9781088225493-the-right-to-be-happy/"><u>THE RIGHT TO BE HAPPY | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

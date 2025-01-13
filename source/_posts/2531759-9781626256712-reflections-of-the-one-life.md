@@ -1,7 +1,7 @@
 ---
 title: Reflections of the One Life | Free Book
-date: 2024-10-19T19:40:04.660Z
-updated: 2024-10-26T20:31:05.772Z
+date: 2025-01-09T00:25:29.403Z
+updated: 2025-01-13T06:10:19.715Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ff35bc4e876c7495f219d7c2e3a251bc0dcf12f248b7daf44f59c6b3d35d4c2.jpg
@@ -159,3 +159,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ff35bc4e876c7495f219d7c2e3a251
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211319021-9798869312044-non-dual-holistic-prosperity/"><u>Non-Dual Holistic Prosperity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211318968-9781956368956-that-we-may-be-one/"><u>That We May Be One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211319011-9798869311313-the-authentic-path/"><u>The Authentic Path: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211319038-9783892017714-who-was-jesus-of-nazareth/"><u>Who Was Jesus of Nazareth? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

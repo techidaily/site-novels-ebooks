@@ -1,7 +1,7 @@
 ---
 title: The Big Book of West Virginia Ghost Stories | Free Book
-date: 2024-10-19T16:45:24.075Z
-updated: 2024-10-27T04:27:32.644Z
+date: 2025-01-11T23:44:09.117Z
+updated: 2025-01-12T21:03:00.205Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c51016e6277d0b2d5d1c89dfee6b2018f9246b4aa9856c46b935ff0a0cf61ce.jpg
@@ -154,3 +154,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c51016e6277d0b2d5d1c89dfee6b20
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211315690-9781440517761-naughty-spells-and-nice-spells/"><u>Naughty Spells and Nice Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315078-9781416591924-postcards-from-heaven/"><u>Postcards from Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315778-9781440520938-power-spellcraft-for-life/"><u>Power Spellcraft for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315643-9781982128494-the-buddhist-on-death-row/"><u>The Buddhist on Death Row | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315762-9781605502274-the-everything-love-spells-book/"><u>The Everything Love Spells Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315631-9781440515064-the-only-psychic-power-book-youll-ever-need/"><u>The Only Psychic Power Book You'll Ever Need | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315692-9781451656862-the-secret-life-of-water/"><u>The Secret Life of Water | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

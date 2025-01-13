@@ -1,7 +1,7 @@
 ---
 title: Natural Born Shamans - A Spiritual Toolkit for Life | Free Book
-date: 2024-10-20T19:45:39.478Z
-updated: 2024-10-26T18:00:53.857Z
+date: 2025-01-08T18:56:29.686Z
+updated: 2025-01-12T17:55:34.046Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4f79a9e29a276cc9f9897461cc6c80f9cadee12d135b32e8df62578628851d2.jpg
@@ -147,3 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4f79a9e29a276cc9f9897461cc6c80
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210974369-9781088249536-detestable-no-soy-adolescente/"><u>Detestable, no. ¡Soy adolescente! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974372-9781088250778-el-velo-del-pasado-parte-i-y-ii/"><u>El Velo del Pasado. Parte I y II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974368-9781088251447-hijo-adoptivo/"><u>Hijo Adoptivo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974370-9781088251850-la-gruta-de-las-orquideas/"><u>LA GRUTA DE LAS ORQUÍDEAS | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2025-01-01T16:09:45.378Z
-updated: 2025-01-06T17:00:00.227Z
+date: 2025-01-10T22:42:30.975Z
+updated: 2025-01-12T19:11:25.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,15 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210397538-9781787138148-cosmic-rituals/"><u>Cosmic Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210398042-9781528970839-double-deuce/"><u>Double Deuce | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210397339-9781955363358-healing-in-the-workplace/"><u>Healing in the Workplace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210397323-9781739920524-sounding-eternity/"><u>Sounding Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210397706-9781098096731-the-covid-recovery/"><u>The Covid Recovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210397327-9780645249804-universal-life-lessons-caressing-karma/"><u>UNIVERSAL LIFE LESSONS-CARESSING KARMA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412797-9781778310621-escape-nightmares/"><u>Escape Nightmares | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211411758-9781910027622-ghosts-of-war/"><u>Ghosts of War | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412317-9782385640668-le-mini-guide-ultime-des-signes-et-synchronicites/"><u>Le Mini-guide ultime des signes et synchronicités | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412806-9798869366399-the-mindful-journey/"><u>The Mindful Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211411480-9781961757400-the-power-and-impact-of-courageous-changemakers/"><u>The Power and Impact of Courageous Changemakers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

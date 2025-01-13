@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-01-02T16:50:56.321Z
-updated: 2025-01-06T16:48:49.618Z
+date: 2025-01-12T02:23:00.427Z
+updated: 2025-01-13T01:56:02.357Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,17 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210440309-9780008520373-aries-2023-your-personal-horoscope/"><u>Aries 2023: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440312-9780008520403-cancer-2023-your-personal-horoscope/"><u>Cancer 2023: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440308-9780008520397-gemini-2023-your-personal-horoscope/"><u>Gemini 2023: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440310-9780008520410-leo-2023-your-personal-horoscope/"><u>Leo 2023: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440313-9780008520441-scorpio-2023-your-personal-horoscope/"><u>Scorpio 2023: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440311-9780008520380-taurus-2023-your-personal-horoscope/"><u>Taurus 2023: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440314-9780008520427-virgo-2023-your-personal-horoscope/"><u>Virgo 2023: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210440307-9780008520366-your-personal-horoscope-2023/"><u>Your Personal Horoscope 2023 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447313-9798330373581-alef-la-verdad-original/"><u>Alef - La Verdad Original | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446150-9798330375004-awakening/"><u>Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447312-9798330368198-lamour-ne-toublie-jamais/"><u>L'AMOUR NE T'OUBLIE JAMAIS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446206-9781998014293-my-life-reclaimed/"><u>MY LIFE RECLAIMED | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447064-9780062281470-shakti-woman/"><u>Shakti Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447308-9781961064119-the-eros-sutras-volume-2/"><u>The Eros Sutras, Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447309-9781961064195-the-eros-sutras-volume-3/"><u>The Eros Sutras, Volume 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447020--the-healers/"><u>The Healers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211446786-9781936807581-welcome-to-psilocybin/"><u>Welcome to Psilocybin | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

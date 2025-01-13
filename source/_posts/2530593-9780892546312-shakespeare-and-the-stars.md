@@ -1,7 +1,7 @@
 ---
 title: Shakespeare and the Stars | Free Book
-date: 2024-10-22T03:26:20.022Z
-updated: 2024-10-26T18:27:01.553Z
+date: 2025-01-09T18:38:04.699Z
+updated: 2025-01-13T04:19:06.929Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ff8681be6304a4374d1650092f53e93f477f7e2f0d2b212e89c61688c4032b62.jpg
@@ -181,3 +181,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ff8681be6304a4374d1650092f53e93
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211316421-9781936690367-as-a-man-thinketh-or-a-literary-collection-of-james-allen/"><u>As A Man Thinketh or a Literary Collection of James Allen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316523-9798869303349-erotic-enchantments/"><u>Erotic Enchantments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316703-9781611250329-living-beyond-the-five-senses/"><u>Living Beyond the Five Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316512-9798990244894-sanguinomicon/"><u>Sanguinomicon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316603-9782384553044-spiritism-and-the-fallen-angels/"><u>Spiritism and the Fallen Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316495-9781936690572-the-comte-de-st-germain-the-secret-of-kings/"><u>THE COMTE DE ST. GERMAIN The Secret of kings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316694-9781611250503-the-god-molecule/"><u>The God Molecule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316453-9798869302052-the-tantric-sex-lovers/"><u>The Tantric Sex Lover's | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316312-9783689440657-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

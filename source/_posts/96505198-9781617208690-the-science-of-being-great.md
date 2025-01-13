@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2025-01-02T16:09:14.298Z
-updated: 2025-01-06T16:33:51.516Z
+date: 2025-01-06T20:18:05.617Z
+updated: 2025-01-12T21:02:30.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,14 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210453346-9781628601695-dark-world-2nd-edition/"><u>Dark World, 2nd Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451556-9781737410690-evidence-beyond-a-reasonable-doubt-you-will-never-die/"><u>Evidence Beyond a Reasonable Doubt You Will Never Die | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210453277-9781628600803-i-am-haunted-2nd-edition/"><u>I Am Haunted, 2nd Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451506-9781737967316-speaking-to-the-heart-from-flicker-to-flame-2nd-ed/"><u>Speaking to the Heart From Flicker to Flame (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451420-9781662427275-wellness-manual/"><u>Wellness Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455179-9781956198324-conscious-choices/"><u>Conscious Choices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455024-9798330388974-ensename-a-hablar-de-amor/"><u>Enséñame a Hablar de Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455057-9781951879259-memoarer-fran-andra-dimensionen-del-2/"><u>Memoarer Från Andra Dimensionen, Del 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455034-9781963956665-the-writings-of-austin-osman-spare/"><u>The Writings of Austin Osman Spare | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

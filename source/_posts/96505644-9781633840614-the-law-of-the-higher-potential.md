@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2024-12-31T17:01:19.393Z
-updated: 2025-01-06T16:14:37.303Z
+date: 2025-01-07T03:19:02.960Z
+updated: 2025-01-13T06:31:07.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,15 +135,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210473369-9781787138902-astro-power/"><u>Astro Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470841-9781777878429-embodied/"><u>Embodied | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470919-9789354621055-meditations/"><u>Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210474223-9781922691323-the-test-of-time/"><u>The Test of Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210474172-9781638141440-what-god-has/"><u>What God Has... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210472677-9780253014641-where-the-spirits-ride-the-wind/"><u>Where the Spirits Ride the Wind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465690--hedge-witch-the-art-of-hedge-riding/"><u>Hedge Witch & the Art of Hedge Riding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465651-9789695592175-i-talk-to-myself-too-much-your-inner-dialogue/"><u>I Talk to Myself Too Much: "Your Inner Dialogue | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466459-9781684869077-in-the-beginning/"><u>IN THE BEGINNING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466256-9798330434206-minding-less/"><u>Minding Less | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465993-9798330431304-nagual/"><u>NAGUAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465805-9781646494071-past-lives-present-purpose/"><u>Past Lives & Present Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465221-9782889702756-shadow-work-notre-ame-nous-guide-a-travers-nos-parts-dombre/"><u>Shadow work : notre âme nous guide à travers nos parts d'ombre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465634-9798991328210-the-hidden-power-of-names/"><u>The Hidden Power of Names | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Qualitative Research on Illness, Wellbeing and Self-Growth | Free Book
-date: 2024-10-22T02:12:54.122Z
-updated: 2024-10-26T21:30:12.666Z
+date: 2025-01-06T21:18:14.096Z
+updated: 2025-01-13T05:05:47.230Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2871448b874260d4499f0b0919092d51470d957edfa76c450129c6b073312a2f.jpg
@@ -136,3 +136,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2871448b874260d4499f0b0919092d5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211264371-9780062402332-37-seconds/"><u>37 Seconds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264707-9781634244916-battlespace-of-mind/"><u>BattleSpace of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211265058-9780062109910-goddess-in-my-pocket/"><u>Goddess in My Pocket | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264317-9780062028938-magick-made-easy/"><u>Magick Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264340-9780062029096-the-conscious-universe/"><u>The Conscious Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264012-9780062116574-the-starseed-transmissions/"><u>The Starseed Transmissions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211263887-9780062122773-the-third-millennium/"><u>The Third Millennium | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

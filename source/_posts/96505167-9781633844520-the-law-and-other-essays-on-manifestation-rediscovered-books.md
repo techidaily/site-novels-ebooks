@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2025-01-01T16:18:09.635Z
-updated: 2025-01-06T16:30:03.602Z
+date: 2025-01-06T23:14:48.432Z
+updated: 2025-01-13T06:15:00.679Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,15 +148,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210450075-9781667419404-atencion-plena-el-arte-de-la-atencion-plena-aprenda-a-aquietar-la-mente/"><u>Atención plena: El arte de la atención plena Aprenda a aquietar la mente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450155-9781667418315-ousar/"><u>Ousar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450148-9781667419701-perfeita-exatamente-como-eu-sou/"><u>Perfeita exatamente como eu sou | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450173-9781667421070-simbolos-curativos-de-los-antiguos-eslavos-glagolitico-terapia-artistica/"><u>Símbolos curativos de los antiguos eslavos. Glagolítico. Terapia artística | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450195-9781667417905-tu-meriti-il-meglio/"><u>Tu meriti il meglio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450121-9781667421391-uma-vida-de-sonhos/"><u>Uma vida de sonhos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448712-9798991327572-falling-up/"><u>Falling Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211451241--new-dimensions-of-deep-analysis/"><u>New Dimensions of Deep Analysis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448842-9781998813940-rising-above/"><u>Rising Above | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211450762--stuff-your-astrologer-should-have-told-you/"><u>Stuff Your Astrologer Should Have Told You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211450266-9781955413282-the-art-of-your-energy-ii/"><u>The Art of Your Energy II | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Atlas - child and adolescent mental health resources | Free Book
-date: 2024-10-25T22:43:34.631Z
-updated: 2024-10-26T23:05:18.455Z
+date: 2025-01-11T03:14:31.324Z
+updated: 2025-01-13T06:34:38.100Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b6fef4d9613d2d40e157d62ab86a984e3df4e33054e7ff1619e89c79d54a748.jpg
@@ -141,3 +141,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b6fef4d9613d2d40e157d62ab86a98
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877094-9781601635662-celtic-lore-legend/"><u>Celtic Lore & Legend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877114-9781601636423-keep-out/"><u>Keep Out! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877106-9781601635327-pleiadian-principles-for-living/"><u>Pleiadian Principles for Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877121-9781601637307-the-deja-vu-enigma/"><u>The Déjà Vu Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877100-9781601635822-the-lost-civilization-enigma/"><u>The Lost Civilization Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877107-9781601636140-the-lost-worlds-of-ancient-america/"><u>The Lost Worlds of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877117-9781601636799-the-nasa-conspiracies/"><u>The NASA Conspiracies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877119-9781601636690-the-real-men-in-black/"><u>The Real Men In Black | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877101-9781601635808-this-book-is-from-the-future/"><u>This Book is from the Future | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2024-12-30T16:43:34.005Z
-updated: 2025-01-06T16:10:19.876Z
+date: 2025-01-09T20:48:02.531Z
+updated: 2025-01-12T18:27:53.889Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,16 +130,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210360577-9781782792451-ancient-wisdom-modern-hope/"><u>Ancient Wisdom, Modern Hope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360127-9781591812586-doing-nothing/"><u>Doing Nothing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360130-9781591812807-radical-optimism/"><u>Radical Optimism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360126-9781591811428-sky-above-earth-below/"><u>Sky Above, Earth Below | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360149-9781507218358-the-moon-power-boxed-set/"><u>The Moon Power Boxed Set | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360367-9781087980041-the-ultimate-field/"><u>The Ultimate Field | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210360148-9781507218365-the-witchcraft-boxed-set/"><u>The Witchcraft Boxed Set | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211381582-9782889702640-decrypter-lavenir/"><u>Décrypter l'avenir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211382598-9781068860225-mazdayasna-mzdisna/"><u>Mazdayasna مَزدَیَسنا | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211380867-9781835380888-revoice/"><u>Revoice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211382748-9781957811123-silence-entering-the-cosmic-sea-of-consciousness-journal-of-a-western-yogi/"><u>Silence: Entering the Cosmic Sea of Consciousness: Journal of a Western Yogi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211382655-9781801521710-the-baptists-head-compendium/"><u>The Baptist's Head Compendium | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

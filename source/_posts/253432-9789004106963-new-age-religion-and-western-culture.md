@@ -1,7 +1,7 @@
 ---
 title: New Age religion and Western culture | Free Book
-date: 2024-10-21T16:40:31.084Z
-updated: 2024-10-26T23:26:54.808Z
+date: 2025-01-06T18:07:36.210Z
+updated: 2025-01-13T01:52:42.888Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f6f9d9d835b5f6a2e420ecaac19ce2b2daedd653c2f07c6f99e6288f42cbdfa2.jpg
@@ -135,3 +135,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f6f9d9d835b5f6a2e420ecaac19ce2b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211323722-9798885832991-the-creators-way/"><u>The Creator's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211323725-9798869329486-the-mystery-of-why/"><u>The Mystery of Why | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211323805-9781801521598-the-way-of-the-four-elements/"><u>The Way of the Four Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211323768-9798988311072-the-wheel-of-the-woman/"><u>The Wheel of the Woman | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

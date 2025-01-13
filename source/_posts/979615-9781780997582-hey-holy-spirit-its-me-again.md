@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2024-12-31T16:17:55.373Z
-updated: 2025-01-06T16:54:23.675Z
+date: 2025-01-08T04:36:47.761Z
+updated: 2025-01-13T03:59:06.257Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,18 +138,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210365835-9781736939918-aspire/"><u>Aspire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210364420-9780645073263-etica-yogica-per-una-mente-equilibrata/"><u>Etica Yogica per Una Mente Equilibrata | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210364074-9781648410963-evergreen-ape/"><u>Evergreen Ape | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210364076-9781648410420-kitchen-witch/"><u>Kitchen Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210365846-9780983285410-self-belonging/"><u>Self Belonging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210363960-9781637305645-stirring-the-pot/"><u>Stirring the Pot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210365829-9781914996214-the-lion-and-the-tiger/"><u>THE LION and THE TIGER | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210365843-9781802271652-the-magic-of-healing-touch/"><u>The Magic of Healing Touch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210365700-9781087984407-unapologetic/"><u>Unapologetic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383355-9798330229673-comment-decoder-la-voix-de-dieu-5-facons/"><u>Comment décoder la voix de Dieu - 5 façons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383302--embracing-release/"><u>Embracing Release | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383356-9798330229703-wie-man-gottes-stimme-entschlusselt-5-moglichkeiten/"><u>Wie man Gottes Stimme entschlüsselt - 5 Möglichkeiten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383357-9798330229895-ykh-lfnh-t-kvlv-l-lvhym-5-drkhym/"><u>איך לפענח את קולו של אלוהים - 5 דרכים | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

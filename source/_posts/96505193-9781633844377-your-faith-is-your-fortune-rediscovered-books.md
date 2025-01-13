@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2025-01-04T16:57:36.347Z
-updated: 2025-01-06T16:54:41.730Z
+date: 2025-01-09T01:29:18.159Z
+updated: 2025-01-12T20:45:32.076Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,17 +144,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210451387-9781662439148-at-first-click/"><u>At First Click | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451390-9780762480210-buzzfeed-unsolved-supernatural/"><u>BuzzFeed Unsolved Supernatural | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451321-9780966137866-imagining-einstein/"><u>Imagining Einstein | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451326-9781945026928-meditation/"><u>Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450525-9781504068215-sand-and-foam/"><u>Sand and Foam | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450510-9781504067959-the-history-of-spiritualism/"><u>The History of Spiritualism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451395-9781940849911-the-prophet/"><u>The Prophet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210451087-9780762475681-the-queen-of-wands/"><u>The Queen of Wands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211453554-9781466894891-a-sabbath-life/"><u>A Sabbath Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455009-9781961959262-an-introduction-to-the-study-of-the-tarot/"><u>An Introduction to the Study of The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454958-9798218498870-listening-circles-seeding-life/"><u>Listening Circles, Seeding Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454815-9781528799331-magic-white-and-black-or-the-science-of-finate-and-infinate-life-containing-practical-hints-for-students-of-occultism/"><u>Magic, White and Black; Or, The Science of Finate and Infinate Life, Containing Practical Hints for Students of Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454987-9788412856378-matrice-je-zakladem-duse/"><u>Matrice je základem duše | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455010-9781961959224-the-pineal-eye/"><u>The Pineal Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454959-9798218497255-the-trigger-warnings-of-caramelized-butterflies/"><u>the trigger warnings of caramelized butterflies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454860-9781685748937-therapeutic-tarot/"><u>Therapeutic TAROT | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

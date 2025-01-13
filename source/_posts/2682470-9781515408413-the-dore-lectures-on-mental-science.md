@@ -1,7 +1,7 @@
 ---
 title: The Dore Lectures on Mental Science | Free Book
-date: 2024-10-21T20:51:49.331Z
-updated: 2024-10-27T01:18:25.163Z
+date: 2025-01-09T05:02:19.194Z
+updated: 2025-01-13T03:59:32.788Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f41f8082c8f454d1c11f958ba86febec6d716caf2abff147e2aebdfead38ae5.jpg
@@ -137,3 +137,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f41f8082c8f454d1c11f958ba86feb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210904187-9781088200162-allumez-la-puissance-brute-du-feu-en-vous-manuel-de-bapteme-du-saint-esprit/"><u>Allumez la puissance brute du feu en vous - Manuel de baptême du Saint-Esprit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904195-9781088200575-enciende-el-poder-del-fuego-puro-dentro-de-ti-manual-del-bautismo-del-espiritu-santo/"><u>Enciende el poder del fuego puro dentro de ti - Manual del bautismo del Espíritu Santo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904188-9781088203330-gagnez-les-batailles-de-la-vie-tous-les-jours-1243-regime/"><u>Gagnez les batailles de la vie tous les jours 12.4.3 Régime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904168-9781088203767-gana-las-batallas-de-la-vida-todos-los-dias-1243-plano/"><u>Gana las batallas de la vida todos los días 12.4.3 Plano | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904189-9781088203477-gewinnen-sie-taglich-die-schlachten-des-lebens-1243-plan/"><u>Gewinnen Sie täglich die Schlachten des Lebens 12.4.3 Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904123-9781088161357-the-practical-school-of-the-holy-spirit-part-1-of-8-activate-your-spiritual-senses/"><u>The Practical School of the Holy Spirit - Part 1 of 8 - Activate Your Spiritual Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904122-9781088161517-the-practical-school-of-the-holy-spirit-part-2-of-8-journal-gods-voice/"><u>The Practical School of the Holy Spirit - Part 2 of 8 - Journal God's Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904121-9781088162088-the-practical-school-of-the-holy-spirit-part-4-of-8-activate-dreams-and-visions/"><u>The Practical School of the Holy Spirit - Part 4 of 8 - Activate Dreams and Visions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904190-9781088203620-vinci-le-battaglie-della-vita-ogni-giorno-1243-piano/"><u>Vinci le battaglie della vita ogni giorno 12.4.3 Piano | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

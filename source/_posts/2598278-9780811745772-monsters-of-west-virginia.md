@@ -1,7 +1,7 @@
 ---
 title: Monsters of West Virginia | Free Book
-date: 2024-10-21T17:29:56.031Z
-updated: 2024-10-26T19:54:38.492Z
+date: 2025-01-05T21:25:14.218Z
+updated: 2025-01-13T01:53:55.380Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4b0a9527510110a0c4b03451784fd64c97fb986d1cb2037ea4811f72dca7a2a0.jpg
@@ -129,3 +129,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4b0a9527510110a0c4b03451784fd64
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211228242-9781797228174-beaming/"><u>Beaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211228166-9798989213337-being-human/"><u>Being Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211228164-9781578598571-near-death-experiences/"><u>Near-Death Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211230380-9798889609964-simply-put/"><u>Simply Put | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211230392-9781662480409-the-asmr/"><u>The A.S.M.R. | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2025-01-04T16:06:59.966Z
-updated: 2025-01-06T16:30:09.191Z
+date: 2025-01-11T04:47:10.460Z
+updated: 2025-01-13T05:50:24.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,13 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210450304-9781667420349-megan-e-a-radio-um-show-na-estrada/"><u>Megan e a Rádio Um Show na Estrada | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450231-9781667419602-mindfulnes-paso-a-paso-guia-basica-para-principiantes/"><u>Mindfulnes Paso a paso: guía básica para principiantes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450248-9781667421247-yoga-para-iniciantes-yoga-magica-as-melhores-posturas-suaves/"><u>Yoga para iniciantes: Yoga mágica- as melhores posturas suaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450218-9781667421216-yoga-para-principiantes-yoga-magico-las-mejores-posturas-de-yoga-suave/"><u>Yoga para principiantes: Yoga Mágico - Las mejores posturas de yoga suave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211451791--apparitions/"><u>Apparitions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211452985-9781466876415-mystical-experiences-in-30-days/"><u>Mystical Experiences in 30 Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211451664--telepathy-and-medical-psychology/"><u>Telepathy and Medical Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211453376-9781466891197-the-encyclopedia-of-hell/"><u>The Encyclopedia of Hell | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

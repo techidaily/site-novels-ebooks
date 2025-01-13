@@ -1,7 +1,7 @@
 ---
 title: People from the Other Side | Free Book
-date: 2024-10-24T02:18:47.015Z
-updated: 2024-10-26T23:26:38.810Z
+date: 2025-01-05T16:57:46.280Z
+updated: 2025-01-12T20:07:02.635Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4e80cbecf7373c4e49776bad489991c4ae80a8a2ba19370c271455d4a281721.jpg
@@ -149,3 +149,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4e80cbecf7373c4e49776bad489991
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211011879-9781977266514-20-ways-to-increase-your-psychic-abilities/"><u>20 Ways to Increase Your Psychic Abilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211011895-9781761039461-el-despertar-del-tercer-ojo/"><u>El despertar del Tercer Ojo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211011892-9781761039522-guias-espirituales/"><u>Guías Espirituales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211011891-9781761039553-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211012045-9798886548068-what-a-ride/"><u>What a Ride | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211011935-9781088263679-witch-therapy/"><u>Witch Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211011929-9781088263945-witchcraft-therapy/"><u>Witchcraft Therapy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

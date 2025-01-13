@@ -1,7 +1,7 @@
 ---
 title: James Allen’s Book of Meditations for Every Day in the Year | Free Book
-date: 2024-10-25T01:06:36.652Z
-updated: 2024-10-26T17:29:22.119Z
+date: 2025-01-06T03:36:50.802Z
+updated: 2025-01-13T04:52:26.542Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/431b78da32e0855ad6bee0cfcd331b1845a58f80f7038fd5dcd0edd8d6ac3eb4.jpg
@@ -137,3 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/431b78da32e0855ad6bee0cfcd331b1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932998-9781912992225-city-of-secrets/"><u>City of Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932995-9781855845084-colour-healing-and-the-human-soul/"><u>Colour, Healing and the Human Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933005-9781912992232-knowledge-of-spirit-worlds-and-life-after-death/"><u>Knowledge of Spirit Worlds and Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933002--the-etheric/"><u>The Etheric | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933004-9781912230624-the-etheric/"><u>The Etheric | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

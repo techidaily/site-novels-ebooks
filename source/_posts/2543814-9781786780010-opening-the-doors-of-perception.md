@@ -1,7 +1,7 @@
 ---
 title: Opening the Doors of Perception | Free Book
-date: 2024-10-26T01:36:04.876Z
-updated: 2024-10-27T02:28:28.381Z
+date: 2025-01-09T06:27:02.246Z
+updated: 2025-01-12T20:09:00.978Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c608c4f7f8f9078421aefbcdbf34009e71191c540a42f5a56695d2b63c6d2152.jpg
@@ -220,3 +220,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c608c4f7f8f9078421aefbcdbf34009
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211343205-9782889702534-la-lumiere-de-lenneagramme/"><u>La Lumière de l'ennéagramme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211343220-9782889702541-liberez-votre-potentiel-grace-au-human-design/"><u>Libérez votre potentiel grâce au Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211343197-9782889702565-messages-eclaires-de-jane-austen/"><u>Messages éclairés de Jane Austen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211342868-9798894580296-tarot/"><u>Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2025-01-02T16:40:48.127Z
-updated: 2025-01-06T16:13:20.592Z
+date: 2025-01-12T00:01:05.970Z
+updated: 2025-01-13T05:48:48.151Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,16 +182,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210431531-9780473608262-a-quiet-breath-of-wind/"><u>A Quiet Breath of Wind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210429237-9780593332290-let-your-light-shine/"><u>Let Your Light Shine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210429199-9780762478750-potions/"><u>Potions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210431509-9780578338521-psychedelic-integration-101/"><u>Psychedelic Integration 101 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210431522-9788792633835-tarot-for-romeo-and-juliet/"><u>Tarot for Romeo and Juliet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210429239-9780593420713-the-way-of-the-goddess/"><u>The Way of the Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210431537-9781946088581-women-of-spirit/"><u>Women of Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211440833-9781476653389-cultural-encyclopedia-of-lsd-2d-ed/"><u>Cultural Encyclopedia of LSD, 2d ed. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211440034-9798990437319-healing-whispers-from-spirit-guides/"><u>Healing Whispers From Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439969-9798990986619-physician-heal-thyself/"><u>Physician Heal Thyself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441040-9781910559932-the-witch-and-the-wildwood/"><u>The Witch and the Wildwood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211440706--thinking-about-thinking/"><u>Thinking About Thinking | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

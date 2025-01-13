@@ -1,7 +1,7 @@
 ---
 title: "The Dog in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-25T17:42:32.882Z
-updated: 2024-10-26T16:23:56.090Z
+date: 2025-01-11T21:59:59.438Z
+updated: 2025-01-13T06:37:37.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdbb51f333e37317cdeb8dd42826ed64475232eea0d315c1fbdd324308e1da1.jpg
@@ -166,3 +166,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdbb51f333e37317cdeb8dd42826ed
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211247205-9781451695137-leap-of-perception/"><u>Leap of Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247215-9781451633917-leveraging-the-universe/"><u>Leveraging the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247310-9781507209851-the-little-book-of-self-care-for-aquarius/"><u>The Little Book of Self-Care for Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247325-9781507209738-the-little-book-of-self-care-for-leo/"><u>The Little Book of Self-Care for Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247245-9781507209875-the-little-book-of-self-care-for-pisces/"><u>The Little Book of Self-Care for Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247316-9781507209790-the-little-book-of-self-care-for-scorpio/"><u>The Little Book of Self-Care for Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247200-9781507209752-the-little-book-of-self-care-for-virgo/"><u>The Little Book of Self-Care for Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247360-9781507215920-the-modern-witchcraft-guide-to-fairies/"><u>The Modern Witchcraft Guide to Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211247298-9781439188620-urban-shaman/"><u>Urban Shaman | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2025-01-05T16:42:45.547Z
-updated: 2025-01-06T16:46:59.554Z
+date: 2025-01-11T00:02:38.262Z
+updated: 2025-01-13T00:43:18.656Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,18 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210632718-9781959018087-astrology/"><u>Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632791-9798986395425-beyond-love/"><u>Beyond Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210633577-9798887573144-guaranteed-freedom-victory-and-success-through-the-lord-jesus-christ/"><u>Guaranteed Freedom, Victory, And Success Through The Lord Jesus Christ | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210633842-9781493046935-haunted-hotels-2nd-ed/"><u>Haunted Hotels (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210633906-9781784886110-prosperity-practices/"><u>Prosperity Practices | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632713-9781959018056-reiki/"><u>Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632727-9781959018025-runes/"><u>Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632721-9780645247510-strange-events/"><u>Strange Events | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210633903-9781784885823-the-witchs-home/"><u>The Witch's Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645137-9780752474120-ghost-hunters-casebook/"><u>Ghost-Hunter's Casebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645092-9780752471044-ghosts-at-christmas/"><u>Ghosts at Christmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645010-9780752462387-haunted-aberdeen-district/"><u>Haunted Aberdeen & District | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645011-9780752462394-haunted-cotswolds/"><u>Haunted Cotswolds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2644879-9780752481494-haunted-dundee/"><u>Haunted Dundee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645120-9780752472386-people-from-the-other-side/"><u>People from the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645511-9780752462301-shadows-in-the-steam/"><u>Shadows in the Steam | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

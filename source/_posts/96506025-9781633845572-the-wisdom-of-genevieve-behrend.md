@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2025-01-01T16:52:58.800Z
-updated: 2025-01-06T16:46:56.968Z
+date: 2025-01-11T16:58:54.085Z
+updated: 2025-01-12T21:34:15.659Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,17 +158,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210398638-9781667413044-a-life-of-dreams/"><u>A Life of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210398634-9781667412665-arquitectura-del-mas-alla-vida/"><u>Arquitectura Del Mas Alla Vida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210398708-9781667410463-escribir-para-sanar/"><u>Escribir para sanar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399013-9780995395268-messages-from-the-spirit-realm/"><u>Messages From The Spirit Realm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210398747-9781667414201-mindfulness-consejos-practicos-para-entrenarse-en-mindfulness/"><u>Mindfulness: consejos prácticos para entrenarse en Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210398673-9781667414195-minfulness-una-guia-practica-al-mindfulness-para-principiantes/"><u>Minfulness: Una Guía Práctica al Mindfulness para Principiantes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399147-9789388760898-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210399158-9789389716634-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414073-9781763597914-awakening-i/"><u>AWAKENING I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413415-9781737005476-beyond-the-mountains/"><u>Beyond the Mountains | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414107-9798330289370-hydrocephalus-astrology/"><u>Hydrocephalus Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413923--the-15-success-principles-for-self-realization/"><u>The 15 Success Principles for Self-Realization | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414093-9781088186732-the-hygge-witch-handbook/"><u>The Hygge Witch Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414243-9781783967858-the-way-through-the-woods/"><u>The Way Through the Woods | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

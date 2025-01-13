@@ -1,7 +1,7 @@
 ---
 title: A Complete Book of Reiki Healing | Free Book
-date: 2025-01-01T16:53:43.770Z
-updated: 2025-01-06T16:38:17.554Z
+date: 2025-01-08T02:10:56.629Z
+updated: 2025-01-13T00:58:14.638Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b7d87f2f8a05264db45a314eb9ae845e59.jpg
@@ -138,14 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210521523-9781638605072-am-i-crazy/"><u>Am I Crazy? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210521588-9780968682333-clearing-a-path-to-joy/"><u>Clearing a Path to Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210521766-9781789045291-healing-plants-of-greek-myth/"><u>Healing Plants of Greek Myth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210521490-9781662467967-life-is-hard/"><u>Life is Hard | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210521632-9781662468728-slept-in-beauty/"><u>Slept in Beauty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211570-9780007483327-sun-sign-moon-sign-discover-the-personality-secrets-of-the-144-sun-moon-combinations/"><u>Sun Sign, Moon Sign: Discover the personality secrets of the 144 sun-moon combinations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211476-9780007478668-the-dog-in-2013-your-chinese-horoscope/"><u>The Dog in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211473-9780007478699-the-goat-in-2013-your-chinese-horoscope/"><u>The Goat in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211474-9780007478712-the-monkey-in-2013-your-chinese-horoscope/"><u>The Monkey in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211477-9780007478651-the-pig-in-2013-your-chinese-horoscope/"><u>The Pig in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211475-9780007478682-the-rooster-in-2013-your-chinese-horoscope/"><u>The Rooster in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211499-9780007479566-your-personal-horoscope-2014-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2014: Month-by-month forecasts for every sign | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

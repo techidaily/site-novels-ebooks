@@ -1,7 +1,7 @@
 ---
 title: The Intention Experiment | Free Book
-date: 2024-10-22T23:11:41.789Z
-updated: 2024-10-26T20:03:21.329Z
+date: 2025-01-09T03:15:42.728Z
+updated: 2025-01-12T21:19:37.775Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2cabe2843971c35488255f184f2b30fd84ad81343ab1f5fa3fa3ae25924f268c.jpg
@@ -197,3 +197,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2cabe2843971c35488255f184f2b30f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210866784-9780955139956-becoming-the-sexual-athlete/"><u>Becoming the Sexual Athlete | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867552-9781398444409-conversations-with-ghosts/"><u>Conversations with Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866760-9798218226107-magic-mushroom-seekers-guide-to-the-galaxy/"><u>Magic Mushroom Seekers' Guide to the Galaxy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867662-9798886930016-more-than-just-bird-poop-on-my-windshield/"><u>More Than Just Bird Poop on my Windshield | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867319-9781524890797-the-7-chakra-crystals/"><u>The 7 Chakra Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210867454-9781582709284-ufocontact-from-the-pleiades-45th-anniversary-edition/"><u>UFO...Contact from the Pleiades (45th Anniversary Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866914-9780008606077-you-must-be-psychic-secrets-to-unlock-your-inner-power-and-reveal-your-future/"><u>You Must Be Psychic: Secrets to unlock your inner power and reveal your future | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

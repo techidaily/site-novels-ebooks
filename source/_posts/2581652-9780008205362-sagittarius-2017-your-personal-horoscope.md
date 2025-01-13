@@ -1,7 +1,7 @@
 ---
 title: "Sagittarius 2017: Your Personal Horoscope | Free Book"
-date: 2024-10-22T20:24:01.641Z
-updated: 2024-10-26T17:19:32.182Z
+date: 2025-01-09T20:06:29.249Z
+updated: 2025-01-13T01:27:58.610Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04f2618195a0b884e89aca3c57703c7b5ac738c6bdb6dc5eada6ec75ea5d0c79.jpg
@@ -160,3 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04f2618195a0b884e89aca3c57703c7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239527-9781633413290-blackthorns-book-of-sacred-plant-magic/"><u>Blackthorn's Book of Sacred Plant Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239531-9781612835068-fairy-lore/"><u>Fairy Lore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239530--mexican-magic/"><u>Mexican Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239532--queering-the-runes/"><u>Queering the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239528--the-forbidden-knowledge-of-the-book-of-enoch/"><u>The Forbidden Knowledge of the Book of Enoch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

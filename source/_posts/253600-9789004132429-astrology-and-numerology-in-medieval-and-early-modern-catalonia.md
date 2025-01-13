@@ -1,7 +1,7 @@
 ---
 title: Astrology and numerology in medieval and early modern Catalonia | Free Book
-date: 2024-10-25T00:33:08.961Z
-updated: 2024-10-27T02:48:03.672Z
+date: 2025-01-08T02:52:28.033Z
+updated: 2025-01-12T20:26:58.957Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93c9c3cb66ea47906774df5b958e27567823f1dc5ee28f66428f870d0ad8d9ce.jpg
@@ -142,3 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93c9c3cb66ea47906774df5b958e275
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211329361-9798869331427-astrological-numerology/"><u>Astrological Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329464-9798869333988-guerison-vibrationnelle/"><u>GUÉRISON VIBRATIONNELLE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329317-9789362619426-me-destination-vs-destination/"><u>Me - Destination vs. Destination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329434-9798869305169-the-art-of-erotic-magic/"><u>The Art of Erotic Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

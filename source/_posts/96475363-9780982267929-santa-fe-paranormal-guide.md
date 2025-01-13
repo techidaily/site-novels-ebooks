@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2025-01-03T16:05:36.345Z
-updated: 2025-01-06T16:58:48.729Z
+date: 2025-01-10T03:32:38.874Z
+updated: 2025-01-12T16:56:14.942Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,17 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210635076-9781945642166-a-sacred-journey/"><u>A Sacred Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210635067-9781735014029-be-you/"><u>Be You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210634755-9781958951156-chic-elegant-and-fun-3d-eiffel-tower-sticker-scene/"><u>Chic, Elegant, and Fun 3D Eiffel Tower Sticker Scene | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210639835-9781959018148-crystal-grids/"><u>Crystal Grids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210639847-9798885830669-high-on-being/"><u>High on Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210634860-9798986191621-majestic-rainbow-love/"><u>Majestic Rainbow Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210635025-9781088059920-the-beautiful-un-becoming/"><u>The Beautiful Un-Becoming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210634908-9780760378373-the-witchs-cookbook/"><u>The Witch's Cookbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647189-9780750959896-ghostly-cumbria/"><u>Ghostly Cumbria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647084-9780750951500-haunted-high-wycombe/"><u>Haunted High Wycombe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647613-9780750954389-haunted-plymouth/"><u>Haunted Plymouth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647085-9780750951517-haunted-st-albans/"><u>Haunted St Albans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2646276-9781786780362-how-soon-is-now/"><u>How Soon is Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2647138-9780750952774-shadows-on-the-water/"><u>Shadows on the Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2646266-9781623171179-the-order-disorder-paradox/"><u>The Order-Disorder Paradox | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

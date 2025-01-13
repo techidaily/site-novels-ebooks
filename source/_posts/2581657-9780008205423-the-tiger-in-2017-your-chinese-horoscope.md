@@ -1,7 +1,7 @@
 ---
 title: "The Tiger in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-20T21:14:45.039Z
-updated: 2024-10-26T17:58:48.627Z
+date: 2025-01-08T03:19:32.754Z
+updated: 2025-01-13T01:05:46.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2452fdf4b86908f6f8800b7d937319d6fd23c3841f5127fb5a053046728a3751.jpg
@@ -166,3 +166,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2452fdf4b86908f6f8800b7d937319d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211240976--alchemy-of-nine-dimensions-3rd-ed/"><u>Alchemy of Nine Dimensions (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241246--ancient-goddess-magic/"><u>Ancient Goddess Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240971-9781591434795-karahan-tepe/"><u>Karahan Tepe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240974-9781591435327-living-your-best-5d-life/"><u>Living Your Best 5D Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240973--nothing-in-this-book-is-true-but-its-exactly-how-things-are-5th-ed/"><u>Nothing in This Book Is True, But It's Exactly How Things Are (5th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240975--seeding-consciousness/"><u>Seeding Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240972-9781591435150-the-aquarian-shaman/"><u>The Aquarian Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241247-9781644116760-the-beginners-guide-to-crystal-healing-2nd-ed/"><u>The Beginner's Guide to Crystal Healing (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

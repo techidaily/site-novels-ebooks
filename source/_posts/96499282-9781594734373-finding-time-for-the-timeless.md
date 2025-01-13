@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2025-01-03T17:04:27.860Z
-updated: 2025-01-06T16:07:30.906Z
+date: 2025-01-09T22:13:45.772Z
+updated: 2025-01-12T23:40:33.463Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,18 +219,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210528990-9781955312394-arethas-food-for-the-mind/"><u>Aretha's Food for The Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528709-9798985753400-invocations/"><u>Invocations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529374-9781685171940-it-takes-two/"><u>It Takes Two | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528181-9781909141711-mindful-relationships/"><u>Mindful Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529087-9781736398296-science-subtle-energies-and-spirituality/"><u>Science, Subtle Energies, and Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529162-9798885830058-the-patient-is-wearing-lipstick/"><u>The Patient Is Wearing Lipstick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528516-9781529082128-wild-card/"><u>Wild Card | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529309-9780645073287-yama-niyama/"><u>Yama Niyama | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528150-9781912085941-yoga-and-resilience/"><u>Yoga and Resilience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213950-9780008138059-aquarius-2016-your-personal-horoscope/"><u>Aquarius 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213949-9780008138042-capricorn-2016-your-personal-horoscope/"><u>Capricorn 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213946-9780008138011-libra-2016-your-personal-horoscope/"><u>Libra 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213471-9780007591497-mindfulness-weeks-7-8-of-your-8-week-plan/"><u>Mindfulness: Weeks 7-8 of Your 8-Week Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213951-9780008138066-pisces-2016-your-personal-horoscope/"><u>Pisces 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213948-9780008138035-sagittarius-2016-your-personal-horoscope/"><u>Sagittarius 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213947-9780008138028-scorpio-2016-your-personal-horoscope/"><u>Scorpio 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/221362-9781595472120-the-hermetic-arcanum/"><u>The Hermetic Arcanum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213945-9780008138004-virgo-2016-your-personal-horoscope/"><u>Virgo 2016: Your Personal Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2024-12-31T16:11:40.824Z
-updated: 2025-01-06T16:02:12.786Z
+date: 2025-01-06T01:41:29.240Z
+updated: 2025-01-12T16:45:21.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,15 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210529418-9781638747628-armed-with-god/"><u>Armed with God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529388-9781639039258-positives/"><u>Positives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529378-9781639610679-scattered-smothered-and-yet-covered-by-the-grace-of-god/"><u>Scattered, Smothered, and Yet Covered by the Grace of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210530288-9780998688732-tantra-iluminado/"><u>Tantra Iluminado | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529435-9781639035960-the-journey/"><u>The Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529402-9781639617524-thy-will-be-done/"><u>Thy Will Be Done | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213956-9780008138110-the-dragon-in-2016-your-chinese-horoscope/"><u>The Dragon in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213959-9780008138141-the-goat-in-2016-your-chinese-horoscope/"><u>The Goat in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213958-9780008138134-the-horse-in-2016-your-chinese-horoscope/"><u>The Horse in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213953-9780008138080-the-ox-in-2016-your-chinese-horoscope/"><u>The Ox in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213955-9780008138103-the-rabbit-in-2016-your-chinese-horoscope/"><u>The Rabbit in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213952-9780008138073-the-rat-in-2016-your-chinese-horoscope/"><u>The Rat in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213957-9780008138127-the-snake-in-2016-your-chinese-horoscope/"><u>The Snake in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213954-9780008138097-the-tiger-in-2016-your-chinese-horoscope/"><u>The Tiger in 2016: Your Chinese Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

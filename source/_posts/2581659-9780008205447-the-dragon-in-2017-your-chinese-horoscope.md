@@ -1,7 +1,7 @@
 ---
 title: "The Dragon in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-25T16:16:44.600Z
-updated: 2024-10-26T22:47:04.096Z
+date: 2025-01-11T06:04:45.631Z
+updated: 2025-01-12T19:31:37.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6e072ad4ae159d8d8b8d973f45196c65699704146cde843e647d52d651674bc.jpg
@@ -166,3 +166,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6e072ad4ae159d8d8b8d973f45196c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211241345--abundancia-de-los-angeles/"><u>Abundancia de los Ángeles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241348-9798888501641-earth-wisdom-teachings-2nd-ed/"><u>Earth Wisdom Teachings (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241431-9798869207425-los-secretos-del-caseron/"><u>Los Secretos del Caserón | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241346-9798888501139-lsd-y-la-mente-del-universo/"><u>LSD y la mente del universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241393-9798885043656-not-pausing/"><u>Not Pausing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241343-9798888501047-ritos-de-veneracion-del-curanderismo/"><u>Ritos de veneración del curanderismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241403-9798869207548-spiritual-blindness/"><u>Spiritual Blindness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

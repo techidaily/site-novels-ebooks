@@ -1,7 +1,7 @@
 ---
 title: Conscious Women - Conscious Lives | Free Book
-date: 2024-10-21T21:09:25.784Z
-updated: 2024-10-26T17:39:48.025Z
+date: 2025-01-06T23:19:13.360Z
+updated: 2025-01-12T20:10:13.020Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e87065d3857c0a6dbb200d78439e780f526845af4ad05c05ac6865226590eee2.jpg
@@ -154,3 +154,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e87065d3857c0a6dbb200d78439e780
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210847675-9781801520713-a-commentary-on-the-cosmic-doctrine/"><u>A Commentary on 'The Cosmic Doctrine' | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210849530-9798886444643-here-for-a-good-time-not-a-long-time-dont-ignore-the-signs-the-tucker-westfall-story/"><u>Here For a Good Time, Not a Long Time Don't Ignore the Signs The Tucker Westfall Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850003-9781446357927-music-witchcraft-and-the-paranormal/"><u>Music, Witchcraft and the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210849548-9798886445626-prayers-of-the-righteous/"><u>Prayers of the Righteous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850004-9781446357767-psychical-research-and-survival/"><u>Psychical Research and Survival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210849978-9781446350034-tales-of-haunted-places/"><u>Tales of Haunted Places | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850005-9781446358382-the-coming-of-the-fairies/"><u>The Coming of the Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850002-9781446357583-the-gate-of-remembrance/"><u>The Gate of Remembrance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850000-9781446357606-the-invisible-influence/"><u>The Invisible Influence | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Chemistry and Specifications of Pesticides | Free Book
-date: 2024-10-22T19:58:53.719Z
-updated: 2024-10-26T23:46:14.592Z
+date: 2025-01-07T03:25:19.156Z
+updated: 2025-01-12T20:02:42.903Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/42e308c7d7a65a38e07548fefe92470d7d3b920954db9448dffe0ece3ee7e009.jpg
@@ -155,3 +155,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/42e308c7d7a65a38e07548fefe92470
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210873792-9798889600206-beyond-the-grave/"><u>Beyond the Grave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210875184-9780593330890-goddess-energy/"><u>Goddess Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210873740-9780762484164-make-your-own-magic/"><u>Make Your Own Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210875406-9789358561319-musings-on-this-world-and-that-ideas-amp-jellyfish/"><u>Musings On This World And That Ideas &amp; Jellyfish | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

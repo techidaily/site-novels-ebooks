@@ -1,7 +1,7 @@
 ---
 title: Mindful Soul, Soulful Mind | Free Book
-date: 2024-10-20T22:44:08.309Z
-updated: 2024-10-27T01:51:24.101Z
+date: 2025-01-09T04:22:30.979Z
+updated: 2025-01-12T17:37:02.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c844107c495ee1168b1cc1e79a942a100733d5d9587bac429f7151e12e36d1b1.jpg
@@ -143,3 +143,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c844107c495ee1168b1cc1e79a942a1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210929655-9781803811413-finding-your-voice/"><u>Finding Your Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930172-9780717179152-michael-murphys-book-of-dreams/"><u>Michael Murphy's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930108-9780717191802-mind-full/"><u>Mind Full | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929624-9781839750458-playing-with-fire-tales-of-duality/"><u>Playing With Fire (Tales of Duality) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929634-9781839750571-testament-to-a-new-dawn/"><u>Testament to a New Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930166-9780717181230-the-source/"><u>The Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929873-9780717190416-this-is-it/"><u>This Is It | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

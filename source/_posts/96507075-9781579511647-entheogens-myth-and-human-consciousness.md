@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2025-01-01T16:23:08.989Z
-updated: 2025-01-06T16:46:49.635Z
+date: 2025-01-11T20:26:53.017Z
+updated: 2025-01-13T05:10:26.199Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,13 +246,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210416028-9781902405995-an-introduction-to-medical-astrology/"><u>An Introduction to Medical Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210417016-9781087999999-anger-management/"><u>ANGER MANAGEMENT | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210415958-9781088008676-the-wayfarer-magazine/"><u>The Wayfarer Magazine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210416000-9781638445777-to-kill-the-firstborn/"><u>To Kill the Firstborn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435718-9798330330973-a-good-fight-of-faith/"><u>A Good Fight of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435748-9798893910254-know-his-word-bible-study/"><u>Know His Word Bible Study | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436055-9798330284610-pearls-on-a-string/"><u>Pearls On A String | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436114-9781396325656-the-rosicrucian-mysteries/"><u>The Rosicrucian Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436107-9781958997987-walking-on-water/"><u>Walking on Water | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

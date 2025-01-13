@@ -1,7 +1,7 @@
 ---
 title: Conscious Union with God | Free Book
-date: 2024-10-23T20:03:51.445Z
-updated: 2024-10-26T21:13:53.672Z
+date: 2025-01-07T02:01:58.752Z
+updated: 2025-01-13T01:50:40.029Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b71299aeeff09933cbb1e113de31e894638fc6db1971d960841951c7ca13d25.jpg
@@ -140,3 +140,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b71299aeeff09933cbb1e113de31e8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932843-9781855844940-anthroposophic-medicine-for-all-the-family/"><u>Anthroposophic Medicine for all the Family | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932836-9781855843721-from-sunspots-to-strawberries/"><u>From Sunspots to Strawberries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932837-9781855844933-heart-thinking/"><u>Heart Thinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932833-9781912230327-jerusalem/"><u>Jerusalem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932831-9781855843172-mystery-knowledge-and-mystery-centres/"><u>Mystery Knowledge and Mystery Centres | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932842-9781855843059-spiritual-ecology/"><u>Spiritual Ecology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932832-9781912230686-the-spiritual-foundations-of-beekeeping/"><u>The Spiritual Foundations of Beekeeping | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

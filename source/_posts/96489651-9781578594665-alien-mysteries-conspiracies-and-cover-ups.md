@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-01-05T17:04:33.627Z
-updated: 2025-01-06T16:17:29.236Z
+date: 2025-01-09T06:01:27.835Z
+updated: 2025-01-12T20:08:38.943Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,17 +192,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210500036-9780960075768-ask-the-animals-and-they-shall-teach-thee-harness-the-new-year-with-feng-shui-and-the-chinese-animals/"><u>Ask the Animals and They Shall Teach Thee Harness the New Year with Feng Shui and the Chinese Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500002-9781398818064-cheating-the-ferryman/"><u>Cheating the Ferryman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500296-9781999209780-darwins-replacement-summary-introduction/"><u>DARWIN'S REPLACEMENT - SUMMARY INTRODUCTION | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500297-9781736597217-feed-your-moon/"><u>Feed Your Moon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500168-9788983836328-moon-manifestation-vol-2/"><u>Moon Manifestation Vol. 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210499638-9781524878344-moon-phases/"><u>Moon Phases | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500238-9781774816899-siddhartha/"><u>Siddhartha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210499998-9781398818057-the-dark-history-of-the-occult/"><u>The Dark History of the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/216940-9781416503330-after-the-martian-apocalypse/"><u>After the Martian Apocalypse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2172967-9781848584358-atlantis-and-other-lost-worlds/"><u>Atlantis and Other Lost Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2168600-9781910565377-being-versus-becoming/"><u>Being Versus Becoming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2172964-9781848586154-bigfoot/"><u>Bigfoot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2172907-9781908556677-laughing-buddha-waving-cat/"><u>Laughing Buddha, Waving Cat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2166936-9781608683338-seven-cups-of-consciousness/"><u>Seven Cups of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2172962-9781848587038-the-a-to-z-of-dream-interpretation/"><u>The A to Z of Dream Interpretation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

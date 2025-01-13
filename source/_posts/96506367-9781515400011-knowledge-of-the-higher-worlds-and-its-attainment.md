@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2025-01-03T16:41:40.247Z
-updated: 2025-01-06T16:18:44.368Z
+date: 2025-01-08T01:52:00.966Z
+updated: 2025-01-13T04:30:55.486Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,14 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210410939-9781644115657-dreamtimes-and-thoughtforms/"><u>Dreamtimes and Thoughtforms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411002-9781638143680-love-and-surrender/"><u>LOVE AND SURRENDER | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410936-9781644115060-microdosing-with-amanita-muscaria/"><u>Microdosing with Amanita Muscaria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410937-9781644115008-proof-of-spiritual-phenomena/"><u>Proof of Spiritual Phenomena | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410938-9781644115176-tom-sawyer-a-modern-day-messenger-from-god/"><u>Tom Sawyer: A Modern-Day Messenger from God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424357-9798330316915-5yib5am5a6e6kd/"><u>创富实话 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424088-9781398848221-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424281-9781963851236-room-within-the-heart/"><u>Room Within The Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424266-9781738971336-sounds-necessity/"><u>Sounds Necessity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424274-9798330314409-the-art-of-balance/"><u>THE ART OF BALANCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424250-9781945875762-the-biss-tribe/"><u>The Biss Tribe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424318-9781964744254-the-covenant-between-the-king-of-devils-and-death-and-victory-over-death/"><u>The Covenant Between the King of Devils and Death and Victory Over Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423895--the-healing-nature-of-water/"><u>The Healing Nature of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424085-9781398841987-true-tales-of-the-paranormal/"><u>True Tales of the Paranormal | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Rabbit in 2017: Your Chinese Horoscope | Free Book"
-date: 2024-10-22T19:56:51.878Z
-updated: 2024-10-27T00:33:30.387Z
+date: 2025-01-06T02:03:54.158Z
+updated: 2025-01-13T04:02:57.429Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16e0b4a7bc454cafcfc2de53f0fda06ef80f0dccb65ccfe9ba32edd3db1620f5.jpg
@@ -166,3 +166,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16e0b4a7bc454cafcfc2de53f0fda06
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211241341--ancient-manifestation-secrets/"><u>Ancient Manifestation Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241340-9798888500873-crystal-body-grids/"><u>Crystal Body Grids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241335-9798888500170-ethereal-crystal-healing/"><u>Ethereal Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241250-9781644118498-meetings-with-remarkable-magicians/"><u>Meetings with Remarkable Magicians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241251--psychedelic-medicine-at-the-end-of-life/"><u>Psychedelic Medicine at the End of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241252--the-poison-path-grimoire/"><u>The Poison Path Grimoire | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

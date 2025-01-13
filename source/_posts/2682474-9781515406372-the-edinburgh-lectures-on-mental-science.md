@@ -1,7 +1,7 @@
 ---
 title: The Edinburgh Lectures on Mental Science | Free Book
-date: 2024-10-25T23:12:03.802Z
-updated: 2024-10-27T05:52:27.786Z
+date: 2025-01-05T20:55:21.129Z
+updated: 2025-01-13T02:24:59.480Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee872db9b2cac22f6097b5f5a70f16eb8f785065a2b9453be258d64b242342c3.jpg
@@ -137,3 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee872db9b2cac22f6097b5f5a70f16e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210909197-9781952692703-brief-flashings-in-the-phenomenal-world/"><u>Brief Flashings in the Phenomenal World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210908772-9781648413308-culpepers-complete-astrology/"><u>Culpeper's Complete Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210907718-9781639610488-im-glad-it-was-me/"><u>I'm Glad It Was Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210907307-9780520339279-the-dream-and-human-societies/"><u>The Dream and Human Societies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210908928-9789948786061-lhtha-tsaoy-hyaa/"><u>لحظة تساوي حياة | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Secret Nature of Matter | Free Book
-date: 2024-10-22T02:04:26.746Z
-updated: 2024-10-26T19:14:30.777Z
+date: 2025-01-10T16:04:54.103Z
+updated: 2025-01-12T19:08:22.315Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91940278850868f96abfd39c2310d9c0962c068c54d7aee883eab74daced20d1.jpg
@@ -240,3 +240,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91940278850868f96abfd39c2310d9c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932703-9781912992119-christ-power-and-earth-wisdom/"><u>Christ Power and Earth Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932713-9781855843073-esoteric-christianity-and-the-mission-of-christian-rosenkreutz/"><u>Esoteric Christianity and the Mission of Christian Rosenkreutz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932704-9781855843653-from-crystals-to-crocodiles/"><u>From Crystals to Crocodiles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932715-9781912992430-karma-in-human-life/"><u>Karma in Human Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932719-9781855845015-self-doubt/"><u>Self-Doubt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932726-9781855842793-six-steps-in-self-development/"><u>Six Steps in Self-development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932707-9781855844285-the-inner-nature-of-man/"><u>The Inner Nature of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932714-9781855845008-the-night/"><u>The Night | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2024-12-30T16:11:49.557Z
-updated: 2025-01-06T16:34:42.780Z
+date: 2025-01-09T17:21:09.263Z
+updated: 2025-01-12T21:26:46.665Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,13 +166,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210648160-9781631958397-a-book-about-you/"><u>A Book About YOU | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210646868-9781608688449-hagitude/"><u>Hagitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648314-9781087748085-lo-que-dios-dice-sobre-nuestros-cuerpos/"><u>Lo que Dios dice sobre nuestros cuerpos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648003-9781684931033-the-man-who-tapped-the-secrets-of-the-universe/"><u>The Man Who Tapped the Secrets of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670366-9781515409182-in-tune-with-the-infinite/"><u>In Tune With The Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670360-9781515409106-james-allens-book-of-meditations-for-every-day-in-the-year/"><u>James Allen’s Book of Meditations for Every Day in the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670357-9781515409069-just-how-to-wake-the-solar-plexus/"><u>Just How to Wake the Solar Plexus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670369-9781515409335-life-power-and-how-to-use-it/"><u>Life Power and How to Use It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670395-9781515410058-mind-power/"><u>Mind Power | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

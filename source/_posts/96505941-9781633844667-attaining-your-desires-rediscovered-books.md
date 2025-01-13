@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2025-01-02T16:51:22.157Z
-updated: 2025-01-06T16:53:40.879Z
+date: 2025-01-07T21:50:30.944Z
+updated: 2025-01-13T06:07:12.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,15 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210390240-9780578251431-awakening-the-avatar-within/"><u>Awakening the Avatar Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210391505-9781547859641-life-vampires/"><u>LIFE Vampires | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210390216-9781774816271-shinto/"><u>Shinto | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210391714-9781777745318-soul-talks/"><u>Soul Talks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210390309-9781510770522-the-afterlife-book/"><u>The Afterlife Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210390233-9781956837018-the-path-of-femininity-the-6-gifts-of-your-sovereignty/"><u>The Path of Femininity; The 6 Gifts of Your Sovereignty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399977-9781763621534-brigitte/"><u>Brigitte | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399976-9781763621510-brigitte-between-the-cathedral-and-the-bar-a-spiritual-journey/"><u>Brigitte: Between the Cathedral and the Bar (A Spiritual Journey) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399938-9798330259335-hearing-and-heeding/"><u>Hearing and Heeding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211398899-9781960415196-rejected/"><u>Rejected | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399907-9781735221434-tarot-for-beginners/"><u>Tarot for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399869-9798330261383-the-force-of-life/"><u>The Force of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399986-9798990532403-the-great-descend/"><u>The Great Descend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211398898-9798330263066-trafico/"><u>Tráfico | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

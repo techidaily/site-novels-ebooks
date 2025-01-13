@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2017: Your Personal Horoscope | Free Book"
-date: 2024-10-22T00:52:37.263Z
-updated: 2024-10-26T21:33:25.049Z
+date: 2025-01-06T18:11:54.013Z
+updated: 2025-01-12T23:19:35.403Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df47737af188d94ae872811bcf15dfa1cf576c3325c7533daeef7298b62824cb.jpg
@@ -160,3 +160,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df47737af188d94ae872811bcf15dfa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211236379-9781396324833-in-days-to-come/"><u>In Days to Come | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236454-9798869146021-lecciones-de-la-senzala/"><u>Lecciones de la Senzala | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236445-9798218337025-love-heals-all-wounds/"><u>Love Heals All Wounds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236425-9798868943508-my-time-keeping-the-light-shining/"><u>MY TIME: Keeping The Light Shining | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236380-9789358814279-the-art-of-letting-go/"><u>The Art of Letting Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236418-9798989828623-the-art-of-mindkeeping/"><u>The Art of Mindkeeping | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236481-9781396324956-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

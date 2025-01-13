@@ -1,7 +1,7 @@
 ---
 title: "Aquarius 2017: Your Personal Horoscope | Free Book"
-date: 2024-10-23T20:02:52.240Z
-updated: 2024-10-27T00:40:35.151Z
+date: 2025-01-09T17:40:55.309Z
+updated: 2025-01-12T17:11:42.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c797a1a2ba1541f08c4cb1c7a81eaf84c19fb09393a4f4bd68827181b5b01cdf.jpg
@@ -160,3 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c797a1a2ba1541f08c4cb1c7a81eaf8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211239545-9781633413450-a-confluence-of-witches/"><u>A Confluence of Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239544-9781633413443-baphomet-revealed/"><u>Baphomet Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239543--essence-of-tarot/"><u>Essence of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239542-9781633413559-witches/"><u>Witches | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

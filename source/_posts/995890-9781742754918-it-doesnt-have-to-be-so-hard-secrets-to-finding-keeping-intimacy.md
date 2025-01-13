@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2025-01-05T17:04:04.476Z
-updated: 2025-01-06T16:25:22.041Z
+date: 2025-01-08T06:32:22.258Z
+updated: 2025-01-13T01:04:08.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,15 +176,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210346529-9782226451460-dis-moi-comment-aller-chaque-jour-de-mieux-en-mieux/"><u>Dis-moi comment aller chaque jour de mieux en mieux | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346679-9782226447333-faire-face-a-la-perversion/"><u>Faire face à la perversion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346767-9782226433459-le-grand-livre-de-la-pleine-presence/"><u>Le Grand Livre de la pleine présence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346829-9782226433992-le-joyau-de-lame/"><u>Le Joyau de l'âme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346511-9782226452184-les-racines-de-la-meditation/"><u>Les Racines de la méditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210346323-9782807331082-soigner-en-pleine-conscience/"><u>Soigner en pleine conscience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359524-9798869398253-los-carneros-de-panurgia/"><u>Los Carneros de Panúrgia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359581--mindfulness-and-presence/"><u>Mindfulness and Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211355392-9781395865696-power-of-silence-30-day-course-book-daily-transformative-activities/"><u>Power of Silence 30 Day Course Book Daily Transformative Activities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211355322-9798990684027-win-the-battle-against-procrastination/"><u>Win the Battle Against Procrastination | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

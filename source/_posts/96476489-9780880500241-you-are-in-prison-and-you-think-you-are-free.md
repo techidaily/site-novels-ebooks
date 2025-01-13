@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2024-12-31T16:45:35.833Z
-updated: 2025-01-06T16:12:21.788Z
+date: 2025-01-10T18:56:49.386Z
+updated: 2025-01-12T22:10:52.324Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,15 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210656150-9789895377336-atlantis-rising/"><u>ATLANTIS RISING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210656153-9798985826937-guardiana-de-la-sabiduria/"><u>Guardiana de la Sabiduría | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210656011-9781578598083-nightmares/"><u>Nightmares | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655965-9781454946489-shadow-work/"><u>Shadow Work | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210656115-9780578399461-transcending-form-ascend-to-the-stars/"><u>Transcending Form: Ascend to the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210656029-9781454941071-wicca-nature-magic/"><u>Wicca Nature Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284755-9789240680074-atlas-child-and-adolescent-mental-health-resources/"><u>Atlas - child and adolescent mental health resources | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284746-9789240680180-chemistry-and-specifications-of-pesticides/"><u>Chemistry and Specifications of Pesticides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284634-9789240680630-health-implications-of-acrylamide-in-food/"><u>Health Implications of Acrylamide in Food | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284658-9789240680678-helminth-control-in-school-age-children/"><u>Helminth Control in School-Age Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284631-9789240680791-international-travel-and-health-2005/"><u>International travel and health 2005 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284752-9789240681255-research-on-reproductive-health-at-who/"><u>Research on reproductive health at WHO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284783-9789240681248-research-on-reproductive-health-at-who/"><u>Research on reproductive Health at WHO | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
