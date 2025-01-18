@@ -1,7 +1,7 @@
 ---
 title: Trump & the MAGA Movement as Anti-Christ | Free Book
-date: 2024-10-20T05:38:16.094Z
-updated: 2024-10-26T22:05:38.473Z
+date: 2025-01-12T17:06:36.331Z
+updated: 2025-01-18T18:18:36.684Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be56f0c6b2bd586729ec0cd79156da293c21a3c5f118df669b91b6099ace89f0.jpg
@@ -133,3 +133,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be56f0c6b2bd586729ec0cd79156da2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96393668-9781591433415-curanderismo-soul-retrieval/"><u>Curanderismo Soul Retrieval | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393671-9781591433330-field-guide-to-the-spirit-world/"><u>Field Guide to the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393670-9781591433439-healing-journeys-with-the-black-madonna/"><u>Healing Journeys with the Black Madonna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393666-9781620558911-living-a-life-of-harmony/"><u>Living a Life of Harmony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393667-9781591433187-shamanic-alchemy/"><u>Shamanic Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393669-9781620557655-stones-of-the-goddess/"><u>Stones of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393664-9781620557617-witchcraft-and-secret-societies-of-rural-england/"><u>Witchcraft and Secret Societies of Rural England | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

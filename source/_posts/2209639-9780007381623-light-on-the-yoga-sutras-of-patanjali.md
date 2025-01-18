@@ -1,7 +1,7 @@
 ---
 title: Light on the Yoga Sutras of Patanjali | Free Book
-date: 2024-10-25T04:00:12.842Z
-updated: 2024-10-27T03:32:15.485Z
+date: 2025-01-15T18:41:57.139Z
+updated: 2025-01-18T20:55:57.217Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ef2f5ead682b0114550246670cb2d0cec7aa4d526b15cefbd185aaeffe54d35.jpg
@@ -193,3 +193,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ef2f5ead682b0114550246670cb2d0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783144-9781620550182-la-destruccion-de-la-atlantida/"><u>La Destrucción de la Atlántida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783130-9781620552711-la-historia-prohibida/"><u>La historia prohibida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783131-9781620555446-la-medicina-de-ayahuasca/"><u>La medicina de ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783129-9781620555422-la-mente-inmortal/"><u>La mente inmortal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

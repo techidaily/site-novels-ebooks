@@ -1,7 +1,7 @@
 ---
 title: Transformative Declarations | Free Book
-date: 2024-10-20T18:31:00.098Z
-updated: 2024-10-26T23:20:50.536Z
+date: 2025-01-11T22:19:14.236Z
+updated: 2025-01-18T18:25:31.399Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5db3d706363683be286e5e5fc0a0f858ea71cc92c2af42df393157807fb89ea1.jpg
@@ -187,3 +187,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5db3d706363683be286e5e5fc0a0f85
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96505633-9781633840522-how-to-live-life-and-love-it/"><u>How to Live Life and Love It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505601-9781633840119-new-lands/"><u>New Lands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505647-9781633840577-the-god-in-you/"><u>The God In You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505671-9781633840850-the-greatest-thing-ever-known/"><u>The Greatest Thing Ever Known | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505658-9781633840591-the-law-and-the-word/"><u>The Law and the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505644-9781633840614-the-law-of-the-higher-potential/"><u>The Law of the Higher Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505622-9781633840539-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

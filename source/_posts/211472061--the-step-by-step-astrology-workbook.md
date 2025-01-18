@@ -1,7 +1,7 @@
 ---
 title: The Step-by-Step Astrology Workbook | Free Book
-date: 2024-10-20T05:11:10.790Z
-updated: 2024-10-26T16:28:58.617Z
+date: 2025-01-14T16:02:48.214Z
+updated: 2025-01-18T20:43:59.517Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1d31fe1544d84874fd3c514d173390b067111bc3f28fd62e869224532693720.jpg
@@ -161,3 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1d31fe1544d84874fd3c514d173390
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317712-9781401921286-courageous-dreaming/"><u>Courageous Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317729-9781401924874-return-to-the-sacred/"><u>Return to the Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317723-9781401921422-sara-book-3/"><u>Sara, Book 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317715-9781401922535-sylvia-brownes-book-of-angels/"><u>Sylvia Browne's Book of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317725-9781401922474-the-amazing-power-of-deliberate-intent/"><u>The Amazing Power of Deliberate Intent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317720-9781401926724-the-proof/"><u>The Proof | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

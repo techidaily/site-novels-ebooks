@@ -1,7 +1,7 @@
 ---
 title: Real Miracles, Divine Intervention, and Feats of Incredible Survival | Free Book
-date: 2025-01-08T01:28:40.485Z
-updated: 2025-01-12T16:24:27.005Z
+date: 2025-01-16T22:12:23.503Z
+updated: 2025-01-18T19:59:59.832Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57ea7dfd2cda2089bb353ab39f65ecb5d50.jpg
@@ -203,13 +203,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2622884-9781632280138-happiness-a-to-z/"><u>Happiness A to Z | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2622874-9781936740277-imperfect-spirituality/"><u>Imperfect Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2622877-9781936740994-toasts/"><u>Toasts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2622859-9781632280367-what-you-need-to-know-now/"><u>What You Need to Know Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621288-9781632659224-a-call-from-heaven/"><u>A Call From Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621285-9781632659323-ancient-giants-of-the-americas/"><u>Ancient Giants of the Americas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621286-9781632659712-awaken-your-divine-intuition/"><u>Awaken Your Divine Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621300-9781601633767-between-now-and-when/"><u>Between Now and When | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621282-9781632658920-conscious-ink-the-hidden-meaning-of-tattoos/"><u>Conscious Ink: The Hidden Meaning of Tattoos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621289-9781632659736-lightworker-relationships/"><u>Lightworker Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621297-9781601633941-mind-wars/"><u>Mind Wars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621280-9781601639417-spirit-speak/"><u>Spirit Speak | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Warrior Goddess Training Companion Workbook | Free Book
-date: 2024-10-20T19:17:13.470Z
-updated: 2024-10-27T03:41:27.846Z
+date: 2025-01-14T21:38:26.510Z
+updated: 2025-01-18T22:08:03.048Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8cf87f87cdb8558a2a99a395e4ef00466a0c5da8b5a2d5bcad59249072ea4d74.jpg
@@ -160,3 +160,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8cf87f87cdb8558a2a99a395e4ef004
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95683112-9781440536298-love-astrology-aries/"><u>Love Astrology: Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683110-9781440536335-love-astrology-gemini/"><u>Love Astrology: Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683111-9781440536311-love-astrology-taurus/"><u>Love Astrology: Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683194-9781605507583-the-everything-celtic-wisdom-book/"><u>The Everything Celtic Wisdom Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683192-9781605507651-the-everything-law-of-attraction-book/"><u>The Everything Law of Attraction Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683126-9781605508511-the-provenance-press-guide-to-the-wiccan-year/"><u>The Provenance Press Guide to the Wiccan Year | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

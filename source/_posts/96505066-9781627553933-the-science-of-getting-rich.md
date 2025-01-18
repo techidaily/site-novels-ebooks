@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-01-12T02:23:00.427Z
-updated: 2025-01-13T01:56:02.357Z
+date: 2025-01-12T16:56:15.429Z
+updated: 2025-01-18T22:13:59.686Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,18 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211447313-9798330373581-alef-la-verdad-original/"><u>Alef - La Verdad Original | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446150-9798330375004-awakening/"><u>Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447312-9798330368198-lamour-ne-toublie-jamais/"><u>L'AMOUR NE T'OUBLIE JAMAIS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446206-9781998014293-my-life-reclaimed/"><u>MY LIFE RECLAIMED | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447064-9780062281470-shakti-woman/"><u>Shakti Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447308-9781961064119-the-eros-sutras-volume-2/"><u>The Eros Sutras, Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447309-9781961064195-the-eros-sutras-volume-3/"><u>The Eros Sutras, Volume 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447020--the-healers/"><u>The Healers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446786-9781936807581-welcome-to-psilocybin/"><u>Welcome to Psilocybin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1204896-9781583947586-collapsing-consciously-meditations/"><u>Collapsing Consciously Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207455-9781780999579-grimoire-of-a-kitchen-witch/"><u>Grimoire of a Kitchen Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207457-9781780994604-healing-divination/"><u>Healing Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207181-9781101615669-tapping-into-wealth/"><u>Tapping Into Wealth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1204923-9780307830470-the-pathwork-of-self-transformation/"><u>The Pathwork of Self-Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1207437-9781442222281-the-scientific-basis-of-astrology/"><u>The Scientific Basis of Astrology | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

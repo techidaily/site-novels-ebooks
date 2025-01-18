@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2025-01-01T16:51:28.191Z
-updated: 2025-01-06T16:30:07.337Z
+date: 2025-01-13T18:12:24.977Z
+updated: 2025-01-18T17:43:31.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,17 +141,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210721106-9798218071165-a-journey-through-meditation/"><u>A Journey Through Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210720504-9781958313541-a-short-beginners-guide-on-how-to-pray-salah/"><u>A Short Beginners Guide on How to Pray Salah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210718636-9781784979744-calling-us-home/"><u>Calling Us Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210720910-9781684988631-my-way-through/"><u>My Way Through | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210720195-9780593512005-recovery/"><u>Recovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210720518-9780876129265-songs-of-the-soul/"><u>Songs of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210720595-9781639455478-the-carpenters-chairs/"><u>The Carpenter's Chairs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210720517-9780876128541-why-god-permits-evil/"><u>Why God Permits Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209514897-9782824631004-ce-que-les-defunts-me-disent/"><u>Ce que les défunts me disent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515004-9781625848000-ghosts-of-the-queen-mary/"><u>Ghosts of the Queen Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209513553-9781612834351-out-of-your-hands/"><u>Out of Your Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209515647-9780399591600-signs/"><u>Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209513554-9781612834368-unlock-the-zodiac/"><u>Unlock the Zodiac | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

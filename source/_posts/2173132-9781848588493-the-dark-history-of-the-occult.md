@@ -1,7 +1,7 @@
 ---
 title: The Dark History of the Occult | Free Book
-date: 2024-10-19T19:05:35.648Z
-updated: 2024-10-27T04:47:46.183Z
+date: 2025-01-14T19:58:04.253Z
+updated: 2025-01-18T19:45:43.279Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09cd0d0bb779689e1c286daf7f4dff5eb2121535112c8f621a1720e7ff7cab8.jpg
@@ -139,3 +139,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09cd0d0bb779689e1c286daf7f4dff
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95944888-9781782743392-celtic-myths/"><u>Celtic Myths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95947345-9781623173012-changed-in-a-flash/"><u>Changed in a Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95946814-9781925515664-confucius/"><u>Confucius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95943807-9781633410794-the-bardic-book-of-becoming/"><u>The Bardic Book of Becoming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95946815-9781925515961-the-book-of-eternity/"><u>The Book of Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95942717-9781632658869-the-elements-of-spellcrafting/"><u>The Elements of Spellcrafting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95947320-9781786781741-the-premonition-code/"><u>The Premonition Code | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

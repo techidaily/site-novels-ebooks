@@ -1,7 +1,7 @@
 ---
 title: "UFOs: A History of Alien Activity from Sightings to Abductions to Global Threat | Free Book"
-date: 2024-10-22T04:58:17.934Z
-updated: 2024-10-26T21:32:40.998Z
+date: 2025-01-11T17:20:20.618Z
+updated: 2025-01-18T20:23:53.465Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a252f445c0ec3a6e80ed420e88f3adb924793421c9c5b77345c0c7423358541e.jpg
@@ -145,3 +145,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a252f445c0ec3a6e80ed420e88f3adb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96028125-9781620558157-dancing-with-raven-and-bear/"><u>Dancing with Raven and Bear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028126-9781620558010-psychedelic-mystery-traditions/"><u>Psychedelic Mystery Traditions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028585-9780835621687-the-chakras-and-the-human-energy-fields/"><u>The Chakras and the Human Energy Fields | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028120-9781620552865-the-dharma-method/"><u>The Dharma Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028583-9780835621922-the-seven-rays/"><u>The Seven Rays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028584-9780835621564-thoughts-for-aspirants/"><u>Thoughts for Aspirants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028124-9781620558133-unlocking-the-7-secret-powers-of-the-heart/"><u>Unlocking the 7 Secret Powers of the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028123-9781620556948-women-of-visionary-art/"><u>Women of Visionary Art | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

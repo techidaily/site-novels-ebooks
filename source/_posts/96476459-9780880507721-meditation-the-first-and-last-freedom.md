@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2025-01-10T19:14:59.385Z
-updated: 2025-01-12T22:10:59.533Z
+date: 2025-01-11T19:52:07.483Z
+updated: 2025-01-18T22:39:45.283Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,13 +175,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2669998-9781515407676-conscious-union-with-god/"><u>Conscious Union with God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2669996-9781515407638-creative-mind/"><u>Creative Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2669995-9781515407621-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670001-9781515407706-experiencing-the-holy-spirit/"><u>Experiencing the Holy Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1397965-9781401394660-glynis-has-your-number/"><u>Glynis Has Your Number | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1402724-9781782791492-how-to-appreciate-an-aries/"><u>How to Appreciate an Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/139349-9780743214520-soul-signs-in-love/"><u>Soul Signs in Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1398197-9781608680368-what-happens-when-we-die/"><u>What Happens When We Die | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

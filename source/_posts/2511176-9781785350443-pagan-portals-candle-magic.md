@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Candle Magic | Free Book
-date: 2024-10-23T02:18:18.348Z
-updated: 2024-10-26T17:17:53.827Z
+date: 2025-01-11T17:06:25.932Z
+updated: 2025-01-18T19:32:33.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/25aeb8d710ab1f6f40aa296c0a37fc2e610b0f2298b087d041d3edbfab49bd89.jpg
@@ -151,3 +151,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/25aeb8d710ab1f6f40aa296c0a37fc2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/466110-9780307575500-discovering-the-bodys-wisdom/"><u>Discovering the Body's Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/466033-9780307574589-emmanuels-book-ii/"><u>Emmanuel's Book II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/466034-9780307574596-emmanuels-book-iii/"><u>Emmanuel's Book III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/463706-9781580911986-the-eleven-eternal-principles/"><u>The Eleven Eternal Principles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/466070-9780307574886-the-minds-sky/"><u>The Mind's Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/463719-9780307716859-ufos/"><u>UFOs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

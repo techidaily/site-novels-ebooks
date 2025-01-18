@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2025-01-11T00:02:38.262Z
-updated: 2025-01-13T00:43:18.656Z
+date: 2025-01-11T18:12:21.082Z
+updated: 2025-01-18T17:59:47.080Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,16 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2645137-9780752474120-ghost-hunters-casebook/"><u>Ghost-Hunter's Casebook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2645092-9780752471044-ghosts-at-christmas/"><u>Ghosts at Christmas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2645010-9780752462387-haunted-aberdeen-district/"><u>Haunted Aberdeen & District | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2645011-9780752462394-haunted-cotswolds/"><u>Haunted Cotswolds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2644879-9780752481494-haunted-dundee/"><u>Haunted Dundee | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2645120-9780752472386-people-from-the-other-side/"><u>People from the Other Side | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2645511-9780752462301-shadows-in-the-steam/"><u>Shadows in the Steam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621359-9781601635846-heavenly-hugs/"><u>Heavenly Hugs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621369-9781601637079-man-made-monsters/"><u>Man-Made Monsters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621370-9781601633798-the-afterlife-healing-circle/"><u>The Afterlife Healing Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621368-9781601634115-the-infinite-wisdom-of-the-akashic-records/"><u>The Infinite Wisdom of the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621361-9781601633910-the-oneness-blessing/"><u>The Oneness Blessing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621362-9781632659996-toward-the-light/"><u>Toward the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621367-9781601637635-werewolves/"><u>Werewolves | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

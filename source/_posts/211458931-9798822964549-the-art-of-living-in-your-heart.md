@@ -1,7 +1,7 @@
 ---
 title: The Art of Living in Your Heart | Free Book
-date: 2024-10-20T02:59:14.792Z
-updated: 2024-10-27T01:09:52.397Z
+date: 2025-01-11T17:34:33.683Z
+updated: 2025-01-18T18:46:56.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e25565b0eac3b7ab68dfd7101c8d84dbce474fc1b0231dc7b3a87dc8ce571c6a.jpg
@@ -180,3 +180,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e25565b0eac3b7ab68dfd7101c8d84d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96393672-9781591433293-our-cosmic-ancestry-in-the-stars/"><u>Our Cosmic Ancestry in the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393685-9781620558034-psychedelic-mysteries-of-the-feminine/"><u>Psychedelic Mysteries of the Feminine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393679-9781507210277-the-hidden-meaning-of-birds-a-spiritual-field-guide/"><u>The Hidden Meaning of Birds--A Spiritual Field Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393688-9781620557082-the-return-of-planet-sedna/"><u>The Return of Planet Sedna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393675-9781620558867-the-seven-elemental-forces-of-huna/"><u>The Seven Elemental Forces of Huna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96399462-9781782500858-why-cleaning-has-meaning/"><u>Why Cleaning Has Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393690-9781620558829-working-with-kundalini/"><u>Working with Kundalini | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Hauntings: True Stories of Unquiet Spirits | Free Book"
-date: 2024-10-25T04:52:58.605Z
-updated: 2024-10-27T03:33:07.081Z
+date: 2025-01-13T17:55:57.928Z
+updated: 2025-01-18T17:21:43.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ddb59113d99cc55eb8cde52e3149c558e3cadc5ec77f153d2c54f9d0bd031299.jpg
@@ -147,3 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ddb59113d99cc55eb8cde52e3149c55
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95935377-9781844093298-a-new-light-on-ascension/"><u>A New Light on Ascension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935372-9781844098019-the-bicycle-effect/"><u>The Bicycle Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935374-9781844098132-the-missing-element/"><u>The Missing Element | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935378-9781844093878-the-whale-whisperer/"><u>The Whale Whisperer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

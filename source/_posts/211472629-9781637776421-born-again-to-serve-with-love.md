@@ -1,7 +1,7 @@
 ---
 title: Born Again to Serve with Love | Free Book
-date: 2024-10-23T03:06:08.135Z
-updated: 2024-10-26T17:08:52.779Z
+date: 2025-01-12T19:03:22.056Z
+updated: 2025-01-18T17:28:27.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b97c751e7e6fe95e05651b2ce89345b5c1e381f5bcf7690b0f1adaea6d8ebcb.jpg
@@ -161,3 +161,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b97c751e7e6fe95e05651b2ce89345
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317816-9781781803646-aries-moon-sign/"><u>Aries Moon Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317828-9781781808931-dreaming-through-darkness/"><u>Dreaming through Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317796-9781401943509-percolate/"><u>Percolate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317834-9781781808573-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317808-9781781803202-the-tarot-masters/"><u>The Tarot Masters | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

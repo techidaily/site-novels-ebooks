@@ -1,7 +1,7 @@
 ---
 title: The Illumination Practice | Free Book
-date: 2024-10-19T17:36:11.920Z
-updated: 2024-10-26T19:45:05.489Z
+date: 2025-01-15T21:27:57.517Z
+updated: 2025-01-18T21:29:07.059Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cfe30ee21f41b70fc0aa556b211041efd504852d9caf62547b2b27ed91d03e2d.jpg
@@ -181,3 +181,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cfe30ee21f41b70fc0aa556b211041e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317400-9781401929749-count-your-blessings/"><u>Count Your Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317425-9781401932725-removing-the-masks-that-bind-us/"><u>Removing the Masks That Bind Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317414-9781401932893-the-alchemists-handbook/"><u>The Alchemist's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317418-9781401933128-the-secrets-of-life/"><u>The Secrets of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317424-9781401945640-thetahealing/"><u>ThetaHealing® | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317394-9781401923662-your-souls-compass/"><u>Your Soul's Compass | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

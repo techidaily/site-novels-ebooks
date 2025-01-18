@@ -1,7 +1,7 @@
 ---
 title: "The Dragon in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-22T19:44:28.778Z
-updated: 2024-10-27T03:07:25.367Z
+date: 2025-01-11T20:46:15.061Z
+updated: 2025-01-18T19:34:14.714Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/53b3f56259bb98582c65654242b605e3c769311a0f7bacb47cb60a9bcb114be0.jpg
@@ -167,3 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/53b3f56259bb98582c65654242b605e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782663-9781594779428-moon-phase-astrology/"><u>Moon Phase Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782664-9781594777547-qabbalistic-magic/"><u>Qabbalistic Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782662-9781620551264-the-key-to-your-own-nativity/"><u>The Key to Your Own Nativity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782661-9781620550694-two-ravens/"><u>Two Ravens | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

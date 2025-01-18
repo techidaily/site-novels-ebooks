@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2025-01-10T02:00:40.435Z
-updated: 2025-01-13T01:59:41.382Z
+date: 2025-01-13T19:06:58.460Z
+updated: 2025-01-18T19:10:05.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,15 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211416270-9781684351275-a-guide-to-sky-monsters/"><u>A Guide to Sky Monsters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414929-9798987674949-journey-to-true-self/"><u>Journey to True Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414911-9791280027016-riconosci-e-guarisci-te-stesso-tramite-la-forza-dello-spirito/"><u>Riconosci e guarisci te stesso tramite la forza dello Spirito | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211415123-9781964959078-russian-edition-treasures-of-darkness-volume-2/"><u>Russian Edition - Treasures of Darkness: Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414926-9781396326158-the-realness-of-witch-craft-in-america/"><u>The Realness of Witch-craft in America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211415170-9781964959061-traversing-the-pathways/"><u>Traversing the Pathways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126051-9781609250393-simple-wicca/"><u>Simple Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126054-9781609250881-simply-happy-every-day/"><u>Simply Happy Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126057-9781609254629-songs-of-kabir/"><u>Songs of Kabir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126058-9781609251970-soul-mission-life-vision/"><u>Soul Mission, Life Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126060-9781609257941-source-of-the-dream/"><u>Source of the Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126063-9781609255749-spells-for-the-solitary-witch/"><u>Spells for the Solitary Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126065-9781609255756-spirit-faces/"><u>Spirit Faces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126056-9781609256937-the-solitary-wiccans-bible/"><u>The Solitary Wiccan's Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126062-9781609250911-the-spellcasters-reference/"><u>The Spellcaster's Reference | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

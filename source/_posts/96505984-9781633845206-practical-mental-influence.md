@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2025-01-10T22:42:30.975Z
-updated: 2025-01-12T19:11:25.034Z
+date: 2025-01-16T16:23:30.615Z
+updated: 2025-01-18T22:01:29.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,14 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211412797-9781778310621-escape-nightmares/"><u>Escape Nightmares | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211411758-9781910027622-ghosts-of-war/"><u>Ghosts of War | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211412317-9782385640668-le-mini-guide-ultime-des-signes-et-synchronicites/"><u>Le Mini-guide ultime des signes et synchronicités | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211412806-9798869366399-the-mindful-journey/"><u>The Mindful Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211411480-9781961757400-the-power-and-impact-of-courageous-changemakers/"><u>The Power and Impact of Courageous Changemakers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125889-9781609252748-math-for-mystics/"><u>Math for Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125895-9781609253905-meditation-and-kabbalah/"><u>Meditation and Kabbalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125896-9781609254865-meditation-and-the-bible/"><u>Meditation and the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125900-9781609250195-meta-magick-the-book-of-atem/"><u>Meta-Magick: The Book of ATEM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125892-9781609257255-the-mayan-ouroboros/"><u>The Mayan Ouroboros | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

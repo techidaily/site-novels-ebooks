@@ -1,7 +1,7 @@
 ---
 title: Reclaiming Your Sacred Path | Free Book
-date: 2024-10-24T00:06:38.463Z
-updated: 2024-10-26T20:25:53.302Z
+date: 2025-01-15T17:11:45.959Z
+updated: 2025-01-18T21:22:05.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0da51ecd50b0cdb1693665d020963a04246c90c10c8e046611a2adc28e2d3f1a.jpg
@@ -173,3 +173,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0da51ecd50b0cdb1693665d020963a0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/664356-9781846946448-palmistry-from-apprentice-to-pro-in-24/"><u>Palmistry: From Apprentice To Pro In 24 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664331-9781846946899-seventy-thousand-veils-the-miracle-of/"><u>Seventy Thousand Veils: The Miracle Of | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664332-9781846946905-shadows-in-the-night-memoirs-of-a-ghost/"><u>Shadows In The Night: Memoirs Of A Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664333-9781846946912-shaman-in-disguise/"><u>Shaman in Disguise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664347-9781846946516-spirit-release/"><u>Spirit Release | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/664335-9781846946936-three-dangerous-magi-osho-gurdjieff-cr/"><u>Three Dangerous Magi: Osho Gurdjieff Cr | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

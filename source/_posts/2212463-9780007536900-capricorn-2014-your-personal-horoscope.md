@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2014: Your Personal Horoscope | Free Book"
-date: 2024-10-23T05:49:35.770Z
-updated: 2024-10-26T20:32:23.961Z
+date: 2025-01-13T22:10:27.240Z
+updated: 2025-01-18T21:41:52.125Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0bc2b861433649329258f09a14049585ccd15f066c2ef07669972259403364ce.jpg
@@ -162,3 +162,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0bc2b861433649329258f09a1404958
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782409-9781591438977-earth-under-fire/"><u>Earth Under Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782408-9781591438717-earthwalks-for-body-and-spirit/"><u>Earthwalks for Body and Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782406-9781591438229-ecstatic-body-postures/"><u>Ecstatic Body Postures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782412-9781591437550-the-king-who-refused-to-die/"><u>The King Who Refused to Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782405-9781591437710-the-lost-city-of-the-exodus/"><u>The Lost City of the Exodus | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

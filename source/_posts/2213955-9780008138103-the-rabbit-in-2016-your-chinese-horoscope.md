@@ -1,7 +1,7 @@
 ---
 title: "The Rabbit in 2016: Your Chinese Horoscope | Free Book"
-date: 2024-10-21T17:36:23.539Z
-updated: 2024-10-27T00:03:45.329Z
+date: 2025-01-14T17:13:41.603Z
+updated: 2025-01-18T19:02:19.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/67d404d952160d3fd06bd788ca9d0c5d7bc41ab9eb9db3e1892af71a54a48e81.jpg
@@ -167,3 +167,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/67d404d952160d3fd06bd788ca9d0c5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782196-9781620556313-aleister-crowley-in-america/"><u>Aleister Crowley in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782192-9781620552575-aleister-crowley-the-beast-in-berlin/"><u>Aleister Crowley: The Beast in Berlin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782197-9781594779565-psychomagic/"><u>Psychomagic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782188-9781594774997-science-and-the-afterlife-experience/"><u>Science and the Afterlife Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782186-9781594779909-science-and-the-akashic-field-2nd-ed/"><u>Science and the Akashic Field (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782187-9781594779022-science-and-the-near-death-experience/"><u>Science and the Near-Death Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782198-9781620556009-the-complete-king-arthur/"><u>The Complete King Arthur | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782190-9781620553046-the-immortal-mind/"><u>The Immortal Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782191-9781620554043-the-initiatory-path-in-fairy-tales/"><u>The Initiatory Path in Fairy Tales | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

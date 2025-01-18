@@ -1,7 +1,7 @@
 ---
 title: The Philosophy and Practice of Polarity Magic | Free Book
-date: 2024-10-23T20:41:36.853Z
-updated: 2024-10-27T03:13:03.453Z
+date: 2025-01-15T18:24:23.533Z
+updated: 2025-01-18T16:27:37.088Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b83ed0d3e9a4486c3ca39ba7305bf46b37fe0d04865efc85d869a658495530af.jpg
@@ -160,3 +160,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b83ed0d3e9a4486c3ca39ba7305bf46
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317565-9781401929770-doctors-cry-too/"><u>Doctors Cry, Too | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317545-9781401924966-earth-magic/"><u>Earth Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317554-9781401927912-illumination/"><u>Illumination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317558-9781401930080-the-journey-to-the-sacred-garden/"><u>The Journey to the Sacred Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317547-9781401927837-truth-triumph-and-transformation/"><u>Truth, Triumph, and Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317549-9781401926236-what-color-is-your-personality/"><u>What Color Is Your Personality | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

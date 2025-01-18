@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2025-01-08T22:19:57.990Z
-updated: 2025-01-13T02:50:51.021Z
+date: 2025-01-14T17:18:48.817Z
+updated: 2025-01-18T21:04:21.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,13 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383358-9798330229765-come-decodificare-la-voce-di-dio-5-modi/"><u>Come decodificare la voce di Dio - 5 modi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383359-9798330229741-como-decodificar-a-voz-de-deus-5-maneiras/"><u>Como decodificar a voz de Deus - 5 maneiras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383386--you-are-not-your-trauma-healing-journal/"><u>You Are Not Your Trauma Healing Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383360-9798330229789-kak-rasshifrovat-golos-boga-5-sposobov/"><u>Как расшифровать голос Бога - 5 способов | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124270-9781619400153-a-true-story-of-startling-seances-in-san-francisco/"><u>A True Story of Startling Seances in San Francisco | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124261-9781619400733-sister-masons-a-burlesque-in-one-act/"><u>Sister Masons: A Burlesque in One Act: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124263-9781619400405-snake-charming/"><u>Snake Charming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124264-9781619400474-the-sons-of-osiris-a-side-degree/"><u>The Sons of Osiris: A Side Degree | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

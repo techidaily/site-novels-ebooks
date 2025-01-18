@@ -1,7 +1,7 @@
 ---
 title: Making the Afterlife Connection | Free Book
-date: 2024-10-23T03:15:52.446Z
-updated: 2024-10-26T22:21:07.816Z
+date: 2025-01-15T16:49:24.516Z
+updated: 2025-01-18T17:03:17.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abbca30fa71476f5fafa52f22ed7c3aa6678412bc9cd4d46904f1958849a5550.jpg
@@ -146,3 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abbca30fa71476f5fafa52f22ed7c3a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96375390-9780989845861-9eyes-9deceiving-faces-9mecca-chicago/"><u>9Eyes 9Deceiving Faces: 9Mecca Chicago | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96375389-9780996308878-9ruby-prince-of-abyssinia/"><u>9Ruby Prince Of Abyssinia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96376882-9781772360219-if-your-business-could-speak-to-you-what-would-it-say/"><u>If Your Business Could Speak to You, What Would It Say? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96371129-9781864760323-journey-through-many-lifetimes/"><u>Journey Through Many Lifetimes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96375386-9780996308861-nine-deceiving-faces-9mecca-chicago/"><u>Nine Deceiving Faces: 9Mecca Chicago | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96373858-9781627200844-taking-a-detour/"><u>Taking a Detour | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

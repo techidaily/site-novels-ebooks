@@ -1,7 +1,7 @@
 ---
 title: Miracle Mongers and Their Methods | Free Book
-date: 2025-01-02T16:00:51.852Z
-updated: 2025-01-06T16:36:36.956Z
+date: 2025-01-13T19:05:42.774Z
+updated: 2025-01-18T20:17:32.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e18e749e6e3e5ddec50f37fe4245221bc77.jpg
@@ -148,17 +148,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210669103-9780008536503-empower-your-inner-psychic-how-to-harness-your-intuition-and-manifest-your-dream-life/"><u>Empower Your Inner Psychic: How to harness your intuition and manifest your dream life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668830-9781838197186-i-only-have-beautiful-experiences/"><u>I only have beautiful experiences | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668791-9780578675251-neviah-gwen/"><u>Neviah Gwen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668473-9781684931064-the-sacred-magic-of-the-qabbalah/"><u>The Sacred Magic of the Qabbalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668472-9781684931118-the-ways-of-the-lonely-ones/"><u>The Ways of the Lonely Ones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668761-9780578920917-what-would-love-say-today/"><u>What Would Love Say Today? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668774-9798885830744-you-are-more-than-your-score/"><u>You Are More Than Your Score | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668825-9781739950026-your-soul-awakens-the-sunset/"><u>Your Soul Awakens the Sunset | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1640843-9781101638354-americas-most-haunted/"><u>America's Most Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1640621-9780698153837-i-ching/"><u>I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1640825-9780698176928-mrs-wakeman-vs-the-antichrist/"><u>Mrs. Wakeman vs. the Antichrist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1639365-9781317712763-psychotherapy-with-gay-men-and-lesbians/"><u>Psychotherapy with Gay Men and Lesbians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1640694-9780698176218-the-energies-of-love/"><u>The Energies of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1638139-9781780282299-who-built-the-moon/"><u>Who Built the Moon? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

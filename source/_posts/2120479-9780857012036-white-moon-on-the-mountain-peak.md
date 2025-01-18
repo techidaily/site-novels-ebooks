@@ -1,7 +1,7 @@
 ---
 title: White Moon on the Mountain Peak | Free Book
-date: 2024-10-24T20:12:22.214Z
-updated: 2024-10-26T22:53:46.446Z
+date: 2025-01-14T16:20:41.910Z
+updated: 2025-01-18T18:21:19.438Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30fee760fa43af4fb2903eba6e8ce1d2a4e588332f3931d0ec98631b47d32475.jpg
@@ -179,3 +179,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30fee760fa43af4fb2903eba6e8ce1d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316658-9781401951474-making-life-easy/"><u>Making Life Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316657-9781401949747-memories-of-heaven/"><u>Memories of Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316649-9781401951931-secrets-of-the-lost-mode-of-prayer/"><u>Secrets of the Lost Mode of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316648-9781401949594-the-biology-of-belief-10th-anniversary-edition/"><u>The Biology of Belief 10th Anniversary Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316645-9781401947613-the-truth-of-spirits/"><u>The Truth of Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316659-9781401948634-uncharted/"><u>Uncharted | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

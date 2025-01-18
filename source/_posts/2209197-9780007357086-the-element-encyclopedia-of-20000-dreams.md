@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of 20,000 Dreams | Free Book
-date: 2024-10-20T04:08:34.922Z
-updated: 2024-10-26T21:09:35.773Z
+date: 2025-01-16T18:33:03.256Z
+updated: 2025-01-18T21:36:19.269Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c544d19ff7245da69aabd72be8460899c5c6580c670f25cdc3f8977a22848851.jpg
@@ -187,3 +187,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c544d19ff7245da69aabd72be846089
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95783080-9781594777974-entheogens-and-the-future-of-religion-2nd-ed/"><u>Entheogens and the Future of Religion (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783085-9781620551400-lsd-and-the-divine-scientist/"><u>LSD and the Divine Scientist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783083-9781620556900-overtones-and-undercurrents/"><u>Overtones and Undercurrents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783074-9781594776281-sacred-mushroom-of-visions-teonanacatl/"><u>Sacred Mushroom of Visions: Teonanácatl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783088-9781620554623-teachings-of-the-peyote-shamans/"><u>Teachings of the Peyote Shamans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783076-9781594778889-the-acid-diaries/"><u>The Acid Diaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783081-9781620552636-the-ayahuasca-experience-3rd-ed/"><u>The Ayahuasca Experience (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783078-9781594775024-the-psychedelic-future-of-the-mind/"><u>The Psychedelic Future of the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783079-9781620555033-the-psychedelic-gospels/"><u>The Psychedelic Gospels | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

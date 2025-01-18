@@ -1,7 +1,7 @@
 ---
 title: "Shadow work : notre âme nous guide à travers nos parts d'ombre | Free Book"
-date: 2024-10-20T03:08:11.471Z
-updated: 2024-10-27T05:27:29.233Z
+date: 2025-01-14T20:23:55.202Z
+updated: 2025-01-18T20:11:22.295Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb9c7802de0d0fd599b6080ba184742db6f96c6f0bda1c94f8973cb13cf3a3ec.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb9c7802de0d0fd599b6080ba184742
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96489569-9781578592579-angels-a-to-z/"><u>Angels A to Z | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489584-9781578594061-real-nightmares-book-3/"><u>Real Nightmares (Book 3) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489577-9781578593019-the-astrology-book/"><u>The Astrology Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489583-9781578593088-the-spirit-book/"><u>The Spirit Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

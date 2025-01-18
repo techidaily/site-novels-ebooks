@@ -1,7 +1,7 @@
 ---
 title: "The Rat in 2016: Your Chinese Horoscope | Free Book"
-date: 2024-10-25T20:14:12.382Z
-updated: 2024-10-26T20:13:08.076Z
+date: 2025-01-11T20:09:03.995Z
+updated: 2025-01-18T20:18:21.005Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a15db9f767beb778b96dd2b1ff1e2d9d7b37edc7e007397c2e1708d92d82041.jpg
@@ -169,3 +169,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a15db9f767beb778b96dd2b1ff1e2d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782159-9781594777103-breathing-through-the-whole-body/"><u>Breathing through the Whole Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782161-9781594776359-kabbalistic-tarot/"><u>Kabbalistic Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782162-9781620554432-meditation-techniques-of-the-buddhist-and-taoist-masters-2nd-ed/"><u>Meditation Techniques of the Buddhist and Taoist Masters (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782157-9781620550014-secret-practices-of-the-sufi-freemasons/"><u>Secret Practices of the Sufi Freemasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782155-9781620551745-the-path-of-initiation/"><u>The Path of Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782158-9781594775765-the-seven-dawns-of-the-aumakua-2nd-ed/"><u>The Seven Dawns of the Aumakua (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782156-9781594777349-yoga/"><u>Yoga | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Healing power of Gems & stones | Free Book
-date: 2024-10-20T05:02:55.177Z
-updated: 2024-10-27T00:24:28.686Z
+date: 2025-01-14T18:39:08.536Z
+updated: 2025-01-18T18:07:45.155Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f84de79f595e1b08eadbbd149d9807631abbb185bb28f0f94b9fd3855b25bdf.jpg
@@ -143,3 +143,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f84de79f595e1b08eadbbd149d9807
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96177162-9781605293516-a-history-of-ghosts/"><u>A History of Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96176977-9781609611996-mindfulness/"><u>Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96177034-9781623365233-redemption-alley/"><u>Redemption Alley | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96177124-9781623362423-soul-signs/"><u>Soul Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96177140-9781623366995-the-living-clearly-method/"><u>The Living Clearly Method | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

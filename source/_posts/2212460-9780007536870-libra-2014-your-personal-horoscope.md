@@ -1,7 +1,7 @@
 ---
 title: "Libra 2014: Your Personal Horoscope | Free Book"
-date: 2024-10-25T05:44:24.779Z
-updated: 2024-10-26T20:24:30.478Z
+date: 2025-01-12T21:16:44.118Z
+updated: 2025-01-18T22:02:59.360Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c26eac008e33c67e998f3f6d8ecfe824dfab346cc0897fe64b0375225bb659f.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c26eac008e33c67e998f3f6d8ecfe8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782390-9781591438168-illuminations-of-hildegard-of-bingen-2nd-ed/"><u>Illuminations of Hildegard of Bingen (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782388-9781591438915-imagining-the-world-into-existence/"><u>Imagining the World into Existence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782391-9781591438489-the-shamanic-path-to-quantum-consciousness/"><u>The Shamanic Path to Quantum Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782389-9781591432289-the-shamanic-powers-of-rolling-thunder/"><u>The Shamanic Powers of Rolling Thunder | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

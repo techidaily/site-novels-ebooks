@@ -1,7 +1,7 @@
 ---
 title: "The Horse in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-19T21:37:35.566Z
-updated: 2024-10-27T02:44:41.676Z
+date: 2025-01-12T21:01:38.249Z
+updated: 2025-01-18T17:41:48.170Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/741846c95dd2d72cbc74cefb58f3a7a803fdc08c1f03902db7142d8633cb0a96.jpg
@@ -165,3 +165,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/741846c95dd2d72cbc74cefb58f3a7a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782676-9781594776212-dreamways-of-the-iroquois/"><u>Dreamways of the Iroquois | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782678-9781594775925-how-to-read-signs-and-omens-in-everyday-life/"><u>How to Read Signs and Omens in Everyday Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782675-9781594778216-the-chakras-in-shamanic-practice/"><u>The Chakras in Shamanic Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782679-9781594778247-womb-wisdom/"><u>Womb Wisdom | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

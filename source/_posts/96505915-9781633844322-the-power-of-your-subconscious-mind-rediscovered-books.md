@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2025-01-05T21:27:52.720Z
-updated: 2025-01-13T04:28:27.915Z
+date: 2025-01-14T16:31:30.353Z
+updated: 2025-01-18T22:20:33.409Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,17 +153,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211394062-9781507300480-aliens-god-and-the-bible/"><u>Aliens, God, and the Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211395255--magic-memory-and-natural-philosophy-in-the-sixteenth-and-seventeenth-centuries/"><u>Magic, Memory and Natural Philosophy in the Sixteenth and Seventeenth Centuries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211396865-9781528799355-palmistry-a-manual-of-cheirosophy/"><u>Palmistry - A Manual of Cheirosophy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211396870-9781528799294-possession-demoniacal-and-other/"><u>Possession - Demoniacal and Other | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394112-9781507300527-spirits-speak-of-conspiracies-mysteries/"><u>Spirits Speak of Conspiracies & Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394169-9781507301135-the-numbers-of-your-life/"><u>The Numbers of Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211396866-9781528799843-the-physical-phenomena-of-mysticism-with-especial-reference-to-the-stigmata-divine-and-diabolic/"><u>The Physical Phenomena of Mysticism - With Especial Reference to the Stigmata, Divine and Diabolic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394163-9781507300091-the-ufo-phenomenon/"><u>The UFO Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125681-9781609253868-dynamics-of-the-unconscious/"><u>Dynamics of the Unconscious | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125702-9781609254711-everyday-tarot/"><u>Everyday Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125700-9781609256432-the-everyday-psychic/"><u>The Everyday Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125711-9781609254452-the-fifth-dimension/"><u>The Fifth Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125737-9781609250140-the-god-theory/"><u>The God Theory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125744-9781609254216-the-great-secret-or-occultism-unveiled/"><u>The Great Secret or Occultism Unveiled | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

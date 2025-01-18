@@ -1,7 +1,7 @@
 ---
 title: Is There Life After Death? | Free Book
-date: 2024-10-23T22:20:19.390Z
-updated: 2024-10-26T20:20:05.964Z
+date: 2025-01-16T20:59:25.697Z
+updated: 2025-01-18T20:55:08.653Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/251e8136ad70d6dbd2b0ee700bee9892778691953bf81b6e5e8d5c02e197f59f.jpg
@@ -165,3 +165,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/251e8136ad70d6dbd2b0ee700bee989
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95935381-9781844093205-a-little-light-on-the-spiritual-laws/"><u>A Little Light on the Spiritual Laws | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935383-9781844093267-a-new-light-on-angels-2nd-ed/"><u>A New Light on Angels (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935384-9781844098743-birthing-a-new-civilization/"><u>Birthing A New Civilization | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935388-9781844097739-dream-patterns/"><u>Dream Patterns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935385-9781844093014-stories-we-need-to-know/"><u>Stories We Need to Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935380-9781844092529-write-your-memoir/"><u>Write Your Memoir | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

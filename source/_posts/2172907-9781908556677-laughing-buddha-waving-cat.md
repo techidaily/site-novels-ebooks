@@ -1,7 +1,7 @@
 ---
 title: Laughing Buddha, Waving Cat | Free Book
-date: 2024-10-20T16:29:02.763Z
-updated: 2024-10-26T17:41:13.291Z
+date: 2025-01-17T21:24:01.253Z
+updated: 2025-01-18T18:31:33.010Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c707797c94e3811689c9784f8d876b4f53ebff1c977fb4a29dd45686b2bd71e.jpg
@@ -154,3 +154,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c707797c94e3811689c9784f8d876b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317084-9781401939274-a-rebel-chick-mystics-guide/"><u>A Rebel Chick Mystic's Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317124-9781401943738-light-the-flame/"><u>Light the Flame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317112-9781401945398-power-vs-force/"><u>Power vs. Force | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317102-9781401932909-the-angel-by-my-side/"><u>The Angel by My Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317120-9781401943813-the-numerology-guidebook/"><u>The Numerology Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317127-9781401949624-uplifting-prayers-to-light-your-way/"><u>Uplifting Prayers to Light Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317109-9781401944810-what-if-this-is-heaven/"><u>What If This Is Heaven? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317128-9781401944865-you-are-the-placebo/"><u>You Are the Placebo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317093-9781401942434-your-hidden-symmetry/"><u>Your Hidden Symmetry | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

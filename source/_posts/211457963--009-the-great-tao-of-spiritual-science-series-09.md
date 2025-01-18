@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書009：人體之玄機奧秘──探索內鍵感應神通之大智慧（玄機篇）: The Great Tao of Spiritual Science Series 09 | Free Book"
-date: 2024-10-26T01:33:18.532Z
-updated: 2024-10-26T23:34:32.873Z
+date: 2025-01-15T20:11:36.652Z
+updated: 2025-01-18T16:42:04.502Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe339367c289c8fdad20ec1247cb15442ab9183e1f0dc6b143ed5f3aba166392.jpg
@@ -170,3 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe339367c289c8fdad20ec1247cb154
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96370916-9780876046463-dreams-visions/"><u>Dreams & Visions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370910-9780876046296-from-karma-to-grace/"><u>From Karma to Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370911-9780876046814-make-up-your-mind-to-be-happy/"><u>Make Up Your Mind to Be Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370918-9780876046791-planetary-influences-sojourns/"><u>Planetary Influences & Sojourns | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Earth Mysteries Workbook | Free Book
-date: 2024-10-24T19:04:10.577Z
-updated: 2024-10-26T18:13:36.317Z
+date: 2025-01-16T20:15:15.123Z
+updated: 2025-01-18T17:05:38.202Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7917b2332f73d22652a0f94ecd586a2d8decaf1156a85d3b4f6ca51b580a19aa.jpg
@@ -188,3 +188,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7917b2332f73d22652a0f94ecd586a2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96466909-9781939681607-holy-daring/"><u>Holy Daring | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466900-9781939681188-how-do-you-pray/"><u>How Do You Pray? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96467291-9781550924145-slow-is-beautiful/"><u>Slow is Beautiful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466898-9781939681294-the-physics-of-angels/"><u>The Physics of Angels | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

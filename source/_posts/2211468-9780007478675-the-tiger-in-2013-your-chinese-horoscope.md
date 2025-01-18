@@ -1,7 +1,7 @@
 ---
 title: "The Tiger in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-23T01:46:21.342Z
-updated: 2024-10-26T16:05:24.092Z
+date: 2025-01-14T20:49:50.757Z
+updated: 2025-01-18T21:25:31.776Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/384d71368399543fdec3adcbf285272db49d2db38c07e4f100833d3cdc8ed6e8.jpg
@@ -165,3 +165,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/384d71368399543fdec3adcbf285272
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782642-9781594779497-chakra-frequencies-2nd-ed/"><u>Chakra Frequencies (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782643-9781594779091-chakras-2nd-ed/"><u>Chakras (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782632-9781594775468-spirit-of-the-shuar/"><u>Spirit of the Shuar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782641-9781594779343-the-sexual-practices-of-quodoushka/"><u>The Sexual Practices of Quodoushka | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782635-9781594779107-the-shamanic-way-of-the-bee-2nd-ed/"><u>The Shamanic Way of the Bee (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782638-9781594779558-the-shamanic-wisdom-of-the-huichol-2nd-ed/"><u>The Shamanic Wisdom of the Huichol (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782637-9781594779657-the-six-healing-sounds/"><u>The Six Healing Sounds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782634-9781620551226-the-spiritual-foundations-of-aikido/"><u>The Spiritual Foundations of Aikido | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2025-01-09T20:48:02.531Z
-updated: 2025-01-12T18:27:53.889Z
+date: 2025-01-15T17:23:48.359Z
+updated: 2025-01-18T21:24:45.666Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,14 +130,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211381582-9782889702640-decrypter-lavenir/"><u>Décrypter l'avenir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211382598-9781068860225-mazdayasna-mzdisna/"><u>Mazdayasna مَزدَیَسنا | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211380867-9781835380888-revoice/"><u>Revoice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211382748-9781957811123-silence-entering-the-cosmic-sea-of-consciousness-journal-of-a-western-yogi/"><u>Silence: Entering the Cosmic Sea of Consciousness: Journal of a Western Yogi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211382655-9781801521710-the-baptists-head-compendium/"><u>The Baptist's Head Compendium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124166-9780892545636-astrology-and-the-authentic-self/"><u>Astrology and the Authentic Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124170-9780892545513-houses-of-the-horoscope/"><u>Houses of the Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124172-9780892545803-planets-in-therapy/"><u>Planets in Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124174-9780892545544-real-alchemy/"><u>Real Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124165-9780892545933-the-art-of-chart-interpretation/"><u>The Art of Chart Interpretation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124168-9780892545599-the-future-that-brought-her-here/"><u>The Future That Brought Her Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124169-9780892545766-the-hermetic-link/"><u>The Hermetic Link | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

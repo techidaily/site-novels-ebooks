@@ -1,7 +1,7 @@
 ---
 title: "Aquarius 2016: Your Personal Horoscope | Free Book"
-date: 2024-10-24T03:16:51.963Z
-updated: 2024-10-27T00:59:49.314Z
+date: 2025-01-12T20:30:37.181Z
+updated: 2025-01-18T18:37:33.318Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26026e427d1c8500a1c541787d8ce831ddb7951a6a4ab683027e1bad9ca3a872.jpg
@@ -162,3 +162,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26026e427d1c8500a1c541787d8ce83
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782134-9781620553954-awakening-higher-consciousness/"><u>Awakening Higher Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782133-9781594779893-quantum-shift-in-the-global-brain/"><u>Quantum Shift in the Global Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782138-9781594777721-the-hermetic-code-in-dna/"><u>The Hermetic Code in DNA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782137-9781594779312-the-invisible-history-of-the-rosicrucians/"><u>The Invisible History of the Rosicrucians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782135-9781620554166-the-john-michell-reader-2nd-ed/"><u>The John Michell Reader (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782136-9781594776298-the-sacred-embrace-of-jesus-and-mary/"><u>The Sacred Embrace of Jesus and Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782140-9781594777868-the-sacred-network/"><u>The Sacred Network | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782141-9781594777066-the-sacred-rite-of-magical-love/"><u>The Sacred Rite of Magical Love | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Summary of Luis Elizondo’s Imminent | Free Book
-date: 2024-10-23T23:08:42.143Z
-updated: 2024-10-26T22:30:02.325Z
+date: 2025-01-14T22:25:46.536Z
+updated: 2025-01-18T22:22:37.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/294a0b88c8df7f63570855be111a5b74ae154b335164e814bc2838c40297e264.jpg
@@ -136,3 +136,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/294a0b88c8df7f63570855be111a5b7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96311976-9788472459526-antologia/"><u>Antología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311895-9781616406370-astrology-and-your-past-lives/"><u>Astrology and Your Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311891-9781616409692-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311984-9788499883274-el-fin-del-materialismo/"><u>El fin del materialismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311905-9781945934384-how-to-get-what-you-want/"><u>How to Get What You Want | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96311965-9780895566140-the-golden-flower/"><u>The Golden Flower | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

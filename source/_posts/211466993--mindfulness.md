@@ -1,7 +1,7 @@
 ---
 title: Mindfulness | Free Book
-date: 2024-10-22T21:26:13.806Z
-updated: 2024-10-27T04:21:48.623Z
+date: 2025-01-11T21:59:35.114Z
+updated: 2025-01-18T22:02:05.745Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de315ba66b82df66c5dff2d799b00a6ed1f5c2067c52affad671832f4660cee0.jpg
@@ -144,3 +144,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de315ba66b82df66c5dff2d799b00a6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317323-9781788170666-cosmic-messengers/"><u>Cosmic Messengers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317339-9781848504141-everyday-angels/"><u>Everyday Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317360-9781401921002-exploring-the-levels-of-creation/"><u>Exploring the Levels of Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317337-9781848502857-instant-cosmic-ordering/"><u>Instant Cosmic Ordering | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317320-9781781803097-mind-calm/"><u>Mind Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317322-9781401952747-the-boy-who-knew-too-much/"><u>The Boy Who Knew Too Much | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317350-9781848505629-the-contagious-power-of-thinking/"><u>The Contagious Power of Thinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317330-9781848504004-thetahealing/"><u>ThetaHealing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317319-9781401952327-we-consciousness/"><u>We Consciousness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

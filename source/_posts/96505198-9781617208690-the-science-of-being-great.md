@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2025-01-06T20:18:05.617Z
-updated: 2025-01-12T21:02:30.064Z
+date: 2025-01-12T18:36:59.794Z
+updated: 2025-01-18T21:26:35.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,13 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211455179-9781956198324-conscious-choices/"><u>Conscious Choices | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455024-9798330388974-ensename-a-hablar-de-amor/"><u>Enséñame a Hablar de Amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455057-9781951879259-memoarer-fran-andra-dimensionen-del-2/"><u>Memoarer Från Andra Dimensionen, Del 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455034-9781963956665-the-writings-of-austin-osman-spare/"><u>The Writings of Austin Osman Spare | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1237937-9780761861089-adjusting-to-lifes-changing-seasons/"><u>Adjusting to Life's Changing Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1222100-9781583947999-aya-awakenings/"><u>Aya Awakenings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1224572-9781609259099-embrace-yes/"><u>Embrace Yes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1230262-9781780992808-identity-and-the-quartered-circle/"><u>Identity and the Quartered Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245839-9781476713090-making-marks/"><u>Making Marks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1224575-9781609259273-runecasters-handbook/"><u>Runecaster's Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: Weeks 7-8 of Your 8-Week Plan | Free Book"
-date: 2024-10-23T04:00:25.007Z
-updated: 2024-10-27T03:23:12.590Z
+date: 2025-01-17T20:27:52.803Z
+updated: 2025-01-18T16:23:46.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b8199339517ad6ae5add2f87d4a1131850a538045df08ab82f8cbcdf0a8900ca.jpg
@@ -188,3 +188,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8199339517ad6ae5add2f87d4a1131
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782056-9781620553305-chinas-cosmological-prehistory/"><u>China's Cosmological Prehistory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782057-9781620553602-restoring-the-soul-of-the-world/"><u>Restoring the Soul of the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782063-9781620555965-sheela-na-gig/"><u>Sheela na gig | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782064-9781594779213-the-secret-legacy-of-jesus/"><u>The Secret Legacy of Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782061-9781620552759-the-sufi-path-of-annihilation/"><u>The Sufi Path of Annihilation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

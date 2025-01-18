@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2025-01-04T16:25:41.954Z
-updated: 2025-01-06T16:35:12.023Z
+date: 2025-01-12T20:25:39.865Z
+updated: 2025-01-18T16:17:32.074Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,18 +145,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210670779-9798218075217-12-ancient-doorways-to-freedom/"><u>12 Ancient Doorways to Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210672683-9781608688135-angel-wealth-magic/"><u>Angel Wealth Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669416-9798887620114-growing-consciousness/"><u>Growing Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210670452-9781454946779-healing-your-inner-child/"><u>Healing Your Inner Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210672286-9782226475763-les-cles-de-lesoterisme-divination/"><u>Les Clés de l'ésotérisme - Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210670535-9781958066072-light-of-the-desert/"><u>Light Of The Desert | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210670490-9781958678930-morning-star/"><u>Morning Star | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669419-9798887620121-the-buddha-and-the-bard/"><u>The Buddha and the Bard | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210669422-9798887620169-the-power-of-crystal-healing/"><u>The Power of Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1653600-9780857011619-daoist-meditation/"><u>Daoist Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650305-9781612833286-induced-after-death-communication/"><u>Induced After Death Communication | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1652055-9781476789750-outrageous-openness/"><u>Outrageous Openness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1652665-9781780282282-the-hiram-key-revisited/"><u>The Hiram Key Revisited | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1651771-9781609259532-the-theban-oracle/"><u>The Theban Oracle | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

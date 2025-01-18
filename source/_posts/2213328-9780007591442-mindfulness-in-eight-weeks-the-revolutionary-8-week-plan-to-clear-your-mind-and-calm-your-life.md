@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness in Eight Weeks: The revolutionary 8 week plan to clear your mind and calm your life | Free Book"
-date: 2024-10-26T02:33:50.057Z
-updated: 2024-10-26T16:30:35.474Z
+date: 2025-01-16T18:51:41.085Z
+updated: 2025-01-18T17:57:14.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de4ac3c73cc0b091b5c2aafc57a42dd409160cee3b77e2446e00c053ef7cefc3.jpg
@@ -225,3 +225,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de4ac3c73cc0b091b5c2aafc57a42dd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95777856-9781449446338-100-hugs/"><u>100 Hugs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774504-9781608684960-expect-the-unexpected/"><u>Expect the Unexpected | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774475-9781449485535-expect-wonderful-things/"><u>Expect Wonderful Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95776658-9788121252263-mind-and-ideology/"><u>Mind And Ideology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95777808-9781493027996-spooky-michigan-2nd-ed/"><u>Spooky Michigan (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95775814-9781946764010-the-nest-in-the-stream/"><u>The Nest in the Stream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774685-9781937673857-the-new-diplomatic-strategies-of-sir-winston-churchill/"><u>The New Diplomatic Strategies of Sir Winston Churchill | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95778262-9780008268190-witch-a-magickal-journey-a-guide-to-modern-witchcraft/"><u>Witch: a Magickal Journey: A Guide to Modern Witchcraft | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

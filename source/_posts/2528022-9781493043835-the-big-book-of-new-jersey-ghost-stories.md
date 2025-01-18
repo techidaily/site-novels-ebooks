@@ -1,7 +1,7 @@
 ---
 title: The Big Book of New Jersey Ghost Stories | Free Book
-date: 2024-10-25T04:11:55.263Z
-updated: 2024-10-26T16:09:09.424Z
+date: 2025-01-17T17:48:51.279Z
+updated: 2025-01-18T20:31:37.252Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b99438e984a1a90a6529c870190932170d8d62dae4346289f00dc21e09c327a.jpg
@@ -156,3 +156,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b99438e984a1a90a6529c870190932
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/409405-9781440685439-a-message-to-garcia/"><u>A Message to Garcia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/406684-9780307482785-childrens-past-lives/"><u>Children's Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407134-9780307559517-sacred-woman/"><u>Sacred Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407269-9780307553478-the-celtic-way-of-prayer/"><u>The Celtic Way of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407277-9780307555410-the-creation-of-health/"><u>The Creation of Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407335-9780307565853-the-isaiah-effect/"><u>The Isaiah Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/407149-9780307559555-the-secret-language-of-signs/"><u>The Secret Language of Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402547-9780307492272-ufo-briefing-document/"><u>UFO Briefing Document | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

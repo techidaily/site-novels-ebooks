@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Mindfulness | Free Book
-date: 2024-10-22T18:16:00.711Z
-updated: 2024-10-26T22:51:21.756Z
+date: 2025-01-16T18:52:32.805Z
+updated: 2025-01-18T21:47:28.519Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80928f947a0a63a1907a06cf4567b0b3ba0c2979f7170ddfeee2d38c1c431eea.jpg
@@ -165,3 +165,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80928f947a0a63a1907a06cf4567b0b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95842528-9781788284554-discover-meditation-mindfulness/"><u>Discover Meditation & Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842534-9781788286527-hauntings/"><u>Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842086-9781936012374-humanitys-spiritual-crisis/"><u>Humanity's Spiritual Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842069-9781888729832-modern-esoteric/"><u>Modern Esoteric | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842530-9781788284523-the-complete-book-of-dreams/"><u>The Complete Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842529-9781788284547-the-complete-book-of-healing/"><u>The Complete Book of Healing | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

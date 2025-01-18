@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2025-01-03T17:02:23.244Z
-updated: 2025-01-06T16:38:45.996Z
+date: 2025-01-13T20:40:00.135Z
+updated: 2025-01-18T18:29:36.687Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,15 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210708538-9781915393791-happy-birthday-love-elizabeth/"><u>Happy Birthday-Love, Elizabeth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210708548-9781915393814-happy-birthday-love-oscar/"><u>Happy Birthday-Love, Oscar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210708604-9780349433264-the-little-book-of-love-magic/"><u>The Little Book of Love Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709921-9780645602814-the-meditation-activists-travel-guide/"><u>The Meditation Activist's Travel Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709974-9780876127551-the-science-of-religion/"><u>The Science of Religion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709837-9780834845008-we-heal-together/"><u>We Heal Together | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1938658-9780835630535-a-new-science-of-the-paranormal/"><u>A New Science of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1931505-9781476621333-a-world-in-a-grain-of-sand/"><u>A World in a Grain of Sand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/194600--antique-affair/"><u>Antique Affair | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/193231-9780767911528-breaking-open-the-head/"><u>Breaking Open the Head | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1938655-9780835631389-man-visible-and-invisible-2nd-ed/"><u>Man, Visible and Invisible (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1931481-9781476606484-psychics-sensitives-and-somnambules/"><u>Psychics, Sensitives and Somnambules | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1938592-9780835630405-the-reality-of-esp/"><u>The Reality of ESP | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

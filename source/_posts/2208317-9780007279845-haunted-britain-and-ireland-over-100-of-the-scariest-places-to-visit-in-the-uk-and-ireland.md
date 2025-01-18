@@ -1,7 +1,7 @@
 ---
 title: "Haunted Britain and Ireland: Over 100 of the Scariest Places to Visit in the UK and Ireland | Free Book"
-date: 2024-10-24T20:49:45.352Z
-updated: 2024-10-27T00:53:35.353Z
+date: 2025-01-13T20:23:57.468Z
+updated: 2025-01-18T18:46:59.787Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6aaef9260fdfd7d1b58ba03e0be0c22b0b374ec2b31a7ce371648b59c68a7e16.jpg
@@ -191,3 +191,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6aaef9260fdfd7d1b58ba03e0be0c22
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95931743-9781507207192-emotional-detox/"><u>Emotional Detox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935314-9781844093403-gem-water/"><u>Gem Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931776-9781501188282-messages-from-the-divine/"><u>Messages from the Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931691-9781614294214-relational-mindfulness/"><u>Relational Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935315-9781844093373-the-healing-crystals-first-aid-manual/"><u>The Healing Crystals First Aid Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931739-9781507207215-the-modern-witchcraft-book-of-natural-magick/"><u>The Modern Witchcraft Book of Natural Magick | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

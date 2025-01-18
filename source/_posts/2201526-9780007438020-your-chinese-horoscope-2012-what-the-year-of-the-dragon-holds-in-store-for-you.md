@@ -1,7 +1,7 @@
 ---
 title: "Your Chinese Horoscope 2012: What the year of the dragon holds in store for you | Free Book"
-date: 2024-10-23T22:59:14.535Z
-updated: 2024-10-27T05:36:10.942Z
+date: 2025-01-17T20:29:44.818Z
+updated: 2025-01-18T18:27:07.867Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3dadcfc78e00c071ecc6ab8b9504de5c596d440526233230034206f1c4eb7cb.jpg
@@ -168,3 +168,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3dadcfc78e00c071ecc6ab8b9504de
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95888594-9780399562310-alone-time/"><u>Alone Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95885077-9781459742147-ghosts-of-niagara-on-the-lake-2nd-ed/"><u>Ghosts of Niagara-on-the-Lake (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95888613-9780525558941-how-to-change-your-mind/"><u>How to Change Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95893226-9782268098104-la-lampe-de-sagesse/"><u>La Lampe de sagesse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95887576-9781507194522-quello-che-e-una-scorciatoia-all-altro-mondo/"><u>Quello che É - Una scorciatoia all' Altro Mondo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95882109-9781785355943-the-art-of-freedom/"><u>The Art of Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95884856-9780998688718-the-recognition-sutras/"><u>The Recognition Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95888625-9780525504719-the-road-to-walden/"><u>The Road to Walden | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

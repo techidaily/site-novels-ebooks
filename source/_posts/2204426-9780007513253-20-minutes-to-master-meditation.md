@@ -1,7 +1,7 @@
 ---
 title: 20 MINUTES TO MASTER … MEDITATION | Free Book
-date: 2024-10-26T04:54:27.361Z
-updated: 2024-10-26T23:53:48.115Z
+date: 2025-01-14T17:13:37.589Z
+updated: 2025-01-18T21:20:03.952Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e4a5fd1eb0b5fecb2577be13388fe49f8b6d64c41b1c4f160e8afca2629a359.jpg
@@ -182,3 +182,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e4a5fd1eb0b5fecb2577be13388fe4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95917945-9781620556689-dictionary-of-gypsy-mythology/"><u>Dictionary of Gypsy Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95913239-9782268097381-la-premiere-lettre-tome-3/"><u>La Première Lettre, tome 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95916685-9782268097466-la-symbolique-maconnique-devoilee/"><u>La symbolique maçonnique dévoilée | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95913246-9782268097190-les-therapeutes-de-linvisible/"><u>Les thérapeutes de l'invisible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917947-9781591433149-power-places-and-the-master-builders-of-antiquity/"><u>Power Places and the Master Builders of Antiquity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917944-9781591432920-sacred-messengers-of-shamanic-africa/"><u>Sacred Messengers of Shamanic Africa | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

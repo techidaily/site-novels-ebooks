@@ -1,7 +1,7 @@
 ---
 title: "The Snake in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-21T17:08:48.108Z
-updated: 2024-10-27T00:43:49.385Z
+date: 2025-01-11T17:45:14.512Z
+updated: 2025-01-18T19:23:57.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b6672e4876201f2cdc14f50af5e40013aee31e687eef121219d96988fb94fcf1.jpg
@@ -165,3 +165,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b6672e4876201f2cdc14f50af5e4001
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782665-9781620555880-awakening-the-chakras/"><u>Awakening the Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782669-9781594778650-founding-fathers-secret-societies-2nd-ed/"><u>Founding Fathers, Secret Societies (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782670-9781620553770-shamanic-healing/"><u>Shamanic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782672-9781620554760-shamanic-transformations/"><u>Shamanic Transformations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782666-9781620553169-the-book-of-primal-signs-2nd-ed/"><u>The Book of Primal Signs (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Key of Solomon the King | Free Book
-date: 2025-01-01T16:45:07.287Z
-updated: 2025-01-06T16:12:46.900Z
+date: 2025-01-14T18:37:03.348Z
+updated: 2025-01-18T17:15:37.427Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f40ed1c44b2f30a63607a3bc1a044f438d.jpg
@@ -163,14 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210708394-9781802278927-chain-of-pain/"><u>Chain of Pain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210708516-9781639858996-from-the-soul-of-my-rubber-boots/"><u>From the Soul of my Rubber Boots | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210708383-9781915393753-happy-birthday-love-keith/"><u>Happy Birthday-Love, Keith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210708517-9780760373453-in-focus-runes/"><u>In Focus Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210708415-9798987270011-thank-you-body/"><u>Thank You, Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1925423-9781782790211-breaking-the-mother-goose-code/"><u>Breaking the Mother Goose Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/192810-9781400045488-emotional-alchemy/"><u>Emotional Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/192649-9780440334637-its-a-miracle-3/"><u>It's a Miracle 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/192561-9780767919623-letting-go-of-the-person-you-used-to-be/"><u>Letting Go of the Person You Used to Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1925436-9781782794134-teen-spirit-guide-to-working-with-mediumship/"><u>Teen Spirit Guide to Working with Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924732-9780698137226-the-secret-teachers-of-the-western-world/"><u>The Secret Teachers of the Western World | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

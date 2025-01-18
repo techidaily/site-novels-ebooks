@@ -1,7 +1,7 @@
 ---
 title: Joyous Abundance Journal | Free Book
-date: 2024-10-20T22:25:43.025Z
-updated: 2024-10-27T05:29:37.750Z
+date: 2025-01-17T19:34:49.139Z
+updated: 2025-01-18T20:11:49.856Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2740179815daeab65324cf30b875bd6a0d4ac70fb136c989c964dbfb00db490.jpg
@@ -167,3 +167,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2740179815daeab65324cf30b875bd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316886-9781401929664-a-stream-of-dreams/"><u>A Stream of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316889-9781401929763-diary-of-a-psychic/"><u>Diary of a Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316884-9781401921255-past-lives-present-miracles/"><u>Past Lives, Present Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316881-9781401922627-the-indigo-children/"><u>The Indigo Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316888-9781401919269-the-law-of-attraction/"><u>The Law of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316887-9781401926151-the-priest-and-the-medium/"><u>The Priest and the Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316890-9781401928506-visions-trips-and-crowded-rooms/"><u>Visions, Trips, and Crowded Rooms | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

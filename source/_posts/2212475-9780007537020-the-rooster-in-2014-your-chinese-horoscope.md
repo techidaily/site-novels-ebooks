@@ -1,7 +1,7 @@
 ---
 title: "The Rooster in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-21T21:53:46.580Z
-updated: 2024-10-26T17:00:51.600Z
+date: 2025-01-12T20:00:55.114Z
+updated: 2025-01-18T18:20:49.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c5d1f02c9e7564f7a367fa567483ac9724fed743f242dfb7684337bf6f5a371.jpg
@@ -167,3 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c5d1f02c9e7564f7a367fa567483ac
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782514-9781591438533-affinity/"><u>Affinity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782515-9781591439844-grey-aliens-and-the-harvesting-of-souls/"><u>Grey Aliens and the Harvesting of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782517-9781591432326-our-dolphin-ancestors/"><u>Our Dolphin Ancestors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782513-9781591432722-the-angelic-origins-of-the-soul/"><u>The Angelic Origins of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782512-9781591432302-the-anunnaki-chronicles/"><u>The Anunnaki Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782511-9781591432388-trance-journeys-of-the-hunter-gatherers/"><u>Trance Journeys of the Hunter-Gatherers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

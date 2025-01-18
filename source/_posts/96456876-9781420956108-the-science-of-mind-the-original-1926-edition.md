@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2025-01-04T16:26:59.888Z
-updated: 2025-01-06T16:55:35.043Z
+date: 2025-01-17T20:16:21.178Z
+updated: 2025-01-18T19:06:55.749Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,17 +156,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210673461-9783000734441-conversations-with-the-universe/"><u>Conversations with The Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673484-9798986826813-from-disbelief-to-assurance/"><u>From Disbelief to Assurance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210672942-9781959434245-life-choices-and-life-paths-4th-ed/"><u>Life Choices and Life Paths (4th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673018-9798986043227-problem-solved/"><u>Problem Solved | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673015-9781838197162-quotes-about-consciousness/"><u>Quotes about Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210672800-9781839105906-the-mindful-law-student/"><u>The Mindful Law Student | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673025-9798986664729-the-new-5d-human/"><u>The new 5D HUman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673547-9781685173876-the-struggle-and-how-we-slayed-the-dragon/"><u>The Struggle and How We Slayed the Dragon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1658839-9780698185005-coleccion-abundancia-astrologica/"><u>Colección Abundancia Astrológica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1655470-9780349404608-colour-your-life/"><u>Colour Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1662434-9781614290933-feng-shui-seeing-is-believing/"><u>Feng Shui: Seeing Is Believing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1656054-9781608829040-the-practicing-happiness-workbook/"><u>The Practicing Happiness Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1657193-9781250054074-what-i-know-for-sure/"><u>What I Know For Sure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1655230-9780698171817-your-inner-will/"><u>Your Inner Will | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

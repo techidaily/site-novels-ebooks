@@ -1,7 +1,7 @@
 ---
 title: "The Rabbit in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-24T20:43:30.085Z
-updated: 2024-10-27T02:07:20.894Z
+date: 2025-01-17T21:13:51.571Z
+updated: 2025-01-18T19:53:03.181Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6e198baf019238efc031c38cb461dd9464f94ad8c14889df44870247def0651.jpg
@@ -167,3 +167,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6e198baf019238efc031c38cb461dd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782654-9781620553985-america-nation-of-the-goddess/"><u>America: Nation of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782644-9781594776205-bushman-shaman/"><u>Bushman Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782657-9781620554531-secret-societies/"><u>Secret Societies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782655-9781620554548-shaolin-qi-gong/"><u>Shaolin Qi Gong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782653-9781594778698-shapeshifting/"><u>Shapeshifting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782648-9781620551783-the-zero-point-agreement/"><u>The Zero Point Agreement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782658-9781594775390-vaastu-the-indian-art-of-placement/"><u>Vaastu: The Indian Art of Placement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782647-9781594779589-vodou-money-magic/"><u>Vodou Money Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782646-9781594776649-vodou-shaman/"><u>Vodou Shaman | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

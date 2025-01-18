@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Gratitude | Free Book
-date: 2024-10-20T20:12:31.240Z
-updated: 2024-10-27T04:34:09.278Z
+date: 2025-01-15T19:18:26.687Z
+updated: 2025-01-18T19:49:03.265Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7dd91b44ecfa4ed2ee9f17ffb919204054f1d4faa82be42e17bca6ed5b66d4c7.jpg
@@ -174,3 +174,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7dd91b44ecfa4ed2ee9f17ffb919204
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/633081-9781429937580-destiny-freedom-and-the-soul/"><u>Destiny, Freedom, and the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/633146-9781429969093-life-before-life/"><u>Life Before Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/633961-9781429962124-perseverance/"><u>Perseverance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/635197-9781451632996-the-laws-of-prosperity/"><u>The Laws of Prosperity | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

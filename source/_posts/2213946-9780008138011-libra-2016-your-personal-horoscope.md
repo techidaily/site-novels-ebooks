@@ -1,7 +1,7 @@
 ---
 title: "Libra 2016: Your Personal Horoscope | Free Book"
-date: 2024-10-19T22:38:26.341Z
-updated: 2024-10-27T00:56:41.344Z
+date: 2025-01-17T16:20:41.124Z
+updated: 2025-01-18T16:36:16.040Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd33217b3cae8a30aa6a01d231dcfd2a4777644b638145d666a6a93d3b7efe7b.jpg
@@ -162,3 +162,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd33217b3cae8a30aa6a01d231dcfd2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782087-9781620553695-christian-mythology/"><u>Christian Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782086-9781620556474-fasting-the-mind/"><u>Fasting the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782081-9781620553855-in-the-company-of-sages-2nd-ed/"><u>In the Company of Sages (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782085-9781594776922-lords-of-the-left-hand-path/"><u>Lords of the Left-Hand Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782082-9781594776939-the-secret-history-of-poltergeists-and-haunted-houses/"><u>The Secret History of Poltergeists and Haunted Houses | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

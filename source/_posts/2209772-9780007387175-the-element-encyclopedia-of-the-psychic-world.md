@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of the Psychic World | Free Book
-date: 2024-10-21T17:54:48.077Z
-updated: 2024-10-26T23:27:23.869Z
+date: 2025-01-16T21:30:45.872Z
+updated: 2025-01-18T21:52:36.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7e751fff8656704c6d1edce6c21641df12b7f3598cf5420a9ddfa088d8ee55b.jpg
@@ -177,3 +177,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7e751fff8656704c6d1edce6c21641
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95795254-9781780995120-find-and-follow-your-inner-compass/"><u>Find and Follow Your Inner Compass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95796401-9780762463565-lunar-abundance/"><u>Lunar Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95795255-9781785355745-pagan-portals-the-crane-bag/"><u>Pagan Portals: The Crane Bag | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95798447-9781351912839-parapsychology/"><u>Parapsychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95794192-9781493027972-spooky-new-england-2nd-ed/"><u>Spooky New England (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95794193-9781493027989-spooky-new-jersey-2nd-ed/"><u>Spooky New Jersey (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95793949-9786171230545-rokovye-prorochestva-i-znaki-sudby-rokovye-prorochestva-i-znaki-sudby/"><u>Роковые пророчества и знаки судьбы (Rokovye prorochestva i znaki sud'by) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "The Rabbit in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-20T22:25:26.168Z
-updated: 2024-10-26T21:21:40.485Z
+date: 2025-01-15T16:49:09.837Z
+updated: 2025-01-18T19:11:06.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1072a5fe34eef5d763ed0e3e619f991477133edc5135de54bcee98d7bbf2808a.jpg
@@ -167,3 +167,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1072a5fe34eef5d763ed0e3e619f991
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782467-9781591439912-forbidden-religion/"><u>Forbidden Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782466-9781591438922-forgotten-worlds/"><u>Forgotten Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782460-9781591438625-mastery-of-awareness/"><u>Mastery of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782462-9781591439332-medicine-of-the-cherokee/"><u>Medicine of the Cherokee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782461-9781591438908-meditations-with-animals/"><u>Meditations with Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782463-9781591437871-the-union-of-isis-and-thoth/"><u>The Union of Isis and Thoth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782464-9781591437567-the-vatican-heresy/"><u>The Vatican Heresy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782459-9781591438939-the-velikovsky-heresies/"><u>The Velikovsky Heresies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

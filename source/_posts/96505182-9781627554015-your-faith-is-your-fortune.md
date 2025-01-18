@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2025-01-11T04:47:10.460Z
-updated: 2025-01-13T05:50:24.016Z
+date: 2025-01-16T21:30:50.418Z
+updated: 2025-01-18T21:04:26.824Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,13 +142,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211451791--apparitions/"><u>Apparitions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211452985-9781466876415-mystical-experiences-in-30-days/"><u>Mystical Experiences in 30 Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211451664--telepathy-and-medical-psychology/"><u>Telepathy and Medical Psychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211453376-9781466891197-the-encyclopedia-of-hell/"><u>The Encyclopedia of Hell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221614-9781780997155-awaken-your-inner-faerie-in-30-days/"><u>Awaken Your Inner Faerie In 30 Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221615-9781780998916-beyond-god/"><u>Beyond God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221618-9781780996486-dear-poppyseed/"><u>Dear Poppyseed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220547-9781776526796-occultism-and-common-sense/"><u>Occultism and Common-Sense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220041-9780892545605-the-book-of-lilith/"><u>The Book of Lilith | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2025-01-09T17:21:09.263Z
-updated: 2025-01-12T21:26:46.665Z
+date: 2025-01-15T16:37:29.371Z
+updated: 2025-01-18T19:27:17.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,14 +166,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2670366-9781515409182-in-tune-with-the-infinite/"><u>In Tune With The Infinite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670360-9781515409106-james-allens-book-of-meditations-for-every-day-in-the-year/"><u>James Allen’s Book of Meditations for Every Day in the Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670357-9781515409069-just-how-to-wake-the-solar-plexus/"><u>Just How to Wake the Solar Plexus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670369-9781515409335-life-power-and-how-to-use-it/"><u>Life Power and How to Use It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670395-9781515410058-mind-power/"><u>Mind Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424524-9781780282862-becoming-buddha/"><u>Becoming Buddha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424532-9781780283166-butterfly-tai-chi/"><u>Butterfly Tai Chi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424518-9781780282725-celtic-visions/"><u>Celtic Visions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424520-9781780282763-kick-ass-angels/"><u>Kick-Ass Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424525-9781780282879-secrets-of-rejuvination/"><u>Secrets of Rejuvination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424528-9781780283043-the-authentic-tarot/"><u>The Authentic Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424533-9781780283180-the-five-healing-tibetans/"><u>The Five Healing Tibetans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424506-9781780281933-the-secret-within/"><u>The Secret Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424515-9781780282428-the-shining-ones/"><u>The Shining Ones | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

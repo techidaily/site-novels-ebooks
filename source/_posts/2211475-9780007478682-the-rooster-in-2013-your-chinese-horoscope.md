@@ -1,7 +1,7 @@
 ---
 title: "The Rooster in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-21T16:02:09.175Z
-updated: 2024-10-26T23:26:34.613Z
+date: 2025-01-12T16:05:55.590Z
+updated: 2025-01-18T21:31:57.649Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cb308218b271e4d17415492b85a7a0fc3784ffcfa436ea04cbb13d723f431f5c.jpg
@@ -165,3 +165,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cb308218b271e4d17415492b85a7a0f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782706-9781594777745-aikido-and-words-of-power/"><u>Aikido and Words of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782705-9781620553350-fulcanelli-and-the-alchemical-revival/"><u>Fulcanelli and the Alchemical Revival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782704-9781594778452-fusion-of-the-eight-psychic-channels/"><u>Fusion of the Eight Psychic Channels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782703-9781594778445-fusion-of-the-five-elements/"><u>Fusion of the Five Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782707-9781620553909-pagan-magic-of-the-northern-tradition/"><u>Pagan Magic of the Northern Tradition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782698-9781594775499-shaman-md/"><u>Shaman, M.D. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782699-9781620550793-the-healing-power-of-gemstones/"><u>The Healing Power of Gemstones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782700-9781594778438-the-inner-smile/"><u>The Inner Smile | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782702-9781594778421-the-inner-structure-of-tai-chi-2nd-ed/"><u>The Inner Structure of Tai Chi (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

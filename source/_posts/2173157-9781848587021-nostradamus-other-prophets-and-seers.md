@@ -1,7 +1,7 @@
 ---
 title: Nostradamus & Other Prophets and Seers | Free Book
-date: 2024-10-20T00:00:15.421Z
-updated: 2024-10-26T21:17:18.814Z
+date: 2025-01-15T19:30:46.740Z
+updated: 2025-01-18T18:59:18.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14ac6de86061b3fb938a0e0bc696d7dde953afb8d18165457b0db75705ce89e8.jpg
@@ -165,3 +165,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14ac6de86061b3fb938a0e0bc696d7d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96031699-9781594337789-7-steps-to-attain-perfection/"><u>7 Steps to Attain Perfection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031412-9781925712353-happiness-plan/"><u>Happiness Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96028586-9780835621878-the-inner-life/"><u>The Inner Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031670-9782268099866-venus-et-vous/"><u>Vénus et vous | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Sixth Book of Moses and The Seventh Book of Moses | Free Book
-date: 2024-10-20T18:31:24.601Z
-updated: 2024-10-27T00:07:42.897Z
+date: 2025-01-11T22:02:19.832Z
+updated: 2025-01-18T21:47:03.076Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c693e4e74aeee65112fd65d5cec0d6e9a6057444181a9deacd6fea43444fa30.jpg
@@ -161,3 +161,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c693e4e74aeee65112fd65d5cec0d6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96261033-9781788172707-chakras-made-easy/"><u>Chakras Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261034-9781788172721-energy-healing-made-easy/"><u>Energy Healing Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261032-9781788172677-reiki-made-easy/"><u>Reiki Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261224-9781493034666-spooky-oregon-2nd-ed/"><u>Spooky Oregon (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261035-9781788172752-tarot-made-easy/"><u>Tarot Made Easy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2024-12-31T16:02:00.695Z
-updated: 2025-01-06T16:34:23.099Z
+date: 2025-01-12T19:38:51.994Z
+updated: 2025-01-18T16:46:17.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,15 +162,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210692923-9780008589332-aries-2024-your-personal-horoscope/"><u>Aries 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692926-9780008589363-cancer-2024-your-personal-horoscope/"><u>Cancer 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692928-9780008589356-gemini-2024-your-personal-horoscope/"><u>Gemini 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692924-9780008589370-leo-2024-your-personal-horoscope/"><u>Leo 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692929-9780008589394-libra-2024-your-personal-horoscope/"><u>Libra 2024: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210692927-9780008589349-taurus-2024-your-personal-horoscope/"><u>Taurus 2024: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1771647-9781476616278-anomalous-cognition/"><u>Anomalous Cognition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1776781-9781583949009-love-in-the-age-of-ecological-apocalypse/"><u>Love in the Age of Ecological Apocalypse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1771134-9781461744719-maine-ghosts-and-legends-2nd-ed/"><u>Maine Ghosts and Legends (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1771440-9780892728343-nantucket-ghosts/"><u>Nantucket Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1772108-9781250068576-os-little-book-of-happiness/"><u>O's Little Book of Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1776775-9781583948736-pursuing-consciousness/"><u>Pursuing Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1773424-9781938289347-the-love-never-ends/"><u>The Love Never Ends | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1776776-9781583948781-the-naked-voice/"><u>The Naked Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1770713-9781782796060-what-wags-the-world/"><u>What Wags the World | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

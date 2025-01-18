@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2025-01-09T19:34:28.434Z
-updated: 2025-01-13T06:02:27.922Z
+date: 2025-01-17T16:20:49.293Z
+updated: 2025-01-18T20:27:41.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,18 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211457963--009-the-great-tao-of-spiritual-science-series-09/"><u>生命奧秘全書009：人體之玄機奧秘──探索內鍵感應神通之大智慧（玄機篇）: The Great Tao of Spiritual Science Series 09 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211457964--011-the-great-tao-of-spiritual-science-series-11/"><u>生命奧秘全書011：神靈通與靈學真理（靈通篇）: The Great Tao of Spiritual Science Series 11 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211457965--3a/"><u>主禱文.基督論3A.基督與天父 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211458316--death/"><u>Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211458282--making-the-afterlife-connection/"><u>Making the Afterlife Connection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211458304--reclaiming-your-inner-child/"><u>Reclaiming Your Inner Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211457968-9781839388538-skinwalker-ranch/"><u>Skinwalker Ranch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211458393-9781663265272-trump-the-maga-movement-as-anti-christ/"><u>Trump & the MAGA Movement as Anti-Christ | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211457986-9798330409938-agnwstos/"><u>Άγνωστος | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543814-9781528783200-pistis-sophia-a-gnostic-gospel-with-extracts-from-the-books-of-the-saviour-appended/"><u>Pistis Sophia - A Gnostic Gospel (With Extracts from the Books of the Saviour Appended) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543628-9781528783569-raphaels-horary-astrology-by-which-every-question-relating-to-the-future-may-be-answered/"><u>Raphael's Horary Astrology by which Every Question Relating to the Future May Be Answered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543384-9781633535367-rituals-for-magic-and-meaning/"><u>Rituals for Magic and Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138522742-9781462919086-steampunk-tarot-ebook/"><u>Steampunk Tarot Ebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543805-9781528783187-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-procedure-its-rites-and-its-mysteries/"><u>The History of Magic - Including a Clear and Precise Exposition of its Procedure, Its Rites and Its Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543728-9781528783279-the-magical-ritual-of-the-sanctum-regnum-interpreted-by-the-tarot-trumps/"><u>The Magical Ritual of the Sanctum Regnum - Interpreted by the Tarot Trumps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543674-9781528783118-zetetic-astronomy-earth-not-a-globe-an-experimental-inquiry-into-the-true-figure-of-the-earth-proving-it-a-plane-without-axial-or-orbital-motion-and-the-only-ma/"><u>Zetetic Astronomy - Earth Not a Globe! An Experimental Inquiry into the True Figure of the Earth: Proving it a Plane, Without Axial or Orbital Motion; and the Only Material World in the Universe! | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

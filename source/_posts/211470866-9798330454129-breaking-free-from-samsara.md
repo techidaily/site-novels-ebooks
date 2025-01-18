@@ -1,7 +1,7 @@
 ---
 title: Breaking Free from Samsara | Free Book
-date: 2024-10-20T23:54:33.457Z
-updated: 2024-10-27T02:28:14.091Z
+date: 2025-01-16T18:20:34.467Z
+updated: 2025-01-18T20:21:36.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9dfb1efbb14375021e78753044e04fd2e5a9c3c0acc3c61167be1202efd84aa.jpg
@@ -208,3 +208,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9dfb1efbb14375021e78753044e04f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317627-9781401948146-discover-your-souls-path-through-the-akashic-records/"><u>Discover Your Soul's Path Through the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317634-9781401954963-everything-is-here-to-help-you/"><u>Everything Is Here to Help You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317607-9781401946975-home-in-harmony/"><u>Home in Harmony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317621-9781401943486-solomon-speaks-on-reconnecting-your-life/"><u>Solomon Speaks on Reconnecting Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317608-9781401935870-soul-centered/"><u>Soul-Centered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317611-9781401945459-the-eye-of-the-i/"><u>The Eye of the I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317617-9781401944162-tune-in/"><u>Tune In | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

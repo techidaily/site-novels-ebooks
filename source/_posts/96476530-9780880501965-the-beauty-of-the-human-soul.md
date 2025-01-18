@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2025-01-10T22:16:49.271Z
-updated: 2025-01-13T00:42:48.117Z
+date: 2025-01-13T19:08:57.483Z
+updated: 2025-01-18T22:34:56.308Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,14 +183,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2593843-9781683250340-acuario/"><u>Acuario | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593842-9781683250333-capricornio/"><u>Capricornio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593840-9781683250319-escorpio/"><u>Escorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593841-9781683250326-sagitario/"><u>Sagitario | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593838-9781683250296-virgo/"><u>Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597062-9781475904499-daniels-view/"><u>Daniel's View | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597273-9781452534220-from-loss-to-enlightenment/"><u>From Loss to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597167-9781449733827-healing-strength-loss/"><u>Healing Strength: Loss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138596982-9781452597812-jingle-bell-disorder/"><u>Jingle Bell Disorder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597128-9781449718992-the-art-of-stubbornness/"><u>The Art of Stubbornness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597044-9781452539775-the-infinite-dream/"><u>The Infinite Dream | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

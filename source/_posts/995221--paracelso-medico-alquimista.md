@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2025-01-08T17:20:09.058Z
-updated: 2025-01-13T04:44:30.466Z
+date: 2025-01-12T18:46:14.931Z
+updated: 2025-01-18T16:10:29.340Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,18 +143,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211353699--activating-our-12-stranded-dna/"><u>Activating Our 12-Stranded DNA | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352898-9798869368980-colores-espirituales-y-sus-significados-en-colegio-del-espiritu-santo-nueva-edicion-en-espanol/"><u>COLORES ESPIRITUALES y sus significados - En COLEGIO DEL ESPÍRITU SANTO - Nueva Edición en Español | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211353698--crystals-for-psychic-self-defense/"><u>Crystals for Psychic Self-Defense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352933-9798869364401-dont-image-sont-toi-edition-francaise/"><u>DONT IMAGE SONT TOI? Édition française | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352930-9798869363725-initiation-to-wicca/"><u>Initiation to Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211354485-9782385640606-la-puissance-des-rituels/"><u>La puissance des rituels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211354540-9781803412542-pagan-portals-spellcraft-and-spellwork/"><u>Pagan Portals - Spellcraft and Spellwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211354346--the-queens-path/"><u>The Queen's Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352900-9798869369703-duhovnye-cveta-i-ih-znachenie-v-shkole-svyatogo-duha-novoe-russkoe-izdanie/"><u>ДУХОВНЫЕ ЦВЕТА и их значение - В ШКОЛЕ СВЯТОГО ДУХА - Новое русское издание | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96507074-9781579510954-cannabis-alchemy/"><u>Cannabis Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96507075-9781579511647-entheogens-myth-and-human-consciousness/"><u>Entheogens, Myth, and Human Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96507079-9781579511517-simple-pleasures/"><u>Simple Pleasures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506924-9781515412250-through-the-gates-of-good/"><u>Through the Gates of Good | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

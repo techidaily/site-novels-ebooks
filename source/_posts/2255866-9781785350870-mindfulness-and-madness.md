@@ -1,7 +1,7 @@
 ---
 title: Mindfulness and Madness | Free Book
-date: 2024-10-21T03:40:08.585Z
-updated: 2024-10-26T22:58:07.835Z
+date: 2025-01-14T18:08:07.437Z
+updated: 2025-01-18T18:12:39.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76c940e1f5a0fa81984c0fa79d0607c3cd26f310f6f82e875f21caf52600617e.jpg
@@ -145,3 +145,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76c940e1f5a0fa81984c0fa79d0607c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95702350-9781608684038-listening-to-ayahuasca/"><u>Listening to Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702223-9781786781062-mindfulness-for-parents-sampler/"><u>Mindfulness for Parents Sampler | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702216-9781583949702-renegade-beauty/"><u>Renegade Beauty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702351-9781608684489-the-leap/"><u>The Leap | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703156-9781507204313-the-supernatural-guide-to-the-other-side/"><u>The Supernatural Guide to the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703224-9781515415206-the-way-of-peace/"><u>The Way of Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702226-9781786781079-you-were-not-born-to-suffer-sampler/"><u>You Were Not Born to Suffer Sampler | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

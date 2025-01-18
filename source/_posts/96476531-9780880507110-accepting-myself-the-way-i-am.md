@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2025-01-07T20:52:34.503Z
-updated: 2025-01-12T23:33:18.586Z
+date: 2025-01-15T17:04:32.282Z
+updated: 2025-01-18T18:09:49.271Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,14 +163,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2593856-9781683250470-curso-aprendiz-de-bruja/"><u>Curso aprendiz de Bruja | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593854-9781683250456-el-tarot/"><u>El tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593845-9781683250364-guia-para-interpretar-los-suenos/"><u>Guía para interpretar los sueños | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593844-9781683250357-piscis/"><u>Piscis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593855-9781683250463-tarot-expres/"><u>Tarot exprés | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597731-9781452503448-7-powerful-ways-to-boost-retail-profitsin-any-economic-climate/"><u>7 Powerful Ways to Boost Retail Profits....In Any Economic Climate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597309-9781449720407-after-the-avalanche/"><u>After the Avalanche | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597640-9781462040650-energy-in-motion/"><u>Energy in Motion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597558-9781475927597-good-morning-morning-glory/"><u>Good Morning, Morning Glory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597605-9781462041190-the-angels-carried-me-between-life-and-death-for-sixteen-minutes/"><u>The Angels Carried Me Between Life and Death for Sixteen Minutes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597477-9781452542553-the-debt-abyss/"><u>The Debt Abyss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597680-9781452559650-the-reward-of-not-knowing/"><u>The Reward of Not Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597452-9781452582870-the-vine-of-the-soul/"><u>The Vine of the Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

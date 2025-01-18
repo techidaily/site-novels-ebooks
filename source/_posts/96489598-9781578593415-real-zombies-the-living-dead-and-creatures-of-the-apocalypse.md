@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-10T00:41:44.185Z
-updated: 2025-01-13T06:00:53.428Z
+date: 2025-01-16T16:21:56.922Z
+updated: 2025-01-18T20:51:28.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,15 +238,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2472824-9789350573464-ank-jyotish-vigyan-yavm-bhavishyafal-hindi/"><u>Ank Jyotish Vigyan yavm Bhavishyafal (Hindi) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2472910-9781101906095-ghosts-from-our-past/"><u>Ghosts from Our Past | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2472830-9789350573570-hasth-rekha-vigyan-hindi/"><u>HASTH REKHA VIGYAN (Hindi) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2472833-9789350573631-lal-kitab-hindi/"><u>LAL KITAB (Hindi) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2472966-9781618521095-reclaiming-your-sacred-path/"><u>Reclaiming Your Sacred Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2473023-9781780289397-the-mindfulness-key/"><u>The Mindfulness Key | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586823-9781462012510-in-memory-of-the-good-old-days/"><u>In Memory of the Good Old Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587399-9781450270885-navigating-the-coming-chaos/"><u>Navigating the Coming Chaos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587378-9781617642586-recuperando-mi-angel-autista/"><u>Recuperando Mi Ángel Autista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587173-9781452533551-the-journey-of-a-humbled-heart/"><u>The Journey of a Humbled Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138586831-9781475931235-the-power-within-claim-it/"><u>The Power Within: Claim It! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138587440-9781617644092-un-dialogo-en-mi-abismo/"><u>Un Diálogo En Mi Abismo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

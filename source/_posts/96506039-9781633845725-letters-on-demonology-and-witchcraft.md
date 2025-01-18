@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2025-01-09T16:44:57.908Z
-updated: 2025-01-12T18:33:53.573Z
+date: 2025-01-15T20:24:50.066Z
+updated: 2025-01-18T17:31:20.009Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,13 +155,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211414909-9783892016366-da-dove-vengo-dove-vado-il-viaggio-della-tua-anima/"><u>Da dove vengo? Dove vado? Il viaggio della tua anima | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414873--healing-the-liminal/"><u>Healing the Liminal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414307-9781634244534-my-cosmic-trigger/"><u>My Cosmic Trigger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414832--the-healing-nature-of-trees/"><u>The Healing Nature of Trees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126025-9781609254483-sefer-yetzirah/"><u>Sefer Yetzirah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126026-9781609253813-semitic-magic/"><u>Semitic Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126027-9781609253189-sepher-rezial-hemelach/"><u>Sepher Rezial Hemelach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126030-9781609258085-sexual-sorcery/"><u>Sexual Sorcery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126044-9781609252014-simple-numerology/"><u>Simple Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126047-9781609253172-snow-melting-in-a-silver-bowl/"><u>Snow Melting in a Silver Bowl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126024-9781609256050-the-seeker-the-search-the-sacred/"><u>The Seeker, the Search, the Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126032-9781609255060-the-shamanic-witch/"><u>The Shamanic Witch | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

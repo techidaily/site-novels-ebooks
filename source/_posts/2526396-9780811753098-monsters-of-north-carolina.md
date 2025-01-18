@@ -1,7 +1,7 @@
 ---
 title: Monsters of North Carolina | Free Book
-date: 2024-10-25T16:32:15.528Z
-updated: 2024-10-26T16:33:41.876Z
+date: 2025-01-13T22:14:18.020Z
+updated: 2025-01-18T17:45:10.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be2b1f26dc2751e9043d0dba64e5c8527a7c4b7dd29eb355b9761bb1e794e8c8.jpg
@@ -142,3 +142,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be2b1f26dc2751e9043d0dba64e5c85
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/620470-9780307780928-a-better-way-to-live/"><u>A Better Way to Live | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620371-9780307783776-all-women-are-healers/"><u>All Women Are Healers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620370-9780307783769-all-women-are-psychics/"><u>All Women Are Psychics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620373-9780307783646-diane-steins-guide-to-goddess-craft/"><u>Diane Stein's Guide to Goddess Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620384-9780307783639-essential-reiki/"><u>Essential Reiki | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

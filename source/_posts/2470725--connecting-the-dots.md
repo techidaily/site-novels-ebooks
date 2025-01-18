@@ -1,7 +1,7 @@
 ---
 title: Connecting the Dots | Free Book
-date: 2024-10-20T02:56:31.530Z
-updated: 2024-10-27T02:13:27.794Z
+date: 2025-01-13T21:55:57.570Z
+updated: 2025-01-18T19:32:01.007Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7ad0b07916c1a19429ce97108507e7c3f0c1584570b9adf5310c3e5322b662d.jpg
@@ -143,3 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7ad0b07916c1a19429ce97108507e7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/649741-9780307785817-a-little-book-of-healing-magic/"><u>A Little Book of Healing Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649420-9780307789419-hands-of-light/"><u>Hands of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649421-9780307789426-light-emerging/"><u>Light Emerging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649611-9780307788160-the-dead-are-alive/"><u>The Dead Are Alive | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

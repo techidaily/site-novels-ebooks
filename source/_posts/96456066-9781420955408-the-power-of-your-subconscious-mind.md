@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-01-05T16:43:34.952Z
-updated: 2025-01-06T16:14:29.641Z
+date: 2025-01-13T22:18:37.780Z
+updated: 2025-01-18T21:37:11.646Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,13 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210666541-9781786787415-a-spell-a-day/"><u>A Spell a Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666525-9781623178741-i-ching-the-oracle/"><u>I Ching, the Oracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666595-9781633413108-tarot-mirror-of-the-soul/"><u>Tarot: Mirror of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666491-9781788179164-the-bigger-picture/"><u>The Bigger Picture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1633913-9781612833279-children-of-a-living-universe/"><u>Children of a Living Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1635934-9781782794417-goddess-calling/"><u>Goddess Calling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1635942-9781782793182-spirited-nature/"><u>Spirited Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1635945-9781782793755-the-handbook-of-urban-druidry/"><u>The Handbook of Urban Druidry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1635947-9781782794653-the-rush-hour-shaman/"><u>The Rush Hour Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1633912-9781938289187-thou-shall-not-suffer/"><u>Thou Shall Not Suffer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1637061-9781459728615-tomes-of-terror/"><u>Tomes of Terror | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

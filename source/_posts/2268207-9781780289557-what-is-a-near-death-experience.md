@@ -1,7 +1,7 @@
 ---
 title: What Is a Near-Death Experience? | Free Book
-date: 2024-10-25T16:47:01.799Z
-updated: 2024-10-26T23:41:47.359Z
+date: 2025-01-16T21:26:46.357Z
+updated: 2025-01-18T16:26:38.097Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccb2f2d614506fb0cf71344af756a26a0f3eefeeb217febb6f2e1671d7b7bccb.jpg
@@ -177,3 +177,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccb2f2d614506fb0cf71344af756a26
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/820195-9780813127842-ghosts-across-kentucky/"><u>Ghosts across Kentucky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820211-9780813170893-haunted-houses-and-family-ghosts-of-kentucky/"><u>Haunted Houses and Family Ghosts of Kentucky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/816789-9781448118205-lillian-toos-little-book-of-abundance/"><u>Lillian Too's Little Book Of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/816790-9781448118212-lillian-toos-little-book-of-feng-shui/"><u>Lillian Too's Little Book Of Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820209-9780813170831-real-life-x-files/"><u>Real-Life X-Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/820189-9780813126753-the-mystery-chronicles/"><u>The Mystery Chronicles | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

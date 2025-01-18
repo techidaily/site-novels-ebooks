@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2025-01-07T23:17:24.393Z
-updated: 2025-01-12T22:05:04.625Z
+date: 2025-01-11T17:21:00.634Z
+updated: 2025-01-18T18:21:50.246Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,14 +254,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2527971-9780811740692-haunted-maryland/"><u>Haunted Maryland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527933-9780811752978-haunted-western-pennsylvania/"><u>Haunted Western Pennsylvania | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527934-9780811753074-monsters-of-new-york/"><u>Monsters of New York | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527930-9781493043859-the-big-book-of-missouri-ghost-stories/"><u>The Big Book of Missouri Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527931-9781493043910-the-big-book-of-ohio-ghost-stories/"><u>The Big Book of Ohio Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591440-9781452505619-born-with-a-gift/"><u>Born with a Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591540-9781469732329-chasing-davis/"><u>Chasing Davis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591414-9781449723439-gods-perfect-timing/"><u>God’S Perfect Timing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591499-9781462049059-she-wouldnt-go/"><u>She Wouldn’T Go! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591478-9781469738543-the-grimpebbet-almanac/"><u>The Grimpebbet Almanac | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

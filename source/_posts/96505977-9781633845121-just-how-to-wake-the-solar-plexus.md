@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2025-01-09T20:08:19.632Z
-updated: 2025-01-13T04:16:02.508Z
+date: 2025-01-15T16:51:38.648Z
+updated: 2025-01-18T16:20:26.053Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,17 +134,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211404131-9781763547612-finding-joy-when-life-gets-tough/"><u>Finding Joy When Life Gets Tough | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211401434-9781786851031-live-better/"><u>Live Better | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211403675-9781396326332-max-heindels-letters-to-students/"><u>Max Heindel's Letters to Students | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211402844-9783989734258-the-case-against-spiritualism/"><u>The Case Against Spiritualism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211404214-9798330274932-the-celestial-stoner/"><u>The Celestial Stoner | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211403960-9781958997826-the-disciples-manual/"><u>The Disciples Manual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211403202--the-golden-grimoire/"><u>The Golden Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211404011-9781990823848-why-me/"><u>Why Me? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125848-9781609254247-light-on-relationships/"><u>Light on Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125870-9781609255398-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125873-9781609257194-maat-magick/"><u>Maat Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125853-9781609254513-the-little-book-of-life-after-death/"><u>The Little Book of Life After Death | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Sun Sign, Moon Sign: Discover the personality secrets of the 144 sun-moon combinations | Free Book"
-date: 2024-10-25T21:53:50.957Z
-updated: 2024-10-27T03:39:40.208Z
+date: 2025-01-16T20:51:11.057Z
+updated: 2025-01-18T20:46:17.051Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de526cb4612f2f27fb222dd16ba4b1a226019ebe06945b45614d48f5cb87215c.jpg
@@ -162,3 +162,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de526cb4612f2f27fb222dd16ba4b1a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782742-9781620556573-crystal-healing-for-the-heart/"><u>Crystal Healing for the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782741-9781620556191-crystals-for-karmic-healing/"><u>Crystals for Karmic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782740-9781620556559-first-templar-nation-2nd-ed/"><u>First Templar Nation (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782746-9781620551646-oracle-bones-divination/"><u>Oracle Bones Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782738-9781594775000-sacrificial-ceremonies-of-santeria/"><u>Sacrificial Ceremonies of Santería | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782749-9781594775826-taoist-feng-shui/"><u>Taoist Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782739-9781594779084-teachings-of-the-santeria-gods/"><u>Teachings of the Santería Gods | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

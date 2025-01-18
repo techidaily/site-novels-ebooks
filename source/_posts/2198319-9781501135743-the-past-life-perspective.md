@@ -1,7 +1,7 @@
 ---
 title: The Past Life Perspective | Free Book
-date: 2024-10-21T22:22:18.511Z
-updated: 2024-10-26T23:08:41.181Z
+date: 2025-01-13T19:35:48.841Z
+updated: 2025-01-18T19:01:25.523Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/477cd3d43b8df3f1a3e73eef8baf3d27c7a10852ced30490d6a9d8e3e986f631.jpg
@@ -187,3 +187,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/477cd3d43b8df3f1a3e73eef8baf3d2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95851338-9788499882802-donde-encontrar-la-paz/"><u>Dónde encontrar la paz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95851334-9788499881621-estas-aqui/"><u>Estás aquí | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95846967-9781507205303-find-your-goddess/"><u>Find Your Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95845201-9781439658239-haunted-bachelors-grove/"><u>Haunted Bachelors Grove | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95847344-9781507205792-my-pocket-mantras/"><u>My Pocket Mantras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842751-9781881098447-the-witches-almanac-issue-37-spring-2018-to-2019/"><u>The Witches' Almanac: Issue 37, Spring 2018 to 2019 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95851267-9781633410657-understanding-aleister-crowleys-thoth-tarot/"><u>Understanding Aleister Crowley's Thoth Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95847018-9781501176906-unmedicated/"><u>Unmedicated | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書011：神靈通與靈學真理（靈通篇）: The Great Tao of Spiritual Science Series 11 | Free Book"
-date: 2024-10-20T02:33:28.207Z
-updated: 2024-10-27T02:15:03.712Z
+date: 2025-01-14T19:19:15.039Z
+updated: 2025-01-18T22:27:23.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cb1c88a6f41b97e2739e3756b96876f4c472d1071363dbeb67ef7e8931ffa534.jpg
@@ -162,3 +162,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cb1c88a6f41b97e2739e3756b96876f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96370921-9780876047507-earth-changes/"><u>Earth Changes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370923-9780876046265-edgar-cayce-and-the-kabbalah/"><u>Edgar Cayce and the Kabbalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370932-9780876046913-edgar-cayces-origin-and-destiny-of-man/"><u>Edgar Cayce's Origin and Destiny of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370922-9780876047088-energy-medicine/"><u>Energy Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370919-9780876046319-meditation-prayer-affirmation/"><u>Meditation, Prayer & Affirmation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370931-9780876046715-the-power-of-your-mind/"><u>The Power of Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370933-9780876046753-visits-from-heaven/"><u>Visits From Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370920-9780876046777-we-live-forever/"><u>We Live Forever | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

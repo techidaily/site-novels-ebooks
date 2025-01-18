@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Magickal Ingredients | Free Book
-date: 2024-10-19T18:51:48.205Z
-updated: 2024-10-27T00:43:00.242Z
+date: 2025-01-16T18:16:27.135Z
+updated: 2025-01-18T17:50:51.636Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84471ea8d8b08cafe3aec305a38491913727dfb35af4669ad898d13f2ee40e0a.jpg
@@ -163,3 +163,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84471ea8d8b08cafe3aec305a384919
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/847452-9781780990293-druidry-and-meditation/"><u>Druidry and Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/847453-9781846948664-extinction/"><u>Extinction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/859000-9781459706095-haunted-too/"><u>Haunted Too | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/859008-9781459705388-mysteries-and-secrets-of-numerology/"><u>Mysteries and Secrets of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/847456-9781846947261-planet-as-self/"><u>Planet as Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/849071-9781101580349-swedenborg/"><u>Swedenborg | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/850863-9781101588864-the-prophecies/"><u>The Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/845805-9780316224017-the-science-of-avatar/"><u>The Science of Avatar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/847460-9781846948053-traditional-witchcraft-for-the-seashore/"><u>Traditional Witchcraft for the Seashore | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

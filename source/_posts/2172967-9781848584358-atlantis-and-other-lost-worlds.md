@@ -1,7 +1,7 @@
 ---
 title: Atlantis and Other Lost Worlds | Free Book
-date: 2024-10-20T21:58:59.974Z
-updated: 2024-10-26T16:27:39.276Z
+date: 2025-01-13T16:12:26.209Z
+updated: 2025-01-18T18:05:50.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00d0ae0ca215637574a08597dd729d0b0e29f0f179e0545f768c3016b3d94a76.jpg
@@ -171,3 +171,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00d0ae0ca215637574a08597dd729d0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95935367-9781844099597-crystal-healing-for-animals/"><u>Crystal Healing for Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935363-9781844093977-dreams-of-the-reiki-shaman/"><u>Dreams of the Reiki Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935366-9781844099122-gratitude-and-beyond/"><u>Gratitude and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935369-9781844097715-the-fearless-path/"><u>The Fearless Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935368-9781844099542-the-findhorn-garden-story/"><u>The Findhorn Garden Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935364-9781844093908-the-path-of-synchronicity/"><u>The Path of Synchronicity | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

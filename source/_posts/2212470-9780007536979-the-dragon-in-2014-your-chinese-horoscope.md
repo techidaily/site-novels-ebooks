@@ -1,7 +1,7 @@
 ---
 title: "The Dragon in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-19T17:36:34.700Z
-updated: 2024-10-26T17:55:15.445Z
+date: 2025-01-15T18:48:22.397Z
+updated: 2025-01-18T21:52:40.708Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a54804046a94890cbb4834c484b6cc7f8277c214c1c7932337d020ede9fd59.jpg
@@ -167,3 +167,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a54804046a94890cbb4834c484b6c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782477-9781591438953-atlantis-beneath-the-ice-2nd-ed/"><u>Atlantis beneath the Ice (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782482-9781591439783-atlantis-in-the-amazon/"><u>Atlantis in the Amazon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782474-9781591432661-atlantis-in-the-caribbean-3rd-ed/"><u>Atlantis in the Caribbean (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782475-9781591438250-bird-medicine/"><u>Bird Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782468-9781591439516-journeys-to-the-mythical-past-2nd-ed/"><u>Journeys to the Mythical Past (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782481-9781591437598-shamanic-awakening-2nd-ed/"><u>Shamanic Awakening (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782483-9781591439806-shamanic-egyptian-astrology/"><u>Shamanic Egyptian Astrology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

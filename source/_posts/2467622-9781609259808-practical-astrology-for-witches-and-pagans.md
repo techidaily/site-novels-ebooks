@@ -1,7 +1,7 @@
 ---
 title: Practical Astrology for Witches and Pagans | Free Book
-date: 2024-10-23T22:31:46.228Z
-updated: 2024-10-27T01:28:05.765Z
+date: 2025-01-12T16:33:33.837Z
+updated: 2025-01-18T19:02:39.874Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/40298f78c12693b894615822d42b02539d5688ac0310b89be65a947d7f89a714.jpg
@@ -174,3 +174,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/40298f78c12693b894615822d42b025
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95544023-9780834823044-a-theory-of-everything/"><u>A Theory of Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544070-9780834823600-chi/"><u>Chi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544074-9780834823730-the-complete-book-of-chinese-health-and-healing/"><u>The Complete Book of Chinese Health and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544152-9780834824676-the-light-of-discovery/"><u>The Light of Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544215--the-unfolding-now/"><u>The Unfolding Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544228-9780834825710-the-wonder-of-presence/"><u>The Wonder of Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544227-9780834825703-womens-qigong-for-health-and-longevity/"><u>Women's Qigong for Health and Longevity | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

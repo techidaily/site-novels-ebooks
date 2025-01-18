@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2025-01-01T16:13:52.394Z
-updated: 2025-01-06T16:50:47.530Z
+date: 2025-01-15T20:54:21.992Z
+updated: 2025-01-18T22:09:03.476Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,14 +164,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210664315-9782889700547-ces-mots-que-nous-pouvons-dire-a-nos-defunts/"><u>Ces mots que nous pouvons dire à nos défunts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664275-9782889700721-legendes-et-messages-des-pierres-therapeutiques/"><u>Légendes et messages des pierres thérapeutiques | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664311-9782889700530-messages-de-vos-huiles-essentielles/"><u>Messages de vos huiles essentielles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664269-9782889700752-sinitier-a-lart-des-runes-divinatoires/"><u>S'initier à l'art des runes divinatoires | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664261-9782889700776-signes-interpreter-les-messages-que-nous-envoie-lunivers/"><u>Signes : interpréter les messages que nous envoie l'univers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625556-9781444743784-calm-the-soul-a-book-of-simple-wisdom-and-prayer/"><u>Calm the Soul: A Book of Simple Wisdom and Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625684-9781405522397-feeling-safe/"><u>Feeling Safe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1626381-9781405516013-living-magically/"><u>Living Magically | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625227-9780733628924-silence-your-mind/"><u>Silence Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625964-9781444725810-sonas-celtic-thoughts-on-happiness/"><u>Sonas: Celtic Thoughts on Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1626379-9781405515993-stepping-into-the-magic/"><u>Stepping Into The Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625686-9781405522427-the-endorphin-effect/"><u>The Endorphin Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1626380-9781405516006-wild-love/"><u>Wild Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1625685-9781405522410-working-with-angels-fairies-and-nature-spirits/"><u>Working With Angels, Fairies And Nature Spirits | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

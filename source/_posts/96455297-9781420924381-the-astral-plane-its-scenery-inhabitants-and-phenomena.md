@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2024-12-31T16:43:02.846Z
-updated: 2025-01-06T16:15:55.389Z
+date: 2025-01-13T20:44:18.427Z
+updated: 2025-01-18T16:20:15.800Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,15 +136,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210664941-9782889052561-les-neuf-lecons-du-guerrier-maasai/"><u>Les neuf leçons du guerrier maasaï | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664838-9782889054015-par-don-damour/"><u>Par don d'amour | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664967-9782889051465-petites-fleurs-du-coeur-pour-grandir-au-fil-des-jours/"><u>Petites fleurs du coeur pour grandir au fil des jours | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665283-9780740790546-reasons-to-be-happy/"><u>Reasons to Be Happy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665139-9782889114221-vivre-ma-spiritualite-au-quotidien/"><u>Vivre ma spiritualité au quotidien | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665284-9781449408022-where-angels-tread/"><u>Where Angels Tread | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628697-9781444129151-be-your-own-life-coach/"><u>Be Your Own Life Coach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628699-9781444129182-beat-stress-with-meditation-teach-yourself/"><u>Beat Stress With Meditation: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628547-9780748111657-becoming-clairvoyant/"><u>Becoming Clairvoyant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628701-9781444129212-change-your-mood-with-aromatherapy-teach-yourself/"><u>Change Your Mood With Aromatherapy: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628215-9780748117932-conscious-medicine/"><u>Conscious Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628705-9781444129359-get-started-in-reiki/"><u>Get Started In Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628307-9780748122530-say-no-to-cancer/"><u>Say No To Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628023-9781444717167-the-tibetan-art-of-living/"><u>The Tibetan Art of Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628294-9781444725834-what-women-know/"><u>What Women Know | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

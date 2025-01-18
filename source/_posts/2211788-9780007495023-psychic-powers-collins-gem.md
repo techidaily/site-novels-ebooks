@@ -1,7 +1,7 @@
 ---
 title: Psychic Powers (Collins Gem) | Free Book
-date: 2024-10-19T20:36:05.632Z
-updated: 2024-10-27T01:21:31.845Z
+date: 2025-01-15T16:36:03.955Z
+updated: 2025-01-18T16:38:51.639Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9125a77bd5cd2507be5a1192d49bf7ff83123b24105346ef35826e7b3a95b5f6.jpg
@@ -165,3 +165,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9125a77bd5cd2507be5a1192d49bf7f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782767-9781594778469-energy-balance-through-the-tao/"><u>Energy Balance through the Tao | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782764-9781620553022-enochian-magic-and-the-higher-worlds/"><u>Enochian Magic and the Higher Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782766-9781620552032-sexual-practices-of-the-druids-2nd-ed/"><u>Sexual Practices of the Druids (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782761-9781620553794-the-great-work-of-the-flesh/"><u>The Great Work of the Flesh | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782759-9781620552056-the-metaphysical-world-of-isaac-newton/"><u>The Metaphysical World of Isaac Newton | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782762-9781620551592-the-secret-life-of-lady-liberty/"><u>The Secret Life of Lady Liberty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782757-9781594777882-the-secret-teachings-of-the-tao-te-ching/"><u>The Secret Teachings of the Tao Te Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782758-9781594778612-the-secrets-of-afro-cuban-divination/"><u>The Secrets of Afro-Cuban Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782760-9781594778391-wisdom-chi-kung/"><u>Wisdom Chi Kung | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

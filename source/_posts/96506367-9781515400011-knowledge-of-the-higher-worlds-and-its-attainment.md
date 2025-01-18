@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2025-01-08T01:52:00.966Z
-updated: 2025-01-13T04:30:55.486Z
+date: 2025-01-13T17:54:26.757Z
+updated: 2025-01-18T16:43:25.492Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,18 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211424357-9798330316915-5yib5am5a6e6kd/"><u>创富实话 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424088-9781398848221-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424281-9781963851236-room-within-the-heart/"><u>Room Within The Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424266-9781738971336-sounds-necessity/"><u>Sounds Necessity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424274-9798330314409-the-art-of-balance/"><u>THE ART OF BALANCE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424250-9781945875762-the-biss-tribe/"><u>The Biss Tribe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424318-9781964744254-the-covenant-between-the-king-of-devils-and-death-and-victory-over-death/"><u>The Covenant Between the King of Devils and Death and Victory Over Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211423895--the-healing-nature-of-water/"><u>The Healing Nature of Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424085-9781398841987-true-tales-of-the-paranormal/"><u>True Tales of the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127026-9781612830025-a-mind-for-murder/"><u>A Mind for Murder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127020-9781612830636-meditations-from-conversations-with-god/"><u>Meditations from Conversations With God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127021-9781612830513-meditations-from-conversations-with-god-book-2/"><u>Meditations from Conversations With God, Book 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127023-9781612830155-memories-of-god-and-creation/"><u>Memories of God and Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127027-9781612830179-mind-reach/"><u>Mind-Reach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127032-9781612830933-muddy-tracks/"><u>Muddy Tracks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127033-9781612832647-multiply-your-blessings/"><u>Multiply Your Blessings | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

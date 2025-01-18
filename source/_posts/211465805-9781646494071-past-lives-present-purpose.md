@@ -1,7 +1,7 @@
 ---
 title: Past Lives & Present Purpose | Free Book
-date: 2024-10-19T23:34:18.406Z
-updated: 2024-10-26T20:03:40.893Z
+date: 2025-01-14T20:07:40.501Z
+updated: 2025-01-18T17:35:04.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6339c87deb9e47ca7b224ee3443bdef2e497e7fad33af093b59ac4a8b9c57703.jpg
@@ -143,3 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6339c87deb9e47ca7b224ee3443bdef
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317214-9781401921071-miracles/"><u>Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317216-9781401923754-repetition/"><u>Repetition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317207-9781401924676-sanctuary/"><u>Sanctuary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317191-9781848508606-the-ten-questions-to-ask-for-success/"><u>The Ten Questions to Ask for Success | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

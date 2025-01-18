@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2025-01-07T18:01:49.045Z
-updated: 2025-01-12T23:58:37.651Z
+date: 2025-01-13T19:53:28.560Z
+updated: 2025-01-18T16:57:14.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,15 +148,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211366241--365-happy-bedtime-mantras/"><u>365 Happy Bedtime Mantras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211367292--el-diario-de-la-chica-con-suerte/"><u>El diario de la chica con suerte | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211367291--el-diario-del-369/"><u>El diario del 369 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211368232-9781250082169-queer-astrology-for-men/"><u>Queer Astrology for Men | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211367645-9781429985413-talking-to-the-dead/"><u>Talking to the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211368716-9781926231648-vivre-avec-ame/"><u>Vivre avec Âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1031985-9781780999418-advanced-psychic-development/"><u>Advanced Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1032491-9780307827883-casting-the-circle/"><u>Casting the Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036966-9780962929557-emotional-clearing/"><u>Emotional Clearing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036380-9781476727172-muchas-vidas-muchos-sabios-many-lives-many-masters/"><u>Muchas Vidas, Muchos Sabios (Many Lives, Many Masters) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1035238-9780857010681-shamanism-and-spirituality-in-therapeutic-practice/"><u>Shamanism and Spirituality in Therapeutic Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1032142-9780810870277-the-a-to-z-of-witchcraft/"><u>The A to Z of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1032817--the-little-book-of-everyday-miracles/"><u>The Little Book of Everyday Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036967-9781780993041-the-meaning/"><u>The Meaning | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

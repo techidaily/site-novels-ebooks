@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2024-12-30T16:50:37.112Z
-updated: 2025-01-06T16:30:59.963Z
+date: 2025-01-16T20:58:17.772Z
+updated: 2025-01-18T16:59:38.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,18 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210702135-9781784886387-astrocrystals/"><u>AstroCrystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210702510-9798218064846-behind-her-smile-was-pain/"><u>Behind Her Smile Was Pain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210701606-9781685680275-cantos-del-alma/"><u>Cantos del alma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210702483-9781915393555-happy-birthday-love-joan/"><u>Happy Birthday-Love, Joan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210701644-9781943328956-haunted-inside-passage/"><u>Haunted Inside Passage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210702514-9781958997116-operating-in-abundance-2nd-ed/"><u>Operating in Abundance (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210702493-9781913590727-soul-shine/"><u>Soul Shine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210701610-9780760371268-the-zenned-out-guide-to-understanding-tarot/"><u>The Zenned Out Guide to Understanding Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210701567-9781958921128-your-soul-has-a-plan/"><u>Your Soul Has a Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1821399-9780698193598-choosing-hope/"><u>Choosing Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1824247-9780804153713-far-journeys/"><u>Far Journeys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1824248-9780804153881-journeys-out-of-the-body/"><u>Journeys Out of the Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818259-9781782797166-of-course/"><u>Of Course! | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: After the Martian Apocalypse | Free Book
-date: 2024-10-22T18:23:42.237Z
-updated: 2024-10-27T01:07:46.249Z
+date: 2025-01-16T16:16:00.444Z
+updated: 2025-01-18T22:29:12.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8561859ae6601b6cdf8468e9958cce50435eaf4819ec7b6697cc3a6e7bea73fb.jpg
@@ -169,3 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8561859ae6601b6cdf8468e9958cce5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317080-9781401931995-beyond-happiness/"><u>Beyond Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317068-9781401929718-born-knowing/"><u>Born Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317073-9781401933036-the-nature-of-good-and-evil/"><u>The Nature of Good and Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317070-9781401933227-trust-your-vibes-at-work-and-let-them-work-for-you/"><u>Trust Your Vibes At Work, And Let Them Work For You! | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

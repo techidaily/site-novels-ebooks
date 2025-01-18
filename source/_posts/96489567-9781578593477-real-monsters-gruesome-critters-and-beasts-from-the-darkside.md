@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2025-01-08T21:47:39.059Z
-updated: 2025-01-12T16:58:20.730Z
+date: 2025-01-15T20:05:59.428Z
+updated: 2025-01-18T18:36:46.551Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,15 +262,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2641124-9780750955355-haunted-hartlepool-and-east-durham/"><u>Haunted Hartlepool and East Durham | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2641110-9780750958745-haunted-highgate/"><u>Haunted Highgate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2641131-9780750956987-haunted-isle-of-sheppey/"><u>Haunted Isle of Sheppey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2641139-9780750957823-haunted-kirkcaldy/"><u>Haunted Kirkcaldy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2641135-9780750961158-haunted-tyrone/"><u>Haunted Tyrone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2641112-9780752498737-haunted-wexford/"><u>Haunted Wexford | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621334-9781601636003-a-new-way-to-be-human/"><u>A New Way to Be Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621336-9781601637543-ascension/"><u>Ascension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621343-9781601637574-contactees/"><u>Contactees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621329-9781601636300-exposed-uncovered-declassified-lost-civilizations-secrets-of-the-past/"><u>Exposed, Uncovered, & Declassified: Lost Civilizations & Secrets of the Past | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621344-9781601637321-historys-mysteries/"><u>History's Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621331-9781601636386-lightworker/"><u>Lightworker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621328-9781601636805-the-poltergeist-phenomenon/"><u>The Poltergeist Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621345-9781601637765-the-resonance-key/"><u>The Resonance Key | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

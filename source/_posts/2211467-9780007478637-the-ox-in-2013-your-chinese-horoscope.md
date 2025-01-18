@@ -1,7 +1,7 @@
 ---
 title: "The Ox in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-19T18:18:19.907Z
-updated: 2024-10-27T04:04:02.708Z
+date: 2025-01-17T21:33:37.475Z
+updated: 2025-01-18T18:19:17.744Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4bc00f55edcec97152139c4c088a68819695bcf78526a03dc90f277686887fd2.jpg
@@ -165,3 +165,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4bc00f55edcec97152139c4c088a688
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782627-9781594775444-chosen-by-the-spirits/"><u>Chosen by the Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782628-9781594777981-the-new-orleans-voodoo-handbook/"><u>The New Orleans Voodoo Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782629-9781620555484-the-seven-archetypal-stones/"><u>The Seven Archetypal Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782630-9781594776687-the-soundscape/"><u>The Soundscape | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

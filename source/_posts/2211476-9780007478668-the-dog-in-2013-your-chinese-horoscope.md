@@ -1,7 +1,7 @@
 ---
 title: "The Dog in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-26T01:03:09.768Z
-updated: 2024-10-26T21:55:18.084Z
+date: 2025-01-12T21:40:17.901Z
+updated: 2025-01-18T18:59:19.597Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b60fdfd687219b584a93a8460f84839fd175c8c25215947288ad4bb221bc6608.jpg
@@ -165,3 +165,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b60fdfd687219b584a93a8460f84839
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782711-9781620553497-african-spirits-speak/"><u>African Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782715-9781594778032-diloggun-tales-of-the-natural-world/"><u>Diloggún Tales of the Natural World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782714-9781620550427-partner-earth/"><u>Partner Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782708-9781594778537-psychonavigation/"><u>Psychonavigation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782710-9781620555507-sacred-relationships/"><u>Sacred Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782709-9781620551493-sacred-sexual-union/"><u>Sacred Sexual Union | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782713-9781620555118-the-book-of-hooponopono/"><u>The Book of Ho'oponopono | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782712-9781620553268-the-complete-lenormand-oracle-handbook/"><u>The Complete Lenormand Oracle Handbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

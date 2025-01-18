@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2025-01-07T21:00:25.761Z
-updated: 2025-01-13T00:59:25.301Z
+date: 2025-01-15T18:44:00.693Z
+updated: 2025-01-18T22:28:17.474Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,15 +149,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211477907-9781507305683-atlas-of-extraterrestrial-zones/"><u>Atlas of Extraterrestrial Zones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477679-9781964744643-living-with-eternity/"><u>Living with Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477682-9781890679644-stop-thought/"><u>Stop Thought | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477494-9798330098774-summary-of-luis-elizondos-imminent/"><u>Summary of Luis Elizondo’s Imminent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477074-9789695592267-the-art-of-embracing-nothingness/"><u>The Art of Embracing Nothingness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477015-9781397665355-the-secret-of-the-saucers/"><u>The Secret of the Saucers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567668-9781450258210-authentic-insights/"><u>Authentic Insights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567766-9781469737799-fly-without-fear-or-stress/"><u>Fly Without Fear or Stress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567677-9781491762011-how-to-unleash-the-supernatural-power-within-you/"><u>How to Unleash the Supernatural Power Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567765-9781469764887-journey-to-alternity/"><u>Journey to Alternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567773-9780595780310-loving-a-woman-well/"><u>Loving a Woman Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567693-9781462020768-seventy-meditation-lessons-from-my-universe/"><u>Seventy Meditation Lessons from My Universe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

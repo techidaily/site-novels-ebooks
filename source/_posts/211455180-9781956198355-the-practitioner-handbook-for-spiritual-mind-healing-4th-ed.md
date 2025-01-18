@@ -1,7 +1,7 @@
 ---
 title: The Practitioner Handbook for Spiritual Mind Healing (4th ed.) | Free Book
-date: 2024-10-23T23:01:52.005Z
-updated: 2024-10-26T21:51:01.926Z
+date: 2025-01-17T19:45:48.903Z
+updated: 2025-01-18T16:01:34.651Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/98a107146f73f8d22fc70ae0158f57885521cc61b353481a3c100507ef09e932.jpg
@@ -145,3 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/98a107146f73f8d22fc70ae0158f578
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96489594-9781578593408-hidden-realms-lost-civilizations-and-beings-from-other-worlds/"><u>Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489597-9781578593996-real-nightmares-book-1/"><u>Real Nightmares (Book 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489600-9781578594108-real-nightmares-book-4/"><u>Real Nightmares (Book 4) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489598-9781578593415-real-zombies-the-living-dead-and-creatures-of-the-apocalypse/"><u>Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489595-9781578592890-the-spirit-book/"><u>The Spirit Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

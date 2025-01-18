@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2025-01-10T18:56:49.386Z
-updated: 2025-01-12T22:10:52.324Z
+date: 2025-01-11T21:40:16.922Z
+updated: 2025-01-18T17:12:39.555Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,16 +170,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/284755-9789240680074-atlas-child-and-adolescent-mental-health-resources/"><u>Atlas - child and adolescent mental health resources | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284746-9789240680180-chemistry-and-specifications-of-pesticides/"><u>Chemistry and Specifications of Pesticides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284634-9789240680630-health-implications-of-acrylamide-in-food/"><u>Health Implications of Acrylamide in Food | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284658-9789240680678-helminth-control-in-school-age-children/"><u>Helminth Control in School-Age Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284631-9789240680791-international-travel-and-health-2005/"><u>International travel and health 2005 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284752-9789240681255-research-on-reproductive-health-at-who/"><u>Research on reproductive health at WHO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284783-9789240681248-research-on-reproductive-health-at-who/"><u>Research on reproductive Health at WHO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1520824-9781608827961-50-mindful-steps-to-self-esteem/"><u>50 Mindful Steps to Self-Esteem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1501722-9781618520715-gracious-wild/"><u>Gracious Wild | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/152279-9780743222969-tarot-made-easy/"><u>Tarot Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1501723-9781609259303-the-best-of-the-equinox-sex-magick/"><u>The Best of the Equinox, Sex Magick | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

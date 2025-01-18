@@ -1,7 +1,7 @@
 ---
 title: "Aquarius 2013: Your Personal Horoscope | Free Book"
-date: 2024-10-23T20:24:39.706Z
-updated: 2024-10-27T02:29:04.464Z
+date: 2025-01-11T21:34:15.667Z
+updated: 2025-01-18T16:13:36.215Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1c7130a69fc46c0540f8c18b378b852b88026cecca417d046a31d7ee7892a4c5.jpg
@@ -171,3 +171,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1c7130a69fc46c0540f8c18b378b852
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782606-9781594777240-a-druids-herbal-of-sacred-tree-medicine/"><u>A Druid's Herbal of Sacred Tree Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782605-9781594778803-chi-self-massage-2nd-ed/"><u>Chi Self-Massage (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782604-9781594775260-child-astrology/"><u>Child Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782608-9781594776953-seven-secrets-of-time-travel/"><u>Seven Secrets of Time Travel | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

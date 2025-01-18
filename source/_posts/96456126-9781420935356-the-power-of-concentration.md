@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2024-12-31T16:48:09.875Z
-updated: 2025-01-06T16:16:13.722Z
+date: 2025-01-17T19:20:31.532Z
+updated: 2025-01-18T19:44:50.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,18 +140,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210668449-9781948302463-anthroposophical-guidelines/"><u>Anthroposophical Guidelines | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668093-9781662454295-chortle/"><u>Chortle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210667870-9798986491325-dimes-from-heaven/"><u>Dimes From Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668034-9780876128015-finding-the-joy-within-you/"><u>Finding the Joy Within You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666719-9781399402699-finding-the-language-of-grace/"><u>Finding the Language of Grace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668160-9780648776161-guide-to-the-new-age/"><u>Guide to the New Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668400-9798218072049-my-blue-cells/"><u>My Blue Cells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668095-9781662484346-such-a-journey/"><u>Such a Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210668038-9798886168594-the-power-of-gods-consciousness/"><u>The Power of God's Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1637619-9781618520777-because-of-you-i-am/"><u>Because of You, I Am | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1638137-9781780282251-before-the-pyramids/"><u>Before the Pyramids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1638138-9781780282275-civilization-one/"><u>Civilization One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1638133-9781583947364-crop-circles-jung-and-the-reemergence-of-the-archetypal-feminine/"><u>Crop Circles, Jung, and the Reemergence of the Archetypal Feminine | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2025-01-09T01:29:18.159Z
-updated: 2025-01-12T20:45:32.076Z
+date: 2025-01-12T16:54:56.123Z
+updated: 2025-01-18T21:37:45.036Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,17 +144,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211453554-9781466894891-a-sabbath-life/"><u>A Sabbath Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455009-9781961959262-an-introduction-to-the-study-of-the-tarot/"><u>An Introduction to the Study of The Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211454958-9798218498870-listening-circles-seeding-life/"><u>Listening Circles, Seeding Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211454815-9781528799331-magic-white-and-black-or-the-science-of-finate-and-infinate-life-containing-practical-hints-for-students-of-occultism/"><u>Magic, White and Black; Or, The Science of Finate and Infinate Life, Containing Practical Hints for Students of Occultism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211454987-9788412856378-matrice-je-zakladem-duse/"><u>Matrice je základem duše | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455010-9781961959224-the-pineal-eye/"><u>The Pineal Eye | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211454959-9798218497255-the-trigger-warnings-of-caramelized-butterflies/"><u>the trigger warnings of caramelized butterflies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211454860-9781685748937-therapeutic-tarot/"><u>Therapeutic TAROT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221620-9781780997933-divine-guidance/"><u>Divine Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221621-9781780995397-drinking-the-four-winds/"><u>Drinking the Four Winds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221623-9781782790624-how-to-care-for-a-cancer/"><u>How to Care for a Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1222045-9781461740988-lighthouse-hauntings/"><u>Lighthouse Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1222046-9781461740995-lighthouse-horrors/"><u>Lighthouse Horrors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221628-9781780996783-on-angels-wings/"><u>On Angels' Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221629-9781780995601-shaman-pathways-elen-of-the-ways/"><u>Shaman Pathways - Elen of the Ways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221632-9781780998145-the-extraordinary-spirit-sightings-encounters-of-an-ordinary-surrey-lady/"><u>The Extraordinary Spirit Sightings & Encounters of an Ordinary Surrey Lady | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

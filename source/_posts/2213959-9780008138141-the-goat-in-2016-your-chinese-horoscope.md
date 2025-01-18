@@ -1,7 +1,7 @@
 ---
 title: "The Goat in 2016: Your Chinese Horoscope | Free Book"
-date: 2024-10-22T23:59:32.162Z
-updated: 2024-10-26T17:36:11.798Z
+date: 2025-01-14T20:00:14.605Z
+updated: 2025-01-18T17:21:37.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c3abffe17a035362952584c15fd0485604fa3aba04dc36c55552e114b66e80ec.jpg
@@ -169,3 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c3abffe17a035362952584c15fd0485
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782240-9781620554951-five-meditations-on-death/"><u>Five Meditations on Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782236-9781594776717-original-wisdom/"><u>Original Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782233-9781620551905-overthrowing-the-old-gods/"><u>Overthrowing the Old Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782237-9781620550649-temple-of-the-cosmos/"><u>Temple of the Cosmos | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Life of a Warrior | Free Book
-date: 2024-10-23T03:57:39.030Z
-updated: 2024-10-26T20:44:17.063Z
+date: 2025-01-15T20:20:26.589Z
+updated: 2025-01-18T19:09:01.268Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/38a38c40fb2192ff43a918e609997588e283ab3f806841db803b36151c397221.jpg
@@ -130,3 +130,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/38a38c40fb2192ff43a918e60999758
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/493041-9781439137161-divine-revelation/"><u>Divine Revelation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/492962-9781439123850-leaving-the-body/"><u>Leaving the Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493178-9781439136775-secret-life/"><u>Secret Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/499863-9780759521643-the-angels-little-diet-book/"><u>The Angels' Little Diet Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493085-9781439156193-the-generosity-plan/"><u>The Generosity Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493292-9781416575535-the-orb-project/"><u>The Orb Project | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493282-9781439127797-the-threat/"><u>The Threat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493195-9781439155653-the-truth-about-psychics/"><u>The Truth About Psychics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/493161-9781439186732-the-wheel-of-time/"><u>The Wheel Of Time | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

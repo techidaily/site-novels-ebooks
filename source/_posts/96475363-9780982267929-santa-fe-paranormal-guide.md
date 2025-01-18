@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2025-01-10T03:32:38.874Z
-updated: 2025-01-12T16:56:14.942Z
+date: 2025-01-16T17:04:21.683Z
+updated: 2025-01-18T22:35:26.472Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,16 +134,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2647189-9780750959896-ghostly-cumbria/"><u>Ghostly Cumbria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647084-9780750951500-haunted-high-wycombe/"><u>Haunted High Wycombe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647613-9780750954389-haunted-plymouth/"><u>Haunted Plymouth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647085-9780750951517-haunted-st-albans/"><u>Haunted St Albans | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2646276-9781786780362-how-soon-is-now/"><u>How Soon is Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647138-9780750952774-shadows-on-the-water/"><u>Shadows on the Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2646266-9781623171179-the-order-disorder-paradox/"><u>The Order-Disorder Paradox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621371-9781601637345-the-autism-prophecies/"><u>The Autism Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621373-9781601633781-the-power-of-angel-medicine/"><u>The Power of Angel Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621374-9781601634672-the-power-of-angels/"><u>The Power of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621372-9781601637093-theres-something-under-the-bed/"><u>There's Something Under the Bed | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

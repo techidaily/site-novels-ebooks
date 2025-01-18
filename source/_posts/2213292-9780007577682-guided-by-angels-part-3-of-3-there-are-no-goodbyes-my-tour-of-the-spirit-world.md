@@ -1,7 +1,7 @@
 ---
 title: "Guided By Angels: Part 3 of 3: There Are No Goodbyes, My Tour of the Spirit World | Free Book"
-date: 2024-10-20T03:53:22.614Z
-updated: 2024-10-27T05:51:47.557Z
+date: 2025-01-16T20:38:34.091Z
+updated: 2025-01-18T18:58:53.339Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f982581733a30655912b64949a87def5f9489c54b01393453671f2d9fa0afb0.jpg
@@ -160,3 +160,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f982581733a30655912b64949a87de
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95773196-9781317364948-a-guide-to-the-world-of-dreams/"><u>A Guide to the World of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774099-9780762463763-lagom/"><u>Lagom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95773600-9781786781253-meetings-with-remarkable-people/"><u>Meetings with Remarkable People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774074-9780349418131-recharge/"><u>Recharge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95773593-9781786781277-the-secret-of-secrets/"><u>The Secret of Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95771984-9781515414926-the-writings-of-william-walker-atkinson/"><u>The Writings of William Walker Atkinson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774166-9781515414421-thoughts-i-met-on-the-highway/"><u>Thoughts I Met On the Highway | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774167-9781515415503-three-paths-to-god/"><u>Three Paths to God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774168-9781515414414-through-the-gates-of-good/"><u>Through the Gates of Good | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

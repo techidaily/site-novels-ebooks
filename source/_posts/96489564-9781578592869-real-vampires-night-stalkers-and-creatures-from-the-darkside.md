@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2025-01-10T16:55:59.496Z
-updated: 2025-01-13T00:10:30.285Z
+date: 2025-01-14T21:34:34.237Z
+updated: 2025-01-18T17:54:53.693Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,14 +213,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2622914-9781936740055-apocalypse-not/"><u>Apocalypse Not | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2622924-9781573445658-change-your-life/"><u>Change Your Life! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2640563-9780857012548-cultivating-qi/"><u>Cultivating Qi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2622899-9781632280121-get-well-wishes/"><u>Get Well Wishes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2622889-9781936740284-the-art-of-living-joyfully/"><u>The Art of Living Joyfully | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621306-9781601634771-dragonflame/"><u>Dragonflame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621308-9781601634337-experiences-from-the-light/"><u>Experiences From the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621311-9781601634450-lost-secrets-of-the-gods/"><u>Lost Secrets of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621307-9781601634375-the-alchemy-of-self-healing/"><u>The Alchemy of Self Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621310-9781601634962-viral-mythology/"><u>Viral Mythology | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

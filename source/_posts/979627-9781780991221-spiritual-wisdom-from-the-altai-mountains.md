@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2025-01-05T22:09:41.480Z
-updated: 2025-01-13T06:20:18.140Z
+date: 2025-01-15T21:26:44.984Z
+updated: 2025-01-18T16:18:56.711Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -132,14 +132,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383465-9798330236428-have-we-lived-before-2/"><u>Have We Lived Before 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383487-9798330236978-selfish-healing/"><u>Selfish Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383507-9798330237708-siempre-hay-una-esperanza/"><u>Siempre hay una Esperanza | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383492-9780645738636-the-complete-teachings-of-modern-wicca-for-the-seeker/"><u>The Complete Teachings of Modern Wicca For the Seeker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383486-9781088173145-trust-the-flow/"><u>Trust the Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124271-9781619400689-the-truth-about-telepathy/"><u>The Truth About Telepathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124277-9781619400290-the-werewolf-of-the-north/"><u>The Werewolf of the North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124280-9781619400658-the-young-man-with-the-rag-doll-experiments-in-mentalism/"><u>The Young Man with the Rag Doll: Experiments in Mentalism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124275-9781619400092-water-wizardry/"><u>Water Wizardry | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

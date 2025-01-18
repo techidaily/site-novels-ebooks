@@ -1,7 +1,7 @@
 ---
 title: Modern Psychology and Ancient Wisdom (2nd ed.) | Free Book
-date: 2024-10-22T21:57:33.445Z
-updated: 2024-10-26T21:27:15.615Z
+date: 2025-01-12T16:06:43.286Z
+updated: 2025-01-18T16:12:31.092Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ffde9c7a8be0bbbb7ef71c735a3bfef168b1b9f7b1690ebcc5c9c213311544e.jpg
@@ -240,3 +240,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ffde9c7a8be0bbbb7ef71c735a3bfe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95841433-9781683253822-el-aura-energia-vital-luminosa/"><u>El Aura. Energía vital luminosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841425-9781683253747-el-extraordinario-mundo-de-los-fantasmas/"><u>El extraordinario mundo de los fantasmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841424-9781683253730-el-gran-libro-ilustrado-de-los-suenos/"><u>El gran libro ilustrado de los sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841434-9781683253839-feng-shui-y-el-poder-de-la-piramide/"><u>Feng Shui y El Poder de La Piramide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841423-9781683253723-las-cartas-adivinatorias-de-los-indios-de-america/"><u>Las cartas adivinatorias de los indios de América | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841427-9781683253761-los-test-psicologicos-de-aptitud-y-personalidad/"><u>Los test psicologicos de aptitud y personalidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95840466-9781787206700-the-royal-secret/"><u>The Royal Secret | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

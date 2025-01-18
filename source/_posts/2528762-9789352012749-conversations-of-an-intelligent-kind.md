@@ -1,7 +1,7 @@
 ---
 title: Conversations Of An Intelligent Kind | Free Book
-date: 2024-10-24T21:12:40.035Z
-updated: 2024-10-26T23:20:13.793Z
+date: 2025-01-16T22:05:43.671Z
+updated: 2025-01-18T19:07:28.636Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ffd00151f7a3fed49a403c117ed324eaeede823cd18da0901e1ef8d252d2c028.jpg
@@ -149,3 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ffd00151f7a3fed49a403c117ed324e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/432323-9781775567158-in-tune-with-the-infinite/"><u>In Tune with the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/431761-9781439102541-mystic-cool/"><u>Mystic Cool | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/433976--star-parenting/"><u>Star Parenting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/432356-9781775567349-the-silence/"><u>The Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/432368-9781775567530-the-story-of-my-heart/"><u>The Story of My Heart | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

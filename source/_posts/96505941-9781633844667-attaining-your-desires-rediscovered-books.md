@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2025-01-07T21:50:30.944Z
-updated: 2025-01-13T06:07:12.712Z
+date: 2025-01-11T20:02:32.567Z
+updated: 2025-01-18T20:07:14.495Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,17 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211399977-9781763621534-brigitte/"><u>Brigitte | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211399976-9781763621510-brigitte-between-the-cathedral-and-the-bar-a-spiritual-journey/"><u>Brigitte: Between the Cathedral and the Bar (A Spiritual Journey) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211399938-9798330259335-hearing-and-heeding/"><u>Hearing and Heeding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211398899-9781960415196-rejected/"><u>Rejected | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211399907-9781735221434-tarot-for-beginners/"><u>Tarot for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211399869-9798330261383-the-force-of-life/"><u>The Force of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211399986-9798990532403-the-great-descend/"><u>The Great Descend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211398898-9798330263066-trafico/"><u>Tráfico | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125763-9781609253769-hermetic-magic/"><u>Hermetic Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125765-9781609252656-hex-and-spellwork/"><u>Hex and Spellwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125769-9781609250485-high-heeled-manners/"><u>High-Heeled Manners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125745-9781609250157-the-great-shift/"><u>The Great Shift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125748-9781609254612-the-grimoire-of-armadel/"><u>The Grimoire of Armadel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125758-9781609252335-the-heart-of-wicca/"><u>The Heart of Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125764-9781609255855-the-hermetic-museum/"><u>The Hermetic Museum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125768-9781609254582-the-hieroglyphic-monad/"><u>The Hieroglyphic Monad | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

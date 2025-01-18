@@ -1,7 +1,7 @@
 ---
 title: "Self-Healing: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-19T21:34:05.005Z
-updated: 2024-10-26T20:42:07.625Z
+date: 2025-01-15T20:54:10.313Z
+updated: 2025-01-18T17:56:24.364Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/174189fa78908e18cc2244c2352b3c93e01885e1b900c1aa6849d1264c8c92e0.jpg
@@ -168,3 +168,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/174189fa78908e18cc2244c2352b3c9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95813395-9781616409050-dialogues-with-my-god-self/"><u>Dialogues with My God Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95813520-9781507149577-investigating-events-with-astrology-practical-astrology/"><u>Investigating Events with Astrology: Practical Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95814285-9781507168042-le-vostre-vite-infestate/"><u>Le vostre vite infestate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95815738-9781507150887-practical-cartomancy-for-all/"><u>Practical Cartomancy for All | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95814523-9781507148631-previsoes-astrologicas-uma-nova-descoberta-sobre-a-leitura-de-transitos-planetarios/"><u>Previsões astrológicas: uma nova descoberta sobre a leitura de trânsitos planetários | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812999-9781944529284-psychic-research-and-modern-physics/"><u>Psychic Research and Modern Physics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95815132-9781507152249-taro-arcanos-menores-seus-significados-sem-necessidade-de-memorizar/"><u>Tarô Arcanos Menores, seus significados sem necessidade de memorizar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95815654-9781616405953-the-joy-of-ritual/"><u>The Joy of Ritual | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

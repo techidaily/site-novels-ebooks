@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2025-01-02T16:46:55.581Z
-updated: 2025-01-06T16:19:06.589Z
+date: 2025-01-12T19:29:47.421Z
+updated: 2025-01-18T17:56:43.344Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,18 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210711737-9781454929017-a-little-bit-of-angels/"><u>A Little Bit of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711738-9781454928652-a-little-bit-of-auras/"><u>A Little Bit of Auras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711745-9781454930761-a-little-bit-of-fairies/"><u>A Little Bit of Fairies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711740-9781454928669-a-little-bit-of-runes/"><u>A Little Bit of Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711766-9781454932475-astrology-for-wellness/"><u>Astrology for Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711776-9781454933519-protection-magick/"><u>Protection Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711744-9781454930051-the-conspiracy-book/"><u>The Conspiracy Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711777-9781454933199-the-mood-book/"><u>The Mood Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711770-9781454932987-weird-ghosts/"><u>Weird Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/202906-9780759520486-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/203004-9780759520820-guilt-is-the-teacher-love-is-the-lesson/"><u>Guilt is the Teacher, Love is the Lesson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2029268-9780698198661-it-works-deluxe-edition/"><u>It Works DELUXE EDITION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2029335-9781466874930-the-best-advice-in-six-words/"><u>The Best Advice in Six Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/203076-9780759522893-the-celestine-vision/"><u>The Celestine Vision | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/202837-9780446930529-the-ufo-enigma/"><u>The UFO Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/203121-9780759523609-who-is-your-guardian-angel/"><u>Who Is Your Guardian Angel? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

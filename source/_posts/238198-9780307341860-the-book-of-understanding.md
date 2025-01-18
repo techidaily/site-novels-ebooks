@@ -1,7 +1,7 @@
 ---
 title: The Book of Understanding | Free Book
-date: 2024-10-25T03:54:43.759Z
-updated: 2024-10-27T00:32:23.049Z
+date: 2025-01-11T19:44:26.231Z
+updated: 2025-01-18T16:21:51.634Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73f872046ceb63958ad1af5c13790fcdb1b0bcae30dbfadc910f9b7f9d1a2f7a.jpg
@@ -167,3 +167,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73f872046ceb63958ad1af5c13790fc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/832526-9780976420026-a-course-in-miracles/"><u>A Course in Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/835318-9781451685169-americas-most-ghostly-places-new-york-state/"><u>America's Most Ghostly Places: New York State | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/835329-9781451685107-dream-interpretation/"><u>Dream Interpretation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/831716-9781849898669-horoscopes-your-future-in-2012/"><u>Horoscopes - Your Future in 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/832126-9781780993614-moses-and-jesus/"><u>Moses and Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/836867-9780857010797-the-five-levels-of-taijiquan/"><u>The Five Levels of Taijiquan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/843565-9781780574387-the-ghost-that-haunted-itself/"><u>The Ghost That Haunted Itself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/832127-9781780993638-the-teachings-of-the-nephalim/"><u>The Teachings of the Nephalim | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

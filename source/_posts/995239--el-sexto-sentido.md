@@ -1,7 +1,7 @@
 ---
 title: El sexto sentido | Free Book
-date: 2025-01-09T19:15:12.330Z
-updated: 2025-01-13T06:28:26.580Z
+date: 2025-01-13T21:55:59.720Z
+updated: 2025-01-18T17:44:38.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/09e2abe6fe2dde841353c63363ca1d5ff45c3c3432104cb171cc31f65f5e4227.jpg
@@ -142,17 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/09e2abe6fe2dde841353c63363ca1d5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211355302-9798869381170-5ywl6zeoiowkoowfpew3qacrw/"><u>入门 加入巫术 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355197-9783689441296-chakras/"><u>CHAKRAS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355134-9789357040167-creating-your-ultimate-bliss/"><u>Creating your ultimate bliss | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355161-9798894580340-creative-visualization/"><u>Creative Visualization | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355209-9798869394170-downsizing-your-life/"><u>Downsizing Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355203-9783689441357-psychic-empath/"><u>PSYCHIC EMPATH | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355159-9789362616043-soul-journey-through-rahu-ketu/"><u>Soul Journey Through Rahu & Ketu | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355304-9798869381200-iniciaciya-v-vikku/"><u>Инициация в Викку | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512124-9781462903719-asian-animal-zodiac/"><u>Asian Animal Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512018-9781462902125-beginning-qigong/"><u>Beginning Qigong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512276-9781462905898-feng-shui-style/"><u>Feng Shui Style | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512248-9781462906734-flying-star-feng-shui/"><u>Flying Star Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512039-9781462902514-moment-by-moment/"><u>Moment by Moment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512121-9781462900190-original-i-ching/"><u>Original I Ching | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

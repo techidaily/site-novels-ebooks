@@ -1,7 +1,7 @@
 ---
 title: "Guided By Angels: Part 1 of 3: There Are No Goodbyes, My Tour of the Spirit World | Free Book"
-date: 2024-10-22T03:58:05.345Z
-updated: 2024-10-26T21:47:57.094Z
+date: 2025-01-14T16:37:54.803Z
+updated: 2025-01-18T21:36:07.653Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78bd36d76904d033792a3e3ab6bdacc0488301c2d5ac4b911ec00866b36d3207.jpg
@@ -160,3 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78bd36d76904d033792a3e3ab6bdacc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95769593-9781786781147-impossible-truths/"><u>Impossible Truths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769607-9781623171933-jump-girl/"><u>Jump Girl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95768845-9781507205389-the-modern-witchcraft-guide-to-the-wheel-of-the-year/"><u>The Modern Witchcraft Guide to the Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769590-9781786781031-the-practical-guide-to-crystal-healing/"><u>The Practical Guide to Crystal Healing | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

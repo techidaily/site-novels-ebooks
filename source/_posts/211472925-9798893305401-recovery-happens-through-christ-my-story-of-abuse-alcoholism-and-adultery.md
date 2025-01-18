@@ -1,7 +1,7 @@
 ---
 title: Recovery Happens Through Christ (My Story of Abuse, Alcoholism, and Adultery) | Free Book
-date: 2024-10-21T05:22:28.745Z
-updated: 2024-10-27T03:34:46.551Z
+date: 2025-01-14T17:16:20.294Z
+updated: 2025-01-18T20:54:42.795Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b6e745f904909a6bd0f80f886780c9d562bd5dccd91d61fc156c06080ce17b2a.jpg
@@ -179,3 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b6e745f904909a6bd0f80f886780c9d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317850-9781848507234-everything-ive-ever-learned-about-change/"><u>Everything I've Ever Learned About Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317847-9781848507210-stories-from-the-other-side/"><u>Stories from the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317854-9789381398104-the-mind-of-the-guru/"><u>The Mind of the Guru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96320821-9781580059145-wicca/"><u>Wicca | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

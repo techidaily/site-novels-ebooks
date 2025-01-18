@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2025-01-04T16:23:43.250Z
-updated: 2025-01-06T16:29:20.343Z
+date: 2025-01-14T21:03:26.404Z
+updated: 2025-01-18T16:57:49.878Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,17 +160,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210665960-9780645426212-a-practical-guide-for-self-change/"><u>A Practical Guide for Self Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666007-9783986538637-dark-psychology-101/"><u>DАRK PSYCHOLOGY 101 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666039-9780645344486-life-in-the-soul-lane/"><u>Life in the Soul Lane | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666017-9798986536606-my-twin-flame-journey-of-separation-surrender-and-release/"><u>My Twin Flame Journey of Separation, Surrender, and Release | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666482-9781401974107-power-thoughts/"><u>Power Thoughts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210666019-9781957943916-the-signs-of-jesus-deity-in-the-gospel-of-john-workbook/"><u>The Signs of Jesus' Deity in the Gospel of John - Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665981-9781088067000-todo-comienza-con-amor/"><u>Todo Comienza Con Amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665287-9780740786815-when-they-were-22/"><u>When They Were 22 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1630723-9781776530601-book-of-wise-sayings/"><u>Book of Wise Sayings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629887-9781466866997-feng-shui/"><u>Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1630703-9781776530205-lures-of-life/"><u>Lures of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629281-9781459728462-meeting-place-of-the-dead/"><u>Meeting Place of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629060-9781444719833-psychic-case-files/"><u>Psychic Case Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/163150-9780743418652-sight-unseen/"><u>Sight Unseen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1628716-9781444129724-take-control-with-astrology-teach-yourself/"><u>Take Control With Astrology: Teach Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1630783-9781776531806-the-book-of-life/"><u>The Book of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1629873-9781466867369-the-book-of-women/"><u>The Book of Women | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

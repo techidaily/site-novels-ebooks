@@ -1,7 +1,7 @@
 ---
 title: The Book of Practical Candle Magic | Free Book
-date: 2024-10-22T04:04:58.312Z
-updated: 2024-10-26T17:59:53.010Z
+date: 2025-01-16T19:39:41.704Z
+updated: 2025-01-18T17:58:01.359Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/656591c1832332d3d851d31715f93c4a552a950a01558c1a04d6af92311e47d4.jpg
@@ -145,3 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/656591c1832332d3d851d31715f93c4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/781882-9781780991450-mirror-of-the-free/"><u>Mirror of the Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781885-9781780991481-seeing-the-good-in-unfamiliar-spiritualities/"><u>Seeing the Good in Unfamiliar Spiritualities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781877-9781846948367-the-awakening-human-being/"><u>The Awakening Human Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781886-9781846948305-the-silence-of-the-mind/"><u>The Silence of the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781888-9781780991504-writings-from-oneness/"><u>Writings from Oneness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Libra 2013: Your Personal Horoscope | Free Book"
-date: 2024-10-20T21:24:38.612Z
-updated: 2024-10-26T18:46:41.652Z
+date: 2025-01-17T16:44:40.632Z
+updated: 2025-01-18T21:26:16.890Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cda656f1afae374900f581492ea42a15022b929913df0bd4fdd7e5f4d6e5f564.jpg
@@ -173,3 +173,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cda656f1afae374900f581492ea42a1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782591-9781594777929-golden-elixir-chi-kung-2nd-ed/"><u>Golden Elixir Chi Kung (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782590-9781620551929-grail-alchemy/"><u>Grail Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782584-9781620551837-mystical-origins-of-the-tarot/"><u>Mystical Origins of the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782588-9781594775048-neolithic-shamanism/"><u>Neolithic Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782586-9781594777653-nordic-runes/"><u>Nordic Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782581-9781620551233-the-deva-handbook/"><u>The Deva Handbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

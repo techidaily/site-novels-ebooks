@@ -1,7 +1,7 @@
 ---
 title: Hedge Witch & the Art of Hedge Riding | Free Book
-date: 2024-10-22T05:31:50.960Z
-updated: 2024-10-27T04:44:57.194Z
+date: 2025-01-14T20:33:25.140Z
+updated: 2025-01-18T16:00:45.247Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/356f60970673e52bfe842cd238cc952e494b9d3708f0ab3f11a865c7ba7f14b5.jpg
@@ -132,3 +132,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/356f60970673e52bfe842cd238cc952
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317181-9781848505261-angels-please-hear-me/"><u>Angels Please Hear Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317179-9781848506138-dear-angel-lady/"><u>Dear Angel Lady | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317183-9781848506572-healed-by-an-angel/"><u>Healed by an Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317187-9781848508873-intuitive-studies/"><u>Intuitive Studies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317186-9781848508019-is-your-life-mapped-out/"><u>Is Your Life Mapped Out? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317169-9781781808696-jaguar-in-the-body-butterfly-in-the-heart/"><u>Jaguar in the Body, Butterfly in the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317178-9781848506039-one-minute-mystic/"><u>One-Minute Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317174-9781781809631-the-big-book-of-angel-stories/"><u>The Big Book of Angel Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317170-9781848505117-the-dream-whisperer/"><u>The Dream Whisperer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2025-01-09T00:55:30.638Z
-updated: 2025-01-12T18:31:39.314Z
+date: 2025-01-14T22:18:25.543Z
+updated: 2025-01-18T17:42:36.691Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,18 +167,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211439601-9798888244166-feel-the-rock/"><u>Feel the Rock | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439585-9781639502790-free-the-slaves/"><u>Free The Slaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439394-9798894790343-keys-to-a-sacred-place/"><u>Keys To A Sacred Place | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439451-9781685680985-la-ciencia-de-la-religion/"><u>La ciencia de la religión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439399--mediumship/"><u>Mediumship | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439126--naturally-modern-magick/"><u>Naturally Modern Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439302-9798330345380-sceptres-brises/"><u>SCEPTRES BRISÉS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439943-9798218448943-spells-for-groovy-times/"><u>Spells for Groovy Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439123--the-poisoned-arrow/"><u>The Poisoned Arrow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154549-9781608681136-living-in-the-light/"><u>Living in the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154551-9781577317470-look-for-the-good-and-youll-find-god/"><u>Look for the Good and You'll Find God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154554-9781608681228-love-has-wings/"><u>Love Has Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154561-9781608681143-meditation-the-complete-guide/"><u>Meditation: The Complete Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154579-9781608680313-one-minute-mindfulness/"><u>One-Minute Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154581-9781608680788-ordinary-sacred/"><u>Ordinary Sacred | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

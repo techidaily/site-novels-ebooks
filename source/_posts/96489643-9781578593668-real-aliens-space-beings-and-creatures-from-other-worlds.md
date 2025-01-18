@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-01-08T20:57:54.604Z
-updated: 2025-01-12T20:42:35.392Z
+date: 2025-01-15T20:21:34.991Z
+updated: 2025-01-18T20:31:43.836Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,16 +262,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211477942-9781667479408-cuando-el-divorcio-es-imprescindible/"><u>Cuando el divorcio es imprescindible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2129387--sun-signs/"><u>Sun Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477908-9781507304334-the-magick-of-lenormand/"><u>The Magick of Lenormand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2120495-9780892546299-the-tantric-alchemist/"><u>The Tantric Alchemist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2120395-9781633410138-walking-among-us/"><u>Walking Among Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2120479-9780857012036-white-moon-on-the-mountain-peak/"><u>White Moon on the Mountain Peak | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2129456-9780349404646-working-with-spirit-guides/"><u>Working With Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567895-9780595895175-a-practical-guide-for-the-spiritist/"><u>A Practical Guide for the Spiritist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567794-9780595735631-as-easy-as-breathing/"><u>As Easy as Breathing: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567920-9781469715032-asian-horror-encyclopedia/"><u>Asian Horror Encyclopedia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567799-9781462022045-e-mails-to-my-grandchildren/"><u>E-Mails to My Grandchildren | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567922-9780595909322-land-to-water-yoga/"><u>Land to Water Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568004-9781475919561-paper-gauze-ballerina/"><u>Paper Gauze Ballerina | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138567988-9781462095759-the-word/"><u>The Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568161-9781450223430-walking-in-albion/"><u>Walking in Albion | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

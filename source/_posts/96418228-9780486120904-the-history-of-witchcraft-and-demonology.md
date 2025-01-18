@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2024-12-30T16:08:36.945Z
-updated: 2025-01-06T16:29:04.181Z
+date: 2025-01-11T22:21:29.271Z
+updated: 2025-01-18T21:37:06.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,16 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210707061-9781915393739-happy-birthday-love-elvis/"><u>Happy Birthday-Love, Elvis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707755-9780645523744-light-ignited-miracles-unleashed/"><u>Light Ignited, Miracles Unleashed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707597-9780875169347-living-enlightened/"><u>Living Enlightened | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210706839-9798886161878-man-rejected-me-but-god-chose-me/"><u>Man Rejected Me but God Chose Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707494-9781788179584-nine-days-of-eternity/"><u>Nine Days of Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707742-9780645523737-she-energy/"><u>She Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210707745-9781956368345-the-wayfarer/"><u>The Wayfarer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1918496-9781583949825-a-search-in-secret-egypt/"><u>A Search in Secret Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924704-9780698408753-angels/"><u>Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1915234-9780813156446-lucifer-ascending/"><u>Lucifer Ascending | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1918552-9780804152181-psychic-children/"><u>Psychic Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1920844-9780786487523-the-conscious-mind-and-the-material-world/"><u>The Conscious Mind and the Material World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/191952-9780767910934-the-feng-shui-of-abundance/"><u>The Feng Shui of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1924696-9780698408067-the-simple-road/"><u>The Simple Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/191953-9780767910972-witch-crafting/"><u>Witch Crafting | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

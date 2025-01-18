@@ -1,7 +1,7 @@
 ---
 title: "Capricorn 2016: Your Personal Horoscope | Free Book"
-date: 2024-10-23T20:29:38.040Z
-updated: 2024-10-26T22:36:20.238Z
+date: 2025-01-13T16:45:53.293Z
+updated: 2025-01-18T22:17:09.683Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c13558d306ed409960548b8cb51861cd823fdd398ee4ba8f10654171bd24061.jpg
@@ -162,3 +162,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c13558d306ed409960548b8cb51861
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782121-9781620554227-gnostic-mysteries-of-sex/"><u>Gnostic Mysteries of Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782132-9781594779541-the-crazy-wisdom-of-ganesh-baba/"><u>The Crazy Wisdom of Ganesh Baba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782127-9781594776427-the-cry-of-the-huna/"><u>The Cry of the Huna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782123-9781594777226-the-kingdom-of-agarttha/"><u>The Kingdom of Agarttha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782115-9781620553220-the-path-to-the-guru/"><u>The Path to the Guru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782114-9781594779336-thomas-berry-dreamer-of-the-earth/"><u>Thomas Berry, Dreamer of the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782126-9781594777578-twelve-tribe-nations-3rd-ed/"><u>Twelve-Tribe Nations (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782112-9781594776007-walkers-between-the-worlds-2nd-ed/"><u>Walkers Between the Worlds (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

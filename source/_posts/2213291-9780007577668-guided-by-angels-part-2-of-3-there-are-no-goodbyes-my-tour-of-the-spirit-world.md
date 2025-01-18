@@ -1,7 +1,7 @@
 ---
 title: "Guided By Angels: Part 2 of 3: There Are No Goodbyes, My Tour of the Spirit World | Free Book"
-date: 2024-10-23T05:31:11.239Z
-updated: 2024-10-26T22:41:14.080Z
+date: 2025-01-11T17:57:56.556Z
+updated: 2025-01-18T17:07:39.964Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9e14c45c31be295ded80b4fdaef821ba7e1699da99363e4057c5bdf3118780e9.jpg
@@ -160,3 +160,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9e14c45c31be295ded80b4fdaef821b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95769610-9780525503873-five-lessons/"><u>Five Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769830-9780316561747-how-to-meditate/"><u>How to Meditate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769777-9781741762822-tarot-revealed/"><u>Tarot Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95771981-9781515414940-the-writings-of-ralph-waldo-trine/"><u>The Writings of Ralph Waldo Trine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95771982-9781515414933-the-writings-of-thomas-troward-vol-i/"><u>The Writings of Thomas Troward, Vol I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95770139-9781579830373-your-evolving-soul/"><u>Your Evolving Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

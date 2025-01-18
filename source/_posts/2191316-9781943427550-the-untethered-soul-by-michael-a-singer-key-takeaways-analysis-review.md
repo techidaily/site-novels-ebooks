@@ -1,7 +1,7 @@
 ---
 title: The Untethered Soul by Michael A. Singer | Key Takeaways, Analysis & Review | Free Book
-date: 2024-10-22T23:42:43.695Z
-updated: 2024-10-26T19:12:22.818Z
+date: 2025-01-15T18:34:00.747Z
+updated: 2025-01-18T18:35:27.289Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2875a50f3b36d80c9b7309241faa88f96c92e699fc5f0380f07766f96fc20b23.jpg
@@ -149,3 +149,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2875a50f3b36d80c9b7309241faa88f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95819406-9781507178720-iluminacao-espiritual-um-acontecimento-incrivel/"><u>Iluminação Espiritual: Um acontecimento incrível! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95818705-9781507144152-la-tua-vita-su-misura-realizza-una-vita-appagante-con-la-legge-di-attrazione/"><u>La tua vita su misura: realizza una vita appagante con la Legge di Attrazione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95819391-9781507145975-les-combinaisons-entre-les-arcanes-majeurs-et-mineurs/"><u>Les combinaisons entre les arcanes majeurs et mineurs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95818980-9781944529215-out-of-the-body-experiences/"><u>Out-of-the-Body Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95819235-9781944529338-psi-conducive-states-of-awareness/"><u>Psi-Conducive States of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95819313-9781944529239-survival-research-problems-and-possibilites/"><u>Survival Research: Problems and Possibilites | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95820248-9780989761369-tantra-illuminated/"><u>Tantra Illuminated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95818745-9781507157817-terapia-emozionale-il-segreto-del-segreto/"><u>Terapia Emozionale. Il Segreto del Segreto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95820094-9780600635369-the-mind-manual/"><u>The Mind Manual | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

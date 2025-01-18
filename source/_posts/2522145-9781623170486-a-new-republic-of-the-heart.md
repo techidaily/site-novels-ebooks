@@ -1,7 +1,7 @@
 ---
 title: A New Republic of the Heart | Free Book
-date: 2024-10-20T22:06:56.028Z
-updated: 2024-10-27T06:02:00.048Z
+date: 2025-01-13T16:58:15.095Z
+updated: 2025-01-18T21:36:13.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd687962dc340582df005ab9c9862d0873f93873c73c6ee9fec18478d2f94e5c.jpg
@@ -215,3 +215,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd687962dc340582df005ab9c9862d0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/539728-9781101434581-chords-of-strength/"><u>Chords of Strength | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/542087-9781451603675-divining-your-dreams/"><u>Divining Your Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/540207-9781101433034-faith-and-will/"><u>Faith and Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/539818--meditation/"><u>Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/541755-9781451603705-rootwork/"><u>Rootwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/541838-9781439104491-the-roswell-dig-diaries/"><u>The Roswell Dig Diaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/542016-9781451603866-the-sivananda-companion-to-meditation/"><u>The Sivananda Companion to Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/541769-9781451603224-where-to-park-your-broomstick/"><u>Where to Park Your Broomstick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/542179-9781451603583-zolars-encyclopedia-and-dictionary-of-dreams/"><u>Zolar's Encyclopedia and Dictionary of Dreams | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2024-12-31T16:00:16.236Z
-updated: 2025-01-06T17:04:48.392Z
+date: 2025-01-11T20:15:32.429Z
+updated: 2025-01-18T21:59:43.320Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,16 +169,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210711808-9781454936718-a-little-bit-of-goddess/"><u>A Little Bit of Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711802-9781454936121-a-little-bit-of-numerology/"><u>A Little Bit of Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711783-9781454933892-a-little-bit-of-pendulums/"><u>A Little Bit of Pendulums | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711791-9781454933694-a-little-bit-of-reiki/"><u>A Little Bit of Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711785-9781454933762-a-little-bit-of-shamanism/"><u>A Little Bit of Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711794-9781454934691-the-crystal-witch/"><u>The Crystal Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711787-9781454934547-the-power-of-crystal-healing/"><u>The Power of Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2032726-9781493012404-haunted-colleges-and-universities/"><u>Haunted Colleges and Universities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2032792-9781461746461-spooky-massachusetts/"><u>Spooky Massachusetts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2032790-9781493032488-spooky-texas-2nd-ed/"><u>Spooky Texas (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/203145-9780759522060-touched-by-angels/"><u>Touched by Angels | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

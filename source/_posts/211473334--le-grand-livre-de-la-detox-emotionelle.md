@@ -1,7 +1,7 @@
 ---
 title: Le grand livre de la détox emotionelle | Free Book
-date: 2024-10-24T18:16:42.781Z
-updated: 2024-10-27T02:36:38.714Z
+date: 2025-01-17T21:25:13.084Z
+updated: 2025-01-18T19:32:30.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3456f93c425456c05760ce7da207a27708ee8084909533f26e8b54804a34731.jpg
@@ -140,3 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3456f93c425456c05760ce7da207a2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96361995-9781932595857-babylons-banksters/"><u>Babylon's Banksters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96357622-9781561647460-chronicles-of-the-strange-and-uncanny-in-florida/"><u>Chronicles of the Strange and Uncanny in Florida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96362043-9781936239740-financial-vipers-of-venice/"><u>Financial Vipers of Venice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96362022-9781932595581-the-satanic-witch/"><u>The Satanic Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

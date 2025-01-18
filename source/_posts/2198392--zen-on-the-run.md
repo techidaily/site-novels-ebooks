@@ -1,7 +1,7 @@
 ---
 title: Zen on the Run | Free Book
-date: 2024-10-20T02:51:31.063Z
-updated: 2024-10-26T21:47:19.153Z
+date: 2025-01-13T17:27:52.509Z
+updated: 2025-01-18T19:50:20.714Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d104dec7cf7388acf9163d346208689ed4a930e46db16ffc6cb406f724182e8.jpg
@@ -149,3 +149,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d104dec7cf7388acf9163d34620868
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95854486-9781507187173-alquimia-o-misterio-da-pedra-filosofal/"><u>Alquimia - O Mistério da Pedra Filosofal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95855111-9780525503804-dark-star-rising/"><u>Dark Star Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95855128-9780834841109-i-ching/"><u>I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95851341-9788499884325-meditacion-para-gente-ocupada/"><u>Meditación para gente ocupada | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95854549-9781507186510-o-livro-dourado-da-sabedoria/"><u>O livro Dourado da Sabedoria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95853125-9781633410602-santa-muerte/"><u>Santa Muerte | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95854557-9781507186565-sus-vidas-embrujadas/"><u>Sus Vidas Embrujadas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95853124-9781612834054-the-after-death-chronicles/"><u>The After Death Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95855483-9781912023578-the-chakra-project/"><u>The Chakra Project | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

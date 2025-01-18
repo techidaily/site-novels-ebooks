@@ -1,7 +1,7 @@
 ---
 title: "The Horse in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-22T00:40:03.340Z
-updated: 2024-10-26T23:22:16.221Z
+date: 2025-01-14T20:58:41.336Z
+updated: 2025-01-18T17:58:59.157Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c103be732f0b9c175092c204b0877456e87bc8da611a06844e060fa5a7d481e.jpg
@@ -169,3 +169,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c103be732f0b9c175092c204b08774
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782499-9781591439042-from-the-ashes-of-angels/"><u>From the Ashes of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782500-9781591438106-galactic-alignment/"><u>Galactic Alignment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782497-9781591432142-sacred-plant-initiations/"><u>Sacred Plant Initiations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782496-9781591439141-the-cosmic-code-book-vi/"><u>The Cosmic Code (Book VI) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782495-9781591439417-wisdom-of-the-plant-devas/"><u>Wisdom of the Plant Devas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782498-9781591437857-wisdom-of-the-watchers/"><u>Wisdom of the Watchers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

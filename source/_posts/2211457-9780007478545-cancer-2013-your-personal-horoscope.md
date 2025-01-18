@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2013: Your Personal Horoscope | Free Book"
-date: 2024-10-22T21:03:52.673Z
-updated: 2024-10-27T03:15:17.980Z
+date: 2025-01-14T19:09:31.676Z
+updated: 2025-01-18T19:48:10.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/742937055943f7a0c924b391d2d57313735ace3e395aa307ede6a304517b2eeb.jpg
@@ -171,3 +171,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/742937055943f7a0c924b391d2d5731
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782564-9781591432463-advanced-autogenic-training-and-primal-awareness/"><u>Advanced Autogenic Training and Primal Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782562-9781591439813-advanced-civilizations-of-prehistoric-america/"><u>Advanced Civilizations of Prehistoric America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782561-9781591438496-astrology-and-the-rising-of-kundalini/"><u>Astrology and the Rising of Kundalini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782566-9781591438830-on-the-toltec-path/"><u>On the Toltec Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782563-9781591438588-rituals-and-practices-with-the-motherpeace-tarot-2nd-ed/"><u>Rituals and Practices with the Motherpeace Tarot (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782565-9781591439721-the-ecstatic-experience/"><u>The Ecstatic Experience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Bringing Forth Soul Consciousness | Free Book
-date: 2024-10-25T00:46:24.757Z
-updated: 2024-10-26T17:27:57.306Z
+date: 2025-01-15T17:35:13.773Z
+updated: 2025-01-18T18:31:32.812Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4457db8c995ba41be1a0b922924235ca68ae7d57fb5427c93c9515ce0bef51d9.jpg
@@ -209,3 +209,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4457db8c995ba41be1a0b922924235c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96422485-9780486825625-365-daily-meditations-for-on-and-off-the-mat/"><u>365 Daily Meditations for On and Off the Mat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440136-9781561646388-ancient-city-hauntings/"><u>Ancient City Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440126-9781561646029-orlandos-historic-haunts/"><u>Orlando's Historic Haunts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96438816-9781908746900-peachey-letters/"><u>Peachey Letters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96437876-9781595588869-the-cushion-in-the-road/"><u>The Cushion in the Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96438705-9781934170311-the-secret-source/"><u>The Secret Source | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

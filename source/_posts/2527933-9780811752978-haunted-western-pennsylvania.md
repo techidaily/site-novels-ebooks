@@ -1,7 +1,7 @@
 ---
 title: Haunted Western Pennsylvania | Free Book
-date: 2024-10-23T17:19:48.534Z
-updated: 2024-10-27T02:22:17.027Z
+date: 2025-01-12T16:52:42.194Z
+updated: 2025-01-18T17:16:41.816Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc9a0572629e32a7bea58156c822aab0ecd572e72f6cdb77aac30ef25476c7fd.jpg
@@ -140,3 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc9a0572629e32a7bea58156c822aab
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/363831-9781440649820-astrology-of-midlife-and-aging/"><u>Astrology of Midlife and Aging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/361881-9781605571744-green-zone-living/"><u>Green Zone Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/363791-9781440649776-shamans-through-time/"><u>Shamans Through Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/363833-9781440649844-the-essential-nostradamus/"><u>The Essential Nostradamus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/363827-9781440649752-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/361886-9781605572437-your-exceptional-mind/"><u>Your Exceptional Mind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

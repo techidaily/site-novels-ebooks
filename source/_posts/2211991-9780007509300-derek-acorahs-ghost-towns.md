@@ -1,7 +1,7 @@
 ---
 title: Derek Acorah’s Ghost Towns | Free Book
-date: 2024-10-21T16:55:02.429Z
-updated: 2024-10-26T22:40:32.982Z
+date: 2025-01-15T16:06:11.513Z
+updated: 2025-01-18T19:01:08.048Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6b8fb9eca7adb6fb5c9479afa0c27dc0b18a85d1ce041b23826fbdb7811149a8.jpg
@@ -192,3 +192,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6b8fb9eca7adb6fb5c9479afa0c27dc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782264-9781620551349-energy-medicine-technologies/"><u>Energy Medicine Technologies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782265-9781594777424-the-neanderthal-legacy/"><u>The Neanderthal Legacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782260-9781620551820-the-practice-of-nada-yoga/"><u>The Practice of Nada Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782263-9781620553640-the-science-and-practice-of-humility/"><u>The Science and Practice of Humility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782259-9781594779190-the-secret-society-of-moses/"><u>The Secret Society of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782261-9781594777363-while-the-gods-play/"><u>While the Gods Play | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

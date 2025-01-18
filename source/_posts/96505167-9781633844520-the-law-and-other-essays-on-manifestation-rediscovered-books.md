@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2025-01-06T23:14:48.432Z
-updated: 2025-01-13T06:15:00.679Z
+date: 2025-01-11T17:03:06.374Z
+updated: 2025-01-18T17:30:18.075Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,14 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211448712-9798991327572-falling-up/"><u>Falling Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211451241--new-dimensions-of-deep-analysis/"><u>New Dimensions of Deep Analysis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211448842-9781998813940-rising-above/"><u>Rising Above | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211450762--stuff-your-astrologer-should-have-told-you/"><u>Stuff Your Astrologer Should Have Told You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211450266-9781955413282-the-art-of-your-energy-ii/"><u>The Art of Your Energy II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220040-9780892546220-amulets-talismans-and-magical-jewelry/"><u>Amulets, Talismans, and Magical Jewelry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/121819-9780253108388-claiming-sacred-ground/"><u>Claiming Sacred Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216496-9781583947272-manifesting-minds/"><u>Manifesting Minds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1219264-9780698147850-stitches/"><u>Stitches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1219217-9781101633731-the-book-of-knowing-and-worth/"><u>The Book of Knowing and Worth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1216500-9781583948200-the-return-of-the-mother/"><u>The Return of the Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1219168-9781101620274-whole-health/"><u>Whole Health | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2025-01-12T00:01:05.970Z
-updated: 2025-01-13T05:48:48.151Z
+date: 2025-01-16T16:00:40.107Z
+updated: 2025-01-18T19:01:03.795Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,14 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211440833-9781476653389-cultural-encyclopedia-of-lsd-2d-ed/"><u>Cultural Encyclopedia of LSD, 2d ed. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211440034-9798990437319-healing-whispers-from-spirit-guides/"><u>Healing Whispers From Spirit Guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439969-9798990986619-physician-heal-thyself/"><u>Physician Heal Thyself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441040-9781910559932-the-witch-and-the-wildwood/"><u>The Witch and the Wildwood | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211440706--thinking-about-thinking/"><u>Thinking About Thinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1155124-9781608681389-a-womans-book-of-rituals-and-celebrations/"><u>A Woman's Book of Rituals and Celebrations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1159253-9781583946565-awaken-your-genius/"><u>Awaken Your Genius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1155125-9781608682133-circle-of-stones/"><u>Circle of Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154586-9781577313564-path-of-empowerment/"><u>Path of Empowerment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154592-9781577313434-practicing-the-power-of-now/"><u>Practicing the Power of Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154593-9781608681358-practicing-the-presence-of-the-goddess/"><u>Practicing the Presence of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1157615-9781780996004-tarot-for-grownups/"><u>Tarot for Grownups | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1155122-9781608682089-the-christmas-house/"><u>The Christmas House | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

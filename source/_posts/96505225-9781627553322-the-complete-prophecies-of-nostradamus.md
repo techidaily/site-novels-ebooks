@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2025-01-05T19:08:04.620Z
-updated: 2025-01-12T18:34:21.324Z
+date: 2025-01-12T20:07:57.531Z
+updated: 2025-01-18T20:58:39.798Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,15 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211455276-9798330397693-mastering-alchemy/"><u>Mastering Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455278-9798330397822-secretele-maestrului-alchimist/"><u>Secretele maestrului alchimist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455277-9798330397761-secretos-del-maestro-alquimista/"><u>Secretos del Maestro Alquimista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455275-9798330397730-segredos-do-mestre-alquimista/"><u>Segredos do Mestre Alquimista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455245-9781396325717-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455180-9781956198355-the-practitioner-handbook-for-spiritual-mind-healing-4th-ed/"><u>The Practitioner Handbook for Spiritual Mind Healing (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1297504-9781609254889-best-tarot-practices/"><u>Best Tarot Practices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245934-9781471112393-conversations-with-heaven/"><u>Conversations with Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1275338-9781609257729-living-the-wheel/"><u>Living the Wheel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1297509-9781609259143-the-mystery-of-the-seven-vowels/"><u>The Mystery of the Seven Vowels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245861-9781451698589-the-sacred-history/"><u>The Sacred History | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1250685-9780892546626-the-wedding-of-sophia/"><u>The Wedding of Sophia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1273870-9780804150859-why-people-dont-heal-and-how-they-can/"><u>Why People Don't Heal and How They Can | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1249254-9781782195061-wild-things-they-dont-tell-us/"><u>Wild Things They Don't Tell Us | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

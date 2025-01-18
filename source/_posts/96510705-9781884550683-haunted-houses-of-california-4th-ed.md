@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2025-01-11T17:04:24.246Z
-updated: 2025-01-12T18:43:47.956Z
+date: 2025-01-12T22:03:54.964Z
+updated: 2025-01-18T17:19:30.396Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,13 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211439120--a-tea-witchs-crystal-brews/"><u>A Tea Witch’s Crystal Brews | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439119--celtic-hedge-witcherya-modern-approach/"><u>Celtic Hedge Witchery—A Modern Approach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439121--entering-hekates-cauldron/"><u>Entering Hekate's Cauldron | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439118--this-is-chaos-embracing-the-future-of-magic/"><u>This Is Chaos: Embracing the Future of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154537-9781577317050-a-still-small-voice/"><u>A Still, Small Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154463-9781577316916-el-poder-del-ahora/"><u>El poder del ahora | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154469-9781577319467-human-design/"><u>Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154532-9781608681464-the-magical-path/"><u>The Magical Path | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

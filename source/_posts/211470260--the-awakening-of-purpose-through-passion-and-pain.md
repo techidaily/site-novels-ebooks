@@ -1,7 +1,7 @@
 ---
 title: The Awakening of Purpose Through Passion and Pain | Free Book
-date: 2024-10-24T17:25:41.767Z
-updated: 2024-10-26T22:11:07.405Z
+date: 2025-01-15T21:14:58.073Z
+updated: 2025-01-18T21:41:23.789Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93b914cd54dc580831af58d306c92958559ddfbce202e1c6aa4701b29560917d.jpg
@@ -165,3 +165,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93b914cd54dc580831af58d306c9295
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317537-9781401919481-contacting-your-spirit-guide/"><u>Contacting Your Spirit Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317539-9781401924973-la-matriz-divina/"><u>La Matriz Divina | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317538-9781401920937-question-your-thinking-change-the-world/"><u>Question Your Thinking, Change the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317535-9781401922801-temples-on-the-other-side/"><u>Temples on the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317544-9781401920555-the-astonishing-power-of-emotions/"><u>The Astonishing Power of Emotions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317541-9781401927653-what-does-that-mean/"><u>What Does That Mean? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

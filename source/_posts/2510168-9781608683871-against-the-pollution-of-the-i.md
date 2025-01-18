@@ -1,7 +1,7 @@
 ---
 title: Against the Pollution of the I | Free Book
-date: 2024-10-21T02:50:17.783Z
-updated: 2024-10-26T19:48:42.356Z
+date: 2025-01-14T20:44:31.954Z
+updated: 2025-01-18T18:22:24.527Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/daa8fe5a30fb237d90396848c47e6f3ce7711d08de3c46340f7a285e6b3565ec.jpg
@@ -141,3 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/daa8fe5a30fb237d90396848c47e6f3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/730015-9780989100052-a-helbrede-sinnet/"><u>A Helbrede Sinnet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730372-9781446489918-a-home-course-in-nutrition/"><u>A Home Course In Nutrition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730383-9781446490761-astrological-aromatherapy/"><u>Astrological Aromatherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730374-9781446489963-spiritual-alchemy/"><u>Spiritual Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730375-9781446489970-the-mirror-of-existence/"><u>The Mirror Of Existence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/727588-9781446489871-the-secret-path/"><u>The Secret Path | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

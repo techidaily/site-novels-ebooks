@@ -1,7 +1,7 @@
 ---
 title: "Haunted: Scariest stories from the UK's no. 1 psychic | Free Book"
-date: 2024-10-21T03:40:48.583Z
-updated: 2024-10-27T05:07:34.466Z
+date: 2025-01-11T17:21:54.967Z
+updated: 2025-01-18T20:04:54.365Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d31314853b73b1cc984734ceb63262deb9a01afdd7dbe497c77a3d81ac5f0db.jpg
@@ -173,3 +173,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d31314853b73b1cc984734ceb63262
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95935340-9781844093922-in-case-of-spiritual-emergency/"><u>In Case of Spiritual Emergency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935337-9781844098668-in-perfect-timing/"><u>In Perfect Timing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935331-9781844097869-intuition-on-demand/"><u>Intuition on Demand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935329-9781844098002-jims-flight/"><u>Jim's Flight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935330-9781844092536-nature-spirits-elemental-beings-2nd-ed/"><u>Nature Spirits & Elemental Beings (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935333-9781844093625-the-alchemy-of-voice-2nd-ed/"><u>The Alchemy of Voice (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935338-9781844093571-the-gift-of-forgiveness/"><u>The Gift of Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935335-9781844093984-voyage-of-purpose/"><u>Voyage of Purpose | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

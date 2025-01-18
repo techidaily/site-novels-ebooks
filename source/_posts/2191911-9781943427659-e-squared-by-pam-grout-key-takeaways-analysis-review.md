@@ -1,7 +1,7 @@
 ---
 title: "E-Squared: by Pam Grout | Key Takeaways, Analysis & Review | Free Book"
-date: 2024-10-24T01:36:49.672Z
-updated: 2024-10-27T03:34:01.634Z
+date: 2025-01-12T19:56:53.871Z
+updated: 2025-01-18T20:06:50.496Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/11570ba9fbe68be133889e7e40bb63c87fdf0d9ae11ed10a9c1d68d98180b26a.jpg
@@ -145,3 +145,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/11570ba9fbe68be133889e7e40bb63c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95827921-9781547508471-assim-acima-como-abaixo-a-minha-vida-como-um-adepto-uma-autobiografia-por-seila-orienta/"><u>Assim Acima, Como Abaixo. A Minha Vida Como Um Adepto. Uma Autobiografia por Seila Orienta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828505-9781608684946-big-love/"><u>Big Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95829048-9781547500482-der-traumzustand-eine-verschworungstheorie/"><u>Der Traumzustand - Eine Verschwörungstheorie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828523-9781681652924-el-despertar-de-la-conciencia/"><u>El despertar de la conciencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828176-9781547507542-el-primer-arcano-menor/"><u>El Primer Arcano Menor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95824000-9780892546671-geomancy/"><u>Geomancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828927-9780980502244-moonbeams-of-mahamudra/"><u>Moonbeams of Mahamudra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95825155-9780007484096-the-dream-dictionary-from-a-to-z-revised-edition/"><u>The Dream Dictionary from A to Z [Revised edition] | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

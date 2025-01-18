@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2025-01-09T05:34:14.053Z
-updated: 2025-01-13T00:51:09.202Z
+date: 2025-01-12T17:37:15.359Z
+updated: 2025-01-18T19:06:19.328Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,14 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211400637-9798894581354-dating/"><u>Dating | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211400523-9798330266081-dreamers-doers/"><u>Dreamers & Doers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211400569-9798330238484-fuel-minds-phase-7/"><u>Fuel Minds: Phase 7 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211400630-9798330268825-the-mindful-revolution/"><u>The Mindful Revolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211400515-9798987071724-when-spirits-speak/"><u>When Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125817-9781609250751-keywords-for-the-crowley-tarot/"><u>Keywords for the Crowley Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125819-9781609251680-kids-who-see-ghosts/"><u>Kids Who See Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125834-9781609254131-learning-the-tarot/"><u>Learning the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125818-9781609254209-the-ki-process/"><u>The Ki Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125829-9781609257644-the-laws-of-manifestation/"><u>The Laws of Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125838-9781609253776-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

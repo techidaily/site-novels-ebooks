@@ -1,7 +1,7 @@
 ---
 title: "Pisces 2016: Your Personal Horoscope | Free Book"
-date: 2024-10-21T17:18:48.226Z
-updated: 2024-10-27T00:38:41.482Z
+date: 2025-01-17T17:06:59.081Z
+updated: 2025-01-18T17:01:42.920Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd5e88d66e8126d2cce1a2f5790f814fda15068457646b7b866d5a8dbecdd225.jpg
@@ -164,3 +164,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd5e88d66e8126d2cce1a2f5790f814
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782150-9781594778797-the-brother-of-jesus-and-the-lost-teachings-of-christianity/"><u>The Brother of Jesus and the Lost Teachings of Christianity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782154-9781594775239-the-celestial-key-to-the-vedas/"><u>The Celestial Key to the Vedas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782151-9781620556610-the-cosmic-hologram/"><u>The Cosmic Hologram | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782149-9781594778896-the-cosmological-origins-of-myth-and-symbol/"><u>The Cosmological Origins of Myth and Symbol | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782144-9781620557327-the-intelligence-of-the-cosmos/"><u>The Intelligence of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782142-9781594775758-the-jade-emperors-mind-seal-classic-2nd-ed/"><u>The Jade Emperor's Mind Seal Classic (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782153-9781620556375-the-lost-art-of-resurrection-2nd-ed/"><u>The Lost Art of Resurrection (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782143-9781594779275-the-sacred-center-2nd-ed/"><u>The Sacred Center (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782146-9781620550717-the-warrior-is-silent/"><u>The Warrior Is Silent | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

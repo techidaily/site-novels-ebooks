@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2025-01-07T19:47:55.862Z
-updated: 2025-01-13T02:27:08.491Z
+date: 2025-01-12T18:47:41.248Z
+updated: 2025-01-18T19:39:15.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,18 +227,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2417866-9781509823338-a-very-mindful-christmas/"><u>A Very Mindful Christmas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2416121-9780786450879-children-who-remember-previous-lives/"><u>Children Who Remember Previous Lives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418879-9781782794509-on-being-human/"><u>On Being Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418881-9781785350313-pagan-portals-meditation/"><u>Pagan Portals - Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418884-9781782799917-paradise-and-promises/"><u>Paradise and Promises | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2418890-9781785351587-the-book-of-becoming/"><u>The Book of Becoming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2417032-9781782799443-the-book-of-destiny/"><u>The Book of Destiny | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2416028-9780698404250-the-book-of-mastery/"><u>The Book of Mastery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2417190-9781780288956-wake-the-fck-up/"><u>Wake the F*ck Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584078-9781462037124-beyond-cell-memory/"><u>Beyond Cell Memory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584007-9781462047666-dolphinity/"><u>Dolphinity: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584093-9781452532981-from-fear-to-freedom/"><u>From Fear to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584366-9781452540627-post-cards-from-the-void/"><u>Post Cards from the Void | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584290-9781450286015-shadow-place/"><u>Shadow Place | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583978-9781462029372-so-what-do-you-think/"><u>So What Do You Think? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584409-9781450294010-tribute-to-a-common-man/"><u>Tribute to a Common Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584552-9781449743642-your-destiny-and-your-palace/"><u>Your Destiny and Your Palace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

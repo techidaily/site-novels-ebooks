@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-01-07T17:52:29.470Z
-updated: 2025-01-12T18:57:04.556Z
+date: 2025-01-13T16:42:01.941Z
+updated: 2025-01-18T17:49:03.186Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,16 +264,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2173115-9781848589582-ghosts/"><u>Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2173125-9781848589438-greatest-mysteries-of-the-unexplained/"><u>Greatest Mysteries of the Unexplained | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2173148-9781848587878-poltergeists/"><u>Poltergeists | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2173150-9781848587885-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2173145-9781848587175-secret-wisdom/"><u>Secret Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2173146-9781848586543-the-book-of-reflection-simple-steps-to-self-discovery/"><u>The Book of Reflection: Simple Steps to Self Discovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2173132-9781848588493-the-dark-history-of-the-occult/"><u>The Dark History of the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569933-9781469768397-the-real-prophet-of-doomvol2/"><u> "The Real, Prophet, of Doom.Vol2(...!) " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569957-9781450202916-a-journey-into-the-soulful-garden/"><u>A Journey into the Soulful Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569713-9780595764785-being-remarkable/"><u>Being Remarkable | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570036-9781450282314-from-chicago-to-spinoza/"><u>From Chicago to Spinoza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569753-9780595905003-my-unsung-psalm/"><u>My Unsung Psalm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570028-9781450232142-the-awakening-of-intelligence-toward-a-new-psychology-of-being/"><u>The Awakening of Intelligence: Toward a New Psychology of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569700-9781452500638-the-tao-of-mermaids/"><u>The Tao of Mermaids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569690-9781449707248-when-i-discovered-i-was-awesome/"><u>When I Discovered I Was Awesome | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

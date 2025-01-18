@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2025-01-11T16:58:54.085Z
-updated: 2025-01-12T21:34:15.659Z
+date: 2025-01-17T17:58:22.713Z
+updated: 2025-01-18T16:34:33.804Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,15 +158,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211414073-9781763597914-awakening-i/"><u>AWAKENING I | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413415-9781737005476-beyond-the-mountains/"><u>Beyond the Mountains | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414107-9798330289370-hydrocephalus-astrology/"><u>Hydrocephalus Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413923--the-15-success-principles-for-self-realization/"><u>The 15 Success Principles for Self-Realization | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414093-9781088186732-the-hygge-witch-handbook/"><u>The Hygge Witch Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211414243-9781783967858-the-way-through-the-woods/"><u>The Way Through the Woods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125994-9781609252847-reclaim-the-power-of-the-witch/"><u>Reclaim the Power of the Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125997-9781609254087-relating/"><u>Relating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126001-9781609253974-retrograde-planets/"><u>Retrograde Planets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126002-9781609256449-return-again/"><u>Return Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126005-9781609256678-rules-for-spiritual-initiation/"><u>Rules for Spiritual Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126006-9781609253011-runes-for-transformation/"><u>Runes for Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126021-9781609252632-secrets-of-a-medium/"><u>Secrets of a Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126023-9781609250775-seeing-in-the-dark/"><u>Seeing in the Dark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126016-9781609252953-the-secret-history-of-consciousness/"><u>The Secret History of Consciousness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

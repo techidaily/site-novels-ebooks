@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2025-01-09T16:48:24.906Z
-updated: 2025-01-12T23:41:38.373Z
+date: 2025-01-12T16:27:01.666Z
+updated: 2025-01-18T21:47:02.737Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,17 +179,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2211464-9780007478552-aquarius-2013-your-personal-horoscope/"><u>Aquarius 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211457-9780007478545-cancer-2013-your-personal-horoscope/"><u>Cancer 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211456-9780007478538-gemini-2013-your-personal-horoscope/"><u>Gemini 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211458-9780007478569-leo-2013-your-personal-horoscope/"><u>Leo 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211460-9780007478613-libra-2013-your-personal-horoscope/"><u>Libra 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211465-9780007478576-pisces-2013-your-personal-horoscope/"><u>Pisces 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211462-9780007478620-sagittarius-2013-your-personal-horoscope/"><u>Sagittarius 2013: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211461-9780007478590-scorpio-2013-your-personal-horoscope/"><u>Scorpio 2013: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573342-9780595767359-after-eden/"><u>After Eden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573223-9781462010165-healing-for-the-soul/"><u>Healing for the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573423-9781475931020-miracle-from-the-heart/"><u>Miracle from the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573139-9780595877775-poems-of-the-holocaust-and-poems-of-faith/"><u>Poems of the Holocaust and Poems of Faith | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Clouds of Heaven, Beings of Light | Free Book
-date: 2024-10-20T04:55:18.296Z
-updated: 2024-10-26T23:41:37.140Z
+date: 2025-01-13T16:52:43.619Z
+updated: 2025-01-18T19:26:36.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9011c2c78850a5aae5da945a85404d59b369d325b8f674b68686008bf527b3d0.jpg
@@ -157,3 +157,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9011c2c78850a5aae5da945a85404d5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95660105-9781515413752-a-short-method-of-prayer/"><u>A Short Method of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95660104-9781515413592-a-spiritual-canticle-of-the-soul-and-the-bridegroom-christ/"><u>A Spiritual Canticle of the Soul and the Bridegroom Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95662950-9780738220277-and-breathe/"><u>And Breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95662947-9780762463084-practical-magic/"><u>Practical Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95660839-9781786780591-seven-steps-into-angel-light/"><u>Seven Steps into Angel Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

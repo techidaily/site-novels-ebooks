@@ -1,7 +1,7 @@
 ---
 title: Working With Spirit Guides | Free Book
-date: 2024-10-25T04:10:11.396Z
-updated: 2024-10-27T04:33:03.106Z
+date: 2025-01-17T21:48:46.836Z
+updated: 2025-01-18T18:35:24.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9529dbc4bce2c54ac5d77d1368901f6496172db9138ebd3878da91300390d61.jpg
@@ -158,3 +158,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9529dbc4bce2c54ac5d77d1368901f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316742-9781401924843-angel-kids/"><u>Angel Kids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316717-9781401919276-ask-and-it-is-given/"><u>Ask and It Is Given | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316737-9781401920586-everything-you-need-to-know-to-feel-good/"><u>Everything You Need to Know to Feel Go(o)d | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316741-9781401923693-love-has-forgotten-no-one/"><u>Love Has Forgotten No One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316739-9781401921354-money-and-the-law-of-attraction/"><u>Money, and the Law of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316732-9781401926052-the-intuitive-advisor/"><u>The Intuitive Advisor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316720-9781401921415-the-time-has-come-to-accept-your-intuitive-gifts/"><u>The Time Has Come... to Accept Your Intuitive Gifts! | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

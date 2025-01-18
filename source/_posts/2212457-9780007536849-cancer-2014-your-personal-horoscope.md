@@ -1,7 +1,7 @@
 ---
 title: "Cancer 2014: Your Personal Horoscope | Free Book"
-date: 2024-10-24T17:04:36.201Z
-updated: 2024-10-27T02:39:44.773Z
+date: 2025-01-13T21:29:34.603Z
+updated: 2025-01-18T18:12:42.283Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/afba4594f70fba626e03a2364480eda402c66b0b8f2283855c00ab3201b52082.jpg
@@ -162,3 +162,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/afba4594f70fba626e03a2364480eda
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782363-9781591438649-call-of-the-great-spirit/"><u>Call of the Great Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782357-9781591437864-sekhmet/"><u>Sekhmet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782360-9781591438076-slave-species-of-the-gods-2nd-ed/"><u>Slave Species of the Gods (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782358-9781591432869-the-lost-art-of-heart-navigation-2nd-ed/"><u>The Lost Art of Heart Navigation (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782364-9781591439615-the-mind-chronicles/"><u>The Mind Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782356-9781591438823-the-secret-initiation-of-jesus-at-qumran/"><u>The Secret Initiation of Jesus at Qumran | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782361-9781591439189-the-stairway-to-heaven-book-ii/"><u>The Stairway to Heaven (Book II) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2025-01-03T17:04:46.982Z
-updated: 2025-01-06T16:22:18.297Z
+date: 2025-01-11T22:04:27.184Z
+updated: 2025-01-18T22:34:38.592Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,14 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210698888-9789692592468-culture-awareness/"><u>Culture Awareness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210697182-9780593594995-falling-back-in-love-with-being-human/"><u>Falling Back in Love with Being Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210697890-9780473655464-reweaving-the-web-a-shamanic-journey-of-connection/"><u>Reweaving The Web- A Shamanic Journey of Connection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210697917-9780639723426-the-compassionate-activist/"><u>The Compassionate Activist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210697901-9780645273120-total-reset/"><u>Total Reset | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1810816-9781501108310-a-survival-guide-for-landlocked-mermaids/"><u>A Survival Guide for Landlocked Mermaids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1813581-9781476613161-hauntings-and-poltergeists/"><u>Hauntings and Poltergeists | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1812039-9781101664452-infinite-life/"><u>Infinite Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1813711-9781583949467-moonlight-leaning-against-an-old-rail-fence/"><u>Moonlight Leaning Against an Old Rail Fence | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

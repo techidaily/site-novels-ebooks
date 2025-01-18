@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2024-12-30T16:12:55.903Z
-updated: 2025-01-06T16:36:23.685Z
+date: 2025-01-14T18:47:58.979Z
+updated: 2025-01-18T17:42:44.159Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,15 +164,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210710302-9781642506914-close-to-the-bone/"><u>Close to the Bone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710264-9781642504484-let-go-now/"><u>Let Go Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710313-9781642507751-magical-trees/"><u>Magical Trees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710283-9781642505382-new-beginnings/"><u>New Beginnings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710247-9781642502893-prayers-for-healing/"><u>Prayers for Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710267-9781642504507-sacred-codes-in-times-of-crisis/"><u>Sacred Codes in Times of Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1963620-9781780287867-gods-blueprint/"><u>God's Blueprint | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1962796-9781614290698-mindfulness-a-to-z/"><u>Mindfulness A to Z | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1961555-9780983346678-stepping-into-ourselves/"><u>Stepping Into Ourselves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/196349-9781596255173-the-kingdom-of-god-is-within-you/"><u>The Kingdom of God is Within You | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

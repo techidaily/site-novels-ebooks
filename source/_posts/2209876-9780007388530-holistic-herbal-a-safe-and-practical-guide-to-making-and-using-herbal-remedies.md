@@ -1,7 +1,7 @@
 ---
 title: "Holistic Herbal: A Safe and Practical Guide to Making and Using Herbal Remedies | Free Book"
-date: 2024-10-26T04:54:25.414Z
-updated: 2024-10-27T04:35:35.766Z
+date: 2025-01-12T19:54:24.957Z
+updated: 2025-01-18T21:46:38.004Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f426f6af09bccf3d92d803350910b57085474bc6c8514aa5f0c011933533ded.jpg
@@ -158,3 +158,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f426f6af09bccf3d92d803350910b5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95810540-9781507143643-arcanos-maiores-do-tarot-o-seu-significado-sem-recorrer-a-memoria/"><u>Arcanos Maiores do Tarot: o seu significado sem recorrer à memória. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809100-9781944529123-precognition-and-retrocognition/"><u>Precognition and Retrocognition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809797-9781507143513-predictive-astrology-a-new-discovery-in-the-transits-reading/"><u>Predictive Astrology, a new discovery in the transits reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810928-9781944529307-psychic-phenomena-and-mystical-experience/"><u>Psychic Phenomena and Mystical Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810344-9781616409777-rightly-dividing-the-word/"><u>Rightly Dividing the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809905-9781944529253-the-emergence-of-paraphysics-theoretical-foundations/"><u>The Emergence of Paraphysics: Theoretical Foundations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809320-9781944529093-the-psychic-personality/"><u>The Psychic Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809021-9781944529154-the-psychobiology-of-psi/"><u>The Psychobiology of Psi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810808-9781786781383-the-shadow-that-seeks-the-sun/"><u>The Shadow That Seeks the Sun | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

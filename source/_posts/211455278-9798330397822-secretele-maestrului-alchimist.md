@@ -1,7 +1,7 @@
 ---
 title: Secretele maestrului alchimist | Free Book
-date: 2024-10-19T18:41:54.896Z
-updated: 2024-10-27T01:39:54.068Z
+date: 2025-01-16T21:25:41.892Z
+updated: 2025-01-18T21:27:36.616Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3aea53b33fb28ccd70d65c31ca2e659cda4238fe4314394cb477ba16bf080248.jpg
@@ -169,3 +169,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3aea53b33fb28ccd70d65c31ca2e659
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96489687-9781578594412-real-nightmares-book-9/"><u>Real Nightmares (Book 9) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96497618-9781118039816-shaman-wisdom-shaman-healing/"><u>Shaman Wisdom, Shaman Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489694-9781578596652-supernatural-gods/"><u>Supernatural Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96490194-9781595808943-the-99th-monkey/"><u>The 99th Monkey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96497973-9780470352632-vital-energy/"><u>Vital Energy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

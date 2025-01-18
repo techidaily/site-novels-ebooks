@@ -1,7 +1,7 @@
 ---
 title: The Logic of Enlightenment | Free Book
-date: 2024-10-22T00:39:04.623Z
-updated: 2024-10-26T19:59:55.037Z
+date: 2025-01-12T21:49:29.697Z
+updated: 2025-01-18T20:38:31.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/044a7caf0aa427682ebb963cb5a58ac1d12d795226628c6fa9720f14957ccaec.jpg
@@ -157,3 +157,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/044a7caf0aa427682ebb963cb5a58ac
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95705538-9781786781024-enlightenment-is-your-nature/"><u>Enlightenment Is Your Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95705550-9781786781093-sensation/"><u>Sensation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95705554-9781786781109-the-hidden-secrets-of-water/"><u>The Hidden Secrets of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95705546-9781786781000-the-transformative-power-of-near-death-experiences/"><u>The Transformative Power of Near-Death Experiences | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

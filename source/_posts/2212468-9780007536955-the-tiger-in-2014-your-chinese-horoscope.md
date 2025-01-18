@@ -1,7 +1,7 @@
 ---
 title: "The Tiger in 2014: Your Chinese Horoscope | Free Book"
-date: 2024-10-25T03:53:21.840Z
-updated: 2024-10-26T21:37:01.494Z
+date: 2025-01-14T18:59:54.329Z
+updated: 2025-01-18T21:51:32.586Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bca6a68a27fa25047116f09eafc6959250205f16a5059d2b0f9bb068bdbc341e.jpg
@@ -167,3 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bca6a68a27fa25047116f09eafc6959
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782458-9781591438137-breaking-the-mirror-of-heaven/"><u>Breaking the Mirror of Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782456-9781591438427-breathing/"><u>Breathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782451-9781591439370-earth/"><u>Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782453-9781591438038-how-to-create-sacred-water/"><u>How to Create Sacred Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782452-9781591432685-the-lost-continent-of-pan/"><u>The Lost Continent of Pan | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

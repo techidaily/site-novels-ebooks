@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2025-01-12T03:22:10.979Z
-updated: 2025-01-12T20:49:59.006Z
+date: 2025-01-14T22:24:50.029Z
+updated: 2025-01-18T16:13:51.685Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,18 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/260638-9781101218945-phenomenon/"><u>Phenomenon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260660-9781101210321-prophecy/"><u>Prophecy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2608950-9780553419627-surviving-death/"><u>Surviving Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260769-9781101209738-sylvia-brownes-book-of-dreams/"><u>Sylvia Browne's Book of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260773-9781101217313-taming-the-tiger-within/"><u>Taming the Tiger Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260439-9781101220054-the-haunting-of-the-presidents/"><u>The Haunting of the Presidents | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260865-9781101210550-the-new-american-dream-dictionary/"><u>The New American Dream Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260889-9781101204238-the-science-of-vampires/"><u>The Science of Vampires | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2604998-9781250130617-yoga/"><u>Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621176-9781601639288-a-wiccan-bible/"><u>A Wiccan Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621180-9781601639905-companion-for-the-apprentice-wizard/"><u>Companion for the Apprentice Wizard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621189-9781601637154-encyclopedia-of-the-undead/"><u>Encyclopedia of the Undead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621185-9781601636430-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of Ghosts and Hauntings | Free Book
-date: 2024-10-25T03:30:05.086Z
-updated: 2024-10-26T16:37:45.268Z
+date: 2025-01-13T19:50:02.777Z
+updated: 2025-01-18T17:09:26.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae5161f490d60ab3e914ea7dec3a4ebf92c000d9c59b199d0f559d5991cdf324.jpg
@@ -182,3 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae5161f490d60ab3e914ea7dec3a4eb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95801732-9781912023424-five-minutes-in-the-morning/"><u>Five Minutes in the Morning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95801756-9781912023066-pause/"><u>Pause | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95801825-9789386797056-the-only-life/"><u>The Only Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95801744-9781912023257-walking-in-the-rain/"><u>Walking in the Rain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95801743-9781912023240-washing-up-is-good-for-you/"><u>Washing up is Good for you | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

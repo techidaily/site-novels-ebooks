@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Ohio Ghost Stories | Free Book
-date: 2024-10-23T17:45:05.647Z
-updated: 2024-10-26T21:35:11.769Z
+date: 2025-01-12T18:33:44.422Z
+updated: 2025-01-18T21:57:36.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d0bb0f75c8ded95c423f95f271f09681b59573781f1d405633cced2c9ba213ed.jpg
@@ -149,3 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d0bb0f75c8ded95c423f95f271f0968
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/360514-9781440628207-answered-prayers/"><u>Answered Prayers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/360633-9781440650666-the-complete-idiots-guide-to-past-life-regression/"><u>The Complete Idiot's Guide to Past Life Regression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/360650-9781440627620-the-gift-of-pain/"><u>The Gift of Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/360655-9781440650833-the-inner-west/"><u>The Inner West | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

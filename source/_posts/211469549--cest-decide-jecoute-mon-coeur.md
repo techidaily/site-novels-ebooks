@@ -1,7 +1,7 @@
 ---
 title: C'est décidé, j'écoute mon coeur | Free Book
-date: 2024-10-21T02:35:20.083Z
-updated: 2024-10-26T18:41:32.661Z
+date: 2025-01-12T17:35:43.084Z
+updated: 2025-01-18T18:23:14.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7830e120c03f9984a04767513e36469c540c5cb059f707c9491ea320cc1134e6.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7830e120c03f9984a04767513e36469
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317512-9781848505995-life-among-the-dead/"><u>Life Among the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317531-9781401919542-my-psychic-journey/"><u>My Psychic Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317532-9781401919580-remembering-the-future/"><u>Remembering the Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317514-9781848506091-the-power-of-premonitions/"><u>The Power of Premonitions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317519-9781848506237-why-do-bad-things-happen/"><u>Why Do Bad Things Happen? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: 20 MINUTES TO MASTER ... PAST LIFE THERAPY | Free Book
-date: 2024-10-23T01:23:24.338Z
-updated: 2024-10-27T03:42:28.712Z
+date: 2025-01-17T17:06:08.113Z
+updated: 2025-01-18T19:43:37.404Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/264c4051accdb9cb383f0fdfd98b259ec3583a88fc3db6e7b1ec4412967d2526.jpg
@@ -177,3 +177,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/264c4051accdb9cb383f0fdfd98b259
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782312-9781591438557-inner-child-cards-workbook/"><u>Inner Child Cards Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782309-9781591438151-meditations-with-the-hopi/"><u>Meditations with the Hopi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782306-9781591438236-meditations-with-the-lakota-2nd-ed/"><u>Meditations with the Lakota (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782307-9781591438892-meditations-with-the-navajo/"><u>Meditations with the Navajo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782313-9781591439431-planetary-healing/"><u>Planetary Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782311-9781591438366-plant-intelligence-and-the-imaginal-realm/"><u>Plant Intelligence and the Imaginal Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782308-9781591438212-pleiadian-perspectives-on-human-evolution/"><u>Pleiadian Perspectives on Human Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782305-9781591438663-the-double-goddess/"><u>The Double Goddess | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

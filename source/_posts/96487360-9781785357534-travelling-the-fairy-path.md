@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2025-01-07T21:24:54.723Z
-updated: 2025-01-12T20:27:25.161Z
+date: 2025-01-16T22:27:32.637Z
+updated: 2025-01-18T19:52:31.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,14 +153,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2609950-9781856753685-the-little-book-of-inner-peace/"><u>The Little Book of Inner Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2609963-9781841814650-the-qigong-bible/"><u>The Qigong Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260942-9781101210147-visits-from-the-afterlife/"><u>Visits from the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260946-9781101204214-walking-in-the-garden-of-souls/"><u>Walking in the Garden of Souls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/260957-9781101203163-whats-missing/"><u>What's Missing? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621195-9781601637178-nostradamus-bibliomancer/"><u>Nostradamus, Bibliomancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621200-9781601635402-on-the-edge-of-reality/"><u>On the Edge of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621197-9781601634146-sky-people/"><u>Sky People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621193-9781601635907-spell-castings/"><u>Spell Castings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621198-9781632658876-the-gods-never-left-us/"><u>The Gods Never Left Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621190-9781601636867-twilight-of-the-gods/"><u>Twilight of the Gods | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

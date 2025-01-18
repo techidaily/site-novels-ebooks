@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2025-01-11T20:26:53.017Z
-updated: 2025-01-13T05:10:26.199Z
+date: 2025-01-11T21:13:28.114Z
+updated: 2025-01-18T16:19:15.282Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,14 +246,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211435718-9798330330973-a-good-fight-of-faith/"><u>A Good Fight of Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435748-9798893910254-know-his-word-bible-study/"><u>Know His Word Bible Study | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436055-9798330284610-pearls-on-a-string/"><u>Pearls On A String | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436114-9781396325656-the-rosicrucian-mysteries/"><u>The Rosicrucian Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211436107-9781958997987-walking-on-water/"><u>Walking on Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152436-9781451696837-healing-with-the-arts/"><u>Healing with the Arts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144840-9781612832791-the-seven-chakra-sisters/"><u>The Seven Chakra Sisters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144833-9781612831329-the-witches-almanac-issue-30-spring-2011-to-spring-2012/"><u>The Witches' Almanac: Issue 30, Spring 2011 to Spring 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144830-9781609256159-voodoo-hoodoo-spellbook/"><u>Voodoo Hoodoo Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144843-9781612833095-we-are-the-children-of-the-stars/"><u>We Are the Children of the Stars | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

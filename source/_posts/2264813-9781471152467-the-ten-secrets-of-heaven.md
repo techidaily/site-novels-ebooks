@@ -1,7 +1,7 @@
 ---
 title: The Ten Secrets of Heaven | Free Book
-date: 2024-10-22T04:19:45.561Z
-updated: 2024-10-26T22:24:24.866Z
+date: 2025-01-13T16:03:54.846Z
+updated: 2025-01-18T21:14:50.746Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/48db50e2ee1c99ee1efb7c91db0de924f11df525a72b7313eeb7d58a9b3ad829.jpg
@@ -151,3 +151,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/48db50e2ee1c99ee1efb7c91db0de92
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/801220-9781429937412-awakening-your-psychic-powers/"><u>Awakening Your Psychic Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/797371-9781448117703-born-to-heal/"><u>Born To Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/798490-9780307807397-life-after-death/"><u>Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/800121-9781846949661-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/800107-9781780992112-the-fifth-disciple/"><u>The Fifth Disciple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/800119-9781846949401-time-to-change/"><u>Time to Change | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

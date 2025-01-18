@@ -1,7 +1,7 @@
 ---
 title: Agamben and the Signature of Astrology | Free Book
-date: 2024-10-22T17:22:31.387Z
-updated: 2024-10-26T17:46:36.232Z
+date: 2025-01-17T22:31:35.161Z
+updated: 2025-01-18T20:41:22.481Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45eebabb35fef57a8cd29b0b5b69a93c603a093364f545cc9fd33f6d6a6a4391.jpg
@@ -163,3 +163,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45eebabb35fef57a8cd29b0b5b69a93
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95659179-9781612833668-practical-spellcraft/"><u>Practical Spellcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95659180-9781612833705-the-little-book-of-dream-symbols/"><u>The Little Book of Dream Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652296-9781515412953-the-power-of-awareness/"><u>The Power Of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652300-9781515412915-the-power-of-your-subconscious-mind/"><u>The Power of Your Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95659178-9781633410343-the-witching-herbs/"><u>The Witching Herbs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

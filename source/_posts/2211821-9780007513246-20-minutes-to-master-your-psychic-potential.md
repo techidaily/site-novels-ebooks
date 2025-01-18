@@ -1,7 +1,7 @@
 ---
 title: 20 MINUTES TO MASTER … YOUR PSYCHIC POTENTIAL | Free Book
-date: 2024-10-24T18:09:31.161Z
-updated: 2024-10-26T23:21:14.136Z
+date: 2025-01-16T21:25:17.441Z
+updated: 2025-01-18T17:14:30.550Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a91b8fdf910e74f3e1a00cdcc96277523f4b7201def2ef522446377f71c47f4.jpg
@@ -185,3 +185,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a91b8fdf910e74f3e1a00cdcc96277
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782776-9781594778490-advanced-chi-nei-tsang/"><u>Advanced Chi Nei Tsang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782775-9781620553008-aspects-in-astrology/"><u>Aspects in Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782778-9781620553442-osogbo/"><u>Osogbo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782770-9781594775383-riding-windhorses/"><u>Riding Windhorses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782772-9781594776984-sex-and-the-intelligence-of-the-heart/"><u>Sex and the Intelligence of the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782777-9781620550632-taoist-astrology/"><u>Taoist Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782771-9781620550229-the-feng-shui-companion/"><u>The Feng Shui Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782774-9781620552841-the-five-dharma-types/"><u>The Five Dharma Types | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782773-9781620551363-the-future-of-human-experience/"><u>The Future of Human Experience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

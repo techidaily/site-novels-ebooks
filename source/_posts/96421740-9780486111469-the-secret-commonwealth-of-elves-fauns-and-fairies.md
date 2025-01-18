@@ -1,7 +1,7 @@
 ---
 title: The Secret Commonwealth of Elves, Fauns and Fairies | Free Book
-date: 2024-12-30T16:23:01.730Z
-updated: 2025-01-06T16:44:06.447Z
+date: 2025-01-17T16:08:06.609Z
+updated: 2025-01-18T22:29:24.922Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98003b2b3dc248ebba8af5ed8092e4b1dc0.jpg
@@ -168,18 +168,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210711609-9781402790836-12000-dreams-interpreted/"><u>12,000 Dreams Interpreted | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711292-9781911159117-a-comprehensive-guide-to-usui-reiki-1-the-first-degree-of-reiki-energy-healing/"><u>A Comprehensive Guide To Usui Reiki 1. The First Degree Of Reiki Energy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711286-9781911159131-a-comprehensive-guide-to-usui-reiki-2-the-second-degree-of-reiki-energy-healing/"><u>A Comprehensive Guide To Usui Reiki 2. The Second Degree Of Reiki Energy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711288-9781911159155-a-comprehensive-guide-to-usui-reiki-3-the-third-degree-of-reiki-energy-healing/"><u>A Comprehensive Guide To Usui Reiki 3. The Third Degree Of Reiki Energy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711255-9781739194529-a-little-witch-in-waiting/"><u>A Little Witch in Waiting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711571-9781402776236-how-to-heal-toxic-thoughts/"><u>How to Heal Toxic Thoughts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711262-9781088076774-white-flame/"><u>White Flame | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711299-9781959018520-wicca/"><u>Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711597-9781402789038-wiccapedia/"><u>Wiccapedia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985929-9781780284729-parkers-encyclopedia-of-astrology/"><u>Parkers' Encyclopedia of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1986033-9781250082176-queer-astrology-for-women/"><u>Queer Astrology for Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985932-9781780286280-the-blood-of-avalon/"><u>The Blood of Avalon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985918-9781780282541-the-knights-of-the-holy-grail/"><u>The Knights of the Holy Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985919-9781780282558-what-islam-did-for-us/"><u>What Islam Did For Us | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

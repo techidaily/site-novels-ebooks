@@ -1,7 +1,7 @@
 ---
 title: Mindfulness for Compassionate Living | Free Book
-date: 2024-10-24T20:42:43.423Z
-updated: 2024-10-26T21:22:58.507Z
+date: 2025-01-16T22:13:35.724Z
+updated: 2025-01-18T18:19:24.868Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66547b1ca4719e01a97dc0001e4c4a14685ea03417844e08f93a78f465c92dc0.jpg
@@ -167,3 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66547b1ca4719e01a97dc0001e4c4a1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95689281-9781440515583-ghostly-adventures/"><u>Ghostly Adventures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95688931-9781440534669-love-spells/"><u>Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95688930-9781440534676-prosperity-spells/"><u>Prosperity Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95688881-9781440525810-synchronicity-and-the-other-side/"><u>Synchronicity and the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95688836-9781440596827-the-modern-witchcraft-grimoire/"><u>The Modern Witchcraft Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95688851-9781440519024-the-psychic-workshop/"><u>The Psychic Workshop | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

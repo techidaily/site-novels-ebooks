@@ -1,7 +1,7 @@
 ---
 title: The Dalai Lama’s Little Book of Wisdom | Free Book
-date: 2024-10-21T16:48:48.570Z
-updated: 2024-10-26T18:52:31.519Z
+date: 2025-01-12T20:39:23.800Z
+updated: 2025-01-18T20:17:23.326Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/511c0937f5408500d9687ed4beb52ebe4f4096a929e2db59856dffd74cc35bcc.jpg
@@ -157,3 +157,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/511c0937f5408500d9687ed4beb52eb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782301-9781591432623-ecstatic-soul-retrieval/"><u>Ecstatic Soul Retrieval | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782300-9781591438335-lost-race-of-the-giants/"><u>Lost Race of the Giants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782297-9781591439684-lost-technologies-of-ancient-egypt/"><u>Lost Technologies of Ancient Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782302-9781591439011-merlin-and-the-discovery-of-avalon-in-the-new-world/"><u>Merlin and the Discovery of Avalon in the New World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782295-9781591439653-survivors-of-atlantis/"><u>Survivors of Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782304-9781591439561-the-earth-chronicles-expeditions-2nd-ed/"><u>The Earth Chronicles Expeditions (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782303-9781591439554-the-earth-chronicles-handbook/"><u>The Earth Chronicles Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782299-9781594779237-the-elixir-of-immortality/"><u>The Elixir of Immortality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782298-9781591438656-the-gospel-of-the-toltecs/"><u>The Gospel of the Toltecs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

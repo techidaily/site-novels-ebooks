@@ -1,7 +1,7 @@
 ---
 title: "Astrology: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-22T03:38:30.138Z
-updated: 2024-10-26T22:57:22.294Z
+date: 2025-01-14T19:29:55.992Z
+updated: 2025-01-18T16:36:05.989Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d3d179da90306221f0daec1d3697b783b5f78a81422206bbfc6a91dd4cf75b70.jpg
@@ -157,3 +157,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d3d179da90306221f0daec1d3697b78
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782286-9781620555262-origins-of-the-sphinx/"><u>Origins of the Sphinx | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782287-9781620550472-primal-awareness/"><u>Primal Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782288-9781594779183-rumis-four-essential-practices/"><u>Rumi's Four Essential Practices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782285-9781594776878-the-new-science-and-spirituality-reader/"><u>The New Science and Spirituality Reader | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

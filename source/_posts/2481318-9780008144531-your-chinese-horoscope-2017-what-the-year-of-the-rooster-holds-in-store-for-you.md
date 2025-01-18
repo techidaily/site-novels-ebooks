@@ -1,7 +1,7 @@
 ---
 title: "Your Chinese Horoscope 2017: What the Year of the Rooster holds in store for you | Free Book"
-date: 2024-10-22T20:33:07.862Z
-updated: 2024-10-26T21:19:37.136Z
+date: 2025-01-11T22:11:39.245Z
+updated: 2025-01-18T18:19:39.966Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bb6132ad8553671bd06aff3ce04217e6d57369f39d0550af6f297a5e015413bc.jpg
@@ -169,3 +169,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bb6132ad8553671bd06aff3ce04217e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/677981-9789814346047-feng-shui-in-chinese-architecture/"><u>Feng Shui in Chinese Architecture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/678227-9781459700703-ghosts-of-the-canadian-national-exhibition/"><u>Ghosts of the Canadian National Exhibition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/678218-9781459700970-jeepers-creepers/"><u>Jeepers Creepers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/677980-9789814346030-personalise-your-feng-shui/"><u>Personalise Your Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/678138-9781429997379-the-haunting-of-twentieth-century-america/"><u>The Haunting of Twentieth-Century America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/678231-9781554889952-the-oak-island-mystery-2nd-ed/"><u>The Oak Island Mystery (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

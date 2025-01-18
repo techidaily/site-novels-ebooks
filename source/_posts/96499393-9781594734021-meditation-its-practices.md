@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2025-01-06T01:41:29.240Z
-updated: 2025-01-12T16:45:21.558Z
+date: 2025-01-13T21:19:36.440Z
+updated: 2025-01-18T19:45:50.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,17 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2213956-9780008138110-the-dragon-in-2016-your-chinese-horoscope/"><u>The Dragon in 2016: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213959-9780008138141-the-goat-in-2016-your-chinese-horoscope/"><u>The Goat in 2016: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213958-9780008138134-the-horse-in-2016-your-chinese-horoscope/"><u>The Horse in 2016: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213953-9780008138080-the-ox-in-2016-your-chinese-horoscope/"><u>The Ox in 2016: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213955-9780008138103-the-rabbit-in-2016-your-chinese-horoscope/"><u>The Rabbit in 2016: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213952-9780008138073-the-rat-in-2016-your-chinese-horoscope/"><u>The Rat in 2016: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213957-9780008138127-the-snake-in-2016-your-chinese-horoscope/"><u>The Snake in 2016: Your Chinese Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213954-9780008138097-the-tiger-in-2016-your-chinese-horoscope/"><u>The Tiger in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576297-9781440183935-finding-our-center/"><u>Finding Our Center | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576367-9781450279314-from-hopeless-and-helpless-to-healing/"><u>From Hopeless and Helpless to Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576296-9781450246422-in-love-and-light/"><u>In Love and Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576286-9780595843923-keys-to-the-door-of-truth/"><u>Keys to the Door of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576209-9780595608584-my-body-my-earth/"><u>My Body, My Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576232-9780595905690-pray-it-forward/"><u>Pray It Forward | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576269-9780595750719-the-ghost-next-door/"><u>The Ghost Next Door | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

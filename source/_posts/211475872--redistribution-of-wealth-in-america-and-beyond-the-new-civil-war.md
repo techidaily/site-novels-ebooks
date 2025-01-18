@@ -1,7 +1,7 @@
 ---
 title: Redistribution Of Wealth In America And Beyond - The New Civil War | Free Book
-date: 2024-10-21T17:53:20.557Z
-updated: 2024-10-26T20:52:11.949Z
+date: 2025-01-14T19:06:53.017Z
+updated: 2025-01-18T17:50:06.671Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac305543bf1a005d6f3b5d172d000d0932c9e9f85c685cf1d25a0fa5f42e9b61.jpg
@@ -154,3 +154,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac305543bf1a005d6f3b5d172d000d0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96260999-9781788172684-astrology-made-easy/"><u>Astrology Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96260047-9780740787911-dream-it-dare-it-do-it/"><u>Dream It, Dare It, Do It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261000-9781788172738-feng-shui-made-easy/"><u>Feng Shui Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96237457-9781846014567-journey-into-mindfulness/"><u>Journey into Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96260778-9782268100234-la-maitrise-parfaite/"><u>La Maîtrise parfaite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96261001-9781788172806-tantra-made-easy/"><u>Tantra Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96260998-9781788172257-witchery/"><u>Witchery | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

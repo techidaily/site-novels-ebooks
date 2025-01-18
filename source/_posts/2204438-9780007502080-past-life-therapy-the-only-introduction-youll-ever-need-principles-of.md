@@ -1,7 +1,7 @@
 ---
 title: "Past Life Therapy: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-23T01:13:29.166Z
-updated: 2024-10-27T05:03:20.142Z
+date: 2025-01-14T16:33:21.837Z
+updated: 2025-01-18T21:40:21.533Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91a0bd02e05b5ede4019ad455f43034dc43345ddd4246326202731810b55deaf.jpg
@@ -162,3 +162,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91a0bd02e05b5ede4019ad455f43034
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95917954-9781591432944-ancient-giants/"><u>Ancient Giants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918121-9781683255222-como-predecir-el-futuro-con-las-cartas-de-la-sibila/"><u>Como predecir el futuro con las cartas de la Sibila | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917957-9781620557488-dmt-dialogues/"><u>DMT Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918122-9781683255239-entre-en-el-prodigioso-mundo-de-los-suenos/"><u>Entre en… el prodigioso mundo de los sueños | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917952-9781620557020-sacred-geometry-for-artists-dreamers-and-philosophers/"><u>Sacred Geometry for Artists, Dreamers, and Philosophers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95917953-9781620557228-the-fraternitas-saturni-5th-ed/"><u>The Fraternitas Saturni (5th ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

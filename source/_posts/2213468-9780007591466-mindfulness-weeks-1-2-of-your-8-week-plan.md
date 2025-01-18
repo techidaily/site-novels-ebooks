@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: Weeks 1-2 of Your 8-Week Plan | Free Book"
-date: 2024-10-23T05:05:44.239Z
-updated: 2024-10-26T16:41:20.283Z
+date: 2025-01-17T20:38:38.176Z
+updated: 2025-01-18T18:45:57.124Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7ce3c5c3402dc676020d774124a3e40cc856ad91a4ee3dc7c0a98cacb5d8029.jpg
@@ -182,3 +182,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7ce3c5c3402dc676020d774124a3e4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782027-9781620554500-merlin/"><u>Merlin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782024-9781594779244-microchakras/"><u>Microchakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782033-9781594777394-mysteries-of-the-bridechamber/"><u>Mysteries of the Bridechamber | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782026-9781594776090-nei-kung/"><u>Nei Kung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782023-9781594777738-the-dimensions-of-paradise-3rd-ed/"><u>The Dimensions of Paradise (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782032-9781620556337-the-dreamlife-of-families-2nd-ed/"><u>The Dreamlife of Families (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782030-9781594776403-the-gospel-of-philip/"><u>The Gospel of Philip | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782029-9781594776397-the-gospel-of-thomas/"><u>The Gospel of Thomas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782028-9781620554715-the-grail/"><u>The Grail | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Light of Conscience | Free Book
-date: 2024-10-22T20:52:42.306Z
-updated: 2024-10-26T19:15:43.811Z
+date: 2025-01-17T21:34:27.647Z
+updated: 2025-01-18T16:24:52.386Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4adb5ca8c0d877658aa1c9bcdba46c817e3db4be0db60d12b088c1886a64d267.jpg
@@ -205,3 +205,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4adb5ca8c0d877658aa1c9bcdba46c8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95633841-9781501157042-como-el-secreto-cambio-mi-vida-how-the-secret-changed-my-life-spanish-edition/"><u>Cómo El Secreto cambió mi vida (How The Secret Changed My Life Spanish edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95640836-9781579830489-divine-mother-divine-father/"><u>Divine Mother, Divine Father | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95635510-9780892546329-exploring-the-financial-universe/"><u>Exploring the Financial Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95641435-9780190466725-john-of-god/"><u>John of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95635511-9781633410169-love-magic/"><u>Love Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95633834-9781501169144-love-what-matters/"><u>Love What Matters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95635777-9781612833712-numerology-plain-simple/"><u>Numerology Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95637545-9781608684236-the-book-of-destinies/"><u>The Book of Destinies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95639095-9780750981316-the-borley-rectory-companion/"><u>The Borley Rectory Companion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Monsters of Massachusetts | Free Book
-date: 2024-10-24T21:39:08.460Z
-updated: 2024-10-26T21:51:50.231Z
+date: 2025-01-17T22:28:53.033Z
+updated: 2025-01-18T21:39:41.386Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5059aec490ce07bbe604d96dc7457ef7fe17327da37c9dad2ff3f97da68f901e.jpg
@@ -150,3 +150,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5059aec490ce07bbe604d96dc7457ef
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/414679-9780553906981-occult-america/"><u>Occult America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/412136-9781440695780-the-complete-idiots-guide-to-shamanism/"><u>The Complete Idiot's Guide to Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/412154-9781440696534-the-complete-idiots-guide-to-toltec-wisdom/"><u>The Complete Idiot's Guide to Toltec Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/412159-9781440696268-the-complete-idiots-guide-to-wicca-craft/"><u>The Complete Idiot's Guide to Wicca Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/412234-9781440696220-the-pocket-idiots-guide-to-feng-shui/"><u>The Pocket Idiot's Guide to Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/412260-9781440674259-the-science-of-mind-the-definitive-edition/"><u>The Science of Mind: The Definitive Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/412324-9781440674440-we-dont-die/"><u>We Don't Die | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

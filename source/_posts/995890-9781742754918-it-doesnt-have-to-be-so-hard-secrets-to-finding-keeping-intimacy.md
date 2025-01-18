@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2025-01-08T06:32:22.258Z
-updated: 2025-01-13T01:04:08.688Z
+date: 2025-01-12T22:17:01.049Z
+updated: 2025-01-18T20:54:41.064Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,13 +176,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211359524-9798869398253-los-carneros-de-panurgia/"><u>Los Carneros de Panúrgia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359581--mindfulness-and-presence/"><u>Mindfulness and Presence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355392-9781395865696-power-of-silence-30-day-course-book-daily-transformative-activities/"><u>Power of Silence 30 Day Course Book Daily Transformative Activities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211355322-9798990684027-win-the-battle-against-procrastination/"><u>Win the Battle Against Procrastination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512290-9781462907014-ayurveda/"><u>Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512417-9781462903924-japanese-secrets-to-beautiful-skin/"><u>Japanese Secrets to Beautiful Skin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512378-9781462904143-oriental-fortune-telling/"><u>Oriental fortune Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96512366-9781462904167-pocket-i-ching/"><u>Pocket I-Ching | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

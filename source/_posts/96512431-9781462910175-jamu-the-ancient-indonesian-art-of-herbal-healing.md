@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2025-01-08T02:34:02.522Z
-updated: 2025-01-12T16:29:00.651Z
+date: 2025-01-12T21:12:24.453Z
+updated: 2025-01-18T16:30:25.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,17 +175,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211374283-9781528799881-aradia-queen-of-witchcraft/"><u>Aradia, Queen of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373624-9781503639843-global-ayahuasca/"><u>Global Ayahuasca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373539-9798330204366-hes-not-gone/"><u>He's Not Gone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211373540-9791029916458-histeria-e-fenomenos-psiquicos/"><u>Histeria e Fenômenos Psíquicos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374282-9781528799874-malleus-maleficarum-hammer-of-the-witches/"><u>Malleus Maleficarum: Hammer of the Witches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374360--the-grounding-companion/"><u>The Grounding Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374281-9781528799898-the-magus/"><u>The Magus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211374314--the-witch-of-the-forests-guide-to-folklore-magick/"><u>The Witch of the Forest's Guide to Folklore Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/111010-9781598756104-a-survey-of-the-occult/"><u>A Survey of the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1109885-9780857010971-everyday-qigong-practice/"><u>Everyday Qigong Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1109001-9781476730974-fire-from-within/"><u>Fire from Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1108220-9780930872946-mastery-through-accomplishment/"><u>Mastery Through Accomplishment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1108999-9781476730981-separate-reality/"><u>Separate Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1108653-9780930872984-sufi-meditation-and-contemplation/"><u>Sufi Meditation and Contemplation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1110045-9781936012282-the-gift-of-grace/"><u>The Gift of Grace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

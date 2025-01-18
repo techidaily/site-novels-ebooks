@@ -1,7 +1,7 @@
 ---
 title: Sun Signs | Free Book
-date: 2024-10-19T23:17:30.875Z
-updated: 2024-10-26T16:03:23.591Z
+date: 2025-01-11T21:18:40.979Z
+updated: 2025-01-18T17:41:45.390Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/dcb9876ea3722eac3346d44fbd246b8bcc848063427396e0320cd94263d03dbb.jpg
@@ -164,3 +164,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dcb9876ea3722eac3346d44fbd246b8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316694-9781781809471-knowthetruth/"><u>#KnowTheTruth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316692-9781848505469-advanced-thetahealing/"><u>Advanced ThetaHealing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316705-9781848506916-angels-watching-over-me/"><u>Angels Watching Over Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316702-9781788170680-dogs-and-cats-have-souls-too/"><u>Dogs and Cats Have Souls Too | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316700-9781848503847-matrix-reimprinting-using-eft/"><u>Matrix Reimprinting using EFT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316706-9781848507449-past-present-and-future/"><u>Past, Present and Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316709-9781848509535-you-can-heal-yourself/"><u>You Can Heal Yourself | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

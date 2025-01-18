@@ -1,7 +1,7 @@
 ---
 title: "The Dragon in 2016: Your Chinese Horoscope | Free Book"
-date: 2024-10-22T23:09:44.533Z
-updated: 2024-10-26T21:46:11.127Z
+date: 2025-01-11T16:08:32.601Z
+updated: 2025-01-18T21:36:52.261Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ec4523288136d3a20ad394882b5c2ea1970102efeb51f9885c6295e4fb03eb8.jpg
@@ -169,3 +169,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ec4523288136d3a20ad394882b5c2e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782202-9781620553756-dictionary-of-ancient-magic-words-and-spells/"><u>Dictionary of Ancient Magic Words and Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782215-9781620554692-sacred-geometry-of-the-earth/"><u>Sacred Geometry of the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782200-9781620551882-the-book-of-grimoires/"><u>The Book of Grimoires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782205-9781594778865-the-complete-i-ching-10th-anniversary-edition-2nd-ed/"><u>The Complete I Ching — 10th Anniversary Edition (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782209-9781620552803-the-high-magic-of-talismans-and-amulets/"><u>The High Magic of Talismans and Amulets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782213-9781594778773-the-magus-of-java/"><u>The Magus of Java | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782214-9781620552773-the-self-actualizing-cosmos/"><u>The Self-Actualizing Cosmos | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

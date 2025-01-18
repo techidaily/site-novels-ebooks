@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Maryland Ghost Stories | Free Book
-date: 2024-10-20T16:21:26.220Z
-updated: 2024-10-26T18:54:13.573Z
+date: 2025-01-12T19:53:18.253Z
+updated: 2025-01-18T19:47:39.142Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ef17344405633ae200ecd31454e2aeb40696091cc58806809341e14df25ffaa9.jpg
@@ -134,3 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ef17344405633ae200ecd31454e2aeb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/401606-9780316049238-the-dream-book/"><u>The Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401609-9780446549349-the-eagle-and-the-rose/"><u>The Eagle and the Rose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401624-9780316186841-the-gift-of-nothing/"><u>The Gift of Nothing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401632-9780316045667-the-good-spell-book/"><u>The Good Spell Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401658-9780316055017-the-love-magic-book/"><u>The Love Magic Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

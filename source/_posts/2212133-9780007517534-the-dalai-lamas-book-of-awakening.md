@@ -1,7 +1,7 @@
 ---
 title: The Dalai Lama’s Book of Awakening | Free Book
-date: 2024-10-22T21:25:11.391Z
-updated: 2024-10-27T02:32:19.926Z
+date: 2025-01-14T16:09:59.816Z
+updated: 2025-01-18T20:32:16.562Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d535aa95d6b86e9e25e362143ea7e597bcebf2432987cbe19b1d6324bd8eb33f.jpg
@@ -172,3 +172,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d535aa95d6b86e9e25e362143ea7e59
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782280-9781594775291-a-spirituality-named-compassion/"><u>A Spirituality Named Compassion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782282-9781620555361-the-finger-and-the-moon/"><u>The Finger and the Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782281-9781594779961-the-forbidden-rumi/"><u>The Forbidden Rumi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782283-9781594776502-the-magus-of-freemasonry/"><u>The Magus of Freemasonry | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "The Monkey in 2013: Your Chinese Horoscope | Free Book"
-date: 2024-10-20T01:58:31.581Z
-updated: 2024-10-27T00:07:34.061Z
+date: 2025-01-11T20:11:34.457Z
+updated: 2025-01-18T19:30:54.861Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a988622b0850768cc762e3bad97afdc6b4753866dc08c7c9fa94270b8ddaba1b.jpg
@@ -200,3 +200,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a988622b0850768cc762e3bad97afdc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782695-9781594776991-cosmic-astrology/"><u>Cosmic Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782689-9781594776656-darkness-visible/"><u>Darkness Visible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782691-9781594778513-healing-light-of-the-tao-2nd-ed/"><u>Healing Light of the Tao (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782697-9781620556801-journeys-in-the-kali-yuga/"><u>Journeys in the Kali Yuga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782693-9781594776274-shamanic-christianity/"><u>Shamanic Christianity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782692-9781594775567-the-world-dream-book/"><u>The World Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782694-9781594777233-the-world-is-as-you-dream-it/"><u>The World Is As You Dream It | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

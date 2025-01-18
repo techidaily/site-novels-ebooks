@@ -1,7 +1,7 @@
 ---
 title: "The Witches' Almanac: Issue 35, Spring 2016 to Spring 2017 | Free Book"
-date: 2024-10-26T05:32:02.790Z
-updated: 2024-10-26T22:04:16.328Z
+date: 2025-01-12T18:26:01.230Z
+updated: 2025-01-18T16:04:41.755Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16196908da926f0a83f9bd94e1a677d9ec17d71f6ab97e965eacd749b89c9bc8.jpg
@@ -174,3 +174,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16196908da926f0a83f9bd94e1a677d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96316976-9781781800973-an-introduction-to-the-lightning-process/"><u>An Introduction to the Lightning Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316974-9781781808498-finding-your-soul-mate-with-thetahealing/"><u>Finding Your Soul Mate with ThetaHealing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316960-9781401949525-kindling-the-native-spirit/"><u>Kindling the Native Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316961-9781401945510-reality-spirituality-and-modern-man/"><u>Reality, Spirituality and Modern Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316977-9781401949280-sole-guidance/"><u>Sole Guidance | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

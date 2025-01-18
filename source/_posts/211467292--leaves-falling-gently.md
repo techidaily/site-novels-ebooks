@@ -1,7 +1,7 @@
 ---
 title: Leaves Falling Gently | Free Book
-date: 2024-10-25T05:45:21.831Z
-updated: 2024-10-26T16:55:07.174Z
+date: 2025-01-11T20:10:12.286Z
+updated: 2025-01-18T16:44:04.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e948f1f68d7949c06c397c0bf023bc825d1331ce7f13ab583033aecf39e02a45.jpg
@@ -154,3 +154,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e948f1f68d7949c06c397c0bf023bc8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/96317370-9781401919498-love-thyself/"><u>Love Thyself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317366-9789384544430-miracles-with-eft/"><u>Miracles with EFT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317373-9781401922160-soul-lessons-and-soul-purpose/"><u>Soul Lessons and Soul Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317369-9781401920999-the-intuitive-spark/"><u>The Intuitive Spark | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

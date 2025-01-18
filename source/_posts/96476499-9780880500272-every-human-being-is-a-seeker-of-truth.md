@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2025-01-10T20:18:25.753Z
-updated: 2025-01-12T23:46:11.563Z
+date: 2025-01-15T19:44:49.853Z
+updated: 2025-01-18T18:10:02.654Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,16 +166,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/316791-9780974274904-5-gifts-for-an-abundant-life/"><u>5 Gifts for an Abundant Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/315110-9781881165200-angels-among-us/"><u>Angels Among Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/315660-9781416571513-ghost-hunting/"><u>Ghost Hunting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/315664-9781416571483-soul-to-soul/"><u>Soul to Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/313025-9781416554400-the-5-rules-of-thought/"><u>The 5 Rules of Thought | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/313032-9781416571629-the-new-science-of-getting-rich/"><u>The New Science of Getting Rich | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/317380-9781416575610-the-way-of-the-fertile-soul/"><u>The Way of the Fertile Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1576827-9781459726567-satanism-and-demonology/"><u>Satanism and Demonology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1576837-9781459725577-the-ufo-files/"><u>The UFO Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1576836-9781459725607-toward-wisdom/"><u>Toward Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1576838-9781459725560-ufos-over-canada/"><u>UFOs Over Canada | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

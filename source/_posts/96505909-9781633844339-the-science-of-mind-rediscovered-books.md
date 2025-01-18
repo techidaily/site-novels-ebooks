@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2025-01-11T03:48:21.306Z
-updated: 2025-01-13T03:18:04.456Z
+date: 2025-01-13T18:38:32.679Z
+updated: 2025-01-18T18:32:07.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,16 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211393920-9781250266835-a-monks-guide-to-happiness/"><u>A Monk's Guide to Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394058-9781507301418-living-a-life-in-balance/"><u>Living a Life in Balance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211393909-9781507300534-skeleton-keys/"><u>Skeleton Keys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394037-9781507301111-tarot-for-the-fiction-writer/"><u>Tarot for the Fiction Writer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211393878-9781507301685-the-healthy-witch/"><u>The Healthy Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211393424-9781466834835-the-mothman-prophecies/"><u>The Mothman Prophecies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211393922-9781429987998-ufo-hunters/"><u>UFO Hunters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125674-9781609255442-dowsing-beyond-duality/"><u>Dowsing Beyond Duality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125675-9781609255367-dr-quantums-little-book-of-big-ideas/"><u>Dr. Quantum's Little Book Of Big Ideas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125678-9781609251499-dreaming-of-the-council-ways/"><u>Dreaming of the Council Ways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125679-9781609251512-the-druid-magic-handbook/"><u>The Druid Magic Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

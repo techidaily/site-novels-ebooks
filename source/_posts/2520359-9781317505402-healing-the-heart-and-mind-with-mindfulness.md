@@ -1,7 +1,7 @@
 ---
 title: Healing the Heart and Mind with Mindfulness | Free Book
-date: 2024-10-25T23:08:56.676Z
-updated: 2024-10-26T23:52:31.148Z
+date: 2025-01-13T20:48:23.025Z
+updated: 2025-01-18T22:01:33.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47dca9071f5cec9f7105930c195619ea82f4b7df7956b08899b3430bcd69260d.jpg
@@ -272,3 +272,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47dca9071f5cec9f7105930c195619e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/501616-9780307565709-feng-shui-and-health/"><u>Feng Shui and Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/503465-9780307755629-letting-everything-become-your-teacher/"><u>Letting Everything Become Your Teacher | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/501899-9780307557834-medicine-for-the-earth/"><u>Medicine for the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/502231-9781776511068-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/510374-9781556439445-the-cracking-tower/"><u>The Cracking Tower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/503425-9780307754868-the-edgar-cayce-handbook-for-creating-your-future/"><u>The Edgar Cayce Handbook for Creating Your Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/516443-9781101186602-the-real-history-of-the-end-of-the-world/"><u>The Real History of the End of the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/501664-9780307490209-the-rising-sign/"><u>The Rising Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/516362-9781101404577-the-science-of-premonitions/"><u>The Science of Premonitions | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

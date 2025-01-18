@@ -1,7 +1,7 @@
 ---
 title: What All the World’s A-Seeking | Free Book
-date: 2025-01-08T02:49:35.563Z
-updated: 2025-01-12T16:23:39.895Z
+date: 2025-01-12T19:00:19.879Z
+updated: 2025-01-18T19:14:42.424Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555bfdcc6a7f54df9f81071349024c853465d.jpg
@@ -138,13 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211416901-9783964464989-open-up-and-find-yourself/"><u>Open Up and Find Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416777-9781964959030-russian-edition-operating-in-abundance/"><u>Russian Edition - Operating in Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416306-9781797225562-tarot-for-creativity/"><u>Tarot for Creativity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211416759-9780645484632-the-practice-of-journaling-prayer-testimony-and-gratitude/"><u>The Practice of Journaling Prayer, Testimony, and Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126066-9781609250300-spirit-maps/"><u>Spirit Maps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126085-9781609250782-sun-of-god/"><u>Sun of gOd | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126089-9781609257101-tai-chi/"><u>Tai Chi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126083-9781609255046-the-study-of-witchcraft/"><u>The Study of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126098-9781609255718-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126099-9781609254346-the-tarot-book/"><u>The Tarot Book | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

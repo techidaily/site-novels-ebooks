@@ -1,7 +1,7 @@
 ---
 title: Bloody Mary's Guide to Hauntings, Horrors, and Dancing with the Dead | Free Book
-date: 2024-10-19T16:48:26.488Z
-updated: 2024-10-27T00:48:24.356Z
+date: 2025-01-15T19:37:12.300Z
+updated: 2025-01-18T20:27:21.024Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1cbc937f5665ecd43d3cdc55db97f7623895525db35ba818c7be63b12e0bb1b6.jpg
@@ -196,3 +196,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1cbc937f5665ecd43d3cdc55db97f76
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/675980-9780753547243-alien-dawn-an-investigation-into-the-contact-experience/"><u>Alien Dawn: An Investigation into the Contact Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/676317-9781846947476-essence-of-reality/"><u>Essence of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/673267-9781451654394-the-great-wing/"><u>The Great Wing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/675789-9781439147030-walk-in-balance/"><u>Walk in Balance | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

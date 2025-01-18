@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2025-01-02T16:01:00.683Z
-updated: 2025-01-06T16:47:47.822Z
+date: 2025-01-13T16:14:52.442Z
+updated: 2025-01-18T17:11:26.294Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,15 +147,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210681914-9781734687118-awaken-in-nature/"><u>Awaken In Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210679265-9781910559796-home-to-her/"><u>Home to Her | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210680785-9781800990609-let-it-go/"><u>Let It Go | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210681866-9798822901155-open-arms/"><u>Open Arms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210679355-9781591435020-shamanic-experience/"><u>Shamanic Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210681885-9781736787472-the-vision-partner-journal/"><u>The Vision Partner Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1682856-9780980885927-ascending-with-both-feet-on-the-ground/"><u>Ascending with Both Feet On the Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1683723-9781317994176-god-image-handbook-for-spiritual-counseling-and-psychotherapy/"><u>God Image Handbook for Spiritual Counseling and Psychotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1682855-9780980885941-love-it-forward/"><u>Love it Forward | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684660-9781466873889-love-lives-using-astrology-to-build-the-perfect-relationship-with-any-star-sign/"><u>Love Lives: Using Astrology to Build the Perfect Relationship with Any Star Sign | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684664-9781466873896-moon-signs-for-lovers/"><u>Moon Signs for Lovers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1680884-9780385348560-your-hidden-riches/"><u>Your Hidden Riches | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

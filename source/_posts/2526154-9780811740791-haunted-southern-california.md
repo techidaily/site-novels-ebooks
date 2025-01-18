@@ -1,7 +1,7 @@
 ---
 title: Haunted Southern California | Free Book
-date: 2024-10-20T18:32:33.983Z
-updated: 2024-10-26T17:33:04.284Z
+date: 2025-01-14T21:41:41.673Z
+updated: 2025-01-18T17:52:24.364Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32baf1a0f38713f52171fcf2f215f6307d1ac4875e43148c223abf5f781b5414.jpg
@@ -135,3 +135,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32baf1a0f38713f52171fcf2f215f63
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/597208-9781429907651-awareness/"><u>Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/596501-9781429907712-freedom/"><u>Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/596224-9781429914116-haunted-homeland/"><u>Haunted Homeland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/596770-9781429907736-joy/"><u>Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/596847-9781429979146-love-freedom-and-aloneness/"><u>Love, Freedom, and Aloneness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/596466-9781429979160-sex-matters/"><u>Sex Matters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/597024-9781429904179-the-gift/"><u>The Gift | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

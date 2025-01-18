@@ -1,7 +1,7 @@
 ---
 title: "Derek Acorah: Extreme Psychic | Free Book"
-date: 2024-10-22T17:37:02.136Z
-updated: 2024-10-26T17:48:10.871Z
+date: 2025-01-13T16:48:37.251Z
+updated: 2025-01-18T20:43:44.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/319cbb32d1d1ee6a6dd989bb3ad42508a13899782911618f91b5c18a43a76fdb.jpg
@@ -171,3 +171,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/319cbb32d1d1ee6a6dd989bb3ad4250
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95929168-9781507198902-abuso-e-espancamento-de-vitima-a-vitoriosa/"><u>Abuso e Espancamento: de vítima a vitoriosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95923439-9781459742482-ghost-stories-and-legends-of-prince-edward-island-2nd-ed/"><u>Ghost Stories and Legends of Prince Edward Island (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95929430-9781788882798-greatest-mysteries-of-the-unexplained/"><u>Greatest Mysteries of the Unexplained | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931646-9781507208335-protection-spells/"><u>Protection Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95929210-9781547510832-psychosomatic-disorders-ii/"><u>Psychosomatic Disorders II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95929435-9781788880527-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95925450-9781786781659-the-original-i-ching-oracle-or-the-book-of-changes/"><u>The Original I Ching Oracle or The Book of Changes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931614-9781501115059-wisdom-rising/"><u>Wisdom Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931169-9781841882826-your-zodiac-soul/"><u>Your Zodiac Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

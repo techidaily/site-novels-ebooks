@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: Weeks 5-6 of Your 8-Week Plan | Free Book"
-date: 2024-10-23T05:57:50.425Z
-updated: 2024-10-27T02:55:47.069Z
+date: 2025-01-15T21:31:35.919Z
+updated: 2025-01-18T19:11:19.846Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e952e46d114beef6fa116a65371414a73de0b25ee98747ed50cfdbfd8c409d4a.jpg
@@ -196,3 +196,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e952e46d114beef6fa116a65371414a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782044-9781594777677-gnostic-philosophy/"><u>Gnostic Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782043-9781594776151-gnostic-secrets-of-the-naassenes/"><u>Gnostic Secrets of the Naassenes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782047-9781594778094-new-consciousness-for-a-new-world/"><u>New Consciousness for a New World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782050-9781620554456-point-of-origin/"><u>Point of Origin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782054-9781594779404-precessional-time-and-the-evolution-of-consciousness/"><u>Precessional Time and the Evolution of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782053-9781620551981-return-of-the-golden-age/"><u>Return of the Golden Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782051-9781620552520-return-to-the-brain-of-eden-3rd-ed/"><u>Return to the Brain of Eden (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782046-9781594779206-the-law-of-attention-2nd-ed/"><u>The Law of Attention (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

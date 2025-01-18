@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Meditation | Free Book
-date: 2024-10-19T17:37:39.204Z
-updated: 2024-10-26T21:54:30.255Z
+date: 2025-01-11T17:45:24.706Z
+updated: 2025-01-18T20:24:57.256Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2a33f24e0d49932ba4c112c7ebb6d267cb887132ea2cf76ede82b28836515172.jpg
@@ -147,3 +147,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2a33f24e0d49932ba4c112c7ebb6d26
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/892926-9781448149889-21st-century-star-signs/"><u>21st Century Star Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896533-9781583945209-a-parents-guide-to-crystals/"><u>A Parent's Guide to Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/894415-9781118380482-become-more-mindful-in-a-day-for-dummies/"><u>Become More Mindful In A Day For Dummies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/902080-9781446446379-hands-on-healing-for-pets/"><u>Hands-On Healing For Pets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896530-9781583945124-radical-passion/"><u>Radical Passion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896535-9781583945230-the-christ-letters/"><u>The Christ Letters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896539-9781583945988-the-guru-papers/"><u>The Guru Papers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

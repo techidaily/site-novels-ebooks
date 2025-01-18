@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2025-01-06T00:59:58.482Z
-updated: 2025-01-13T06:09:58.584Z
+date: 2025-01-17T16:22:30.234Z
+updated: 2025-01-18T18:49:44.755Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,17 +145,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211441721--co-creating-with-nature/"><u>Co-Creating with Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441229-9798330354313-head-heart-crotch-connections/"><u>Head, Heart, Crotch Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441830--palmistry-for-happiness/"><u>Palmistry for Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441723--sacred-forest-bathing/"><u>Sacred Forest Bathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441440-9798330358267-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441832--the-languages-of-magic/"><u>The Languages of Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441722--the-psychedelic-shaman/"><u>The Psychedelic Shaman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441765--the-sacred-mushroom-3rd-ed/"><u>The Sacred Mushroom (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1160131-9781609258795-pop-goes-the-witch/"><u>Pop! Goes the Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1161986-9781577313397-small-graces/"><u>Small Graces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1162004-9781577313298-still-the-mind/"><u>Still the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1162005-9781577313427-stillness-speaks/"><u>Stillness Speaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1161993-9781577318064-the-spiral-of-memory-and-belonging/"><u>The Spiral of Memory and Belonging | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

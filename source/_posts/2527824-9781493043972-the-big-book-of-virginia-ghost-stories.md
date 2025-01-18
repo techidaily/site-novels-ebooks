@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Virginia Ghost Stories | Free Book
-date: 2024-10-20T17:21:15.340Z
-updated: 2024-10-27T03:43:45.996Z
+date: 2025-01-12T18:06:37.098Z
+updated: 2025-01-18T16:27:58.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b2e3aa12040dd81ff28f8e6ada69fc3e65b446f1a8d7c9f460df73139dfcde5.jpg
@@ -136,3 +136,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b2e3aa12040dd81ff28f8e6ada69fc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/341409-9780307419743-all-the-joy-you-can-stand/"><u>All the Joy You Can Stand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/341202-9780307422897-dream-dictionary/"><u>Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/340963-9780307423092-its-a-miracle/"><u>It's a Miracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/341407-9780307421432-perfect-health-revised-and-updated/"><u>Perfect Health--Revised and Updated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/341255-9780307422316-the-psychic-pathway/"><u>The Psychic Pathway | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/341398-9780307422484-the-world-to-come/"><u>The World to Come | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

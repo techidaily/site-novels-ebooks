@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness: Weeks 3-4 of Your 8-Week Plan | Free Book"
-date: 2024-10-24T05:07:29.624Z
-updated: 2024-10-27T00:02:44.090Z
+date: 2025-01-15T16:19:26.447Z
+updated: 2025-01-18T17:07:17.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e84c56a51a67fb505da8641c8f82a4f8f425680916c302013a9ae1762b3c38db.jpg
@@ -186,3 +186,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e84c56a51a67fb505da8641c8f82a4f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782035-9781594776243-arching-backward/"><u>Arching Backward | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782037-9781620551530-initiatic-eroticism/"><u>Initiatic Eroticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782042--music-and-its-secret-influence-5th-ed/"><u>Music and Its Secret Influence (5th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782039-9781594779299-tales-of-a-modern-sufi/"><u>Tales of a Modern Sufi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782041-9781620551769-the-esoteric-secrets-of-surrealism/"><u>The Esoteric Secrets of Surrealism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

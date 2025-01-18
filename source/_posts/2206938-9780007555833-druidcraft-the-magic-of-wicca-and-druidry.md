@@ -1,7 +1,7 @@
 ---
 title: "Druidcraft: The Magic of Wicca and Druidry | Free Book"
-date: 2024-10-26T05:06:00.529Z
-updated: 2024-10-26T18:41:41.904Z
+date: 2025-01-17T20:51:09.301Z
+updated: 2025-01-18T19:37:35.208Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b10ba40c234289107abde43d29b9f029098163e83da6a14b811c341c8baffcbb.jpg
@@ -176,3 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b10ba40c234289107abde43d29b9f02
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95918159-9781683255604-365-dias-con-los-angeles-una-oracion-para-cada-dia/"><u>365 días con los ángeles. Una oración para cada día | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918150-9781683255512-entre-en-el-mundo-de-la-radiestesia/"><u>Entre en… el mundo de la radiestesia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918152-9781683255536-las-claves-del-simbolismo-esoterico-para-descubrir-y-comprender-el-misterioso-lenguaje-esoterico-sus-codigos-y-sus-secretos/"><u>Las claves del simbolismo esotérico. Para descubrir y comprender el misterioso lenguaje esotérico, sus códigos y sus secretos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918154-9781683255550-los-angeles-los-historia-y-tipologia/"><u>Los ángeles. Los historia y tipología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918160-9781683255611-los-misterios-de-la-masoneria-historia-jerarquia-simbologia-secretos-masones-ilustres/"><u>Los misterios de la masonería. Historia, jerarquía, simbología, secretos, masones ilustres | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95918165-9781683255673-sabiduria-celta-el-libro-para-quienes-deseen-ahondar-en-las-ensenanzas-espirituales-que-subyacen-en-las-leyendas-de-la-sabiduria-celta/"><u>Sabiduría celta. El libro para quienes deseen ahondar en las enseñanzas espirituales que subyacen en las leyendas de la sabiduría celta | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: A Very Mindful Christmas | Free Book
-date: 2024-10-22T16:15:02.525Z
-updated: 2024-10-27T02:15:45.648Z
+date: 2025-01-12T20:16:49.464Z
+updated: 2025-01-18T18:02:05.214Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/876f5fb67f8e443d88a96a7ff060121f8ed4e14c2d02ccddbb0be969509e7080.jpg
@@ -165,3 +165,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/876f5fb67f8e443d88a96a7ff060121
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/883473--a-new-mind/"><u>A New Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/883627-9781439147542-dancing-with-the-wheel/"><u>Dancing with the Wheel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/887247-9781846948220-discovering-the-life-plan/"><u>Discovering the Life Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/887248-9781780992785-do-we-need-to-be-so-screwed-up/"><u>Do We Need To Be So Screwed Up?! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/887254-9781780991696-meeting-the-masters/"><u>Meeting the Masters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/887246-9781780990255-the-deeper-quest/"><u>The Deeper Quest | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

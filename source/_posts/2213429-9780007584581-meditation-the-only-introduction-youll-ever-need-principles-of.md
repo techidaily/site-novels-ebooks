@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The only introduction you’ll ever need (Principles of) | Free Book"
-date: 2024-10-23T21:43:03.562Z
-updated: 2024-10-27T04:11:28.334Z
+date: 2025-01-14T18:29:37.507Z
+updated: 2025-01-18T18:45:02.866Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a03a8adbcc113fd8550d9ead2053931fa00f16a9b5ce7593f72f80d304288308.jpg
@@ -166,3 +166,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a03a8adbcc113fd8550d9ead2053931
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95781683-9780895566102-book-of-floating/"><u>Book of Floating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782022-9781594775406-sun-dancing/"><u>Sun Dancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782021-9781594775895-tai-chi-according-to-the-i-ching/"><u>T'ai Chi According to the I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782020-9781620555606-tantric-kali/"><u>Tantric Kali | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95780352-9781101870419-this-life/"><u>This Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95778591-9781515412328-unveiled-mysteries/"><u>Unveiled Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95778596-9781515415145-what-all-the-worlds-a-seeking/"><u>What All the World’s A-Seeking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95781173-9781515415107-when-prophecy-fails/"><u>When Prophecy Fails | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95781176-9781515412335-wild-talents/"><u>Wild Talents | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

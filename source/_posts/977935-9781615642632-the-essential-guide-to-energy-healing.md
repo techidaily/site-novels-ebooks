@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2025-01-10T16:55:24.251Z
-updated: 2025-01-12T22:27:12.703Z
+date: 2025-01-16T16:04:12.889Z
+updated: 2025-01-18T20:48:29.648Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,18 +187,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383076-9781957811109-davidji/"><u>Davidji | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383088-9781957811918-discourses-volume-1-2013-2014/"><u>Discourses Volume 1, 2013-2014 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383077-9781957811024-discourses-volume-3-2016/"><u>Discourses Volume 3, 2016 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383053-9781957811062-discourses-volume-5-2018/"><u>Discourses Volume 5, 2018 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383161-9798330222988-el-poder-de-la-eleccion/"><u>El Poder de la Elección | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383199-9798990896918-know-thy-sound/"><u>Know Thy Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383101-9781957811147-notes-to-sadhakas/"><u>Notes to Sadhakas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383113-9798330221707-steigende-schlange/"><u>Steigende Schlange | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383245-9798990836419-the-sober-church/"><u>The SOBER Church | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124207-9781619400306-clairvoyance-in-time-past-future/"><u>Clairvoyance in Time: Past & Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124202-9781619400900-the-book-of-jasher-part-three/"><u>The Book of Jasher, Part Three | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124203-9781619400740-the-book-of-jasher-part-two/"><u>The Book of Jasher, Part Two | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124209-9781619400726-the-cloud-upon-the-sanctuary/"><u>The Cloud Upon the Sanctuary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124222-9781619400894-the-grand-and-noble-order-of-button-busters-a-side-degree-for-the-use-of-secret-societies-the-object-of-which-is-to-revive-interest-in-the-meetings-increase-the-a/"><u>The Grand and Noble Order of Button Busters: A Side Degree for the use of Secret Societies, the object of which is to Revive Interest in the Meetings, Increase the Attendance and Furnish Entertainment for the Members | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

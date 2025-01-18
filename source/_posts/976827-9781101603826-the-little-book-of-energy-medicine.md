@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2025-01-06T17:16:04.534Z
-updated: 2025-01-12T21:42:27.799Z
+date: 2025-01-17T17:37:21.104Z
+updated: 2025-01-18T22:38:53.732Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,15 +192,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211379929-9780061853272-eternal-echoes/"><u>Eternal Echoes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211380825-9798822950962-fulfilled/"><u>Fulfilled | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211380732--love-and-numbers/"><u>Love and Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211380330-9783892016700-mein-leben-das-ich-selbst-gewahlt/"><u>Mein Leben, das ich selbst gewählt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211378155-9780062434951-the-power-of-mercury/"><u>The Power of Mercury | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211380174--your-body-already-knows/"><u>Your Body Already Knows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124139-9781934708347-book-of-lies/"><u>Book of Lies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124125-9781609258405-steampunk-magic/"><u>Steampunk Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124126-9781612833064-the-afterlife-of-billy-fingers/"><u>The Afterlife of Billy Fingers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124143-9781934708217-the-egypt-code/"><u>The Egypt Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124130-9781618520296-travelers/"><u>Travelers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

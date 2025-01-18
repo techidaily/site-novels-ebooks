@@ -1,7 +1,7 @@
 ---
 title: "The Tiger in 2016: Your Chinese Horoscope | Free Book"
-date: 2024-10-19T21:59:54.447Z
-updated: 2024-10-26T17:40:10.885Z
+date: 2025-01-12T20:48:26.248Z
+updated: 2025-01-18T16:57:58.055Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d941a1629ba178d94ddaf2e4dfb47aebcd5cb131f0c562244cdf49bd0e25aad.jpg
@@ -169,3 +169,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d941a1629ba178d94ddaf2e4dfb47a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782177-9781594778575-atlantis-and-the-cycles-of-time/"><u>Atlantis and the Cycles of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782174-9781620550922-joseph-campbell-a-fire-in-the-mind/"><u>Joseph Campbell: A Fire in the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782173-9781594776571-judas-and-jesus/"><u>Judas and Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782171-9781620551622-kabbalah-and-the-power-of-dreaming/"><u>Kabbalah and the Power of Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782185-9781594776519-science-and-the-reenchantment-of-the-cosmos/"><u>Science and the Reenchantment of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782184-9781594777851-shakti/"><u>Shakti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782172-9781620555743-the-mystery-of-skara-brae/"><u>The Mystery of Skara Brae | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782180-9781594776830-the-return-of-the-dead/"><u>The Return of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782170-9781620550595-the-spiritual-art-of-dialogue/"><u>The Spiritual Art of Dialogue | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

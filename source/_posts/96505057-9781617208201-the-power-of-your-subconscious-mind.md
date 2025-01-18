@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-01-08T05:00:31.047Z
-updated: 2025-01-12T16:11:49.509Z
+date: 2025-01-15T17:56:52.712Z
+updated: 2025-01-18T20:12:53.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,15 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211446131-9798330374243-66-de-zile-pentru-a-ti-schimba-viata/"><u>66 de zile pentru a-ți schimba viața | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446013--be-like-the-wind/"><u>Be Like the Wind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446076-9781961827073-case-files-of-the-rocky-mountain-paranormal-research-society-volume-2/"><u>Case Files of the Rocky Mountain Paranormal Research Society Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446019--pagan-portals-a-guide-to-pilgrimage/"><u>Pagan Portals - A Guide to Pilgrimage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446018--pagan-portals-mestra-the-shapeshifter/"><u>Pagan Portals - Mestra the Shapeshifter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446140-9781964959092-romanian-edition/"><u>Romanian Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1204895-9781583947135-collapsing-consciously/"><u>Collapsing Consciously | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1204670-9780892545797-retire-your-family-karma/"><u>Retire Your Family Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1191831-9781476751948-the-secret-daily-teachings/"><u>The Secret Daily Teachings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1204559-9781441236708-witchcraft/"><u>Witchcraft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

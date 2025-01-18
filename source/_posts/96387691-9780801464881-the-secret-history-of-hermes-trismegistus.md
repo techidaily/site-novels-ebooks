@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2025-01-02T16:44:35.033Z
-updated: 2025-01-06T16:18:51.807Z
+date: 2025-01-17T22:15:46.145Z
+updated: 2025-01-18T19:53:40.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -214,17 +214,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210723311-9780760377130-astrology-for-the-cosmic-soul/"><u>Astrology for the Cosmic Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210724576-9798885057325-calm-your-storms-and-move-your-mountains/"><u>Calm Your Storms and Move Your Mountains | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723652-9781733032933-creating-joy-and-harmony-volume-1/"><u>Creating Joy and Harmony - Volume 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723464-9780486851600-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723569-9781662480256-escaping-out-of-the-matrix/"><u>Escaping Out of the Matrix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723178-9781788179478-the-book-of-runic-astrology/"><u>The Book of Runic Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723605-9798987406816-the-reality-of-free-will/"><u>The Reality of Free Will | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723312-9781578598144-the-witches-almanac/"><u>The Witches Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518617-9781620558218-jesse-james-and-the-lost-templar-treasure/"><u>Jesse James and the Lost Templar Treasure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518615-9781620558782-the-art-and-science-of-face-reading/"><u>The Art and Science of Face Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518616-9781620558683-the-energies-of-crop-circles/"><u>The Energies of Crop Circles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518614-9781591432982-wisdomkeepers-of-stonehenge/"><u>Wisdomkeepers of Stonehenge | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

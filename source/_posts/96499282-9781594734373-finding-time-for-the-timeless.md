@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2025-01-09T22:13:45.772Z
-updated: 2025-01-12T23:40:33.463Z
+date: 2025-01-14T17:15:49.319Z
+updated: 2025-01-18T22:13:49.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,18 +219,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2213950-9780008138059-aquarius-2016-your-personal-horoscope/"><u>Aquarius 2016: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213949-9780008138042-capricorn-2016-your-personal-horoscope/"><u>Capricorn 2016: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213946-9780008138011-libra-2016-your-personal-horoscope/"><u>Libra 2016: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213471-9780007591497-mindfulness-weeks-7-8-of-your-8-week-plan/"><u>Mindfulness: Weeks 7-8 of Your 8-Week Plan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213951-9780008138066-pisces-2016-your-personal-horoscope/"><u>Pisces 2016: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213948-9780008138035-sagittarius-2016-your-personal-horoscope/"><u>Sagittarius 2016: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213947-9780008138028-scorpio-2016-your-personal-horoscope/"><u>Scorpio 2016: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/221362-9781595472120-the-hermetic-arcanum/"><u>The Hermetic Arcanum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2213945-9780008138004-virgo-2016-your-personal-horoscope/"><u>Virgo 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576154-9781475915785-a-healers-guide-to-miracles/"><u>A Healer's Guide to Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576194-9781450298049-explaining-the-unexplained/"><u>Explaining the Unexplained | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576188-9781440135712-key-master/"><u>Key Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576192-9781440141164-the-re-birth-of-an-atlantean-queen/"><u>The Re-Birth of an Atlantean Queen | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

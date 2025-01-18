@@ -1,7 +1,7 @@
 ---
 title: The Big Book of Texas Ghost Stories | Free Book
-date: 2024-10-26T04:19:28.728Z
-updated: 2024-10-26T21:13:13.080Z
+date: 2025-01-12T20:40:34.615Z
+updated: 2025-01-18T18:50:03.721Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7622927222bdedbfd0803c31be3541f845225897710c09ffdcf213edb74e3b39.jpg
@@ -150,3 +150,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7622927222bdedbfd0803c31be3541f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/617406-9780875868189-aliens-and-man/"><u>Aliens and Man? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620347-9780307783790-essential-psychic-healing/"><u>Essential Psychic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617474-9781849892445-horoscopes-your-future-in-2011/"><u>Horoscopes - Your Future In 2011 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620290-9780307785879-hunab-ku/"><u>Hunab Ku | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/619923-9781101154076-rudolf-steiner/"><u>Rudolf Steiner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617475-9781849892421-tell-your-own-future/"><u>Tell Your Own Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620315-9780307784322-this-is-it/"><u>This Is It | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

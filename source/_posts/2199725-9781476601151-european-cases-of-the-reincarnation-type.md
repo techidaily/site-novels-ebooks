@@ -1,7 +1,7 @@
 ---
 title: European Cases of the Reincarnation Type | Free Book
-date: 2024-10-19T23:15:35.748Z
-updated: 2024-10-26T19:21:00.054Z
+date: 2025-01-16T18:09:52.381Z
+updated: 2025-01-18T16:18:39.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b52957f5bbc9d5bd0d73b979d59dd022e7ed915ef69f90fb2db2cacd2e5840b4.jpg
@@ -180,3 +180,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b52957f5bbc9d5bd0d73b979d59dd02
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95865818-9781623172299-consciousness-dialogues/"><u>Consciousness Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95868942-9782268095646-du-chevalier-dorient-au-chevalier-kadosch/"><u>Du chevalier d'Orient... au chevalier Kadosch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95859784-9781921497834-enjoy-emotional-freedom/"><u>Enjoy Emotional Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95860303-9781507190050-enriqueca-na-caminhada-para-o-mundo-da-era-de-ouro-com-comentarios-de-meditacao/"><u>Enriqueça na caminhada para o Mundo da Era de Ouro (com Comentários de Meditação) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866143-9780316521970-falling-awake/"><u>Falling Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866140-9780316522021-meditation-is-not-what-you-think/"><u>Meditation Is Not What You Think | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866482-9780857013477-practical-zen-for-health-wealth-and-mindfulness/"><u>Practical Zen for Health, Wealth and Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866141-9780316522052-the-healing-power-of-mindfulness/"><u>The Healing Power of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95857786-9781633410565-the-magical-art-of-crafting-charm-bags/"><u>The Magical Art of Crafting Charm Bags | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

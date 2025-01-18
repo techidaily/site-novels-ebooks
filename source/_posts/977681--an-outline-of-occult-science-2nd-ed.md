@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2025-01-09T00:31:48.435Z
-updated: 2025-01-13T00:16:25.945Z
+date: 2025-01-13T21:09:35.862Z
+updated: 2025-01-18T18:49:39.192Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,13 +131,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383047-9798330230761-27/"><u> "27 " | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383052-9781957811994-discourses-volume-2-2015/"><u>Discourses Volume 2, 2015 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383049-9781957811048-discourses-volume-4-2017/"><u>Discourses Volume 4, 2017 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383051-9781957811086-discourses-volume-6-2019/"><u>Discourses Volume 6, 2019 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124197-9781619400436-astral-camera/"><u>Astral Camera | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124186-9780892545698-pregnant-darkness/"><u>Pregnant Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124198-9781619400450-the-astral-world/"><u>The Astral World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124193-9780892545704-theurgy-or-the-hermetic-practice/"><u>Theurgy, or the Hermetic Practice | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

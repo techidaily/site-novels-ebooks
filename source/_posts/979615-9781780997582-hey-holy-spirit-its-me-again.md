@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2025-01-08T04:36:47.761Z
-updated: 2025-01-13T03:59:06.257Z
+date: 2025-01-14T21:41:38.981Z
+updated: 2025-01-18T20:55:47.800Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,13 +138,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383355-9798330229673-comment-decoder-la-voix-de-dieu-5-facons/"><u>Comment décoder la voix de Dieu - 5 façons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383302--embracing-release/"><u>Embracing Release | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383356-9798330229703-wie-man-gottes-stimme-entschlusselt-5-moglichkeiten/"><u>Wie man Gottes Stimme entschlüsselt - 5 Möglichkeiten | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383357-9798330229895-ykh-lfnh-t-kvlv-l-lvhym-5-drkhym/"><u>איך לפענח את קולו של אלוהים - 5 דרכים | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124257-9781619400856-psychic-phenomena-the-production-of-sound/"><u>Psychic Phenomena: The Production of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124258-9781619400160-psychometric-portraiture-of-the-victorian-era/"><u>Psychometric Portraiture of the Victorian Era | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124259-9781619400467-the-repairer-of-reputations/"><u>The Repairer of Reputations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124260-9781619400924-the-sepher-yetzirah-of-rabbi-ben-clifford/"><u>The Sepher Yetzirah of Rabbi Ben Clifford | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

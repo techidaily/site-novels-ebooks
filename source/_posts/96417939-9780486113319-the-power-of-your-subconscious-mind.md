@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2024-12-30T17:04:57.235Z
-updated: 2025-01-06T16:17:31.154Z
+date: 2025-01-12T20:23:07.722Z
+updated: 2025-01-18T19:59:23.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac07a38be5866ac3c050132f9f679e6b03a3.jpg
@@ -141,15 +141,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210703188-9781684986309-and-then-god-stepped-in/"><u>...And Then God Stepped In | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703209-9781684981052-life-of-a-soul/"><u>Life of a Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703472-9781913590789-mother-earth-is-calling-you/"><u>Mother Earth is Calling You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703534-9781959561064-quantum-origins/"><u>Quantum Origins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703184-9781684985050-the-end-of-aging/"><u>The End of Aging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703476-9798987098127-vision-walk/"><u>Vision Walk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/185866-9781595470621-a-work-of-saturn/"><u>A Work of Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1840239-9780698401617-looking-at-mindfulness/"><u>Looking at Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1839869-9781459730922-mysteries-and-secrets-the-16-book-complete-codex/"><u>Mysteries and Secrets: The 16-Book Complete Codex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/186036-9781595470669-the-golden-chain-of-homer/"><u>The Golden Chain of Homer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/184065-9781595470034-the-realness-of-witchcraft-in-america/"><u>The Realness of Witchcraft in America | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

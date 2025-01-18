@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2025-01-10T18:45:34.088Z
-updated: 2025-01-13T00:37:50.213Z
+date: 2025-01-14T17:20:16.965Z
+updated: 2025-01-18T22:38:22.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,15 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2670399-9781515410393-mental-chemistry/"><u>Mental Chemistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670397-9781515410089-metaphysical-bible-dictionary/"><u>Metaphysical Bible Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670417-9781515407348-the-ascent-of-man/"><u>The Ascent of Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670432-9781515408666-the-christian-book-of-mystical-verse/"><u>The Christian Book of Mystical Verse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670429-9781515408581-the-complete-works-of-e-m-bounds/"><u>The Complete Works of E. M. Bounds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670424-9781515407614-the-creative-process-in-the-individual/"><u>The Creative Process in the Individual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424534-9781780283203-karma-yoga/"><u>Karma Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424541-9781780283401-prophecies/"><u>Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424535-9781780283227-secrets-of-meditation/"><u>Secrets of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424536-9781780283319-the-imperial-guide-to-feng-shui-chinese-astrology/"><u>The Imperial Guide to Feng-Shui & Chinese Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424539-9781780283364-the-maya/"><u>The Maya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424542-9781780283425-the-real-messiah/"><u>The Real Messiah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424544-9781780283449-the-return-of-the-perennial-philosophy/"><u>The Return of the Perennial Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424543-9781780283432-the-rise-and-fall-of-atlantis/"><u>The Rise and Fall of Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424546-9781780283494-think-of-an-elephant/"><u>Think of an Elephant | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

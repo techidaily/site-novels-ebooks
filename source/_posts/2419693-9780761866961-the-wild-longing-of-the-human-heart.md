@@ -1,7 +1,7 @@
 ---
 title: The Wild Longing of the Human Heart | Free Book
-date: 2024-10-20T17:12:45.426Z
-updated: 2024-10-26T23:53:52.228Z
+date: 2025-01-15T17:14:16.934Z
+updated: 2025-01-18T16:54:23.537Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/89f16fd7535cb39e8afccb8526be54b56bd137030f729d3f5df76e3c46ce0a67.jpg
@@ -174,3 +174,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/89f16fd7535cb39e8afccb8526be54b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/923304-9781780992259-astral-projection-made-easy/"><u>Astral Projection Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/923313-9781846948725-intentional-healing/"><u>Intentional Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/923301-9781780991948-my-divine-self/"><u>My Divine Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/923315-9781846949173-teachings-of-the-virgin-mary/"><u>Teachings of the Virgin Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/927696-9781101597668-the-book-of-love-and-creation/"><u>The Book of Love and Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/923311-9781846948077-the-dictionary-of-magic-mystery/"><u>The Dictionary of Magic & Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/923306-9781780992747-the-gray-witchs-grimoire/"><u>The Gray Witch's Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/923314-9781846949111-the-guiding-philosophy-for-the-future-of-healthcare/"><u>The Guiding Philosophy for the Future of Healthcare | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/923302-9781780992020-the-september-11-code/"><u>The September-11 Code | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

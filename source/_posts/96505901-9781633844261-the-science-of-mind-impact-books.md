@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2025-01-05T19:02:07.839Z
-updated: 2025-01-13T06:17:57.479Z
+date: 2025-01-15T22:17:18.977Z
+updated: 2025-01-18T20:05:27.896Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,17 +137,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211391883-9782017289821-heritage-emotionnel/"><u>Héritage Emotionnel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211392600-9798330254378-insights/"><u>Insights | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211391871-9782385640675-le-mini-guide-ultime-du-magnetisme/"><u>Le Mini-guide ultime du magnétisme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211391870-9782889702794-pratiquer-la-magie-verte/"><u>Pratiquer la magie verte | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211392539-9781916529182-sensual-soul-shine/"><u>Sensual Soul Shine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211392447-9798822947177-the-alien-gods-10-commandments/"><u>The Alien Gods: 10 Commandments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211392552-9798869378422-the-future-of-man/"><u>The Future of Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211392011-9781782744542-witches-spells-magic/"><u>Witches, Spells & Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125655-9781609256173-coventry-magic-with-candles-oils-and-herbs/"><u>Coventry Magic with Candles, Oils, and Herbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125656-9781609253394-create-a-world-that-works/"><u>Create a World That Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125658-9781609257590-custodians-of-truth/"><u>Custodians Of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125669-9781609251987-devil-worship-in-france/"><u>Devil-Worship in France | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125670-9781609251802-dion-fortunes-book-of-the-dead/"><u>Dion Fortune's Book of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125668-9781609253899-the-development-of-personality/"><u>The Development of Personality | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
