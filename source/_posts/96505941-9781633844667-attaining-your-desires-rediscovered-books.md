@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2025-01-11T20:02:32.567Z
-updated: 2025-01-18T20:07:14.495Z
+date: 2025-01-17T19:09:47.551Z
+updated: 2025-01-24T23:34:56.864Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,17 +140,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125763-9781609253769-hermetic-magic/"><u>Hermetic Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125765-9781609252656-hex-and-spellwork/"><u>Hex and Spellwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125769-9781609250485-high-heeled-manners/"><u>High-Heeled Manners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125745-9781609250157-the-great-shift/"><u>The Great Shift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125748-9781609254612-the-grimoire-of-armadel/"><u>The Grimoire of Armadel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125758-9781609252335-the-heart-of-wicca/"><u>The Heart of Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125764-9781609255855-the-hermetic-museum/"><u>The Hermetic Museum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125768-9781609254582-the-hieroglyphic-monad/"><u>The Hieroglyphic Monad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210234910-9781476641188-advances-in-parapsychological-research-10/"><u>Advances in Parapsychological Research 10 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233964-9781608687206-becoming-an-empowered-empath/"><u>Becoming an Empowered Empath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233662-9781631953163-the-mermaid-method/"><u>The Mermaid Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210234675-9786171252707-semejnyj-sonnik-s-otvetami-na-kazhdyj-den/"><u>Семейный сонник с ответами на каждый день | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210234667-9786171248403-starovinna-magiya-ukrayinciv/"><u>Старовинна магія українців | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Magic, Memory and Natural Philosophy in the Sixteenth and Seventeenth Centuries | Free Book
-date: 2024-10-26T02:26:50.555Z
-updated: 2024-10-26T18:14:27.009Z
+date: 2025-01-20T04:16:56.077Z
+updated: 2025-01-25T02:57:37.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d89c6c0b8b7bb00ff6160d848236fac73cd694bede6ae678750eec60f3dfbe2.jpg
@@ -141,3 +141,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d89c6c0b8b7bb00ff6160d848236fa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210070639-9780578643144-a-new-and-powerful-you/"><u>A New and Powerful You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210072780-9781581575545-a-season-with-the-witch-the-magic-and-mayhem-of-halloween-in-salem-massachusetts/"><u>A Season with the Witch: The Magic and Mayhem of Halloween in Salem, Massachusetts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070538-9781532099625-fifty-two-weeks-of-miracles/"><u>Fifty Two Weeks of M.I.R.A.C.L.E.S. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210073347-9781682682524-morning-altars-a-7-step-practice-to-nourish-your-spirit-through-nature-art-and-ritual/"><u>Morning Altars: A 7-Step Practice to Nourish Your Spirit through Nature, Art, and Ritual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070721-9781735309422-the-inner-journey/"><u>The Inner Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070727-9780987630612-trust-the-universe-2nd-ed/"><u>Trust the Universe (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070646-9781913479268-wellness-magick/"><u>Wellness Magick | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

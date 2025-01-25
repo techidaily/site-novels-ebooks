@@ -1,7 +1,7 @@
 ---
 title: The Physical Phenomena of Mysticism - With Especial Reference to the Stigmata, Divine and Diabolic | Free Book
-date: 2024-10-20T03:17:30.231Z
-updated: 2024-10-26T23:07:31.616Z
+date: 2025-01-18T01:55:11.835Z
+updated: 2025-01-25T03:54:35.195Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/06b7b8cbac52fa390e54a2ae45ce1345ab1dc753d8141bce716147788966a4e9.jpg
@@ -146,3 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/06b7b8cbac52fa390e54a2ae45ce134
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210080562-9781911134510-magical-knowledge-ii-the-initiate/"><u>Magical Knowledge II - The Initiate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080322-9780648862116-mystic-at-the-edge/"><u>MYSTIC AT THE EDGE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079829-9780963009685-psychedelic-psychotherapy/"><u>Psychedelic Psychotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080029-9780806541075-shamanism-for-every-day/"><u>Shamanism for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080347-9781734815733-the-antidote/"><u>The Antidote | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080380-9781948626224-the-shamans-mind/"><u>The Shaman's Mind | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2025-01-15T20:12:34.602Z
-updated: 2025-01-18T21:56:14.379Z
+date: 2025-01-20T22:38:33.992Z
+updated: 2025-01-25T02:32:13.228Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,15 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1433500-9781136602696-a-companion-to-yi-jing-numerology-and-cosmology/"><u>A Companion to Yi jing Numerology and Cosmology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424604-9781780286945-beyond-the-occult/"><u>Beyond the Occult | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1426734--heaven-on-earth/"><u>Heaven on Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1429457-9781608827503-mindfulness-for-prolonged-grief/"><u>Mindfulness for Prolonged Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424603-9781780286266-prayers-of-manifestation/"><u>Prayers of Manifestation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424605-9781780286952-supernatural/"><u>Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418714-9780578327662-bigger-than-the-sky/"><u>Bigger Than the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210420385-9781401968205-dream-guidance/"><u>Dream Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210420398-9781623177096-hoodoo-for-everyone/"><u>Hoodoo for Everyone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418581-9781951879037-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2104195-9781936012336-realizing-soul/"><u>Realizing Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418609-9781956896282-the-game-of-lovelife/"><u>The Game of Love/Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418676-9781953555205-you-are-more/"><u>You Are More | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

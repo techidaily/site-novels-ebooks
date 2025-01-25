@@ -1,7 +1,7 @@
 ---
 title: Your Invisible Power and How to Use It | Free Book
-date: 2025-01-13T19:29:34.760Z
-updated: 2025-01-18T18:12:33.179Z
+date: 2025-01-22T23:42:44.315Z
+updated: 2025-01-25T00:42:27.251Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035b03b1cc767fa3501b8a4d68e2e51d3180.jpg
@@ -140,17 +140,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125948-9781609255121-a-pagan-ritual-prayer-book/"><u>A Pagan Ritual Prayer Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125939-9781609256135-old-world-witchcraft/"><u>Old World Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125952-9781609251376-people-who-dont-know-theyre-dead/"><u>People Who Don't Know They're Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125954-9781609252328-perils-of-the-soul/"><u>Perils of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125938-9781609251505-the-old-girls-book-of-spells/"><u>The Old Girl's Book of Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125944-9781609254940-the-one-year-manual/"><u>The One Year Manual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125957-9781609254315-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key to the Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125962-9781609257828-the-practical-psychic/"><u>The Practical Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243995-9781614297680-meditations-on-the-trail/"><u>Meditations on the Trail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243915-9780486849188-seeds-of-mindfulness/"><u>Seeds of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243718-9780999717943-social-presencing-theater/"><u>Social Presencing Theater | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210243290-9781736856208-unlock-your-inner-self/"><u>Unlock Your Inner Self | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

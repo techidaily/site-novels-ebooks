@@ -1,7 +1,7 @@
 ---
 title: I Don't Know What to Believe | Free Book
-date: 2025-01-13T17:43:24.440Z
-updated: 2025-01-18T17:21:45.726Z
+date: 2025-01-19T00:16:48.251Z
+updated: 2025-01-24T16:04:35.420Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152bb6c16e86aeec1f648f85b672402b361fa.jpg
@@ -205,13 +205,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/180501-9781134545971-children-of-the-new-age/"><u>Children of the New Age | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1810258-9781459731202-haunted-ontario-4/"><u>Haunted Ontario 4 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1810797-9781471142857-how-to-find-heaven/"><u>How To Find Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1809837-9781461744931-the-haunted-fort/"><u>The Haunted Fort | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508228-9781582708713-a-year-with-anthony-de-mello/"><u>A Year with Anthony De Mello | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210507687-9781476641997-body-dysmorphic-disorder-mine-and-yours/"><u>Body Dysmorphic Disorder, Mine and Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210505211-9782017166030-le-petit-livre-de-lhumanisme/"><u>Le petit livre de l'humanisme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210504621-9780578381640-removing-the-fear/"><u>Removing The Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210504521-9781638814344-retirement-the-first-30-days/"><u>Retirement: The First 30 Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508066-9781945026850-the-other-goddess/"><u>The Other Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210505210-9782019464769-un-monde-de-merveilles/"><u>Un monde de merveilles | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Entering Hekate's Cauldron | Free Book
-date: 2024-10-20T19:56:31.464Z
-updated: 2024-10-26T17:16:13.009Z
+date: 2025-01-19T19:45:42.560Z
+updated: 2025-01-24T21:00:25.501Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ad966c8585f9989f961dbc03bd90dd30942377a830371eb88d02f8ac04767e0.jpg
@@ -142,3 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ad966c8585f9989f961dbc03bd90dd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209857784-9780965178013-a-daily-dose-of-mindful-moments/"><u>A Daily Dose of Mindful Moments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857810-9780977617906-my-god-and-me/"><u>My God and Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857722-9781948443012-the-all-of-everything/"><u>The All of Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857870-9781941129975-the-complete-works-of-florence-scovel-shinn/"><u>The Complete Works Of Florence Scovel Shinn | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Telepathy: Genuine and Fraudulent | Free Book"
-date: 2024-12-30T16:42:25.136Z
-updated: 2025-01-06T16:15:27.452Z
+date: 2025-01-24T04:09:13.084Z
+updated: 2025-01-25T02:59:39.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391dc86b2fcd9a349461b60713368b976b43.jpg
@@ -150,15 +150,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210800789-9798886541588-born-to-win/"><u>Born to Win | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800764-9780875169248-emerson-and-new-thought/"><u>EMERSON AND NEW THOUGHT | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800774-9798886546552-life-the-journey-to-eternal-joy/"><u>Life The Journey To Eternal Joy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800965-9781088106556-making-way-for-the-new/"><u>Making Way For The New | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800782-9781662465376-the-inextinguishable-dark-flame-of-blackman/"><u>The Inextinguishable Dark Flame of Blackman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800772-9798886850956-when-i-found-thorns-in-my-garden/"><u>When I found Thorns In My Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673461-9783000734441-conversations-with-the-universe/"><u>Conversations with The Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673484-9798986826813-from-disbelief-to-assurance/"><u>From Disbelief to Assurance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673018-9798986043227-problem-solved/"><u>Problem Solved | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673015-9781838197162-quotes-about-consciousness/"><u>Quotes about Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673025-9798986664729-the-new-5d-human/"><u>The new 5D HUman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210673547-9781685173876-the-struggle-and-how-we-slayed-the-dragon/"><u>The Struggle and How We Slayed the Dragon | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

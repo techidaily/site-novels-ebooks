@@ -1,7 +1,7 @@
 ---
 title: Tu stesso sei la tua malattia e la tua salute. Ma Dio è con te | Free Book
-date: 2024-10-24T16:56:49.998Z
-updated: 2024-10-26T22:15:16.577Z
+date: 2025-01-21T21:14:16.869Z
+updated: 2025-01-24T19:54:13.301Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/20bec513f01f585101f9799ef187f2dfe6329ff6040bca8a97d2f5358f7686ad.jpg
@@ -148,3 +148,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/20bec513f01f585101f9799ef187f2d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210184003-9781801152730-depression-and-anxiety-therapy-overcoming-anxiety-and-depression-using-cbt/"><u>Depression and anxiety therapy: Overcoming anxiety and depression using CBT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184033-9781761036767-guias-espirituales/"><u>Guías Espirituales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184032-9781761036798-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210183932-9781945894152-tantra/"><u>Tantra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184026-9780646826318-writetech/"><u>WriteTech | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

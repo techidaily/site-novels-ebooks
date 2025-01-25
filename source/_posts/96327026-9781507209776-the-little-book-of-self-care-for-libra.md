@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Libra | Free Book
-date: 2025-01-05T16:47:26.182Z
-updated: 2025-01-06T16:47:44.757Z
+date: 2025-01-23T05:55:17.130Z
+updated: 2025-01-24T18:46:12.637Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9c3e734e63a96b466b3af667a3a62c89c9.jpg
@@ -168,14 +168,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210845656-9781454952602-a-little-bit-of-angel-numbers/"><u>A Little Bit of Angel Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845585-9783988313317-dark-psychology-and-manipulation/"><u>DARK PSYCHOLOGY AND MANIPULATION | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845725--gods-itinerary/"><u>God's Itinerary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845780-9781088157619-the-prophet-daniel/"><u>The Prophet Daniel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845657-9781454950042-your-blueprint-for-pleasure/"><u>Your Blueprint for Pleasure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210702510-9798218064846-behind-her-smile-was-pain/"><u>Behind Her Smile Was Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703148-9780875169255-book-of-solace/"><u>Book of Solace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210702483-9781915393555-happy-birthday-love-joan/"><u>Happy Birthday-Love, Joan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210702514-9781958997116-operating-in-abundance-2nd-ed/"><u>Operating in Abundance (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210702493-9781913590727-soul-shine/"><u>Soul Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703001-9781401971243-spirit-talker/"><u>Spirit Talker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703184-9781684985050-the-end-of-aging/"><u>The End of Aging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703083-9781958405178-the-quantum-being/"><u>The Quantum Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703099-9781778058516-you-are-love/"><u>You Are Love | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

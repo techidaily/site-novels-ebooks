@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2025-01-13T19:53:28.560Z
-updated: 2025-01-18T16:57:14.310Z
+date: 2025-01-22T04:23:39.497Z
+updated: 2025-01-24T23:47:13.011Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,17 +148,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1031985-9781780999418-advanced-psychic-development/"><u>Advanced Psychic Development | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1032491-9780307827883-casting-the-circle/"><u>Casting the Circle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1036966-9780962929557-emotional-clearing/"><u>Emotional Clearing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1036380-9781476727172-muchas-vidas-muchos-sabios-many-lives-many-masters/"><u>Muchas Vidas, Muchos Sabios (Many Lives, Many Masters) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1035238-9780857010681-shamanism-and-spirituality-in-therapeutic-practice/"><u>Shamanism and Spirituality in Therapeutic Practice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1032142-9780810870277-the-a-to-z-of-witchcraft/"><u>The A to Z of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1032817--the-little-book-of-everyday-miracles/"><u>The Little Book of Everyday Miracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1036967-9781780993041-the-meaning/"><u>The Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196588-9781631599668-10-minute-crystal-healing/"><u>10-Minute Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196542-9781631595530-angels-spirit-guides-goddesses/"><u>Angels, Spirit Guides & Goddesses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196675-9781616734411-encyclopedia-of-angels-spirit-guides-and-ascended-masters/"><u>Encyclopedia of Angels, Spirit Guides and Ascended Masters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210195339-9781619021266-kissed-by-a-fox/"><u>Kissed by a Fox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196827-9781592338085-moon-power/"><u>Moon Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196656-9781631064340-night-meditations/"><u>Night Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196558-9781592337996-the-key-to-the-chakras/"><u>The Key to the Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210195729-9781953474018-the-voice-of-venus/"><u>The Voice of Venus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210196717-9781592337972-the-world-is-your-oracle/"><u>The World is Your Oracle | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

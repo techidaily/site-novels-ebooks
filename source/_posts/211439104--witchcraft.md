@@ -1,7 +1,7 @@
 ---
 title: Witchcraft | Free Book
-date: 2024-10-23T21:40:21.398Z
-updated: 2024-10-26T22:09:27.199Z
+date: 2025-01-20T21:22:48.193Z
+updated: 2025-01-25T04:48:37.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88ba42f5ebe537e3319c63b3617a43b3175db61319ddc880cff5d29275e88e86.jpg
@@ -142,3 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88ba42f5ebe537e3319c63b3617a43b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209850892-9781635357530-haunted/"><u>Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850877-9781946054012-raising-the-runes/"><u>Raising the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850843-9781945252150-the-art-of-listening-to-angels/"><u>The Art of Listening to Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850808-9780998764719-the-priestess-code-awakening-the-modern-woman/"><u>The Priestess Code: Awakening the Modern Woman: | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

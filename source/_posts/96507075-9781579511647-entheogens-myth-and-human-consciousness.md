@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2025-01-11T21:13:28.114Z
-updated: 2025-01-18T16:19:15.282Z
+date: 2025-01-20T00:17:54.214Z
+updated: 2025-01-24T18:51:52.248Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,14 +246,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1152436-9781451696837-healing-with-the-arts/"><u>Healing with the Arts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144840-9781612832791-the-seven-chakra-sisters/"><u>The Seven Chakra Sisters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144833-9781612831329-the-witches-almanac-issue-30-spring-2011-to-spring-2012/"><u>The Witches' Almanac: Issue 30, Spring 2011 to Spring 2012 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144830-9781609256159-voodoo-hoodoo-spellbook/"><u>Voodoo Hoodoo Spellbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144843-9781612833095-we-are-the-children-of-the-stars/"><u>We Are the Children of the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269999-9781071594049-bible-de-meditation-quotidienne/"><u>Bible de méditation quotidienne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269968-9781071592656-bonecas-mascotes-eslavas/"><u>Bonecas mascotes eslavas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269719-9782019459147-et-si-cela-vous-arrivait/"><u>Et si cela vous arrivait ? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270009-9781071594056-meditation-fur-anfanger/"><u>Meditation für Anfänger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269717-9782017168881-psychic-witch/"><u>Psychic Witch | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

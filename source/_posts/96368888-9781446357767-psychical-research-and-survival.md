@@ -1,7 +1,7 @@
 ---
 title: Psychical Research and Survival | Free Book
-date: 2025-01-02T16:19:48.326Z
-updated: 2025-01-06T16:20:07.232Z
+date: 2025-01-19T04:34:37.220Z
+updated: 2025-01-24T19:04:03.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e1773637d63b2cf046deae37eb848ccca9c1991.jpg
@@ -146,13 +146,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e17736
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210774011-9781959811053-claim-your-light-unlock-your-capacity-to-become-a-more-vibrant-and-authentic-person/"><u>Claim Your Light: : Unlock Your Capacity to Become a More Vibrant and Authentic Person | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210774072-9780834845046-good-fengshui/"><u>Good Fengshui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210775788-9798889130437-mindfulness-unlock-the-power-of-presence-and-achieve-inner-peace-with-the-ultimate-guide-to-mindfulness/"><u>Mindfulness: Unlock the Power of Presence and Achieve Inner Peace with the Ultimate Guide to Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210774009-9798889130413-well-being-unlock-your-inner-potential-and-achieve-optimal-well-being/"><u>Well-being: Unlock Your Inner Potential and Achieve Optimal Well-being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662631-9781633412958-heal-the-witch-wound/"><u>Heal the Witch Wound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662640-9781633413047-liber-kaos/"><u>Liber Kaos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662641-9781633412972-protection-reversal-magick-revised-and-updated-edition/"><u>Protection & Reversal Magick (Revised and Updated Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662633-9781633412934-the-complete-enochian-dictionary/"><u>The Complete Enochian Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662638-9781633412941-the-evil-eye/"><u>The Evil Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662635-9781633413009-the-treadwells-book-of-plant-magic/"><u>The Treadwell's Book of Plant Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662636-9781633412903-the-ufo-experience/"><u>The UFO Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662639-9781633413016-third-eye-spies/"><u>Third Eye Spies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662634-9781633412965-uncharted/"><u>Uncharted | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

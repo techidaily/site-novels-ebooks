@@ -1,7 +1,7 @@
 ---
 title: Malay Spiritualism - With Some Other Notes on the Folklore of the Malaysian Peninsula (Folklore History Series) | Free Book
-date: 2024-10-24T05:38:08.385Z
-updated: 2024-10-26T18:35:29.006Z
+date: 2025-01-22T01:50:31.368Z
+updated: 2025-01-25T02:38:36.534Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aae6f3a8403f647ae750c6eb2bf0b33814eec137dae37ef9eb124d372d86e283.jpg
@@ -137,3 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aae6f3a8403f647ae750c6eb2bf0b33
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209588706-9781684034185-i-dont-want-to-be-an-empath-anymore/"><u>I Don't Want to Be an Empath Anymore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209588699-9781684033966-on-the-mystery-of-being/"><u>On the Mystery of Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209580046-9781608685202-seven-practices-of-a-mindful-leader/"><u>Seven Practices of a Mindful Leader | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209587863-9781946764508-the-friend-of-the-desert/"><u>The Friend of the Desert | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209579419-9780762467327-wellness-witch/"><u>Wellness Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

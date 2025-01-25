@@ -1,7 +1,7 @@
 ---
 title: Being Afraid but Freaking Doing It Anyway | Free Book
-date: 2024-10-20T04:04:05.097Z
-updated: 2024-10-26T19:26:57.664Z
+date: 2025-01-18T01:35:58.927Z
+updated: 2025-01-24T23:54:20.257Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/074daf1a6226d72a7f754e897ab9338b680bf9ae1ac8669f00c134873ef937d0.jpg
@@ -165,3 +165,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/074daf1a6226d72a7f754e897ab9338
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209862770-9780692160206-dancing-alone/"><u>Dancing Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863081-9780990536154-earth-etudes-for-elul/"><u>Earth Etudes for Elul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862600-9789081991056-jesus-the-untold-story/"><u>Jesus, the untold story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862588-9781643703671-mindfulness-breaks/"><u>Mindfulness Breaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862880-9781789264661-the-path-leads-here/"><u>The Path Leads Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862787-9781945252341-the-sensitive-edge/"><u>The Sensitive Edge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863028-9780692164259-when-life-hits-the-fan/"><u>When Life Hits the Fan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862848-9780999480564-which-side-of-the-fence-are-you-on/"><u>Which Side Of The Fence Are You On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862531-9780997146738-womens-rites-womens-mysteries/"><u>Women's Rites, Women's Mysteries | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

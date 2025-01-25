@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2025-01-15T17:04:32.282Z
-updated: 2025-01-18T18:09:49.271Z
+date: 2025-01-17T18:10:50.084Z
+updated: 2025-01-25T03:09:17.159Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,17 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138597731-9781452503448-7-powerful-ways-to-boost-retail-profitsin-any-economic-climate/"><u>7 Powerful Ways to Boost Retail Profits....In Any Economic Climate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597309-9781449720407-after-the-avalanche/"><u>After the Avalanche | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597640-9781462040650-energy-in-motion/"><u>Energy in Motion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597558-9781475927597-good-morning-morning-glory/"><u>Good Morning, Morning Glory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597605-9781462041190-the-angels-carried-me-between-life-and-death-for-sixteen-minutes/"><u>The Angels Carried Me Between Life and Death for Sixteen Minutes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597477-9781452542553-the-debt-abyss/"><u>The Debt Abyss | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597680-9781452559650-the-reward-of-not-knowing/"><u>The Reward of Not Knowing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597452-9781452582870-the-vine-of-the-soul/"><u>The Vine of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377963-9781801345873-20-guided-meditations-for-deep-sleep-anxiety-2-in-1/"><u>20 Guided Meditations For Deep Sleep & Anxiety (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210378755-9780744053555-communicating-with-spirits/"><u>Communicating with Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210378229-9781637305225-manipulated-memories/"><u>Manipulated Memories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210378074-9781735104737-our-battle-with-satans-sidekick/"><u>Our Battle With Satan's Sidekick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210378136-9781913590345-the-empaths-guide-to-the-universe/"><u>The Empath's Guide To The Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377960-9781801343992-the-law-of-attraction-manifestations-for-happiness-love-money/"><u>The Law of Attraction& Manifestations for Happiness Love& Money | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377955-9781801343602-third-eye-kundalini-awakening-for-beginners/"><u>THIRD EYE & KUNDALINI AWAKENING FOR BEGINNERS | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Supernatural | Free Book
-date: 2025-01-05T16:18:50.119Z
-updated: 2025-01-06T16:46:42.413Z
+date: 2025-01-18T20:25:46.408Z
+updated: 2025-01-25T04:19:30.031Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566938aa6bc3f19a4f2c2da321ce85b9b240.jpg
@@ -142,18 +142,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761859-9781591798644-awakening-into-oneness/"><u>Awakening into Oneness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761846-9781604073324-falling-into-grace/"><u>Falling into Grace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761847-9781591798866-how-to-read-the-akashic-records/"><u>How to Read the Akashic Records | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761837-9781591798514-instant-enlightenment/"><u>Instant Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761840-9781649631060-reverse-meditation/"><u>Reverse Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761854-9781604074642-the-guru-question/"><u>The Guru Question | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761844-9781622031665-the-radiance-sutras/"><u>The Radiance Sutras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761839-9781591799016-the-sacred-yes/"><u>The Sacred Yes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761849-9781591798804-true-meditation/"><u>True Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628684-9781087895956-a-slice-of-light/"><u>A Slice of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628743-9781685265458-god-loves-us-all-greatly-caring-for-ourselves-as-we-care-for-our-beloved-sick-pets/"><u>God Loves Us All Greatly: Caring for Ourselves as We Care for Our Beloved Sick Pets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628790-9780986330957-pain/"><u>Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628889-9781732117235-rooted-in-faith/"><u>Rooted in Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210628704-9798985751451-trauma-inspired/"><u>Trauma-Inspired | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

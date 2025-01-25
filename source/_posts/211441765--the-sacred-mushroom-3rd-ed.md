@@ -1,7 +1,7 @@
 ---
 title: The Sacred Mushroom (3rd ed.) | Free Book
-date: 2024-10-26T03:50:42.655Z
-updated: 2024-10-27T01:59:18.853Z
+date: 2025-01-23T00:43:07.820Z
+updated: 2025-01-25T00:02:14.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7a944d2cc959abb8252d1cd0c954380af6b73ce227a78ef170e229f2ed8544f.jpg
@@ -156,3 +156,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7a944d2cc959abb8252d1cd0c95438
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209824378-9781644616437-amor-sexo-y-astrologia/"><u>Amor, sexo y astrología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824379-9781644616468-aries/"><u>Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824376-9781644616499-cancer/"><u>Cáncer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824385-9781644616550-capricornio/"><u>Capricornio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824380-9781644616413-carta-astral-simple-y-facil/"><u>Carta astral simple y fácil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824381-9781644616451-enciclopedia-de-la-magia/"><u>Enciclopedia de la Magia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824382-9781644616536-escorpio/"><u>Escorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824384-9781644616505-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824383-9781644616529-libra/"><u>Libra | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

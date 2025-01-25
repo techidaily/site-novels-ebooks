@@ -1,7 +1,7 @@
 ---
 title: Psychedelic Mysteries of the Feminine | Free Book
-date: 2024-12-31T16:03:14.843Z
-updated: 2025-01-06T16:48:06.337Z
+date: 2025-01-23T20:02:23.202Z
+updated: 2025-01-24T23:45:31.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632a4352990196f552dc9c43583ded2e2ad0.jpg
@@ -188,15 +188,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210749196-9781841815428-find-your-power-manifest/"><u>Find Your Power: Manifest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210749208-9781841815411-find-your-power-runes/"><u>Find Your Power: Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210749205-9781841815350-find-your-power-tarot/"><u>Find Your Power: Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210749403-9781644119136-the-book-of-moldavite/"><u>The Book of Moldavite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210750232-9781524886622-the-little-book-of-the-occult/"><u>The Little Book of the Occult | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210750191-9781837820702-where-two-worlds-meet/"><u>Where Two Worlds Meet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571121-9781449441586-be-a-light-unto-yourself/"><u>Be a Light Unto Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571713-9781524855000-kintsugi/"><u>Kintsugi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571421-9781398824348-nostradamus-and-other-prophets-and-seers/"><u>Nostradamus and Other Prophets and Seers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571425-9781398824379-psychic-powers/"><u>Psychic Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571423-9781398824355-runes/"><u>Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571711-9781524853044-so-whos-counting/"><u>So Who's Counting? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571717-9781449494827-the-little-book-of-witchcraft/"><u>The Little Book of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210570627-9781953450449-the-zodiac-and-the-salts-of-salvation/"><u>The Zodiac and the Salts of Salvation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210570632-9781953450500-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-16T16:21:56.922Z
-updated: 2025-01-18T20:51:28.206Z
+date: 2025-01-20T20:37:30.150Z
+updated: 2025-01-24T20:12:11.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,15 +238,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138586823-9781462012510-in-memory-of-the-good-old-days/"><u>In Memory of the Good Old Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138587399-9781450270885-navigating-the-coming-chaos/"><u>Navigating the Coming Chaos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138587378-9781617642586-recuperando-mi-angel-autista/"><u>Recuperando Mi Ángel Autista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138587173-9781452533551-the-journey-of-a-humbled-heart/"><u>The Journey of a Humbled Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138586831-9781475931235-the-power-within-claim-it/"><u>The Power Within: Claim It! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138587440-9781617644092-un-dialogo-en-mi-abismo/"><u>Un Diálogo En Mi Abismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349180-9782226308306-cheminer-contempler/"><u>Cheminer, contempler | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349200-9782226304216-contes-des-petits-riens-et-de-tous-les-possibles/"><u>Contes des petits riens et de tous les possibles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349153-9782226307408-lexil-occidental/"><u>L'Exil occidental | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349125-9782226308986-le-cercle-de-vie/"><u>Le Cercle de vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349147-9782226308924-le-zen-autrement/"><u>Le Zen autrement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349164-9782226306388-prendre-soin-de-letre/"><u>Prendre soin de l'être | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

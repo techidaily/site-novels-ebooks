@@ -1,7 +1,7 @@
 ---
 title: Healing the Liminal | Free Book
-date: 2024-10-24T04:40:27.826Z
-updated: 2024-10-27T02:57:15.200Z
+date: 2025-01-18T20:52:45.095Z
+updated: 2025-01-24T22:47:45.722Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba56bea73779db5ff861d5aaf446a78cbbb22e2d02b2490d43c07c94c907209b.jpg
@@ -137,3 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba56bea73779db5ff861d5aaf446a78
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210061650-9781949661255-akashic-records-seminar-series-guided-practices-two-complete-seminars/"><u>Akashic Records Seminar Series - Guided Practices - Two Complete Seminars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061348-9781250782274-everyday-osho/"><u>Everyday Osho | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061534-9781989838464-guided-mindfulness-meditations-bedtime-stories-for-busy-adults/"><u>Guided Mindfulness Meditations & Bedtime Stories for Busy Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061608-9781913821104-irish-witchcraft-from-an-irish-witch-2nd-ed/"><u>Irish Witchcraft from an Irish Witch (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061547-9781648713385-origins-of-the-minor-arcana/"><u>Origins of the Minor Arcana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210061173-9780753734506-tiny-healer-happiness/"><u>Tiny Healer: Happiness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Chronicles of the Strange and Uncanny in Florida | Free Book
-date: 2025-01-03T17:04:05.990Z
-updated: 2025-01-06T16:22:19.255Z
+date: 2025-01-23T05:02:31.052Z
+updated: 2025-01-25T03:25:26.458Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce015e0475ce278eec2f74db690fa7d3ca82.jpg
@@ -138,15 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5f1ccde67d6c873936ca8792d13ce0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210772866-9781922439642-extra-ordinary/"><u>Extra Ordinary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772834-9781922405081-full-ideals/"><u>Full Ideals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772841-9781649694669-reflections/"><u>Reflections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772827-9781925939040-the-grass-root-friend/"><u>The Grass-Root Friend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772825-9781925819571-twenty-three-years-of-lessons/"><u>Twenty Three Years of Lessons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772858-9781649699800-what-if/"><u>WHAT IF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655605-9781454942160-1001-tarot-spreads/"><u>1001 Tarot Spreads | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655616-9781454943570-the-druid-path/"><u>The Druid Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655611-9781454943471-the-enneagram-workbook/"><u>The Enneagram Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655610-9781454942566-the-holistic-witch/"><u>The Holistic Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655597-9781454941064-wicca-herbal-magic/"><u>Wicca Herbal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655599-9781454941101-wicca-year-of-magic/"><u>Wicca Year of Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

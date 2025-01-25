@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2024-12-31T16:27:14.927Z
-updated: 2025-01-06T16:47:36.693Z
+date: 2025-01-18T22:09:31.921Z
+updated: 2025-01-24T20:45:05.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -212,15 +212,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210742726-9781667447667-apprenez-a-mediter/"><u>Apprenez à méditer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210742647-9781667443645-fas-saibhir-agus-tu-ag-dul-isteach-sa-domhan-na-haoise-orga-le-trachtairi-meditation/"><u>Fás Saibhir agus tú ag Dul isteach sa Domhan na hAoise Órga (le Tráchtairí Meditation) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210742961-9781841815480-find-your-focus/"><u>Find Your Focus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210742655-9781667445168-megan-va-in-barca-a-vela/"><u>Megan va in barca a vela | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210742719-9781667447391-recuperacao-e-prevencao-covid-19-e-outras-doencas/"><u>Recuperação e Prevenção: Covid-19 e outras Doenças | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210742625-9781667445342-recupero-e-prevenzione-covid-19-e-altre-malattie/"><u>Recupero e Prevenzione: Covid-19 e altre Malattie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210560846-9781439672587-bigfoot-in-maine/"><u>Bigfoot in Maine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210561581-9781957546742-building-the-bridge-inward-through-meditation/"><u>Building the Bridge Inward through Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562412-9781935492214-el-descanso-pleno/"><u>El descanso pleno | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562032-9780593435885-guided-tarot-for-teens/"><u>Guided Tarot for Teens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562409-9781935492108-living-the-spiritual-principles-of-health-and-well-being/"><u>Living the Spiritual Principles of Health and Well-Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562315-9781734574197-star-quest-navigator-navigator/"><u>Star Quest: Navigator: Navigator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210560911-9789354351082-stop-predicting-revisit-life/"><u>Stop Predicting - Revisit Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210561856-9781398414754-the-love-path/"><u>The Love Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562411-9781893020887-the-rest-of-your-life/"><u>The Rest of Your Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

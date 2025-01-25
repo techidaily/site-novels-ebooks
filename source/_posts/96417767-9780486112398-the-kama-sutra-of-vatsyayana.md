@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2025-01-16T20:58:17.772Z
-updated: 2025-01-18T16:59:38.008Z
+date: 2025-01-24T00:25:52.784Z
+updated: 2025-01-24T18:27:58.916Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,13 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1821399-9780698193598-choosing-hope/"><u>Choosing Hope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1824247-9780804153713-far-journeys/"><u>Far Journeys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1824248-9780804153881-journeys-out-of-the-body/"><u>Journeys Out of the Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1818259-9781782797166-of-course/"><u>Of Course! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518965-9781777476014-beloved-i-can-show-you-heaven/"><u>Beloved, I Can Show You Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519627-9781098095567-broken-crushed-shattered-mended-healed/"><u>Broken, Crushed, Shattered, Mended, Healed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210517789-9780241523018-finding-peace/"><u>Finding Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518922-9780578352480-little-ideas-for-living-life-well/"><u>Little Ideas For Living Life Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518893-9780760373064-the-big-book-of-tarot-meanings/"><u>The Big Book of Tarot Meanings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519021-9798985440300-the-building-blocks-of-meditation/"><u>The Building Blocks of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518972-9781733301510-the-essential-manifesting-guidebook-2020/"><u>The Essential Manifesting Guidebook 2020 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210518849-9780578385655-thoughts-and-observations/"><u>Thoughts and Observations | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

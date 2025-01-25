@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2025-01-14T21:41:38.981Z
-updated: 2025-01-18T20:55:47.800Z
+date: 2025-01-21T17:10:58.635Z
+updated: 2025-01-24T20:39:19.757Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,13 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124257-9781619400856-psychic-phenomena-the-production-of-sound/"><u>Psychic Phenomena: The Production of Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124258-9781619400160-psychometric-portraiture-of-the-victorian-era/"><u>Psychometric Portraiture of the Victorian Era | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124259-9781619400467-the-repairer-of-reputations/"><u>The Repairer of Reputations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124260-9781619400924-the-sepher-yetzirah-of-rabbi-ben-clifford/"><u>The Sepher Yetzirah of Rabbi Ben Clifford | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220939-9781736617212-bad-father-good-father/"><u>Bad Father Good Father | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221021-9781506470689-breath-prayer-an-ancient-practice-for-the-everyday-sacred/"><u>Breath Prayer: An Ancient Practice for the Everyday Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219658-9780895566386-floating-in-quiet-darkness/"><u>Floating in Quiet Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219828-9781460712764-in-plain-sight/"><u>In Plain Sight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220619-9780593418352-lighting-the-wick/"><u>Lighting the Wick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219778-9789389253030-mahavir/"><u>Mahavir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220930-9781643344591-pequenas-puertas-para-inmenso-pensar-en-recordar/"><u>Pequeñas Puertas Para Inmenso Pensar En Recordar | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

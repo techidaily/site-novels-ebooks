@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Intuition | Free Book
-date: 2024-10-24T03:08:48.563Z
-updated: 2024-10-26T23:11:00.924Z
+date: 2025-01-17T19:25:29.722Z
+updated: 2025-01-24T19:30:23.609Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b090464117bf7646936e093d64a4fe9e24943431329f73f013216236858925c.jpg
@@ -148,3 +148,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b090464117bf7646936e093d64a4fe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209690884-9780857838261-ancient-wisdom-for-modern-living/"><u>Ancient Wisdom for Modern Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691039-9781250257741-auras/"><u>Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209690814-9781916068971-otherworlds/"><u>Otherworlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691091-9781250246455-reconnecting-to-the-source/"><u>Reconnecting to The Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691112-9781250253057-soul-magic/"><u>Soul Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691054-9781250250704-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209691105-9781250230591-the-warrior-heart-practice/"><u>The Warrior Heart Practice | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

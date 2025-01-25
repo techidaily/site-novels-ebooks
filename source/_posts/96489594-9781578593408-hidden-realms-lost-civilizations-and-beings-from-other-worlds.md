@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2025-01-12T18:47:41.248Z
-updated: 2025-01-18T19:39:15.000Z
+date: 2025-01-19T01:34:51.985Z
+updated: 2025-01-25T00:06:59.470Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,17 +227,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138584078-9781462037124-beyond-cell-memory/"><u>Beyond Cell Memory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584007-9781462047666-dolphinity/"><u>Dolphinity: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584093-9781452532981-from-fear-to-freedom/"><u>From Fear to Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584366-9781452540627-post-cards-from-the-void/"><u>Post Cards from the Void | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584290-9781450286015-shadow-place/"><u>Shadow Place | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138583978-9781462029372-so-what-do-you-think/"><u>So What Do You Think? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584409-9781450294010-tribute-to-a-common-man/"><u>Tribute to a Common Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138584552-9781449743642-your-destiny-and-your-palace/"><u>Your Destiny and Your Palace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348683-9782226306043-du-sommeil-et-autres-joies-deraisonnables/"><u>Du sommeil et autres joies déraisonnables | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348819-9782226308382-le-corps-du-meditant/"><u>Le Corps du méditant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348738-9782226300379-le-desert-interieur/"><u>Le Désert intérieur | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348829-9782226309754-parole-du-passant/"><u>Parole du passant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348772-9782226338006-une-etoile-qui-danse-sur-le-chaos/"><u>Une étoile qui danse sur le chaos | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

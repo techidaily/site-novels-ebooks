@@ -1,7 +1,7 @@
 ---
 title: A Workbook based on Meg Jay, PhD's #1 bestseller \"The Defining Decade | Free Book
-date: 2024-10-20T23:44:56.628Z
-updated: 2024-10-27T04:37:57.328Z
+date: 2025-01-22T21:13:29.790Z
+updated: 2025-01-25T05:45:49.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7a654eeec2bec8034948dd521fb5b806001edfcc457b6e84dc65bf93e9ac176.jpg
@@ -208,3 +208,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7a654eeec2bec8034948dd521fb5b8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210140719-9781734426557-anxiety-rx/"><u>Anxiety Rx | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210135230-9781913071912-everyday-practices-for-better-living/"><u>Everyday Practices for Better Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210136488-9781529119305-how-to-calm-it/"><u>How To Calm It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210137065-9781788176163-letters-to-a-starseed/"><u>Letters to a Starseed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210137378-9781250277947-thank-you-for-teaching/"><u>Thank You For Teaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210138971-9781401961299-the-guardian-gateway/"><u>The Guardian Gateway | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210137691-9781524866723-the-spirit-of-botany/"><u>The Spirit of Botany | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210137251-9780648100461-universal-law/"><u>Universal Law | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2024-12-31T16:01:09.601Z
-updated: 2025-01-06T16:28:37.153Z
+date: 2025-01-22T02:14:40.399Z
+updated: 2025-01-25T02:33:37.630Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -139,15 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761464-9781604078336-free-your-voice/"><u>Free Your Voice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761467-9781604076615-life-visioning/"><u>Life Visioning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761462-9781604078190-secrets-of-your-cells/"><u>Secrets of Your Cells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761463-9781591799689-the-energy-cure/"><u>The Energy Cure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761460-9781604077476-the-lakota-way-of-strength-and-courage/"><u>The Lakota Way of Strength and Courage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761457-9781591798279-the-subtle-body/"><u>The Subtle Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595508-9781955346252-bod-behavior/"><u>Bod Behavior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595545-9781922499059-charlies-poem/"><u>Charlies Poem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595541-9781684930739-letters-by-a-modern-mystic/"><u>Letters By A Modern Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210594700-9781401967727-spiritual-activator/"><u>Spiritual Activator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595438-9780760375273-tarot-by-numbers/"><u>Tarot by Numbers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

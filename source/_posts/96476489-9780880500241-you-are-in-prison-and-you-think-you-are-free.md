@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2025-01-11T21:40:16.922Z
-updated: 2025-01-18T17:12:39.555Z
+date: 2025-01-23T03:54:48.158Z
+updated: 2025-01-24T21:19:39.927Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,13 +170,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1520824-9781608827961-50-mindful-steps-to-self-esteem/"><u>50 Mindful Steps to Self-Esteem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1501722-9781618520715-gracious-wild/"><u>Gracious Wild | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/152279-9780743222969-tarot-made-easy/"><u>Tarot Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1501723-9781609259303-the-best-of-the-equinox-sex-magick/"><u>The Best of the Equinox, Sex Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428922-9781683488057-babaji/"><u>BABAJI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428228-9780645206432-believing-in-me/"><u>believing in ME | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428200-9781956216042-born-giving-birth-to-a-new-you/"><u>Born Giving Birth to a New You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428916-9781662447952-quotes-the-famous-and-not-so-famous/"><u>Quotes: The Famous and Not so Famous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428766-9780762474288-the-night-school/"><u>The Night School | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210427372-9781913768256-the-roman-calendar/"><u>The Roman Calendar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210427203-9781088016381-two-near-death-experiences/"><u>Two Near-Death Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429008-9781913816445-ways-of-the-soul/"><u>Ways of the Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

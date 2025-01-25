@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2025-01-15T18:44:00.693Z
-updated: 2025-01-18T22:28:17.474Z
+date: 2025-01-20T23:07:58.074Z
+updated: 2025-01-24T16:33:44.752Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,15 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138567668-9781450258210-authentic-insights/"><u>Authentic Insights | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567766-9781469737799-fly-without-fear-or-stress/"><u>Fly Without Fear or Stress | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567677-9781491762011-how-to-unleash-the-supernatural-power-within-you/"><u>How to Unleash the Supernatural Power Within You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567765-9781469764887-journey-to-alternity/"><u>Journey to Alternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567773-9780595780310-loving-a-woman-well/"><u>Loving a Woman Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567693-9781462020768-seventy-meditation-lessons-from-my-universe/"><u>Seventy Meditation Lessons from My Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303874-9781529336269-deliverance/"><u>Deliverance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303228-9781608687374-healing-with-nature/"><u>Healing with Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303808-9781649906953-keeping-your-heart-open/"><u>Keeping Your Heart Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210304126-9781250254245-the-initiates-of-the-flame-the-deluxe-edition/"><u>The Initiates of the Flame: The Deluxe Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210304032-9781914447037-your-life-of-personal-power/"><u>Your Life of Personal Power | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

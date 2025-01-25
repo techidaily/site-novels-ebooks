@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2025-01-12T20:25:39.865Z
-updated: 2025-01-18T16:17:32.074Z
+date: 2025-01-19T21:36:02.657Z
+updated: 2025-01-25T04:13:05.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,14 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1653600-9780857011619-daoist-meditation/"><u>Daoist Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1650305-9781612833286-induced-after-death-communication/"><u>Induced After Death Communication | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1652055-9781476789750-outrageous-openness/"><u>Outrageous Openness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1652665-9781780282282-the-hiram-key-revisited/"><u>The Hiram Key Revisited | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1651771-9781609259532-the-theban-oracle/"><u>The Theban Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210467830-9781628601756-energetic-diagnosis/"><u>Energetic Diagnosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465687-9780593541081-how-to-take-care/"><u>How to Take Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465907-9781639616671-lessons-from-jesus/"><u>Lessons From Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465854-9781638443438-life-on-the-rocks/"><u>Life on the Rocks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465101-9781639036257-quotes-that-will-inspire-and-encourage-you-in-your-journey/"><u>Quotes That Will Inspire and Encourage You In Your Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210467214-9781788177597-self-source-ery/"><u>Self Source-ery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465717-9781401969141-the-healing-wisdom-of-dreams/"><u>The Healing Wisdom of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210465730-9780593316580-the-ruin-of-all-witches/"><u>The Ruin of All Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468422-9781398423947-woman-of-worth-in-the-making/"><u>Woman of Worth in the Making | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

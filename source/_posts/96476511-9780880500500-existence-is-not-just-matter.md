@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2025-01-15T20:54:21.992Z
-updated: 2025-01-18T22:09:03.476Z
+date: 2025-01-22T21:17:33.663Z
+updated: 2025-01-25T03:16:52.060Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,18 +164,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1625556-9781444743784-calm-the-soul-a-book-of-simple-wisdom-and-prayer/"><u>Calm the Soul: A Book of Simple Wisdom and Prayer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625684-9781405522397-feeling-safe/"><u>Feeling Safe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626381-9781405516013-living-magically/"><u>Living Magically | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625227-9780733628924-silence-your-mind/"><u>Silence Your Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625964-9781444725810-sonas-celtic-thoughts-on-happiness/"><u>Sonas: Celtic Thoughts on Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626379-9781405515993-stepping-into-the-magic/"><u>Stepping Into The Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625686-9781405522427-the-endorphin-effect/"><u>The Endorphin Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1626380-9781405516006-wild-love/"><u>Wild Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1625685-9781405522410-working-with-angels-fairies-and-nature-spirits/"><u>Working With Angels, Fairies And Nature Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450155-9781667418315-ousar/"><u>Ousar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450148-9781667419701-perfeita-exatamente-como-eu-sou/"><u>Perfeita exatamente como eu sou | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450173-9781667421070-simbolos-curativos-de-los-antiguos-eslavos-glagolitico-terapia-artistica/"><u>Símbolos curativos de los antiguos eslavos. Glagolítico. Terapia artística | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450195-9781667417905-tu-meriti-il-meglio/"><u>Tu meriti il meglio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450121-9781667421391-uma-vida-de-sonhos/"><u>Uma vida de sonhos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450218-9781667421216-yoga-para-principiantes-yoga-magico-las-mejores-posturas-de-yoga-suave/"><u>Yoga para principiantes: Yoga Mágico - Las mejores posturas de yoga suave | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

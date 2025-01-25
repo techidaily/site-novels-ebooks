@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2025-01-12T16:54:56.123Z
-updated: 2025-01-18T21:37:45.036Z
+date: 2025-01-19T20:35:56.884Z
+updated: 2025-01-24T17:36:27.763Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,17 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1221620-9781780997933-divine-guidance/"><u>Divine Guidance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221621-9781780995397-drinking-the-four-winds/"><u>Drinking the Four Winds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221623-9781782790624-how-to-care-for-a-cancer/"><u>How to Care for a Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1222045-9781461740988-lighthouse-hauntings/"><u>Lighthouse Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1222046-9781461740995-lighthouse-horrors/"><u>Lighthouse Horrors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221628-9781780996783-on-angels-wings/"><u>On Angels' Wings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221629-9781780995601-shaman-pathways-elen-of-the-ways/"><u>Shaman Pathways - Elen of the Ways | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221632-9781780998145-the-extraordinary-spirit-sightings-encounters-of-an-ordinary-surrey-lady/"><u>The Extraordinary Spirit Sightings & Encounters of an Ordinary Surrey Lady | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289270-9781398814073-discover-your-psychic-self/"><u>Discover Your Psychic Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289115-9781493046911-haunted-new-mexico/"><u>Haunted New Mexico | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289614-9780578909578-her-psalms/"><u>Her Psalms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289116-9781608937271-mythical-creatures-of-maine/"><u>Mythical Creatures of Maine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289628-9788792633606-tarology/"><u>Tarology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289620-9780645169911-the-power-of-love-with-animals/"><u>The Power of Love with Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289275-9781398814080-the-power-of-meditation/"><u>The Power of Meditation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

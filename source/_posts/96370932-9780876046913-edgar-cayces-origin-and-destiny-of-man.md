@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Origin and Destiny of Man | Free Book
-date: 2025-01-05T16:44:07.635Z
-updated: 2025-01-06T16:22:25.203Z
+date: 2025-01-21T05:15:30.619Z
+updated: 2025-01-25T02:06:42.771Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa2c793124908b958b4a5f62931aa531578.jpg
@@ -141,13 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761602-9781683644279-angels-and-archangels/"><u>Angels and Archangels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761617-9781683644835-freedom-for-all-of-us/"><u>Freedom for All of Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761606-9781683644224-rewilding/"><u>Rewilding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761611-9781683644293-stay-woke/"><u>Stay Woke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611615-9781684980918-angel-within/"><u>Angel Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611712-9781638121350-angels-to-aliens/"><u>Angels to Aliens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210612791-9780760373477-in-focus-wicca/"><u>In Focus Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611731-9789811848575-love-is-everything/"><u>Love is Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210611901-9798986225012-overcoming-the-drug-addiction-i-never-had/"><u>Overcoming The Drug Addiction I Never Had | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210613066-9781529905625-what-is-meditation/"><u>What is Meditation? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2025-01-16T16:04:12.889Z
-updated: 2025-01-18T20:48:29.648Z
+date: 2025-01-21T16:36:34.813Z
+updated: 2025-01-25T04:17:25.947Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,14 +187,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124207-9781619400306-clairvoyance-in-time-past-future/"><u>Clairvoyance in Time: Past & Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124202-9781619400900-the-book-of-jasher-part-three/"><u>The Book of Jasher, Part Three | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124203-9781619400740-the-book-of-jasher-part-two/"><u>The Book of Jasher, Part Two | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124209-9781619400726-the-cloud-upon-the-sanctuary/"><u>The Cloud Upon the Sanctuary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124222-9781619400894-the-grand-and-noble-order-of-button-busters-a-side-degree-for-the-use-of-secret-societies-the-object-of-which-is-to-revive-interest-in-the-meetings-increase-the-a/"><u>The Grand and Noble Order of Button Busters: A Side Degree for the use of Secret Societies, the object of which is to Revive Interest in the Meetings, Increase the Attendance and Furnish Entertainment for the Members | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217563-9781529360240-crystals-for-self-care/"><u>Crystals for Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217603-9781841815084-godsfield-companion-chakras/"><u>Godsfield Companion: Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217590-9781841815091-godsfield-companion-mindfulness/"><u>Godsfield Companion: Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210211134-9781528767767-psychical-and-supernormal-phenomena-their-observation-and-experimentation/"><u>Psychical and Supernormal Phenomena - Their Observation and Experimentation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217567-9780753734759-the-crystal-experience/"><u>The Crystal Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210211207-9781734025095-the-eggshell-effect/"><u>The Eggshell Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217570-9780753734728-the-meditation-experience/"><u>The Meditation Experience | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

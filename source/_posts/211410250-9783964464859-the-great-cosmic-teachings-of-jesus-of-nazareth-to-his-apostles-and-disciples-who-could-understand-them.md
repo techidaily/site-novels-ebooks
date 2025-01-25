@@ -1,7 +1,7 @@
 ---
 title: The Great Cosmic Teachings of Jesus of Nazareth to His Apostles and Disciples Who Could Understand Them | Free Book
-date: 2024-10-20T05:20:34.743Z
-updated: 2024-10-26T18:44:44.465Z
+date: 2025-01-19T02:59:36.909Z
+updated: 2025-01-24T16:47:07.722Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9f5c9be9261fe8183b1cab55f4370f2617e4c8e44007fa84f98cd46f40cb7563.jpg
@@ -162,3 +162,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9f5c9be9261fe8183b1cab55f4370f2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210119277-9780578607030-healed-am-i/"><u>Healed Am I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210119780-9781000114218-knowing-beyond-knowledge/"><u>Knowing Beyond Knowledge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210119170-9780648843122-out-of-darkness/"><u>Out of Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210120732-9781946764874-the-eight-realizations-of-great-beings/"><u>The Eight Realizations of Great Beings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210119316-9780648937692-the-magic-of-mindfulness/"><u>The Magic of Mindfulness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

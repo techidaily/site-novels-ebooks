@@ -1,7 +1,7 @@
 ---
 title: The Golden Grimoire | Free Book
-date: 2024-10-25T04:39:16.338Z
-updated: 2024-10-26T18:53:26.851Z
+date: 2025-01-19T04:00:49.448Z
+updated: 2025-01-24T20:39:56.492Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6090b940ad7a3433f1c0eabcd86bd96b8668804764f716c508fb5528c1a0c526.jpg
@@ -151,3 +151,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6090b940ad7a3433f1c0eabcd86bd96
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210107532-9781989838785-bedtime-stories-for-adults-collection-relaxing-sleep-stories-hypnosis-guided-meditations-for-deep-sleep-mindfulness-overcoming-anxiety-panic-attacks-insomnia-st/"><u>Bedtime Stories for Adults Collection Relaxing Sleep Stories, Hypnosis & Guided Meditations for Deep Sleep, Mindfulness, Overcoming Anxiety, Panic Attacks, Insomnia & Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107396-9781473581326-find-your-flow/"><u>Find Your Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107130-9781734719901-from-shy-to-oh-my-the-shy-introverts-guide-to-being-sexy-expressive-and-whole/"><u>From Shy to Oh My! The Shy Introvert's Guide to Being Sexy, Expressive and Whole | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107887-9781645319740-personal-quotes-on-my-bipolar-life/"><u>Personal Quotes on My Bipolar Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107456-9780994359339-when-eve-walked/"><u>When Eve Walked | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

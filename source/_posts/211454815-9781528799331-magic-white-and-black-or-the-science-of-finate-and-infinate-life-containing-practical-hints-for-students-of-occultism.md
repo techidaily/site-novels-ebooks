@@ -1,7 +1,7 @@
 ---
 title: Magic, White and Black; Or, The Science of Finate and Infinate Life, Containing Practical Hints for Students of Occultism | Free Book
-date: 2024-10-25T01:12:37.728Z
-updated: 2024-10-27T05:17:57.395Z
+date: 2025-01-20T00:43:11.126Z
+updated: 2025-01-24T23:41:43.932Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a395c1a22a4e5eddf3ed44cb1b1579e80d67ad2052bb722ea1d5f2783026d6a.jpg
@@ -131,3 +131,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a395c1a22a4e5eddf3ed44cb1b1579
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209660732-9781547573103-a-vida-em-annwn/"><u>A Vida Em Annwn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209659129-9780762494576-buddhas-office/"><u>Buddha's Office | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209658114-9782824632124-ce-que-lau-dela-leur-a-appris/"><u>Ce que l'au-delà leur a appris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660879-9781547574582-meditacao-tecnicas-de-meditacao-para-melhor-sono-tecnicas-de-mindfulness-para-iniciantes/"><u>Meditação : Técnicas De Meditação Para Melhor Sono (Técnicas De Mindfulness Para Iniciantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660753-9781547574575-meditacao-guia-passo-a-passo-para-iniciantes-para-a-atencao-plena-e-uma-conexao-mais-profunda-consigo-mesmo/"><u>Meditação: Guia Passo A Passo Para Iniciantes Para A Atenção Plena E Uma Conexão Mais Profunda Consigo Mesmo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660873-9781547579648-meditacion-aprenda-a-meditar-para-una-experiencia-espiritual-felicidad-y-exito/"><u>Meditación: Aprenda A Meditar Para Una Experiencia Espiritual (Felicidad Y Éxito) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209659105-9780738285313-stop-missing-your-life/"><u>Stop Missing Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209658641-9781401949358-the-wisdom-codes/"><u>The Wisdom Codes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660756-9781547578757-una-mente-plena-a-traves-de-la-guia-de-meditacion-diaria/"><u>Una Mente Plena a Través de la Guía de Meditación Diaria | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Practicing Witch Diary - Book of Shadows - 2025 - Southern Hemisphere | Free Book
-date: 2024-10-21T01:08:49.316Z
-updated: 2024-10-26T18:43:13.817Z
+date: 2025-01-23T19:34:56.365Z
+updated: 2025-01-24T20:06:02.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ceb1c51916b1fabc59c404c61c2c374027ef011279f1a84e8a034e7a4c9f8a77.jpg
@@ -247,3 +247,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ceb1c51916b1fabc59c404c61c2c374
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209634773-9781547573172-meditacao-incrivel-guia-para-iniciantes-e-aqueles-que-odeiam-ficar-parados/"><u>Meditação: Incrível Guia Para Iniciantes E Aqueles Que Odeiam Ficar Parados | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209630859-9781785358715-raising-faith/"><u>Raising Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209630861-9781789040395-sacred-art-a-hollow-bone-for-spirit/"><u>Sacred Art - A Hollow Bone for Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634783-9781547535750-trabajador-de-luz-reiki/"><u>Trabajador de Luz Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634762-9781547563661-uma-noite-em-annwn/"><u>Uma Noite em Annwn | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

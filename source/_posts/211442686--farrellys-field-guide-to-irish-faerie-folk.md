@@ -1,7 +1,7 @@
 ---
 title: Farrelly's Field Guide to Irish Faerie Folk | Free Book
-date: 2024-10-24T18:06:30.529Z
-updated: 2024-10-27T03:01:49.520Z
+date: 2025-01-22T21:32:29.463Z
+updated: 2025-01-24T23:30:28.618Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72138fa4a0907a5235565361fcb97a335e15caf4de9ecd8cc0f36777ae96eeb1.jpg
@@ -132,3 +132,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72138fa4a0907a5235565361fcb97a3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209842378-9780994072535-el-proposito-viaje-emocional-de-tu-alma/"><u>El propósito: Viaje emocional de tu alma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841621-9780987333797-every-day-is-your-best-day/"><u>EVERY DAY IS YOUR BEST DAY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842090-9780996939119-heavens-consciousness-a-near-death-experience/"><u>Heaven's Consciousness A Near-death Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841795-9781513606354-nikola-tesla-afterlife-comments-on-paraphysical-concepts-volume-two/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts, Volume Two | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842283-9781911134008-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842291-9781911134022-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842294-9781911134015-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841636-9781944365028-simply-inspired/"><u>Simply Inspired | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842426-9780993790478-uthathashaya/"><u>उद्देश्य | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

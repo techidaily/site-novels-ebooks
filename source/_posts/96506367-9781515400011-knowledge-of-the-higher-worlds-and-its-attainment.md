@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2025-01-13T17:54:26.757Z
-updated: 2025-01-18T16:43:25.492Z
+date: 2025-01-20T00:58:38.233Z
+updated: 2025-01-25T02:11:12.621Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,16 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1127026-9781612830025-a-mind-for-murder/"><u>A Mind for Murder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127020-9781612830636-meditations-from-conversations-with-god/"><u>Meditations from Conversations With God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127021-9781612830513-meditations-from-conversations-with-god-book-2/"><u>Meditations from Conversations With God, Book 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127023-9781612830155-memories-of-god-and-creation/"><u>Memories of God and Creation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127027-9781612830179-mind-reach/"><u>Mind-Reach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127032-9781612830933-muddy-tracks/"><u>Muddy Tracks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127033-9781612832647-multiply-your-blessings/"><u>Multiply Your Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210262871-9781952491108-awaken-to-unconditional-love/"><u>Awaken to Unconditional Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210263145-9781631953859-beyond-the-pale/"><u>Beyond the Pale | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260817-9781801349901-energy-healing-for-beginners/"><u>Energy Healing for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210264697-9781642280623-i-am-here/"><u>I Am Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210261012-9781528767668-is-spiritualism-based-on-fraud-the-evidence-given-by-sir-a-c-doyle-and-others-drastically-examined/"><u>Is Spiritualism Based on Fraud? - The Evidence Given by Sir A. C. Doyle and Others Drastically Examined | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210264334-9781594336751-lil-girls/"><u>Lil’ Girls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260815-9781801346993-practical-numerology-amp-astrology-for-beginners/"><u>Practical Numerology &amp; Astrology For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260816-9781801349574-third-eye-kundalini-amp-sexuality-awakening-for-beginners/"><u>Third Eye, Kundalini &amp; Sexuality Awakening for Beginners | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

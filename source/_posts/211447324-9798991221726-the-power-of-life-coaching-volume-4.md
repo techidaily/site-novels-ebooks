@@ -1,7 +1,7 @@
 ---
 title: The Power of Life Coaching Volume 4 | Free Book
-date: 2024-10-22T04:59:04.154Z
-updated: 2024-10-26T17:15:58.646Z
+date: 2025-01-18T20:09:26.861Z
+updated: 2025-01-25T04:58:10.068Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0cf0be758be70c8f185d1390799efbeb9b249d29e3ff19a60b43ba5d3314d57a.jpg
@@ -163,3 +163,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0cf0be758be70c8f185d1390799efbe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209593991-9781472957443-giving-up-without-giving-up/"><u>Giving Up Without Giving Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593970-9781632658159-haindl-tarot-major-arcana-rev-ed/"><u>Haindl Tarot, Major Arcana, Rev Ed. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593570-9781925282344-healing-through-sound-colour-and-movement/"><u>Healing Through Sound, Colour and Movement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593388-9781922036391-love-equals-power/"><u>Love Equals Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593369-9780909608101-natures-whispers/"><u>Nature's Whispers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209594849-9780008341824-the-little-book-of-otter-philosophy-the-little-animal-philosophy-books/"><u>The Little Book of Otter Philosophy (The Little Animal Philosophy Books) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593416-9781922175854-the-power-of-your-words/"><u>The Power Of Your Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209594746-9781786782984-what-the-dead-are-dying-to-teach-us/"><u>What the Dead are Dying to Teach Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209594761-9781786782977-when-plants-dream/"><u>When Plants Dream | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

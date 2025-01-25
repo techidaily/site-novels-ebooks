@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Mysterious Essenes | Free Book
-date: 2024-12-31T16:24:00.765Z
-updated: 2025-01-06T17:01:41.143Z
+date: 2025-01-22T00:41:19.163Z
+updated: 2025-01-25T01:35:13.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1682a8a7aa5bc6a00a5d4d4f134ff00a15.jpg
@@ -146,13 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e34f48b8a718dfb5119799f79f245e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210765079-9780646872971-2023-water-rabbit-year/"><u>2023 WATER RABBIT YEAR | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210765164-9781958921203-signs/"><u>Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210765076-9781950330546-the-complete-prophecies-of-nostradamus/"><u>The Complete Prophecies of Nostradamus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764972-9786069344255-your-future-by-numerology/"><u>Your Future by Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644973-9781644116401-flower-magic-of-the-druids/"><u>Flower Magic of the Druids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644978-9781644118269-light-messages-from-the-pleiades/"><u>Light Messages from the Pleiades | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644969-9781644116616-maximize-your-healing-power/"><u>Maximize Your Healing Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644972-9781644117293-spirit-speaker/"><u>Spirit Speaker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210645005-9781645679813-the-tarot-astrology-handbook/"><u>The Tarot & Astrology Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644962-9781644115671-undreaming-wetiko/"><u>Undreaming Wetiko | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644964-9781644116388-yoga-of-sound/"><u>Yoga of Sound | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

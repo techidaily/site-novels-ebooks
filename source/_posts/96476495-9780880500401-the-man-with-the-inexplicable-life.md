@@ -1,7 +1,7 @@
 ---
 title: The Man with the Inexplicable Life | Free Book
-date: 2025-01-14T20:54:31.910Z
-updated: 2025-01-18T18:21:33.281Z
+date: 2025-01-20T03:59:52.140Z
+updated: 2025-01-24T17:10:42.120Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090d7a673c820c62b2b8653378e4a7827ca4.jpg
@@ -170,13 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1575729-9780813146515-adventures-in-paranormal-investigation/"><u>Adventures in Paranormal Investigation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1573162-9781932073706-bridge-between-worlds/"><u>Bridge Between Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1573626-9781615644384-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1574624-9781583948026-the-ayahuasca-sessions/"><u>The Ayahuasca Sessions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434208-9781250861955-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433115-9781786786685-ebb-and-flow/"><u>Ebb and Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433179-9781645448211-insight-without-change-is-meaningless/"><u>Insight Without Change is Meaningless | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433110-9781786786081-myung-sung/"><u>Myung Sung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433173-9781645847953-the-beginning-and-end-of-john-jefferson-high-school/"><u>The Beginning and End of John Jefferson High School | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433575-9781797212463-the-chakra-energy-deck/"><u>The Chakra Energy Deck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434180-9781645676270-the-green-witchs-guide-to-herbal-magick/"><u>The Green Witch's Guide to Herbal Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210434642-9781420979725-the-power-of-concentration/"><u>The Power of Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433120-9781786786555-your-lunar-code/"><u>Your Lunar Code | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

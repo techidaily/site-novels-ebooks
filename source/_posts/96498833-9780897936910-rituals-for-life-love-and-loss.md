@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2025-01-12T16:27:01.666Z
-updated: 2025-01-18T21:47:02.737Z
+date: 2025-01-18T17:08:38.781Z
+updated: 2025-01-24T16:23:33.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,13 +179,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138573342-9780595767359-after-eden/"><u>After Eden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573223-9781462010165-healing-for-the-soul/"><u>Healing for the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573423-9781475931020-miracle-from-the-heart/"><u>Miracle from the Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138573139-9780595877775-poems-of-the-holocaust-and-poems-of-faith/"><u>Poems of the Holocaust and Poems of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333497-9780957510456-enlightenment/"><u>Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333064-9781908421548-jack-webber-physical-medium/"><u>Jack Webber Physical Medium: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333159-9781529382341-journey-to-the-well/"><u>Journey to the Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333501-9780578943862-naked-starseed-ascension-handbook/"><u>Naked Starseed Ascension Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333811-9781922565457-our-eternal-relationship/"><u>Our Eternal Relationship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333058-9788792633729-read-like-the-devil/"><u>Read Like the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333573-9781401965051-the-wisdom-of-dr-david-r-hawkins/"><u>The Wisdom of Dr. David R. Hawkins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334233-9780760372654-the-witchs-complete-guide-to-self-care/"><u>The Witch's Complete Guide to Self-Care | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

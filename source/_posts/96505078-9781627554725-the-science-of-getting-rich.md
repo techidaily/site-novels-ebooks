@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-01-13T19:18:44.968Z
-updated: 2025-01-18T21:40:56.464Z
+date: 2025-01-23T02:26:23.656Z
+updated: 2025-01-24T22:31:29.770Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,14 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1208898-9780759113138-hidden-circles-in-the-web/"><u>Hidden Circles in the Web | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207458-9781780999760-how-to-lavish-a-leo/"><u>How to Lavish a Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207463-9781782790037-new-reiki-software-for-divine-living/"><u>New Reiki Software for Divine Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1208905-9781609253073-psychic-abilities/"><u>Psychic Abilities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207471-9781780991887-wild-earth-wild-soul/"><u>Wild Earth, Wild Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210285248-9781087947334-a-curious-future-2nd-ed/"><u>A Curious Future (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210285483-9781098079086-shaking-like-a-leaf/"><u>Shaking Like a Leaf | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210285396-9781736884409-the-love-frequency/"><u>The Love Frequency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210285395-9780648078739-whats-awakening-really-like/"><u>What's Awakening Really Like? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

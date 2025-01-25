@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of a Satanist | Free Book
-date: 2025-01-01T16:14:31.301Z
-updated: 2025-01-06T16:05:40.947Z
+date: 2025-01-22T21:21:51.660Z
+updated: 2025-01-25T02:09:49.184Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290f30e1c936b63c2de7854a4594e4b69411.jpg
@@ -160,17 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210773258-9781685830212-a-journey-of-self-healing/"><u>A Journey of Self-Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773234-9781649691958-brilliant-minds-in-captivity/"><u>Brilliant Minds in Captivity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773276-9781685830168-grace-to-you/"><u>GRACE TO YOU | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773223-9781649699299-married-but-single-wives-without-husbands/"><u>Married, But Single; Wives Without Husbands | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773281-9781649695109-the-human-mind/"><u>The Human Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773250-9781649691040-the-path-to-freedom/"><u>THE PATH TO FREEDOM | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773287-9781685833848-unpacking-my-shit/"><u>Unpacking My Shit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773216-9781922381736-wholly-phool/"><u>Wholly Phool | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659510-9798985627152-inspired-meditations-book-iii/"><u>Inspired Meditations Book III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659821-9781685702731-know-your-future/"><u>Know Your Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210660657-9798986782058-numerology-for-brilliance-2nd-ed/"><u>Numerology for Brilliance (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659796-9781952692482-the-mindfulness-bell-thich-nhat-hanh-memorial-issue-89-2022/"><u>The Mindfulness Bell: Thich Nhat Hanh Memorial Issue 89, 2022 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659820-9781638740889-thoughts-from-a-mothers-love/"><u>Thoughts from a Mother's Love | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2025-01-16T17:04:21.683Z
-updated: 2025-01-18T22:35:26.472Z
+date: 2025-01-20T23:43:08.676Z
+updated: 2025-01-25T01:20:19.630Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,13 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621371-9781601637345-the-autism-prophecies/"><u>The Autism Prophecies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621373-9781601633781-the-power-of-angel-medicine/"><u>The Power of Angel Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621374-9781601634672-the-power-of-angels/"><u>The Power of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621372-9781601637093-theres-something-under-the-bed/"><u>There's Something Under the Bed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404499-9781646547227-all-shades-between/"><u>All Shades Between | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210405688-9781956736908-dusty-roads-australia/"><u>Dusty Roads Australia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404541-9781649528339-enslaved-by-dimensions-of-time/"><u>Enslaved By Dimensions Of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210405722-9781638377214-gods-gift-goals-of-discovering-self-going-inward-finding-truth/"><u>G.O.D.S. G.I.F.T. Goals of Discovering Self, Going Inward Finding Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210405644-9781088006849-loving-messages-from-my-son-and-the-angels/"><u>Loving Messages From My Son And The Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210405363-9781737281801-truth-of-beauty/"><u>Truth of Beauty | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

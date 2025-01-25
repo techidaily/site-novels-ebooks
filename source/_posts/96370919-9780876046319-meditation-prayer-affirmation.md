@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2025-01-01T16:58:03.961Z
-updated: 2025-01-06T17:04:29.468Z
+date: 2025-01-21T05:29:48.670Z
+updated: 2025-01-25T02:14:12.717Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -142,16 +142,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761476-9781591798767-emptiness-dancing/"><u>Emptiness Dancing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761479-9781604079456-energy-healing/"><u>Energy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761471-9781622039050-healing-through-the-akashic-records/"><u>Healing Through the Akashic Records | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761475-9781604074550-the-bowl-of-light/"><u>The Bowl of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761484-9781604079142-the-deepest-acceptance/"><u>The Deepest Acceptance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761469-9781591798897-the-instruction/"><u>The Instruction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761472-9781604074727-the-path-of-the-yoga-sutras/"><u>The Path of the Yoga Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595623-9798986228617-finding-my-soul/"><u>Finding My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595748-9781452103273-horrorscopes/"><u>Horrorscopes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595953-9789388511414-soft-skills-personality-development-for-life-success/"><u>Soft Skills Personality Development for Life Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595639-9780645178050-the-path/"><u>The Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595611-9798885902885-thoughts-of-serenity/"><u>Thoughts of Serenity | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

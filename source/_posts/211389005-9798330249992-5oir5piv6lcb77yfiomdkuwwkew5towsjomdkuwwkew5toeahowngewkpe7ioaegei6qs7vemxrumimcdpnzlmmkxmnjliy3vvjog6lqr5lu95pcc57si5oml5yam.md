@@ -1,7 +1,7 @@
 ---
 title: 我是谁？ 青少年和青少年的十大终极身份问题 青春期前： 身份搜索手册 | Free Book
-date: 2024-10-24T20:25:28.924Z
-updated: 2024-10-26T18:33:56.533Z
+date: 2025-01-22T23:22:27.572Z
+updated: 2025-01-24T19:19:43.398Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/abc5a7c6d3c069dfa1e0973e1bc011cd42a539dc8c40b8ae7644abde9d069c10.jpg
@@ -155,3 +155,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/abc5a7c6d3c069dfa1e0973e1bc011c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210132053-9781787135765-cosmic-power/"><u>Cosmic Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132689-9789464072228-dear-heaven/"><u>Dear Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132702-9781953791115-i-sing-my-psalm/"><u>I Sing My Psalm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132746-9781618521293-the-chelas-handbook/"><u>The Chela's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132461-9781952871153-transformation/"><u>Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210132697-9788792633644-what-is-not/"><u>What is Not | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

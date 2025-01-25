@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2025-01-15T17:49:17.088Z
-updated: 2025-01-18T17:36:09.196Z
+date: 2025-01-20T19:48:09.318Z
+updated: 2025-01-25T04:41:43.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,18 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1172373-9781780998275-live-issues/"><u>Live Issues | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172374-9781780998930-no-name-no-number/"><u>No Name No Number | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1171649-9781476753065-power-tarot/"><u>Power Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172365-9781780994383-the-atum-re-revival/"><u>The Atum-Re Revival | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172369-9781780999197-the-deep-heart-of-witchcraft/"><u>The Deep Heart of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168816-9781577318330-the-secret-history-of-dreaming/"><u>The Secret History of Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168817-9781577318590-the-secret-spiritual-world-of-children/"><u>The Secret Spiritual World of Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1168818-9781577318040-the-seven-whispers/"><u>The Seven Whispers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1172379-9781780999807-what-aging-men-want/"><u>What Aging Men Want | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282119-9781955275002-alma-mater/"><u>Alma Mater | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282111-9780645160918-god-is-me/"><u>God is Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282131-9780645116113-grow-your-mind-grow-your-life/"><u>Grow Your Mind, Grow Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210281669-9781631950476-life-20/"><u>Life 2.0 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282278-9781589239944-magickal-tarot/"><u>Magickal Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282196-9781736532614-rippling-waves/"><u>Rippling Waves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210282248-9781737092490-the-ultimate-journey-2nd-edition-2nd-ed/"><u>The Ultimate Journey (2nd Edition) (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

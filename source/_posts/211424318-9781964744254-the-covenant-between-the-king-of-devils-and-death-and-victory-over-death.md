@@ -1,7 +1,7 @@
 ---
 title: The Covenant Between the King of Devils and Death and Victory Over Death | Free Book
-date: 2024-10-21T01:20:13.070Z
-updated: 2024-10-26T17:04:15.182Z
+date: 2025-01-24T06:13:06.863Z
+updated: 2025-01-25T05:26:26.946Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f57b94dac4538c0305de1c0c35933a232e794789c027e459fe59b5b816e375b.jpg
@@ -170,3 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f57b94dac4538c0305de1c0c35933a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209913712-9781982150433-a-kitchen-witchs-guide-to-recipes-for-love-romance/"><u>A Kitchen Witch's Guide to Recipes for Love & Romance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913264-9781789042528-is-this-a-dream/"><u>Is This a Dream? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913263-9781785359095-the-hidden-goddess/"><u>The Hidden Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209914482-9780008366315-your-personal-horoscope-2021/"><u>Your Personal Horoscope 2021 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

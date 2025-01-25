@@ -1,7 +1,7 @@
 ---
 title: Illuminating Human Design | Free Book
-date: 2024-10-20T23:18:23.945Z
-updated: 2024-10-26T20:20:57.807Z
+date: 2025-01-20T23:21:29.606Z
+updated: 2025-01-24T16:18:26.280Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2a8bd287787085edbdfd446f45b7b109e8750b203c9fea9d4b8e857bc69b14d.jpg
@@ -171,3 +171,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2a8bd287787085edbdfd446f45b7b1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209541298-9780008319328-aries-2020-your-personal-horoscope/"><u>Aries 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209540460-9780977142361-beyond-sanity-and-madness/"><u>Beyond Sanity and Madness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209540455-9780977142354-big-mind-big-heart/"><u>Big Mind Big Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541012-9781601636706-destiny-vs-choice/"><u>Destiny vs. Choice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541299-9780008319342-gemini-2020-your-personal-horoscope/"><u>Gemini 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209540457-9780977142309-spitting-out-the-bones/"><u>Spitting Out the Bones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209540706-9781939183781-think-like-a-pro-act-like-a-pro/"><u>Think Like A Pro - Act Like A Pro | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

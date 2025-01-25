@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Celtic Fairies in North America | Free Book
-date: 2024-10-20T02:30:22.898Z
-updated: 2024-10-26T22:56:48.102Z
+date: 2025-01-20T03:42:07.008Z
+updated: 2025-01-24T20:55:49.254Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e79872ac2ea6c285496e834170a4b8806ba016c6640e89d64d108511dedf643.jpg
@@ -135,3 +135,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e79872ac2ea6c285496e834170a4b8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209730893-9780806539508-candlelight-spells/"><u>Candlelight Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730484-9780806539621-the-wicca-garden/"><u>The Wicca Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209729473-9780806539652-the-wicca-spellbook/"><u>The Wicca Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730203-9780806539669-the-wiccans-dictionary-of-prophecy-and-omens/"><u>The Wiccan's Dictionary of Prophecy and Omens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209731435-9780806539607-wicca-candle-magick/"><u>Wicca Candle Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209729450-9780806538655-wicca-for-life/"><u>Wicca for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209729728-9780806538679-wicca-for-one/"><u>Wicca for One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209730697-9780806539638-wicca-love-spells/"><u>Wicca Love Spells | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

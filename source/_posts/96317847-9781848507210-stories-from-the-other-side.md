@@ -1,7 +1,7 @@
 ---
 title: Stories from the Other Side | Free Book
-date: 2025-01-02T16:46:19.248Z
-updated: 2025-01-06T16:27:12.882Z
+date: 2025-01-21T17:36:59.714Z
+updated: 2025-01-24T20:42:28.732Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a44611615474af793bfb24f78449e6425107cce13.jpg
@@ -159,15 +159,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a4461161
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210817344-9781401976460-a-time-for-grace/"><u>A Time for Grace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210817279-9781529903683-let-healing-happen/"><u>Let Healing Happen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210818808-9781956744835-news-from-the-unconscious-realm/"><u>News from the Unconscious Realm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210818448-9781250325761-the-books-of-enoch/"><u>The Books of Enoch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210817133-9781250902740-the-magic-of-tarot/"><u>The Magic of Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210817164-9781250910455-the-way-home/"><u>The Way Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685849-9781803410937-a-beginners-guide-to-ogham-divination/"><u>A Beginner's Guide to Ogham Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685841-9781803410593-align-living-and-loving-from-the-true-self/"><u>Align: Living and Loving from the True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685508-9781646045211-spell-jars-for-the-modern-witch/"><u>Spell Jars for the Modern Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685845-9781785353932-the-holistic-guide-to-your-health-wellbeing-today/"><u>The Holistic Guide To Your Health & Wellbeing Today | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685747-9781982194321-will-to-wild/"><u>Will to Wild | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Transcendent Wisdom of the Maya | Free Book
-date: 2025-01-05T16:50:47.666Z
-updated: 2025-01-06T16:05:48.841Z
+date: 2025-01-17T18:23:29.671Z
+updated: 2025-01-24T17:32:58.177Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8fe342fd625e873a2ea83a159fafc7d7dd.jpg
@@ -208,17 +208,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210731340-9781738809912-a-spiritual-warriors-path-to-re-enlightening/"><u>A Spiritual Warrior's Path to Re-Enlightening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731124-9781959761372-angel-and-adam-love-to-live-and-live-to-love/"><u>Angel and Adam: Love to Live and Live to Love : | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731821-9789357241038-prayer-communing-with-god-in-everything-collected-insights-from-a-w-tozer/"><u>Prayer: Communing with God in Everything-Collected Insights from A. W. Tozer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731481-9781524328368-the-cor-method/"><u>The COR Method | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731832-9781684980642-the-humaniverse-guide-will-et-talk-with-us/"><u>The Humaniverse Guide: Will ET Talk with Us? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731287-9781662472800-the-psychedelic-diaries/"><u>The Psychedelic Diaries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731322-9783988319326-wicca-moon-magic/"><u>WICCA MOON MAGIC | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731751-9781098093792-will-the-real-woman-of-god-please-stand/"><u>Will the Real Woman of God Please Stand? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557110-9781734677355-el-camino-del-alma-a-la-salud-total/"><u>EL CAMINO DEL ALMA A LA SALUD TOTAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557103-9781955068000-haunted-missouri/"><u>Haunted Missouri | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210556952-9781885928375-the-golden-book-of-wisdom/"><u>The Golden Book of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210555992-9780306828997-the-power-of-awe/"><u>The Power of Awe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Paranormal and Transcendental Experience | Free Book
-date: 2025-01-16T16:34:24.994Z
-updated: 2025-01-18T20:02:25.576Z
+date: 2025-01-22T17:38:34.345Z
+updated: 2025-01-24T19:19:24.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858be456feab2af71507ceb8cba5237ffe9a.jpg
@@ -138,16 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1969559-9780804181044-angel-power/"><u>Angel Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1980053-9781583947333-mystery-school-in-hyperspace/"><u>Mystery School in Hyperspace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1964083-9781782797722-number-woman/"><u>Number Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1964084-9781780993836-orbs-and-beyond/"><u>Orbs and Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1964087-9781782794530-the-inner-goddess-revolution/"><u>The Inner Goddess Revolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1973644-9780895565389-the-master-game/"><u>The Master Game | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1964089-9781782797920-traditional-witchcraft-and-the-path-to-the-mysteries/"><u>Traditional Witchcraft and the Path to the Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529418-9781638747628-armed-with-god/"><u>Armed with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530959-9781612834849-freeing-the-captives/"><u>Freeing the Captives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529388-9781639039258-positives/"><u>Positives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529378-9781639610679-scattered-smothered-and-yet-covered-by-the-grace-of-god/"><u>Scattered, Smothered, and Yet Covered by the Grace of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530288-9780998688732-tantra-iluminado/"><u>Tantra Iluminado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530786-9780645000641-the-colour-medicine-oracle-guidebook/"><u>The Colour Medicine Oracle Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529435-9781639035960-the-journey/"><u>The Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210529402-9781639617524-thy-will-be-done/"><u>Thy Will Be Done | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530724-9781778142215-vedic-astrology-the-vedas/"><u>Vedic Astrology & The Vedas | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Capricorn | Free Book
-date: 2025-01-04T16:53:40.006Z
-updated: 2025-01-06T17:02:29.739Z
+date: 2025-01-21T05:59:08.996Z
+updated: 2025-01-24T20:09:40.746Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977ee44c94c191dcc84849061ae3794bfc4ca.jpg
@@ -169,15 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210847671-9781801520744-concentration/"><u>Concentration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847628-9781988387260-human-nature/"><u>Human Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847422-9781685680862-la-paz-interior/"><u>La paz interior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847543-9780996510387-living-the-deepest-truth-you-know/"><u>Living the Deepest Truth You Know | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847650-9798987504673-moments-of-edification-volume-1/"><u>Moments of Edification: Volume 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847625-9781958356210-the-hills-we-climb-love-it-hate-it-embrace-itlifes-journey/"><u>The Hills We Climb Love It, Hate It, Embrace It...Life's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705156-9780760379998-angel-numbers/"><u>Angel Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705161-9780760379974-candle-magic/"><u>Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705147-9780760380581-celtic-mysticism/"><u>Celtic Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705153-9780760376393-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705157-9780760377697-moon-meditations/"><u>Moon Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705150-9780760379981-pendulum-magic/"><u>Pendulum Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705141--your-human-design/"><u>Your Human Design | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

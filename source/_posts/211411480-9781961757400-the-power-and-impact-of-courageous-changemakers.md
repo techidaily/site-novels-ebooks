@@ -1,7 +1,7 @@
 ---
 title: The Power and Impact of Courageous Changemakers | Free Book
-date: 2024-10-25T04:28:42.718Z
-updated: 2024-10-26T20:05:32.006Z
+date: 2025-01-17T22:30:22.070Z
+updated: 2025-01-24T18:56:45.017Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/decc94950cb0e127130b4bb2c3f5d0a24c0c3a532763980397ea49035bba95cd.jpg
@@ -187,3 +187,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/decc94950cb0e127130b4bb2c3f5d0a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210000825-9781761034312-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000449-9781783752034-midwinter-heat/"><u>Midwinter Heat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210000824-9781761034305-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001418-9781761034459-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210001417-9781761034497-reiki/"><u>Reiki | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

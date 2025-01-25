@@ -1,7 +1,7 @@
 ---
 title: Listening Circles, Seeding Life | Free Book
-date: 2024-10-19T17:58:04.099Z
-updated: 2024-10-27T00:20:42.288Z
+date: 2025-01-23T23:52:25.628Z
+updated: 2025-01-24T17:13:44.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccc53ba3e16706f7d4810321d3a9f7314f1b59e217ee74376a544794a3dd767f.jpg
@@ -155,3 +155,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccc53ba3e16706f7d4810321d3a9f73
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209661379-9781547580453-lideranca-motive-seus-funcionarios-e-influencie-facilmente-as-pessoas-para-melhorar-a-tomada-de-decisoes/"><u>Liderança: Motive seus funcionários e influencie facilmente as pessoas para melhorar a tomada de decisões | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661088-9781547578115-manuale-per-la-consapevolezza-attraverso-la-meditazione-quotidiana/"><u>Manuale per la Consapevolezza Attraverso la Meditazione Quotidiana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661351-9781547575725-meditacao-guia-sobre-como-meditar-para-pessoas-ocupadas-para-curar-depressao-ansiedade-e-estresse/"><u>Meditação: Guia Sobre Como Meditar Para Pessoas Ocupadas Para Curar Depressão, Ansiedade E Estresse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661134-9781547578856-meditacao-um-guia-iniciante-para-curar-sua-alma-e-encontrar-a-paz-espiritualidade-para-iniciantes/"><u>Meditação: Um Guia Iniciante Para Curar Sua Alma E Encontrar A Paz (Espiritualidade Para Iniciantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661094-9781547578900-meditacion-guia-de-mindfulness-para-la-auto-disciplina-y-el-exito-guia-de-auto-ayuda/"><u>Meditación: Guía De Mindfulness Para La Auto Disciplina Y El Éxito (Guía De Auto Ayuda) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661292-9781547577194-meditazione-per-principianti/"><u>Meditazione per Principianti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661105-9781547578504-mindfulness-atraves-do-guia-diario-da-meditacao/"><u>Mindfulness Através do guia Diário da Meditação | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661285-9781547575312-o-pai-de-megan-adoece/"><u>O Pai de Megan Adoece | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661312-9781547577439-villfarelsen/"><u>Villfarelsen | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2025-01-05T16:26:59.716Z
-updated: 2025-01-06T16:05:52.836Z
+date: 2025-01-18T05:27:26.880Z
+updated: 2025-01-24T21:33:34.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,14 +205,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210751122-9781684985104-101-provelations/"><u>101 Provelations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210751208-9798987551219-a-secret-gathering/"><u>A Secret Gathering | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210751128-9781684988426-diversionary/"><u>Diversionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210751235-9780991510276-the-connoisseur-of-time-an-invitation-to-presence/"><u>The Connoisseur of Time: An Invitation to Presence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210750968-9781805455776-the-role-of-age-gender-and-socioeconomic-status-in-spiritual-intelligence-in-adolescents-and-young-adults/"><u>The role of age gender and socioeconomic status in spiritual intelligence in adolescents and young adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210573516-9781399803199-21-day-abundance-challenge/"><u>21 Day Abundance Challenge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571881-9798986306209-amada-por-amor/"><u>Amada Por Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571732-9781524869113-be-mindful-and-simplify-your-life/"><u>Be Mindful and Simplify Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571888-9798985515718-ditch-the-boyfriend-and-get-a-life-coach/"><u>Ditch the Boyfriend and Get a Life Coach | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210571897-9781911134633-el-tarot-del-siglo-xxi-escubre-todos-los-secretos-de-la-adivinacion-cotidiana-y-magica/"><u>El Tarot del Siglo XXI - escubre todos los secretos de la adivinación cotidiana y mágica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210573720-9781662468063-ministering-without-walls/"><u>Ministering Without Walls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210572043-9791029913709-the-rosicrucian-mysteries/"><u>The Rosicrucian Mysteries | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

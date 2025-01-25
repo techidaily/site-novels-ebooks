@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2025-01-16T19:47:26.352Z
-updated: 2025-01-18T17:59:39.483Z
+date: 2025-01-20T17:38:18.841Z
+updated: 2025-01-25T05:57:31.888Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,15 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1676129-9781782796305-divorcing-a-real-witch/"><u>Divorcing a Real Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1666483-9781118727904-mindfulness-at-work-for-dummies/"><u>Mindfulness at Work For Dummies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1674245-9781583948637-pioneering-the-possible/"><u>Pioneering the Possible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1676134-9781782795193-poison-pen-letters-to-myself/"><u>Poison Pen Letters to Myself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1676138-9781782794325-teen-spirit-guide-to-modern-shamanism/"><u>Teen Spirit Guide to Modern Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1676139-9781782790587-teen-spirit-wicca/"><u>Teen Spirit Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470841-9781777878429-embodied/"><u>Embodied | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470557-9789692292788-enriching-the-immortal-soul/"><u>Enriching the Immortal Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470836-9789814952897-how-to-do-nothing/"><u>How To Do Nothing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470498-9780578362809-life-is-worth-more-than-just-living/"><u>Life Is Worth More Than Just Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470919-9789354621055-meditations/"><u>Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470837-9789814952835-motivation-workbook-positive-mindset-only/"><u>Motivation Workbook: Positive Mindset Only | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470502-9781087891613-now-i-know-my-abcs-life-alphabet/"><u>Now I know my ABC's Life Alphabet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210472677-9780253014641-where-the-spirits-ride-the-wind/"><u>Where the Spirits Ride the Wind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

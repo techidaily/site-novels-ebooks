@@ -1,7 +1,7 @@
 ---
 title: The Psychedelic Shaman | Free Book
-date: 2024-10-22T02:14:21.506Z
-updated: 2024-10-27T00:16:12.980Z
+date: 2025-01-22T00:04:29.880Z
+updated: 2025-01-25T01:07:08.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da4eb657be6f653c22a36215186d229a0124beeca238c13c78c19e5297dafb39.jpg
@@ -155,3 +155,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da4eb657be6f653c22a36215186d229
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209824235-9781683256557-como-interpretar-los-suenos-para-ganar-a-la-primitiva-y-a-la-bonoloto/"><u>Cómo interpretar los sueños para ganar a la primitiva y a la bonoloto | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824253-9781644615218-el-angel-custodio/"><u>El Ángel Custodio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824219-9781683256489-el-lenguaje-secreto-del-rostro/"><u>El lenguaje secreto del rostro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824230-9781683256564-entre-en-el-mundo-secreto-de-los-tarots/"><u>Entre en... el mundo secreto de los tarots | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

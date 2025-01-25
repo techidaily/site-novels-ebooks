@@ -1,7 +1,7 @@
 ---
 title: The Meditation Yearbook | Free Book
-date: 2024-10-25T02:12:46.757Z
-updated: 2024-10-26T16:14:07.190Z
+date: 2025-01-17T18:19:44.503Z
+updated: 2025-01-24T16:02:37.433Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f96bda864f76a6b94ab3dc00755d991914fc9ee1c20d4a260bd3df0c134c1c84.jpg
@@ -165,3 +165,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f96bda864f76a6b94ab3dc00755d991
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209955045-9780998952437-god-is/"><u>GOD IS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209956370-9781989838105-guided-meditations-for-anxiety-depression-and-self-healing/"><u>Guided Meditations for Anxiety, Depression, and Self-Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209954480-9781071527016-meditacion-para-principiantes/"><u>Meditación Para Principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209956798-9781982145668-the-complete-notes-from-the-universe/"><u>The Complete Notes From the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209957185-9781913274160-the-power-within/"><u>The Power Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209955957-9782824633633-vivre-la-voyance/"><u>Vivre la voyance | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: An Overview of the Edgar Cayce Material | Free Book
-date: 2025-01-01T16:12:24.029Z
-updated: 2025-01-06T17:04:33.146Z
+date: 2025-01-20T16:35:01.127Z
+updated: 2025-01-25T01:37:24.318Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa86584d7ab55c0c2edc64b865697096a39f.jpg
@@ -139,18 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761801-9781591798743-distant-healing/"><u>Distant Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761816-9781604077513-intuitive-self-healing/"><u>Intuitive Self-Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761791-9781604073294-meditation-for-the-love-of-it/"><u>Meditation for the Love of It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761818-9781591798682-remote-viewing/"><u>Remote Viewing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761817-9781622030743-saint-teresa-of-avila/"><u>Saint Teresa of Avila | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761806-9781591798194-shamanic-journeying/"><u>Shamanic Journeying | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761797-9781591798316-shamans-of-the-world/"><u>Shamans of the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761795-9781591798590-the-mystery-of-2012/"><u>The Mystery of 2012 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761814-9781591798453-your-deepest-intent/"><u>Your Deepest Intent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210623263-9781648480751-awakening-your-psychic-ability/"><u>Awakening Your Psychic Ability | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210625874-9781638603368-beneath-the-mask/"><u>Beneath the Mask | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210623865-9781493046973-haunted-highways-2nd-ed/"><u>Haunted Highways (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210622609-9781684930708-melchizedek-and-the-mystery-of-fire/"><u>Melchizedek and the Mystery of Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210625889-9780760375235-the-complete-guide-to-living-by-the-moon/"><u>The Complete Guide to Living by the Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210623170-9781881098898-the-witches-almanac-2023-2024-standard-edition-issue-42/"><u>The Witches' Almanac 2023-2024 Standard Edition Issue 42 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

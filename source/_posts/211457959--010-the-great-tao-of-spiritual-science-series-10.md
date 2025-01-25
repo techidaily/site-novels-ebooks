@@ -1,7 +1,7 @@
 ---
 title: "生命奧秘全書010：謙卑踏上靈性的道路──人生是靈魂修煉的道場（處世篇）: The Great Tao of Spiritual Science Series 10 | Free Book"
-date: 2024-10-22T03:01:16.345Z
-updated: 2024-10-27T05:25:19.872Z
+date: 2025-01-23T19:55:54.169Z
+updated: 2025-01-24T21:05:44.718Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cd474f5b0ce4e75053dfce80f47dc739716062e888b12d7a069ec8616d0e387a.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cd474f5b0ce4e75053dfce80f47dc73
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209593254-9781925283334-angels-guides-and-goosebumps/"><u>Angels: Guides and Goosebumps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593355-9781925416701-synchronicity-and-dreaming/"><u>Synchronicity and Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593306-9780909608194-the-five-principles-of-spiritual-reality/"><u>The Five Principles of Spiritual Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593266-9781921596841-the-mind-that-changes-everything/"><u>The Mind That Changes Everything | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

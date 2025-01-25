@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2025-01-13T18:12:24.977Z
-updated: 2025-01-18T17:43:31.320Z
+date: 2025-01-18T16:05:05.466Z
+updated: 2025-01-25T03:20:39.707Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,14 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209514897-9782824631004-ce-que-les-defunts-me-disent/"><u>Ce que les défunts me disent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209515004-9781625848000-ghosts-of-the-queen-mary/"><u>Ghosts of the Queen Mary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209513553-9781612834351-out-of-your-hands/"><u>Out of Your Hands | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209515647-9780399591600-signs/"><u>Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209513554-9781612834368-unlock-the-zodiac/"><u>Unlock the Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545395-9781399704908-astrology-self-care-aquarius/"><u>Astrology Self-Care: Aquarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545412-9781399704595-astrology-self-care-aries/"><u>Astrology Self-Care: Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545400-9781399704861-astrology-self-care-capricorn/"><u>Astrology Self-Care: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545393-9781399704717-astrology-self-care-leo/"><u>Astrology Self-Care: Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545408-9781399704779-astrology-self-care-libra/"><u>Astrology Self-Care: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545407--astrology-self-care-pisces/"><u>Astrology Self-Care: Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545413-9781399704748-astrology-self-care-virgo/"><u>Astrology Self-Care: Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545511-9781645677475-ritual-baths-for-the-beginner-witch/"><u>Ritual Baths for the Beginner Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545486-9781250874498-the-master-key-system-the-complete-original-edition/"><u>The Master Key System: The Complete Original Edition | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

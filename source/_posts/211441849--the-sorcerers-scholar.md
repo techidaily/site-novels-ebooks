@@ -1,7 +1,7 @@
 ---
 title: The Sorcerer's Scholar | Free Book
-date: 2024-10-20T21:25:04.086Z
-updated: 2024-10-27T05:14:14.997Z
+date: 2025-01-21T20:03:51.015Z
+updated: 2025-01-24T17:23:33.149Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1503f6f852d42229f3f3a7ca84c87013eb8a4e25c2c9388fd2df006633990bc7.jpg
@@ -156,3 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1503f6f852d42229f3f3a7ca84c8701
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209840510-9781908421197-leben-nach-dem-tod-der-schlussige-beweis/"><u>Leben nach dem Tod: Der Schlussige Beweis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840717-9780992481674-messages-from-the-spirit-realm/"><u>Messages From The Spirit Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840624-9781937233266-tao-for-now/"><u>Tao for Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840547-9780646939070-the-alignment-of-the-universe/"><u>The Alignment of the Universe | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

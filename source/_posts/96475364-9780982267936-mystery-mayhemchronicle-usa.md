@@ -1,7 +1,7 @@
 ---
 title: "MYSTERY-MAYHEM:CHRONICLE USA | Free Book"
-date: 2025-01-13T20:06:15.871Z
-updated: 2025-01-18T21:26:43.637Z
+date: 2025-01-19T16:34:11.135Z
+updated: 2025-01-24T23:01:34.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b629334482a128390c36ad4018a228f91e165a.jpg
@@ -134,15 +134,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b6293
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621378-9781601639745-ghosts-of-war/"><u>Ghosts of War | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621381-9781601639608-lore-of-the-ghost/"><u>Lore of the Ghost | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621380-9781601639585-magickal-connections/"><u>Magickal Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622060-9781351103725-religious-literacy-in-hospice-care/"><u>Religious Literacy in Hospice Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138622035-9781608685578-the-jewel-of-abundance/"><u>The Jewel of Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621385-9781601639240-zombies/"><u>Zombies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210405723-9781087951379-addiction-in-the-vedic-astrology-chart/"><u>Addiction in the Vedic Astrology Chart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210406359-9781786786111-signposts-of-the-spiritual-journey/"><u>Signposts of the Spiritual Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210405726-9780473588755-tragic-to-magic/"><u>Tragic to Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210406358-9781401969608-trust-your-vibes-revised-edition/"><u>Trust Your Vibes (Revised Edition) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

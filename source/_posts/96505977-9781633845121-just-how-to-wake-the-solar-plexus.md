@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2025-01-15T16:51:38.648Z
-updated: 2025-01-18T16:20:26.053Z
+date: 2025-01-23T03:26:32.139Z
+updated: 2025-01-25T04:41:57.447Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,13 +134,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125848-9781609254247-light-on-relationships/"><u>Light on Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125870-9781609255398-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125873-9781609257194-maat-magick/"><u>Maat Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125853-9781609254513-the-little-book-of-life-after-death/"><u>The Little Book of Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210238852-9781784884086-astrology-sos/"><u>Astrology SOS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240087-9781398701953-astrosex-aries/"><u>Astrosex: Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240084-9781398702059-astrosex-virgo/"><u>Astrosex: Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210238864-9781773056555-in-praise-of-retreat/"><u>In Praise of Retreat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210239541-9781496833037-the-cards/"><u>The Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210238310-9780835630818-the-chakras/"><u>The Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210239389-9781087953298-true-feathers/"><u>True Feathers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210238644-9780648873969-wanting-to-be-me/"><u>Wanting to be Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237745-9781916045125-witchcraft-and-the-old-religion/"><u>Witchcraft and The Old Religion | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

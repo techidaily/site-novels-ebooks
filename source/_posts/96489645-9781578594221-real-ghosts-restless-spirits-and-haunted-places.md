@@ -1,7 +1,7 @@
 ---
 title: Real Ghosts, Restless Spirits, and Haunted Places | Free Book
-date: 2025-01-11T20:40:06.942Z
-updated: 2025-01-18T21:17:26.986Z
+date: 2025-01-22T02:23:45.270Z
+updated: 2025-01-25T03:21:49.781Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bfc0f058ccbd270756cad3455b75e0de936.jpg
@@ -280,16 +280,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138568704-9781491724088-advice-for-life-from-the-mouths-of-elders/"><u>Advice for Life from the Mouths of Elders | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568672-9781469704302-manifest-success/"><u>Manifest Success! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568755-9781475909456-pilgrimage-to-java/"><u>Pilgrimage to Java | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568689-9781440108945-resolution/"><u>Resolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568667-9781440138980-the-kindness-of-strangers/"><u>The Kindness of Strangers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568838-9780595612475-through-the-veil/"><u>Through the Veil | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568889-9780595831678-too-soon-old-too-late-smart/"><u>Too Soon Old-Too Late Smart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210308959-9781649528506-church-boy-love/"><u>Church Boy Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307562-9781642502978-live-with-intention/"><u>Live with Intention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210308989-9781910531464-mapping-the-psyche-volume-2/"><u>Mapping the Psyche Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210308986-9781910531471-shodasha-varga/"><u>Shodasha Varga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307576-9781642503739-the-twelve-gifts-from-the-garden/"><u>The Twelve Gifts from the Garden | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

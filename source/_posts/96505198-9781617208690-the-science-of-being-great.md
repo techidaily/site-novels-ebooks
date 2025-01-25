@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2025-01-12T18:36:59.794Z
-updated: 2025-01-18T21:26:35.052Z
+date: 2025-01-19T03:33:20.660Z
+updated: 2025-01-24T18:01:13.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,15 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1237937-9780761861089-adjusting-to-lifes-changing-seasons/"><u>Adjusting to Life's Changing Seasons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1222100-9781583947999-aya-awakenings/"><u>Aya Awakenings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1224572-9781609259099-embrace-yes/"><u>Embrace Yes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1230262-9781780992808-identity-and-the-quartered-circle/"><u>Identity and the Quartered Circle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1245839-9781476713090-making-marks/"><u>Making Marks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1224575-9781609259273-runecasters-handbook/"><u>Runecaster's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290245-9781734920956-feminine-archetypes/"><u>Feminine Archetypes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289716-9781507217443-money-spells/"><u>Money Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290439-9781662410581-principles-of-progress/"><u>Principles of Progress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290511-9781636308029-visible-visions-motivation/"><u>Visible Visions Motivation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

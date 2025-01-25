@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2025-01-17T16:20:49.293Z
-updated: 2025-01-18T20:27:41.690Z
+date: 2025-01-21T19:38:45.450Z
+updated: 2025-01-25T03:02:20.245Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,16 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138543814-9781528783200-pistis-sophia-a-gnostic-gospel-with-extracts-from-the-books-of-the-saviour-appended/"><u>Pistis Sophia - A Gnostic Gospel (With Extracts from the Books of the Saviour Appended) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138543628-9781528783569-raphaels-horary-astrology-by-which-every-question-relating-to-the-future-may-be-answered/"><u>Raphael's Horary Astrology by which Every Question Relating to the Future May Be Answered | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138543384-9781633535367-rituals-for-magic-and-meaning/"><u>Rituals for Magic and Meaning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138522742-9781462919086-steampunk-tarot-ebook/"><u>Steampunk Tarot Ebook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138543805-9781528783187-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-procedure-its-rites-and-its-mysteries/"><u>The History of Magic - Including a Clear and Precise Exposition of its Procedure, Its Rites and Its Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138543728-9781528783279-the-magical-ritual-of-the-sanctum-regnum-interpreted-by-the-tarot-trumps/"><u>The Magical Ritual of the Sanctum Regnum - Interpreted by the Tarot Trumps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138543674-9781528783118-zetetic-astronomy-earth-not-a-globe-an-experimental-inquiry-into-the-true-figure-of-the-earth-proving-it-a-plane-without-axial-or-orbital-motion-and-the-only-ma/"><u>Zetetic Astronomy - Earth Not a Globe! An Experimental Inquiry into the True Figure of the Earth: Proving it a Plane, Without Axial or Orbital Motion; and the Only Material World in the Universe! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210295108-9781644581933-coming-out-of-darkness/"><u>Coming Out of Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210294996-9781642995336-dispensing-truth/"><u>Dispensing Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210295208-9781642998115-fourteen-days-to-light-hope-and-healing/"><u>Fourteen Days To Light, Hope, and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210295286-9781644580509-healing-from-the-heart/"><u>Healing From the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210295318-9781642582642-life-changing-tidbits/"><u>Life Changing Tidbits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210295360-9781644584514-metamorphyx/"><u>Metamorphyx | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210295164-9781635254600-ptsd-raw-and-real-a-reason-for-hope-and-motivation-to-fight-on/"><u>PTSD Raw and Real: A Reason for Hope and Motivation To Fight On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210295370-9781645155621-push/"><u>PUSH | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

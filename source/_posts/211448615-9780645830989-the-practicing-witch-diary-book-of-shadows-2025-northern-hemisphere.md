@@ -1,7 +1,7 @@
 ---
 title: The Practicing Witch Diary - Book of Shadows - 2025 - Northern Hemisphere | Free Book
-date: 2024-10-21T20:03:19.471Z
-updated: 2024-10-26T23:55:15.667Z
+date: 2025-01-22T23:05:43.308Z
+updated: 2025-01-25T04:10:34.782Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1852f00381b335e96eb7a9af996e126efe86e366f3b704a08fe12b811054fb42.jpg
@@ -246,3 +246,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1852f00381b335e96eb7a9af996e126
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209636294-9781633411142-astrology-for-real-life/"><u>Astrology for Real Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636287-9781633411562-magickal-mermaids-and-water-creatures/"><u>Magickal Mermaids and Water Creatures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636289-9780892546848-navigating-the-financial-universe/"><u>Navigating the Financial Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636291-9781938289880-the-medicine-bag/"><u>The Medicine Bag | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

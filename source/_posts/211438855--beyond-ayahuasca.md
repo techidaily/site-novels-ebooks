@@ -1,7 +1,7 @@
 ---
 title: Beyond Ayahuasca | Free Book
-date: 2024-10-26T02:06:48.060Z
-updated: 2024-10-27T02:19:00.278Z
+date: 2025-01-21T23:12:09.213Z
+updated: 2025-01-25T02:40:23.308Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9b674aff9fa3d364c94acc670afa4e80538bc6474b0fbd0dc6910df7a982605.jpg
@@ -154,3 +154,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9b674aff9fa3d364c94acc670afa4e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209849943-9781945558214-healing-toxic-habits/"><u>Healing Toxic Habits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849901-9781947151024-love-is-the-answer/"><u>Love is the Answer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849870-9781945558504-open-your-gifts/"><u>Open Your G.I.F.T.S. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849639-9780473369347-the-new-mysticism/"><u>The New Mysticism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

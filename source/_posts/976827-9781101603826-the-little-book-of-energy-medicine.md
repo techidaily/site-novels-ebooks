@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2025-01-17T17:37:21.104Z
-updated: 2025-01-18T22:38:53.732Z
+date: 2025-01-18T03:22:14.667Z
+updated: 2025-01-24T16:39:19.069Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,14 +192,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124139-9781934708347-book-of-lies/"><u>Book of Lies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124125-9781609258405-steampunk-magic/"><u>Steampunk Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124126-9781612833064-the-afterlife-of-billy-fingers/"><u>The Afterlife of Billy Fingers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124143-9781934708217-the-egypt-code/"><u>The Egypt Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124130-9781618520296-travelers/"><u>Travelers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210208243-9780998652481-consciousness-is-all-4th-ed/"><u>Consciousness Is All (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210208389-9781597145190-full-ecology/"><u>Full Ecology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207990-9781952146138-misfit-in-hell-to-heaven-expat/"><u>Misfit in Hell to Heaven Expat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210208334-9781528767804-telepathy-genuine-and-fraudulent-with-a-preface-by-sir-oliver-lodge/"><u>Telepathy - Genuine and Fraudulent - With a Preface by Sir Oliver Lodge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207967-9780578833491-the-complete-astrology-and-intuitive-guide-to-2021/"><u>The Complete Astrology and Intuitive Guide To 2021 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207088-9781913816285-the-sacred-revival/"><u>THE SACRED REVIVAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207075-9781722526139-think-and-grow-rich-and-the-richest-man-in-babylon-original-classic-editions/"><u>Think and Grow Rich and The Richest Man in Babylon (Original Classic Editions) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207169-9780593139493-your-intuition-led-you-here/"><u>Your Intuition Led You Here | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2025-01-14T19:55:32.953Z
-updated: 2025-01-18T20:38:37.352Z
+date: 2025-01-20T21:01:55.534Z
+updated: 2025-01-25T05:23:37.686Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,15 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126987-9781612830001-im-spiritual-dammit/"><u>I'm Spiritual, Dammit! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127009-9781612831992-lessons-out-of-the-body/"><u>Lessons Out of the Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127018-9781612831640-marilyn-monroe-returns/"><u>Marilyn Monroe Returns | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127003-9781612832777-the-journey-of-robert-monroe/"><u>The Journey of Robert Monroe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127011-9781612831305-the-little-book-of-true-ghost-stories/"><u>The Little Book of True Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127015-9781612832340-the-lost-secret-of-death/"><u>The Lost Secret of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260160-9788194752073-be-the-smarter-you-your-app-store-for-success-happiness/"><u>Be the Smarter You: Your App Store for Success & Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210259787-9780834843592-diving-in-the-inner-ocean/"><u>Diving in the Inner Ocean | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210259998-9781524871673-for-all-you-do/"><u>For All You Do | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210258399-9781529341980-lessons-from-a-bedside/"><u>Lessons from a Bedside | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260777-9781951130657-messages-from-sam/"><u>Messages from Sam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260806-9781801349550-third-eye-awakening-kundalini-for-beginnersamp-energy-healing-4-in-1/"><u>Third Eye Awakening, Kundalini For Beginners&amp; Energy Healing (4 in 1) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

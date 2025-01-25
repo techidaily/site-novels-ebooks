@@ -1,7 +1,7 @@
 ---
 title: The Healers | Free Book
-date: 2024-10-22T06:00:15.314Z
-updated: 2024-10-27T04:37:39.664Z
+date: 2025-01-21T17:17:47.026Z
+updated: 2025-01-25T01:51:36.022Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b09ac4b906026d2f2049a264005988dd412486c2027e1e0af56677c69542c558.jpg
@@ -199,3 +199,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b09ac4b906026d2f2049a264005988d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209776243-9781591433811-activating-your-5d-frequency/"><u>Activating Your 5D Frequency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209776238-9781620559352-crystal-basics/"><u>Crystal Basics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209776239-9781591433453-dark-fleet/"><u>Dark Fleet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209776242-9781591433477-magdalene-mysteries/"><u>Magdalene Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209776240-9781591433637-quantum-science-of-psychedelics/"><u>Quantum Science of Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209776241-9781644110669-the-sacred-herbs-of-spring/"><u>The Sacred Herbs of Spring | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

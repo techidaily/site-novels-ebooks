@@ -1,7 +1,7 @@
 ---
 title: Curanderismo Soul Retrieval | Free Book
-date: 2024-12-31T16:04:50.112Z
-updated: 2025-01-06T16:09:27.650Z
+date: 2025-01-21T05:32:50.316Z
+updated: 2025-01-24T21:56:36.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed51578ee401a573874d976459b0dd19d6aa.jpg
@@ -196,18 +196,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210739695-9798886850567-activating-the-holy-spirit/"><u>Activating the Holy Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210742001-9798885053419-fully-armed-with-unbreakable-faith/"><u>Fully Armed With Unbreakable Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210739653-9781957869117-how-to-change-your-body/"><u>How to Change Your Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210740356-9781398827899-secrets-to-manifesting/"><u>Secrets to Manifesting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210741325-9781786787958-the-astral-geographic/"><u>The Astral Geographic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210739707-9798886540833-the-handbook-of-you/"><u>The Handbook of YOU | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210740608-9781959434603-the-journey/"><u>The Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210740352-9781782120438-the-labyrinth-of-time/"><u>The Labyrinth of Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210741491-9781957114491-why-believe-it/"><u>Why Believe It? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210559319-9781788179232-21-days-to-explore-your-past-lives/"><u>21 Days to Explore Your Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210560066-9781639854219-luceat-lux-vestra/"><u>Luceat Lux Vestra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210559576-9781952692369-radical-love/"><u>Radical Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210559272-9781590794043-the-laszlo-chronicle/"><u>The Laszlo Chronicle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210559281-9781590792575-the-living-spirit/"><u>The Living Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210559538-9780593538623-the-signs-in-love/"><u>The Signs in Love | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Case Files of the Rocky Mountain Paranormal Research Society Volume 2 | Free Book
-date: 2024-10-22T02:43:45.234Z
-updated: 2024-10-27T04:51:47.634Z
+date: 2025-01-19T04:28:55.657Z
+updated: 2025-01-25T03:17:51.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fd5e0ab66e20d1f688c48ec8aaf427d24f383e0ede0433015684b661bfc21399.jpg
@@ -209,3 +209,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fd5e0ab66e20d1f688c48ec8aaf427d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209748832-9781547594337-asgard-la-magia-nordica/"><u>Asgard. La magia nordica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748901-9781071500712-il-tuo-altro-corpo/"><u>Il Tuo Altro Corpo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748885-9781547594382-lasciapassare-per-il-flipside/"><u>Lasciapassare per il Flipside | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748864-9781547595402-megans-school-examens/"><u>Megan's School Examens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749035-9781547550050-sanacion-por-empatia-y-guia-para-la-supervivencia-emocional-espiritual-y-psicologica/"><u>Sanación por Empatía y Guía para la Supervivencia Emocional, Espiritual y Psicológica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748980-9781547599202-scrivi-per-essere-felice/"><u>Scrivi per essere felice | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

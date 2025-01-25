@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2025-01-11T20:15:32.429Z
-updated: 2025-01-18T21:59:43.320Z
+date: 2025-01-22T02:40:18.028Z
+updated: 2025-01-24T17:49:12.859Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,13 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2032726-9781493012404-haunted-colleges-and-universities/"><u>Haunted Colleges and Universities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2032792-9781461746461-spooky-massachusetts/"><u>Spooky Massachusetts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2032790-9781493032488-spooky-texas-2nd-ed/"><u>Spooky Texas (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/203145-9780759522060-touched-by-angels/"><u>Touched by Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533603-9781398814486-aries/"><u>Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533601-9781398814509-gemini/"><u>Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533604-9781398814479-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533602-9781398814493-taurus/"><u>Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533925-9780645088717-the-new-angel-messages/"><u>The New Angel Messages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210533872-9781739722913-the-triple-c-method/"><u>The Triple C Method® | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210534028-9781637107553-thom-jons/"><u>Thom Jons | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

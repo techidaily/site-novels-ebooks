@@ -1,7 +1,7 @@
 ---
 title: The Writings of Austin Osman Spare | Free Book
-date: 2024-10-25T02:22:25.781Z
-updated: 2024-10-27T04:29:49.618Z
+date: 2025-01-24T00:22:58.324Z
+updated: 2025-01-24T23:19:09.978Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fddb605b8de7d9694a86a8c03ce2339aae1a26a60f864974118324beecc75c32.jpg
@@ -161,3 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fddb605b8de7d9694a86a8c03ce2339
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209668009-9781608685776-love-on-every-breath/"><u>Love on Every Breath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667993-9781645670049-plant-magic-for-the-beginner-witch/"><u>Plant Magic for the Beginner Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669227-9781927360002-reiki-universal-gift-of-gods-healing-love-advanced-and-master-level-training-manual/"><u>Reiki: Universal Gift of God’s Healing Love Advanced and Master Level Training Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209668251-9781632658173-self-initiation-for-the-solitary-witch/"><u>Self-Initiation for the Solitary Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667947-9781507211458-the-astrology-dictionary/"><u>The Astrology Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667766-9781493043811-the-big-book-of-illinois-ghost-stories/"><u>The Big Book of Illinois Ghost Stories | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

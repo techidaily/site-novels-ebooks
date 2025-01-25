@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-01-13T16:42:01.941Z
-updated: 2025-01-18T17:49:03.186Z
+date: 2025-01-23T20:14:50.168Z
+updated: 2025-01-24T22:31:56.622Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,17 +264,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138569933-9781469768397-the-real-prophet-of-doomvol2/"><u> "The Real, Prophet, of Doom.Vol2(...!) " | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569957-9781450202916-a-journey-into-the-soulful-garden/"><u>A Journey into the Soulful Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569713-9780595764785-being-remarkable/"><u>Being Remarkable | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138570036-9781450282314-from-chicago-to-spinoza/"><u>From Chicago to Spinoza | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569753-9780595905003-my-unsung-psalm/"><u>My Unsung Psalm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138570028-9781450232142-the-awakening-of-intelligence-toward-a-new-psychology-of-being/"><u>The Awakening of Intelligence: Toward a New Psychology of Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569700-9781452500638-the-tao-of-mermaids/"><u>The Tao of Mermaids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569690-9781449707248-when-i-discovered-i-was-awesome/"><u>When I Discovered I Was Awesome | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313053-9780984002979-dialogues-with-yeshua-and-mary-magdalene/"><u>Dialogues with Yeshua and Mary Magdalene | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313300-9781735338798-fire-in-the-sky/"><u>Fire in the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313324-9781736616253-the-infallible-way/"><u>The Infallible Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313196-9781087967288-what-is-consciousness/"><u>What Is Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313223-9781087967172-what-is-para-consciousness/"><u>What Is Para-consciousness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

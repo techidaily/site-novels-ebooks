@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2025-01-12T22:17:01.049Z
-updated: 2025-01-18T20:54:41.064Z
+date: 2025-01-20T16:38:19.736Z
+updated: 2025-01-24T16:29:01.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,13 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96512290-9781462907014-ayurveda/"><u>Ayurveda | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96512417-9781462903924-japanese-secrets-to-beautiful-skin/"><u>Japanese Secrets to Beautiful Skin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96512378-9781462904143-oriental-fortune-telling/"><u>Oriental fortune Telling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96512366-9781462904167-pocket-i-ching/"><u>Pocket I-Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192425-9781614483076-energy-over-mind/"><u>Energy Over Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192462-9781683505624-forty-things-i-wish-id-told-my-kids/"><u>Forty Things I Wish I'd Told My Kids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192547-9781630478728-get-out-of-mind-jail/"><u>Get Out of Mind Jail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192483-9781683508298-happily-ever-after/"><u>Happily Ever After | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192508-9781642797473-heal-your-trauma-heal-your-marriage/"><u>Heal Your Trauma, Heal Your Marriage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192458-9781683501480-hushed-cries/"><u>Hushed Cries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192532-9781614487708-letters-to-momo/"><u>Letters to Momo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192553-9781642795080-living-your-magic/"><u>Living Your Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210192621-9781614483328-the-lightworkers-healing-method/"><u>The Lightworkers Healing Method | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

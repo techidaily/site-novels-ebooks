@@ -1,7 +1,7 @@
 ---
 title: Healing Whispers From Spirit Guides | Free Book
-date: 2024-10-25T04:52:33.190Z
-updated: 2024-10-26T18:35:04.682Z
+date: 2025-01-19T00:01:54.658Z
+updated: 2025-01-25T02:52:04.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/314862fd31eb9fedae5e5592e2105e32c1f844b1eba01367962c94f83bf79173.jpg
@@ -196,3 +196,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/314862fd31eb9fedae5e5592e2105e3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209789118-9781507213025-how-to-be-an-astrologer/"><u>How to Be an Astrologer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209790173-9781071506592-les-fantomes-de-webster-groves/"><u>Les fantômes de Webster Groves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788882-9781771622349-my-year-of-living-spiritually/"><u>My Year of Living Spiritually | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788955-9781856754347-silence/"><u>Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209789303-9781608686261-the-angel-experiment/"><u>The Angel Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788243-9781401959609-the-five-element-solution/"><u>The Five-Element Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209788914-9780486843889-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

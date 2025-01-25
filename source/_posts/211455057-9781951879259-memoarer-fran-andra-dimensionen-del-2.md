@@ -1,7 +1,7 @@
 ---
 title: Memoarer Från Andra Dimensionen, Del 2 | Free Book
-date: 2024-10-23T22:49:18.351Z
-updated: 2024-10-26T19:24:30.000Z
+date: 2025-01-23T20:14:28.620Z
+updated: 2025-01-25T05:49:53.185Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4567e6b3ce10ca9b8937105ca66cce48e5e8cd7f3dcdfe410c9e38644e755672.jpg
@@ -197,3 +197,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4567e6b3ce10ca9b8937105ca66cce4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209669429-9781927360101-moving-beyond-the-christian-myth-the-next-step-in-our-spiritual-evolution/"><u>Moving Beyond the Christian Myth: The Next Step in Our Spiritual Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669259-9781771432559-reiki-a-miraculous-journey-into-holistic-healing/"><u>Reiki: A Miraculous Journey into Holistic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669411-9781771433037-reiki-don-universel-de-lamour-guerissant-de-dieu-manuel-de-formation-niveaux-i-et-ii/"><u>Reiki: Don Universel de l’Amour Guerissant de Dieu Manuel de Formation, Niveaux I et II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669297-9781926918365-reiki-universal-gift-of-gods-healing-love-level-i-and-ii-training-manual/"><u>Reiki: Universal Gift of God’s Healing Love Level I and II Training Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669351-9780978389314-the-fellowship-of-yeshua-communing-with-your-ascended-soul-guide/"><u>The Fellowship of Yeshua: Communing With Your Ascended Soul Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669438-9781926918914-two-on-a-bridge-the-workbook-a-companion-tool-designed-to-enhance-discussions-outlined-in-the-two-on-a-bridge-guidebook/"><u>Two on a Bridge The Workbook: A Companion Tool Designed to Enhance Discussions Outlined in the Two on a Bridge Guidebook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2025-01-11T17:03:06.374Z
-updated: 2025-01-18T17:30:18.075Z
+date: 2025-01-24T02:48:10.481Z
+updated: 2025-01-25T02:40:59.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,16 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1220040-9780892546220-amulets-talismans-and-magical-jewelry/"><u>Amulets, Talismans, and Magical Jewelry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/121819-9780253108388-claiming-sacred-ground/"><u>Claiming Sacred Ground | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1216496-9781583947272-manifesting-minds/"><u>Manifesting Minds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219264-9780698147850-stitches/"><u>Stitches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219217-9781101633731-the-book-of-knowing-and-worth/"><u>The Book of Knowing and Worth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1216500-9781583948200-the-return-of-the-mother/"><u>The Return of the Mother | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219168-9781101620274-whole-health/"><u>Whole Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286951-9781071599785-baralho-de-taro-visconti-sforza-para-recortar/"><u>Baralho de tarô Visconti-Sforza para recortar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286970-9781071598375-charkas-para-todos/"><u>Charkas Para Todos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286776-9781071599280-megan-en-de-rondreizende-show-van-radio-een/"><u>Megan en de Rondreizende Show van Radio Eén | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286748-9781071596982-mujeres-les-amo/"><u>Mujeres... les amo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286792-9781071598122-perfect-exactly-as-i-am/"><u>Perfect Exactly As I Am | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286879-9781071599884-perfecta-exactamente-como-soy/"><u>Perfecta exactamente como soy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286762-9781071597781-the-mystery-of-vibrated-prayer/"><u>The Mystery of Vibrated Prayer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

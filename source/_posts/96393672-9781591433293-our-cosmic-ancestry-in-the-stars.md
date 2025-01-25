@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2025-01-04T16:24:22.466Z
-updated: 2025-01-06T16:06:32.489Z
+date: 2025-01-23T20:03:48.609Z
+updated: 2025-01-24T20:04:42.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,14 +191,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210746671-9780593581377-remember-love/"><u>Remember Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210746086-9798885044820-the-intuition-experiment/"><u>The Intuition Experiment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210745628-9798987229217-what-you-want-wants-you/"><u>What You Want Wants You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210745597-9781088085035-you-have-another-you/"><u>You Have Another You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210746483-9781634243414-youre-not-alone/"><u>You’re Not Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563940-9791029913730-freemasonry-and-catholicism/"><u>Freemasonry and Catholicism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563831-9781685177867-i-looked-in-your-eyes-and-saw-the-devil/"><u>I Looked in Your Eyes and Saw the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563763-9780988499058-peace-energy/"><u>Peace & Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563785-9798985899108-the-message/"><u>The Message | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563928-9781087954714-transcendence/"><u>Transcendence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563911-9781637511572-zek/"><u>Zek | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

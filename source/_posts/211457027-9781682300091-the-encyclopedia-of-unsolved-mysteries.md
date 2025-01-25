@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Unsolved Mysteries | Free Book
-date: 2024-10-26T02:03:09.473Z
-updated: 2024-10-27T02:13:54.290Z
+date: 2025-01-22T17:32:35.057Z
+updated: 2025-01-24T18:57:10.368Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c39ce1bc370bdd72e13d91717342bd632e31660ca439f364fe9c4b067b0330a.jpg
@@ -141,3 +141,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c39ce1bc370bdd72e13d91717342bd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209550287-9781612834337-be-the-light-that-you-are/"><u>Be the Light that You Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209548354-9781785355554-healing-plants-of-the-celtic-druids/"><u>Healing Plants of the Celtic Druids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209548353-9781785357817-living-on-the-inner-edge/"><u>Living on the Inner Edge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209548350-9781785356100-living-space/"><u>Living Space | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209551233-9781547559787-megans-schoolreis/"><u>Megan's Schoolreis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209551173-9781547560158-o-genesis-hermetico-um-conto-adonistico/"><u>O Génesis Hermético - Um conto Adonístico | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209549632-9781781577295-the-astrology-birthday-book/"><u>The Astrology Birthday Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

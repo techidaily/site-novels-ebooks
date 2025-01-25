@@ -1,7 +1,7 @@
 ---
 title: Tarot Disassembled Guidebook | Free Book
-date: 2024-10-21T05:19:27.423Z
-updated: 2024-10-27T00:01:06.115Z
+date: 2025-01-17T23:15:51.461Z
+updated: 2025-01-24T18:05:28.974Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4b9284e5c17787d80f4c6926ba28ddc4994f85e7d21c4ec5b60b7015275176f5.jpg
@@ -163,3 +163,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4b9284e5c17787d80f4c6926ba28ddc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209851405-9781947151291-45-ways-to-excellent-life/"><u>45 Ways to Excellent Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851401-9780983542810-a-fish-made-of-water/"><u>A Fish Made of Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851187-9780648108405-ainslie-meares-on-meditation/"><u>Ainslie Meares on Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851059-9780998870212-aphrodite-emerges/"><u>Aphrodite Emerges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851305-9780995881105-beyond-surviving/"><u>Beyond Surviving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851597-9783962460037-healed-of-cancer/"><u>Healed of Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209851496-9780984136049-my-subconscious-mind/"><u>My Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209850936-9780648101710-weird/"><u>Weird | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

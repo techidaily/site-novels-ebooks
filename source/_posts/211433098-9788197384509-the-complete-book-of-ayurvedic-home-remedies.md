@@ -1,7 +1,7 @@
 ---
 title: The Complete Book Of Ayurvedic Home Remedies | Free Book
-date: 2024-10-21T17:15:47.920Z
-updated: 2024-10-26T16:39:03.623Z
+date: 2025-01-19T03:31:24.388Z
+updated: 2025-01-24T19:33:42.981Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fdb09a715536524dbd5fc26c38d2e29dd9a2926eb6604beb0211036fef6c7447.jpg
@@ -145,3 +145,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fdb09a715536524dbd5fc26c38d2e29
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209864447-9780938001690-auras/"><u>Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864325-9781999630898-heart-mind-connection/"><u>Heart Mind Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864241-9781732552005-master-in-the-making/"><u>Master In The Making | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864298-9780979148316-new-tools-for-new-creation/"><u>New Tools for New Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864144-9780692184967-reiki-as-a-spiritual-practice/"><u>Reiki as a Spiritual Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864195-9780692157671-the-way-and-the-spirit/"><u>The Way and the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864373-9780938001676-words-of-power-and-transformation/"><u>WORDS OF POWER and TRANSFORMATION | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

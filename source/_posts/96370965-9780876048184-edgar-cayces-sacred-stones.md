@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Sacred Stones | Free Book
-date: 2025-01-04T16:18:57.534Z
-updated: 2025-01-06T16:24:07.835Z
+date: 2025-01-21T22:53:24.976Z
+updated: 2025-01-24T16:01:24.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c2342d3f9628aa1746820b2356f8531168276.jpg
@@ -138,17 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c234
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762046-9781837990405-365-days-of-calm/"><u>365 Days of Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762061-9781800075245-365-days-of-mindful-meditations/"><u>365 Days of Mindful Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762091-9781800073531-the-art-of-simple-living/"><u>The Art of Simple Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762067-9781800073265-the-secret-to-happiness/"><u>The Secret to Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762104-9781800072541-the-secrets-of-fortune-telling/"><u>The Secrets of Fortune Telling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762109-9781800072572-the-secrets-of-spiritual-healing/"><u>The Secrets of Spiritual Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762075-9781800073296-you-can-totally-do-this/"><u>You Can Totally Do This | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762062-9781800078253-you-got-this/"><u>You Got This | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632718-9781959018087-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632676-9780760375969-create-your-own-tarot-cards/"><u>Create Your Own Tarot Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632543--mindful-crafting/"><u>Mindful Crafting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632712-9781777791421-operation-who-am-i/"><u>Operation Who Am I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632713-9781959018056-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632727-9781959018025-runes/"><u>Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632721-9780645247510-strange-events/"><u>Strange Events | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632550-9780760359068-the-mindfulness-in-knitting/"><u>The Mindfulness in Knitting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632666-9780999547298-the-nature-of-drugs-vol-2/"><u>The Nature of Drugs Vol. 2 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

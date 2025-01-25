@@ -1,7 +1,7 @@
 ---
 title: Magick for Transformation | Free Book
-date: 2024-10-24T21:34:04.118Z
-updated: 2024-10-27T02:21:52.803Z
+date: 2025-01-19T04:02:28.934Z
+updated: 2025-01-24T22:52:07.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/025f8856acdef52c6fa00064bdfa3bf58d03d738b1a817cb45556b5beca0a83f.jpg
@@ -140,3 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/025f8856acdef52c6fa00064bdfa3bf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209845687-9781936470679-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845730-9780996776028-easy-tarot/"><u>Easy Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845682-9781936470471-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845677-9781936470495-gratitude/"><u>Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845824-9781938962257-my-little-cowboy/"><u>My Little Cowboy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209845635-9781946088130-women-of-spirit/"><u>Women of Spirit | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

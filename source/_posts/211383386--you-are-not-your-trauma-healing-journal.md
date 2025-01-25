@@ -1,7 +1,7 @@
 ---
 title: You Are Not Your Trauma Healing Journal | Free Book
-date: 2024-10-20T20:08:05.514Z
-updated: 2024-10-26T20:18:42.395Z
+date: 2025-01-18T22:02:24.017Z
+updated: 2025-01-25T04:52:26.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8936d605592e88028e6d23dfc4d379891489e2cb314bb91e32fb197700392c7a.jpg
@@ -175,3 +175,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8936d605592e88028e6d23dfc4d3798
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210170455-9781631599408-10-minute-moon-rituals/"><u>10-Minute Moon Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170098-9781643345376-antidoto-de-dios-para-la-raiz-de-amargura/"><u>Antídoto de Dios Para La Raíz de Amargura | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170073-9781643346373-el-cazador-de-la-mente-subconsciente/"><u>El Cazador de la Mente Subconsciente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170088-9781643343822-el-exito-en-la-mirada-de-un-desconocido/"><u>El Éxito En La Mirada De Un Desconocido | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170094-9781643345338-gemas-de-motivacion/"><u>Gemas De Motivación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170099-9781643347110-instantes/"><u>INSTANTES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170096-9781643346205-reflexiones-sobre-la-naturaleza-y-el-universo/"><u>Reflexiones sobre la naturaleza y el universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170457-9780711255265-the-astrology-fix/"><u>The Astrology Fix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210170103-9781643345857-what-he-told-me-in-100-days/"><u>What He Told Me in 100 Days | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

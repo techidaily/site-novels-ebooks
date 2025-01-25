@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Breathing | Free Book
-date: 2024-10-22T02:16:13.725Z
-updated: 2024-10-26T17:57:05.460Z
+date: 2025-01-22T01:19:41.940Z
+updated: 2025-01-24T21:25:50.932Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccb07601186a5690aae569fe150ddf100dac14722fb0d325c9b40dd701ebceda.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccb07601186a5690aae569fe150ddf1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209690048-9780691200620-change/"><u>Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209689381-9781601639776-gateways-to-the-otherworld/"><u>Gateways to the Otherworld | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209688503-9781948626057-spiritual-rebel/"><u>Spiritual Rebel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209686068-9781000054026-the-uniqueness-of-the-individual/"><u>The Uniqueness of the Individual | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

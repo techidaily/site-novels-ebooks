@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Sagittarius | Free Book
-date: 2025-01-05T16:44:49.265Z
-updated: 2025-01-06T16:09:22.413Z
+date: 2025-01-22T19:35:33.027Z
+updated: 2025-01-25T02:12:22.566Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379c97a1dda998ff087b353f1fe5678bf59b.jpg
@@ -171,17 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210846500-9781959579922-33-mystic-notes/"><u>33 Mystic Notes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210846442-9781953821621-a-mystic-guide-to-spiritual-evolution/"><u>A Mystic Guide to Spiritual Evolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845903-9781761039010-ayurveda/"><u>Ayurveda | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210846182-9781956744934-beyond-what-we-can-see/"><u>Beyond What We Can See | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845836-9798889269755-discover-use-your-greatest-superpower/"><u>Discover & Use Your Greatest Superpower | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210846224-9798889269748-fragile-thoughts/"><u>Fragile Thoughts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210846609-9780008554668-spread-the-joy-simple-practical-ways-to-make-your-everyday-life-brighter/"><u>Spread the Joy: Simple practical ways to make your everyday life brighter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845803-9781761038884-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703188-9781684986309-and-then-god-stepped-in/"><u>...And Then God Stepped In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703209-9781684981052-life-of-a-soul/"><u>Life of a Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703472-9781913590789-mother-earth-is-calling-you/"><u>Mother Earth is Calling You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703476-9798987098127-vision-walk/"><u>Vision Walk | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

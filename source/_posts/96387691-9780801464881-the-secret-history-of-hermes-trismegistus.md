@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2025-01-17T22:15:46.145Z
-updated: 2025-01-18T19:53:40.546Z
+date: 2025-01-22T23:08:08.014Z
+updated: 2025-01-24T23:03:59.733Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -214,13 +214,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209518617-9781620558218-jesse-james-and-the-lost-templar-treasure/"><u>Jesse James and the Lost Templar Treasure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518615-9781620558782-the-art-and-science-of-face-reading/"><u>The Art and Science of Face Reading | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518616-9781620558683-the-energies-of-crop-circles/"><u>The Energies of Crop Circles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518614-9781591432982-wisdomkeepers-of-stonehenge/"><u>Wisdomkeepers of Stonehenge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547565-9781685177423-from-the-pit-to-the-gate/"><u>From the Pit to the Gate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547578-9781685177768-spiritual-treatment-for-the-troubled-soul/"><u>Spiritual Treatment for the Troubled Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547590-9781685175801-the-protectors-and-the-motorcyclists/"><u>The Protectors and the Motorcyclists | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547577-9781639611591-wisdom-for-millennials-and-others/"><u>Wisdom for Millennials and Others | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

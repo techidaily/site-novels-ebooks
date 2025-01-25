@@ -1,7 +1,7 @@
 ---
 title: Quem sou eu? As DEZ perguntas finais de IDENTIDADE para ADOLESCENTES e Pré-ADOLESCENTES | Free Book
-date: 2024-10-24T17:55:07.866Z
-updated: 2024-10-26T16:32:45.376Z
+date: 2025-01-24T05:25:33.222Z
+updated: 2025-01-24T23:01:15.697Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d099516a4db027850bf5bcb4cee715ed5a320c59ac6509ecae5b80b90b5a4de3.jpg
@@ -164,3 +164,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d099516a4db027850bf5bcb4cee715e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210133171-9781644112380-a-visionary-guide-to-lucid-dreaming/"><u>A Visionary Guide to Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133170-9781644111338-energy-magick-of-the-vampyre/"><u>Energy Magick of the Vampyre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133173-9781644112366-grandmother-ayahuasca/"><u>Grandmother Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133179-9781644112700-precognitive-dreamwork-and-the-long-self/"><u>Precognitive Dreamwork and the Long Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133172-9781644111796-revival-of-the-runes/"><u>Revival of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133174-9781644112212-the-ancestral-power-of-amulets-talismans-and-mascots/"><u>The Ancestral Power of Amulets, Talismans, and Mascots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133178-9781644112403-time-shifts/"><u>Time Shifts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133177-9781644112274-traditional-brazilian-black-magic/"><u>Traditional Brazilian Black Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

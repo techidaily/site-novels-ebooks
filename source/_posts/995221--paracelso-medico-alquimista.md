@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2025-01-12T18:46:14.931Z
-updated: 2025-01-18T16:10:29.340Z
+date: 2025-01-20T20:28:36.645Z
+updated: 2025-01-24T20:47:44.155Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,13 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96507074-9781579510954-cannabis-alchemy/"><u>Cannabis Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96507075-9781579511647-entheogens-myth-and-human-consciousness/"><u>Entheogens, Myth, and Human Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96507079-9781579511517-simple-pleasures/"><u>Simple Pleasures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96506924-9781515412250-through-the-gates-of-good/"><u>Through the Gates of Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210190799-9781777192174-ease-amidst-challenging-times/"><u>EASE Amidst Challenging Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210189705-9781722505479-harnassing-the-miraculous-power-of-a-definite-chief-aim/"><u>Harnassing the Miraculous Power of a Definite Chief Aim | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210190957-9780760369609-in-focus-shamanism/"><u>In Focus Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191028-9781732165830-living-aligned/"><u>Living Aligned | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210191340-9789948348825-oiny-smytha-mrym/"><u>وإني سميتها مريم | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

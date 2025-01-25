@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2025-01-12T21:12:24.453Z
-updated: 2025-01-18T16:30:25.739Z
+date: 2025-01-24T04:39:39.722Z
+updated: 2025-01-24T21:36:52.417Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,16 +175,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/111010-9781598756104-a-survey-of-the-occult/"><u>A Survey of the Occult | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1109885-9780857010971-everyday-qigong-practice/"><u>Everyday Qigong Practice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1109001-9781476730974-fire-from-within/"><u>Fire from Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1108220-9780930872946-mastery-through-accomplishment/"><u>Mastery Through Accomplishment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1108999-9781476730981-separate-reality/"><u>Separate Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1108653-9780930872984-sufi-meditation-and-contemplation/"><u>Sufi Meditation and Contemplation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1110045-9781936012282-the-gift-of-grace/"><u>The Gift of Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199809-9781631597077-10-minute-magic-spells/"><u>10-Minute Magic Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199891-9781592338016-crystals-for-energy-healing/"><u>Crystals for Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199949-9780760361177-in-focus-meditation/"><u>In Focus Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200040-9780760364994-in-focus-reiki/"><u>In Focus Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199863-9780760365847-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199780-9781610586405-one-zentangle-a-day/"><u>One Zentangle A Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199845-9780760362297-the-dictionary-of-dreams/"><u>The Dictionary of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210199948-9781631595769-the-ultimate-guide-to-crystal-grids/"><u>The Ultimate Guide to Crystal Grids | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

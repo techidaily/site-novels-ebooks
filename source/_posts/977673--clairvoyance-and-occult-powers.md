@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2025-01-16T16:09:39.947Z
-updated: 2025-01-18T20:39:17.422Z
+date: 2025-01-19T04:56:12.578Z
+updated: 2025-01-25T03:05:20.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,13 +133,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124182-9780892545650-finding-success-in-the-horoscope/"><u>Finding Success in the Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124175-9780892545520-rulers-of-the-horoscope/"><u>Rulers of the Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124177-9780892546015-tantric-temples/"><u>Tantric Temples | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124179-9780892545865-your-secret-self/"><u>Your Secret Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210403-9781777318949-2021-year-of-tarot/"><u>2021 Year of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210284-9781647866617-a-quantum-healing-expression/"><u>A Quantum Healing Expression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209538-9781582708003-miracles-and-other-realities/"><u>Miracles and Other Realities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209405-9781071581094-passe-backstage-para-o-outro-lado/"><u>Passe Backstage Para O Outro Lado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210661-9781722526078-romancing-the-soul/"><u>Romancing the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209539-9781582708379-stop-fixing-yourself/"><u>Stop Fixing Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210651-9781722526122-the-power-of-your-transcendental-mind-condensed-classics/"><u>The Power of Your Transcendental Mind (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210656-9781722526719-the-secret-formula/"><u>The Secret Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210663-9781722526696-think-and-grow-rich-and-the-richest-man-in-babylon-with-study-guides/"><u>Think and Grow Rich and The Richest Man in Babylon with Study Guides | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

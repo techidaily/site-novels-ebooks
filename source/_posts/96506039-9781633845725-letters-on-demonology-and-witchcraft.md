@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2025-01-15T20:24:50.066Z
-updated: 2025-01-18T17:31:20.009Z
+date: 2025-01-19T18:10:03.205Z
+updated: 2025-01-24T16:34:34.020Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,17 +155,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126025-9781609254483-sefer-yetzirah/"><u>Sefer Yetzirah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126026-9781609253813-semitic-magic/"><u>Semitic Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126027-9781609253189-sepher-rezial-hemelach/"><u>Sepher Rezial Hemelach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126030-9781609258085-sexual-sorcery/"><u>Sexual Sorcery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126044-9781609252014-simple-numerology/"><u>Simple Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126047-9781609253172-snow-melting-in-a-silver-bowl/"><u>Snow Melting in a Silver Bowl | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126024-9781609256050-the-seeker-the-search-the-sacred/"><u>The Seeker, the Search, the Sacred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126032-9781609255060-the-shamanic-witch/"><u>The Shamanic Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245469-9781098037888-church-advance-forward-boots-on-the-ground/"><u>Church Advance Forward, Boots on the Ground | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245414-9781098057138-the-days-of-echoes-past/"><u>The Days of Echoes Past | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245372-9781098063924-the-divine-body/"><u>The Divine Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245347-9781098060978-the-five-stressors/"><u>The Five Stressors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245445-9781098037093-the-making-of-a-prayer-princess/"><u>The Making of a Prayer Princess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245437-9781098049225-voices-lost-spirit-found/"><u>Voices Lost, Spirit Found | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

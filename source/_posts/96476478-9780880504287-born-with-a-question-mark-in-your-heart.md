@@ -1,7 +1,7 @@
 ---
 title: Born With a Question Mark in Your Heart | Free Book
-date: 2025-01-15T22:11:40.641Z
-updated: 2025-01-18T19:30:21.132Z
+date: 2025-01-22T05:51:36.980Z
+updated: 2025-01-24T19:13:46.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f885342066bdc3b498e7939ef186e37a9e69.jpg
@@ -171,14 +171,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f88
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1424581-9781780284743-peace-of-mind/"><u>Peace of Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424583-9781780284781-so-you-want-to-be-psychic/"><u>So You Want to be Psychic? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424584-9781780284798-summoning-angels/"><u>Summoning Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424585-9781780284804-teaching-meditation-to-children/"><u>Teaching Meditation to Children | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424580-9781780284699-the-meditation-handbook/"><u>The Meditation Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416028-9781902405995-an-introduction-to-medical-astrology/"><u>An Introduction to Medical Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417016-9781087999999-anger-management/"><u>ANGER MANAGEMENT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417031-9781737887515-cancer-mi-mejor-maestro/"><u>Cancer Mi Mejor Maestro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417149-9781737726029-soul-fullness-3rd-ed/"><u>Soul-Fullness (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415958-9781088008676-the-wayfarer-magazine/"><u>The Wayfarer Magazine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416000-9781638445777-to-kill-the-firstborn/"><u>To Kill the Firstborn | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

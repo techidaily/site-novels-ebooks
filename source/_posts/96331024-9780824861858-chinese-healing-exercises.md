@@ -1,7 +1,7 @@
 ---
 title: Chinese Healing Exercises | Free Book
-date: 2024-11-04T17:35:47.694Z
-updated: 2024-11-07T18:45:05.669Z
+date: 2025-01-17T21:59:40.224Z
+updated: 2025-01-24T17:13:35.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/721841b5e0d89bdd9e4cd3861a816fbd793cfcb6aa286d2d9b68065f60c6dcd1.jpg
@@ -174,9 +174,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/721841b5e0d89bdd9e4cd3861a816fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209856015-9780648184638-acupuncture-of-the-mind/"><u>Acupuncture of The Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855916-9780692509623-deeply-wounded-hope/"><u>Deeply Wounded Hope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855880-9780999480595-the-power-formula/"><u>The Power Formula | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855887-9780692986127-thought-optional/"><u>Thought Optional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710302-9781642506914-close-to-the-bone/"><u>Close to the Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710264-9781642504484-let-go-now/"><u>Let Go Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710313-9781642507751-magical-trees/"><u>Magical Trees | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710283-9781642505382-new-beginnings/"><u>New Beginnings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710247-9781642502893-prayers-for-healing/"><u>Prayers for Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710343-9781684810802-quiet-mind/"><u>Quiet Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710267-9781642504507-sacred-codes-in-times-of-crisis/"><u>Sacred Codes in Times of Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710320-9781642508680-the-witchs-book-of-candle-magic/"><u>The Witch's Book of Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710328-9781642508840-the-womans-book-of-strength/"><u>The Woman's Book of Strength | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

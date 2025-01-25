@@ -1,7 +1,7 @@
 ---
 title: The Science of Human Possibilities | Free Book
-date: 2024-10-19T18:35:34.742Z
-updated: 2024-10-26T19:02:55.537Z
+date: 2025-01-22T20:11:55.570Z
+updated: 2025-01-25T05:34:59.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d72dc04a0485a6ad9eaba644f7ac8621636cee1aa7201671996fea53de0d1f9.jpg
@@ -259,3 +259,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d72dc04a0485a6ad9eaba644f7ac86
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210032632-9781634500111-ghostly-encounters/"><u>Ghostly Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032445-9781476640266-lucid-dreaming-waking-life/"><u>Lucid Dreaming, Waking Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032674-9781632201362-strange/"><u>Strange | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210032996-9781628730968-the-complete-book-of-devils-and-demons/"><u>The Complete Book of Devils and Demons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210033054-9781628731378-the-little-book-of-curses-and-maledictions-for-everyday-use/"><u>The Little Book of Curses and Maledictions for Everyday Use | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210034897-9781578597284-the-new-witch/"><u>The New Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Palmistry - A Manual of Cheirosophy | Free Book
-date: 2024-10-25T20:49:22.502Z
-updated: 2024-10-26T18:38:59.577Z
+date: 2025-01-20T00:52:06.420Z
+updated: 2025-01-25T01:07:38.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d67aa754863055fbcd273af458968be81f086cc60c3c88120c3ab45af217e2f.jpg
@@ -128,3 +128,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d67aa754863055fbcd273af458968b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210078444-9781800190900-100-ways-to-be-kind/"><u>100 Ways to Be Kind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079622-9780813174518-haunts-of-old-louisville/"><u>Haunts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2100754-9780974021676-healing-the-heart-soul/"><u>Healing the Heart & Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079477-9780813174488-phantoms-of-old-louisville/"><u>Phantoms of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077697-9781087896472-the-fight-for-my-life/"><u>THE FIGHT FOR MY LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079488-9780813137070-the-mystery-chronicles/"><u>The Mystery Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077510-9780999864654-through-the-storm/"><u>Through the Storm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077662-9781945352058-wow-by-junko/"><u>WOW by Junko | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

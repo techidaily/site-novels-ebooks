@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Gemini | Free Book
-date: 2025-01-01T17:03:51.983Z
-updated: 2025-01-06T16:20:27.590Z
+date: 2025-01-23T17:50:57.302Z
+updated: 2025-01-24T20:37:07.996Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b70899244b6afd8c15f35581b3b721bc2026f4.jpg
@@ -169,14 +169,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b7089
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210846732-9798888324011-health-and-the-law-of-the-universe/"><u>Health and the Law of the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210846740-9781639033577-ittas-abscess-in-her-left-breast/"><u>Itta's Abscess in Her Left Breast | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847044-9791028528409-les-4-sagesses-incas/"><u>Les 4 sagesses Incas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847151-9781476648910-probing-parapsychology/"><u>Probing Parapsychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847192-9781788178020-the-psychic-psychologist/"><u>The Psychic Psychologist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704047-9781915393531-happy-birthday-love-jane/"><u>Happy Birthday-Love, Jane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703544-9781959561163-laying-of-hands/"><u>Laying of Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703950-9780711280694-nature-devotional/"><u>Nature Devotional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703553-9781998754076-out-of-love/"><u>Out of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703534-9781959561064-quantum-origins/"><u>Quantum Origins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704086-9798885403467-souls-that-bind/"><u>Souls That Bind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704014-9780760379950-the-beginners-guide-to-spirit-animals/"><u>The Beginner's Guide to Spirit Animals | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Telepathy and Medical Psychology | Free Book
-date: 2024-10-25T02:58:25.074Z
-updated: 2024-10-26T20:17:09.153Z
+date: 2025-01-18T00:01:33.382Z
+updated: 2025-01-24T19:06:47.859Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b00407ee613ea4c982b7bf9b79d3c719ee14e64907bfdccd79c63b0df7f4b310.jpg
@@ -147,3 +147,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b00407ee613ea4c982b7bf9b79d3c71
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209645584-9781620559260-a-theology-of-love/"><u>A Theology of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645575-9781620556887-breathing-as-spiritual-practice/"><u>Breathing as Spiritual Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649137-9781786783165-can-the-mind-be-quiet/"><u>Can The Mind Be Quiet? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209646643-9780876049754-edgar-cayce-on-angels-and-the-angelic-forces/"><u>Edgar Cayce on Angels and the Angelic Forces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645931-9781632658036-exploring-reiki/"><u>Exploring Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649151-9780525504726-nightmareland/"><u>Nightmareland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649424-9781591433590-the-forever-angels/"><u>The Forever Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645586-9781620559505-the-greater-and-lesser-worlds-of-robert-fludd/"><u>The Greater and Lesser Worlds of Robert Fludd | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649422-9781591433491-the-secret-history-of-the-hell-fire-clubs-4th-ed/"><u>The Secret History of the Hell-Fire Clubs (4th ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

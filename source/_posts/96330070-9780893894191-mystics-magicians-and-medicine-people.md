@@ -1,7 +1,7 @@
 ---
 title: Mystics, Magicians and Medicine People | Free Book
-date: 2024-11-01T17:43:58.141Z
-updated: 2024-11-07T18:50:06.847Z
+date: 2025-01-18T05:16:07.580Z
+updated: 2025-01-25T05:04:36.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e0fae499f807a4f6ae483d75d03bc773f0ea83ef0ea4930dfc984ba59087d36f.jpg
@@ -157,9 +157,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e0fae499f807a4f6ae483d75d03bc77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209855027-9781775132158-average-is-extraordinary/"><u>Average is Extraordinary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855371-9781936902262-butterfly-soup/"><u>Butterfly Soup | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855451-9781775089131-goddess-reclaimed/"><u>Goddess Reclaimed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209855123-9781946928030-suffering-is-optional/"><u>Suffering is Optional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708516-9781639858996-from-the-soul-of-my-rubber-boots/"><u>From the Soul of my Rubber Boots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708538-9781915393791-happy-birthday-love-elizabeth/"><u>Happy Birthday-Love, Elizabeth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708548-9781915393814-happy-birthday-love-oscar/"><u>Happy Birthday-Love, Oscar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708517-9780760373453-in-focus-runes/"><u>In Focus Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708415-9798987270011-thank-you-body/"><u>Thank You, Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210708604-9780349433264-the-little-book-of-love-magic/"><u>The Little Book of Love Magic | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

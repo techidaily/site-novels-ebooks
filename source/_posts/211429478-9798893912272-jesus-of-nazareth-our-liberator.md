@@ -1,7 +1,7 @@
 ---
 title: Jesus Of Nazareth Our Liberator | Free Book
-date: 2024-10-23T01:46:02.425Z
-updated: 2024-10-26T17:49:53.111Z
+date: 2025-01-24T02:09:49.355Z
+updated: 2025-01-24T17:55:43.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391db38881f78f9e5e3453dd68e3404d520386b45b6e8b9c00783e6ba3d12ea9.jpg
@@ -170,3 +170,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391db38881f78f9e5e3453dd68e3404
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209862399-9780648323983-encounters-with-the-spirit-world/"><u>Encounters with the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862249-9780648277729-love-life-and-tea/"><u>Love, Life and Tea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862514-9781949502008-meditate-to-unlock-awareness/"><u>Meditate To Unlock Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862370-9781999584931-natural-mindfulness/"><u>Natural Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862258-9780990360544-numerology-for-self-mastery/"><u>Numerology for Self Mastery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862296-9780995992917-paralyzing-and-eradicating-cancer-by-the-power-of-faith/"><u>Paralyzing And Eradicating Cancer By The Power Of Faith. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862523-9781635354065-the-phoenix-lights-petroglyphsinthesky-landscapes-for-the-spirits/"><u>The Phoenix Lights- Petroglyphsinthesky (Landscapes for the Spirits) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Humanity on the Threshold | Free Book
-date: 2024-10-20T17:11:19.727Z
-updated: 2024-10-26T23:59:41.089Z
+date: 2025-01-17T17:21:16.275Z
+updated: 2025-01-25T03:38:15.791Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec0ded1de853c4b17f9ee70437dd2b85079561f7404b04c22a402ea4ad7fb1f0.jpg
@@ -131,3 +131,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec0ded1de853c4b17f9ee70437dd2b8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209883647-9781644110423-cannabis-for-couples/"><u>Cannabis for Couples | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883648-9781644110461-gateways-to-the-soul/"><u>Gateways to the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883643-9781644110294-primal-wisdom-of-the-ancients/"><u>Primal Wisdom of the Ancients | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883646-9781644110317-psychedelic-consciousness/"><u>Psychedelic Consciousness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

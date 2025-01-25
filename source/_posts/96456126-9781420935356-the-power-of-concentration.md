@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2025-01-17T19:20:31.532Z
-updated: 2025-01-18T19:44:50.064Z
+date: 2025-01-17T23:45:21.986Z
+updated: 2025-01-25T04:53:26.347Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,13 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1637619-9781618520777-because-of-you-i-am/"><u>Because of You, I Am | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1638137-9781780282251-before-the-pyramids/"><u>Before the Pyramids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1638138-9781780282275-civilization-one/"><u>Civilization One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1638133-9781583947364-crop-circles-jung-and-the-reemergence-of-the-archetypal-feminine/"><u>Crop Circles, Jung, and the Reemergence of the Archetypal Feminine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210458189-9781722527174-30-day-mental-challenge/"><u>30 Day Mental Challenge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210456963-9781662461262-and-the-trust-shall-set-us-free/"><u>And the Trust Shall Set Us Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210457000-9781957208299-finding-spirit-in-prison-inmates-dreams/"><u>Finding Spirit in Prison Inmates Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210456935-9780876127902-in-the-sanctuary-of-the-soul/"><u>In the Sanctuary of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210458192-9781722527129-jose-silvas-choose-success-master-course/"><u>José Silva's Choose Success Master Course | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210456724-9782017150107-les-nombres-cles-de-votre-destinee/"><u>Les nombres clés de votre destinée | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210458150-9781623177393-the-ethical-psychic/"><u>The Ethical Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210458193-9781722527181-the-journey-beyond-enlightenment/"><u>The Journey Beyond Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210457039-9781638855583-waking-up-unafraid/"><u>WAKING - UP - UNAFRAID | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

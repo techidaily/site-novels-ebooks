@@ -1,7 +1,7 @@
 ---
 title: True Tales of the Paranormal | Free Book
-date: 2024-10-21T03:35:11.649Z
-updated: 2024-10-26T18:41:33.124Z
+date: 2025-01-24T06:07:38.903Z
+updated: 2025-01-24T19:37:49.921Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ac66d67dce95f728df00172c161f2a867c3cf649ac749693b78ae1b6f59f835.jpg
@@ -158,3 +158,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ac66d67dce95f728df00172c161f2a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209900940-9781623174934-deep-liberation/"><u>Deep Liberation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209900074-9781912892037-sacred-path-book-one/"><u>Sacred Path: Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901478-9781789042191-stalking-white-crows/"><u>Stalking White Crows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901105-9781912807345-the-city-of-hermes/"><u>The City of Hermes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901440-9781528956390-willpower-and-energy-yoganandas-energisation-exercises/"><u>Willpower and Energy: Yogananda's Energisation Exercises | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Case for and Against Psychical Belief | Free Book
-date: 2025-01-03T16:32:05.476Z
-updated: 2025-01-06T16:43:28.846Z
+date: 2025-01-24T05:41:55.322Z
+updated: 2025-01-24T23:26:11.274Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd68aba4f894ccc75eb755219656b54aa6a.jpg
@@ -142,14 +142,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5a0a06b27736f765241e5022fd97cd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210776181-9791028527501-geek-et-mystique/"><u>Geek et mystique | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210776306-9781667448510-lektionen-aus-dem-kloster/"><u>Lektionen aus dem Kloster | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210776340-9781667450384-perfekt-so-wie-ich-bin/"><u>Perfekt so wie ich bin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210775789-9798889130451-positive-psychology-unlock-the-power-of-positive-thinking-and-enhance-your-life-with-the-proven-techniques-of-positive-psychology/"><u>Positive Psychology: Unlock the Power of Positive Thinking and Enhance Your Life with the Proven Techniques of Positive Psychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210776384-9781667449654-the-incarnation-game/"><u>The Incarnation Game | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663573-9781088057070-easy-mindfulness-meditation-techniques-for-beginners/"><u>Easy Mindfulness Meditation Techniques for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663099-9781454946434-how-to-manifest/"><u>How to Manifest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663592-9781913590451-menopause-wisdoms/"><u>Menopause Wisdoms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662823-9781647002312-on-belonging/"><u>On Belonging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663810-9781667435206-perche-essere-felici-e-importante/"><u>Perché essere felici è importante | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662919-9781662457128-rainbows-are-gods-way-of-saying-i-love-you-and-other-reflections-of-a-wandering-soul/"><u>Rainbows are God's Way of Saying "I Love You " And Other Reflections of a Wandering Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662644-9781633412989-real-sorcery/"><u>Real Sorcery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662961-9798885048361-the-opposite-of-hiding/"><u>The Opposite of Hiding | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

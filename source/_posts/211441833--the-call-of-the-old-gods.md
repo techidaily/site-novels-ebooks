@@ -1,7 +1,7 @@
 ---
 title: The Call of the Old Gods | Free Book
-date: 2024-10-24T03:07:27.148Z
-updated: 2024-10-26T18:13:44.197Z
+date: 2025-01-23T22:26:43.175Z
+updated: 2025-01-24T18:38:26.389Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a32aa94d880a8f4c33dac687880f5a40bfa804bb065e69d6f156051e6fe78cbe.jpg
@@ -155,3 +155,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a32aa94d880a8f4c33dac687880f5a4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209826513-9780008366421-aquarius-2021-your-personal-horoscope/"><u>Aquarius 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826516-9780008366353-cancer-2021-your-personal-horoscope/"><u>Cancer 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826514-9780008366414-capricorn-2021-your-personal-horoscope/"><u>Capricorn 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826511-9780008366346-gemini-2021-your-personal-horoscope/"><u>Gemini 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826510-9780008366384-libra-2021-your-personal-horoscope/"><u>Libra 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826515-9780008366407-sagittarius-2021-your-personal-horoscope/"><u>Sagittarius 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826512-9780008366391-scorpio-2021-your-personal-horoscope/"><u>Scorpio 2021: Your Personal Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

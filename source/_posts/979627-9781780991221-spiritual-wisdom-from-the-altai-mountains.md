@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2025-01-15T21:26:44.984Z
-updated: 2025-01-18T16:18:56.711Z
+date: 2025-01-18T03:57:41.063Z
+updated: 2025-01-25T03:45:17.531Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -132,13 +132,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124271-9781619400689-the-truth-about-telepathy/"><u>The Truth About Telepathy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124277-9781619400290-the-werewolf-of-the-north/"><u>The Werewolf of the North | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124280-9781619400658-the-young-man-with-the-rag-doll-experiments-in-mentalism/"><u>The Young Man with the Rag Doll: Experiments in Mentalism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124275-9781619400092-water-wizardry/"><u>Water Wizardry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223180-9781913590208-2020-vision/"><u>2020 VISION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223186-9781736514917-ana/"><u>ANA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210222981-9781952982842-body-of-history/"><u>Body Of History | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210222957-9781734634365-i-always-put-my-mouth-on-her/"><u>I Always Put My Mouth On Her | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223067-9788792633675-read-like-the-devil/"><u>Read like the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210222921-9781801520072-the-dark-side-of-dharma/"><u>The Dark Side of Dharma | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

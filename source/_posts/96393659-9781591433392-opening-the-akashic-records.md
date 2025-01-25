@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2025-01-04T16:04:57.800Z
-updated: 2025-01-06T16:52:15.032Z
+date: 2025-01-23T21:54:47.765Z
+updated: 2025-01-25T05:25:52.548Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -189,18 +189,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210727679-9781781313404-goodbye-dear-friend/"><u>Goodbye, Dear Friend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210729317-9798987142929-i-gave-up-my-life-to-find-it/"><u>I Gave Up My Life to Find IT | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210729643-9798987263327-loved-by-the-light/"><u>Loved by the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727711-9781782406303-mindful-thoughts-for-walkers/"><u>Mindful Thoughts for Walkers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727708-9781782400295-mindfulness-for-black-dogs-and-blue-days/"><u>Mindfulness for Black Dogs and Blue Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727821-9781803410470-pagan-portals-21st-century-fairy/"><u>Pagan Portals - 21st Century Fairy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210729344-9798886855364-paul-the-doll/"><u>Paul the Doll | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727633-9781631596452-the-ultimate-guide-to-divination/"><u>The Ultimate Guide to Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727632-9781631595363-the-ultimate-guide-to-numerology/"><u>The Ultimate Guide to Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551667-9798986204802-30-days-of-me/"><u>30 Days of Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551752-9781662452376-facing-reality/"><u>Facing Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551886-9781777306472-life-enhancement-secrets/"><u>Life Enhancement Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551674-9798886808605-runes-of-the-mystic-stag/"><u>Runes of the Mystic Stag | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

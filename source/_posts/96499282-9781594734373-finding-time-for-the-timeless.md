@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2025-01-14T17:15:49.319Z
-updated: 2025-01-18T22:13:49.459Z
+date: 2025-01-18T02:52:32.889Z
+updated: 2025-01-24T21:19:12.841Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,13 +219,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138576154-9781475915785-a-healers-guide-to-miracles/"><u>A Healer's Guide to Miracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576194-9781450298049-explaining-the-unexplained/"><u>Explaining the Unexplained | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576188-9781440135712-key-master/"><u>Key Master | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576192-9781440141164-the-re-birth-of-an-atlantean-queen/"><u>The Re-Birth of an Atlantean Queen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345191-9781940837581-a-taste-of-india/"><u>A Taste of India | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345130-9781940837604-blessings/"><u>Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345368-9781401965501-happy-days/"><u>Happy Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345135-9781940837659-heroes-saints-and-yogis/"><u>Heroes, Saints, and Yogis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344852-9781633412361-hoodoo-your-love/"><u>Hoodoo Your Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345138-9781940837710-merging-with-the-infinite/"><u>Merging with the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345127-9781934532485-the-21-stages-of-meditation/"><u>The 21 Stages of Meditation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

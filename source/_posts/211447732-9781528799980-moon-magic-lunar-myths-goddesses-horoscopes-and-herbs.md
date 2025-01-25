@@ -1,7 +1,7 @@
 ---
 title: "Moon Magic: Lunar Myths, Goddesses, Horoscopes, and Herbs | Free Book"
-date: 2024-10-23T00:29:33.500Z
-updated: 2024-10-26T21:36:33.559Z
+date: 2025-01-24T03:05:52.558Z
+updated: 2025-01-25T05:34:02.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/922c896142cfb43882c3481292ebfe3ce46d4d19a44e23963c78f5a3b216ec81.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/922c896142cfb43882c3481292ebfe3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209604782-9781401958275-crystal365/"><u>CRYSTAL365 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209606141-9788497632904-el-enigma-tunguska/"><u>El enigma Tunguska | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209606251-9788497639286-el-misterio-de-las-vidas-pasadas/"><u>El misterio de las vidas pasadas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209606230-9788497632928-mundos-ocultos/"><u>Mundos ocultos | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

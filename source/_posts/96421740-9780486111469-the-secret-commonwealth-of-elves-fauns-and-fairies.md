@@ -1,7 +1,7 @@
 ---
 title: The Secret Commonwealth of Elves, Fauns and Fairies | Free Book
-date: 2025-01-17T16:08:06.609Z
-updated: 2025-01-18T22:29:24.922Z
+date: 2025-01-23T19:17:25.407Z
+updated: 2025-01-25T04:59:56.636Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98003b2b3dc248ebba8af5ed8092e4b1dc0.jpg
@@ -168,14 +168,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1985929-9781780284729-parkers-encyclopedia-of-astrology/"><u>Parkers' Encyclopedia of Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1986033-9781250082176-queer-astrology-for-women/"><u>Queer Astrology for Women | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1985932-9781780286280-the-blood-of-avalon/"><u>The Blood of Avalon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1985918-9781780282541-the-knights-of-the-holy-grail/"><u>The Knights of the Holy Grail | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1985919-9781780282558-what-islam-did-for-us/"><u>What Islam Did For Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210532594-9780979510120-field-trust-project/"><u>FIELD TRUST PROJECT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210532566-9781952828171-hold-me-up/"><u>Hold Me Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210532549-9781989531358-inspirational-calendar-book/"><u>Inspirational Calendar Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210532683-9780645073294-lo-yoga-per-tutti/"><u>Lo Yoga per Tutti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210532939-9780762478040-signs-skymates/"><u>Signs & Skymates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210531987-9781438092959-the-book-of-spells-vintage-edition-2nd-ed/"><u>The Book of Spells: Vintage Edition (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210532520-9798985607109-zodiac-hacks-2nd-ed/"><u>Zodiac Hacks (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

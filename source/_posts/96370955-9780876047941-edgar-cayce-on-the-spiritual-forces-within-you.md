@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Spiritual Forces Within You | Free Book
-date: 2024-12-30T16:20:45.774Z
-updated: 2025-01-06T16:31:55.806Z
+date: 2025-01-22T03:10:40.174Z
+updated: 2025-01-24T19:03:56.112Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470b857f14ac64c99772e37190174dfb5c38.jpg
@@ -144,13 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761864-9781604079449-awakening-shakti/"><u>Awakening Shakti | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761872-9781622036332-the-re-enchantment/"><u>The Re-Enchantment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761868-9781649630575-travel-light/"><u>Travel Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761876-9781591799030-what-to-do-when-you-cant-decide/"><u>What to Do When You Can't Decide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630007-9781642504187-a-mothers-courage-to-awaken/"><u>A Mother's Courage to Awaken | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629674-9781957575810-anthem-of-hope/"><u>Anthem of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629517-9783986539221-dark-psychology-and-manipulation-techniques/"><u>Dark Psychology and Manipulation Techniques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629980-9781609252595-teens-with-the-courage-to-give/"><u>Teens with the Courage to Give | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629817-9781786787538-the-beauty-of-life/"><u>The Beauty of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630387-9781608688012-the-holy-wild-grimoire/"><u>The Holy Wild Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629816-9781786787293-the-ultimate-i-ching/"><u>The Ultimate I Ching | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

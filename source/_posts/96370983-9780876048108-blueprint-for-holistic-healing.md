@@ -1,7 +1,7 @@
 ---
 title: Blueprint for Holistic Healing | Free Book
-date: 2025-01-01T16:16:47.361Z
-updated: 2025-01-06T16:52:18.063Z
+date: 2025-01-20T16:33:07.918Z
+updated: 2025-01-24T19:42:33.824Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0c3fcfbb9f190d1a66c5dd6334d24e3be0.jpg
@@ -139,13 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210764668-9798886446012-conquering-through-it-all/"><u>Conquering Through It All | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764784-9781722527730-expand-your-magnificent-mind/"><u>Expand Your Magnificent Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764591-9782889701308-experimenter-le-voyage-astral/"><u>Expérimenter le voyage astral | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764781-9781446382325-the-tarot-spreads-yearbook/"><u>The Tarot Spreads Yearbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644795-9798986216652-26-strings/"><u>26 Strings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644799-9780997228175-mindful-practice-of-falun-gong-chinese-edition/"><u>法輪功的正念實踐 Mindful Practice of Falun Gong (Chinese Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644825-9780349431758-tapping-in/"><u>Tapping In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644691-9781959018117-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644777-9781955985697-waking-up-to-feeling/"><u>Waking Up to Feeling | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

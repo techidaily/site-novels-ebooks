@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2025-01-13T19:06:58.460Z
-updated: 2025-01-18T19:10:05.690Z
+date: 2025-01-19T21:42:59.795Z
+updated: 2025-01-25T05:27:06.222Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,18 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126051-9781609250393-simple-wicca/"><u>Simple Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126054-9781609250881-simply-happy-every-day/"><u>Simply Happy Every Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126057-9781609254629-songs-of-kabir/"><u>Songs of Kabir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126058-9781609251970-soul-mission-life-vision/"><u>Soul Mission, Life Vision | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126060-9781609257941-source-of-the-dream/"><u>Source of the Dream | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126063-9781609255749-spells-for-the-solitary-witch/"><u>Spells for the Solitary Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126065-9781609255756-spirit-faces/"><u>Spirit Faces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126056-9781609256937-the-solitary-wiccans-bible/"><u>The Solitary Wiccan's Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126062-9781609250911-the-spellcasters-reference/"><u>The Spellcaster's Reference | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245601-9780964272613-exploring-other-lifetimes/"><u>Exploring Other Lifetimes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245609-9781953194800-my-bondage-and-my-freedom/"><u>My Bondage And My Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245812-9782357287587-nuggets-of-the-new-thought/"><u>Nuggets of the New Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245890-9781398810419-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245856-9781618521316-revelations-on-healing/"><u>Revelations on Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245507-9781098066284-the-creators-temporary/"><u>The Creator's Temporary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210245597-9780972866859-the-given-self/"><u>The Given Self | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

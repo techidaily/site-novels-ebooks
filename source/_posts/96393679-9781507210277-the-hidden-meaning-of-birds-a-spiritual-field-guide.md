@@ -1,7 +1,7 @@
 ---
 title: The Hidden Meaning of Birds--A Spiritual Field Guide | Free Book
-date: 2024-12-30T16:00:01.357Z
-updated: 2025-01-06T16:52:09.648Z
+date: 2025-01-19T22:03:07.891Z
+updated: 2025-01-24T20:31:01.343Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b328c27d0da18dbcae6a65e3c2ccf06fc39484cebda1ef58e7c59b816f16bf11.jpg
@@ -186,18 +186,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b328c27d0da18dbcae6a65e3c2ccf06
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210748867-9782017186779-dialogue-avec-tes-guides/"><u>Dialogue avec tes guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748789-9781797211930-everyday-radiance/"><u>Everyday Radiance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210749194-9781841815374-find-your-power-numerology/"><u>Find Your Power: Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748313-9780990625995-in-the-garden-of-remembrance/"><u>In the Garden of Remembrance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210747856-9781732283473-initiation-into-spiritual-sexuality/"><u>Initiation Into Spiritual Sexuality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748886-9782019469658-le-guide-complet-de-la-numerologie/"><u>Le guide complet de la numérologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748792-9781797218564-pocket-nature-series-sunset-seeking/"><u>Pocket Nature Series: Sunset Seeking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748123-9780593690291-shadow-work-journal-for-self-love/"><u>Shadow Work Journal for Self-Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210748895-9782017186700-tarot-et-autres-arts-divinatoires/"><u>Tarot et autres arts divinatoires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569356-9781399803038-21-day-mindfulness-challenge/"><u>21 Day Mindfulness Challenge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210567260-9781788179201-21-days-to-understand-qabalah/"><u>21 Days to Understand Qabalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569498-9798985980011-how-the-stars-tell-time/"><u>How the Stars Tell Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569738-9780760373460-in-focus-divination/"><u>In Focus Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569460-9798986216614-lucid-journey/"><u>Lucid Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569220-9781398824393-profeten/"><u>Profeten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210568175-9781493044900-spooky-north-carolina-2nd-ed/"><u>Spooky North Carolina (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210567409-9781737092438-the-ketamine-papers/"><u>The Ketamine Papers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210569571-9798885406864-walking-spiritually-naturally/"><u>Walking Spiritually Naturally | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

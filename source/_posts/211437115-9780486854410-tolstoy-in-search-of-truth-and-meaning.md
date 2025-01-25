@@ -1,7 +1,7 @@
 ---
 title: Tolstoy in Search of Truth and Meaning | Free Book
-date: 2024-10-24T21:28:46.430Z
-updated: 2024-10-27T01:31:18.066Z
+date: 2025-01-17T22:47:53.695Z
+updated: 2025-01-25T05:36:11.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/780824e177ebf71eda9fb844814fd2c7e440ee15531528e6a53e02e53c5d00a8.jpg
@@ -145,3 +145,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/780824e177ebf71eda9fb844814fd2c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209846851-9781584200604-holistic-counselling/"><u>Holistic Counselling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846810-9781772571257-sadhana/"><u>Sadhana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846834-9780997466621-the-goddess-you/"><u>The Goddess You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846857-9781772570939-walking-between-the-worlds-book-i/"><u>Walking Between the Worlds ─ Book I | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2025-01-11T18:12:21.082Z
-updated: 2025-01-18T17:59:47.080Z
+date: 2025-01-21T16:09:48.743Z
+updated: 2025-01-24T20:36:41.354Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,16 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621359-9781601635846-heavenly-hugs/"><u>Heavenly Hugs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621369-9781601637079-man-made-monsters/"><u>Man-Made Monsters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621370-9781601633798-the-afterlife-healing-circle/"><u>The Afterlife Healing Circle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621368-9781601634115-the-infinite-wisdom-of-the-akashic-records/"><u>The Infinite Wisdom of the Akashic Records | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621361-9781601633910-the-oneness-blessing/"><u>The Oneness Blessing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621362-9781632659996-toward-the-light/"><u>Toward the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621367-9781601637635-werewolves/"><u>Werewolves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210402704-9781789048438-conform-or-be-cast-out/"><u>Conform or Be Cast Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404465-9781662432354-from-darkness-to-light/"><u>From Darkness to Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404440-9798985030716-innocent-again/"><u>Innocent Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404357-9780799356953-my-pad-met-engele/"><u>My pad met engele | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210403945-9780711266841-natural-magick/"><u>Natural Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210402715-9781782790556-pagan-portals-the-triple-goddess/"><u>Pagan Portals - The Triple Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404136-9798985059915-portrait-of-my-soul/"><u>Portrait Of My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404229-9781735740140-quantum-golf-2nd-edition/"><u>Quantum Golf 2nd Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404438-9781396318450-the-unknown-life-of-jesus-christ/"><u>The Unknown Life of Jesus Christ | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Short Path to Enlightenment | Free Book
-date: 2024-10-25T02:00:10.828Z
-updated: 2024-10-27T01:12:15.531Z
+date: 2025-01-22T02:20:18.493Z
+updated: 2025-01-25T03:29:15.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7b004286868f4ab5b7c246b3b520e5cd62a51ced8d9703c1cbdb2a58c643795e.jpg
@@ -162,3 +162,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7b004286868f4ab5b7c246b3b520e5c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209842495-9780996935210-blooming-into-mindfulness/"><u>Blooming into Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842593-9780997222470-epic-sexy-you/"><u>Epic Sexy You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842782-9780978505646-finding-your-perfect-sexual-match/"><u>Finding Your Perfect Sexual Match | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842809-9780993462603-life-and-death-making-sense-of-it/"><u>Life and Death - Making Sense of It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842868-9781629213675-map-of-desire/"><u>Map of Desire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842767-9780996870917-on-this-day/"><u>On This Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842965-9781911134046-quareia-the-apprentice/"><u>Quareia The Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842966-9781911134077-quareia-the-initiate/"><u>Quareia The Initiate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209842427-9780994072504-4k6o4kl4k6v4kn4k6v4k6u4kn/"><u>நோக்கம் | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

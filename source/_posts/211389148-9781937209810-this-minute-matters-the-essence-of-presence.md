@@ -1,7 +1,7 @@
 ---
 title: This Minute Matters--The Essence of Presence | Free Book
-date: 2024-10-24T00:55:05.326Z
-updated: 2024-10-26T18:26:59.431Z
+date: 2025-01-19T00:18:27.281Z
+updated: 2025-01-24T18:50:07.766Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0aa72e1cba830d48ad94460f91c8099b8ae2244238ada54331093e5b26fd34f.jpg
@@ -164,3 +164,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0aa72e1cba830d48ad94460f91c809
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210133188-9781644112830-360-degrees-of-your-star-destiny/"><u>360 Degrees of Your Star Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133191-9781644112816-alchemical-tantric-astrology/"><u>Alchemical Tantric Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133189-9781644112748-crystals-and-numerology/"><u>Crystals and Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133190-9781644112939-forgotten-civilization-2nd-ed/"><u>Forgotten Civilization (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133269-9781786785275-success-is-not-a-fluke/"><u>Success is Not a Fluke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133345-9780593196786-the-enneagram-for-beginners/"><u>The Enneagram for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133187-9781644112854-the-luminous-landscape-of-the-afterlife/"><u>The Luminous Landscape of the Afterlife | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

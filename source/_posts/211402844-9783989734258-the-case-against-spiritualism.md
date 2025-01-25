@@ -1,7 +1,7 @@
 ---
 title: The Case Against Spiritualism | Free Book
-date: 2024-10-24T16:15:17.492Z
-updated: 2024-10-26T21:23:40.175Z
+date: 2025-01-23T19:02:32.829Z
+updated: 2025-01-25T02:20:37.003Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8e2f29ea817b5ab0ae9a251229e21c71aa74c66141bd42564da13fe348751670.jpg
@@ -183,3 +183,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8e2f29ea817b5ab0ae9a251229e21c7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210107076-9781735059020-awakening-the-soul-of-power/"><u>Awakening the Soul of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106495-9781922456052-but-really-how-are-you/"><u>But REALLY, How Are You? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106514-9781771368964-fransesca/"><u>Fransesca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106622-9781608687053-growing-big-dreams/"><u>Growing Big Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106437-9781913479527-life-lessons/"><u>Life Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106930-9781722526252-riches-now/"><u>Riches Now! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210107075-9780648695790-the-art-of-accompanying/"><u>The Art of Accompanying | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106914-9781608687138-the-clear-light/"><u>The Clear Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106935-9780648946007-the-natural-high/"><u>THE NATURAL HIGH | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2025-01-15T17:04:15.816Z
-updated: 2025-01-18T22:06:50.344Z
+date: 2025-01-23T18:58:27.278Z
+updated: 2025-01-25T01:57:46.862Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,13 +136,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96505941-9781633844667-attaining-your-desires-rediscovered-books/"><u>Attaining Your Desires (Rediscovered Books) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96505951-9781633844865-natural-law-in-the-spiritual-world/"><u>Natural Law in the Spiritual World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96505915-9781633844322-the-power-of-your-subconscious-mind-rediscovered-books/"><u>The Power of Your Subconscious Mind (Rediscovered Books) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96505965-9781633844964-thoughts-are-things-the-god-in-you/"><u>Thoughts Are Things & The God In You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210186753-9781684035199-a-moment-for-me/"><u>A Moment for Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187004-9781777467210-a-new-human-story/"><u>A New Human Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210186266-9781913689148-gef/"><u>Gef! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210186782-9781784883607-wishcraft/"><u>WishCraft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

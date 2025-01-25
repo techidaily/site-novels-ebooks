@@ -1,7 +1,7 @@
 ---
 title: The Rosicrucian Mysteries | Free Book
-date: 2024-10-22T21:53:40.246Z
-updated: 2024-10-26T22:16:43.065Z
+date: 2025-01-20T16:48:20.715Z
+updated: 2025-01-25T01:40:28.017Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0cc182b45af56598166446a9e82d9b77db59bac8aee1b57d722e37ef04998422.jpg
@@ -163,3 +163,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0cc182b45af56598166446a9e82d9b7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209877159-9789492266170-can-i-achieve-more-in-life/"><u>Can I achieve more in life? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876959-9781999128333-helping-yourself-with-acupineology/"><u>Helping Yourself With Acupineology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209877191-9780648578109-light-up-the-world/"><u>Light Up the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209877407-9781643676715-student/"><u>Student | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209877099-9780648432548-the-angelics-wife/"><u>The Angelics Wife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209877138-9780578553962-the-glam-witch/"><u>The GLAM Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

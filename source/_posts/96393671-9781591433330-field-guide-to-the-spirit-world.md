@@ -1,7 +1,7 @@
 ---
 title: Field Guide to the Spirit World | Free Book
-date: 2025-01-04T16:59:15.468Z
-updated: 2025-01-06T16:52:26.219Z
+date: 2025-01-20T23:14:40.169Z
+updated: 2025-01-24T19:18:49.621Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f9627ce9889a5066fd40f398ff9914148716f.jpg
@@ -207,15 +207,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f962
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210743265-9781837830800-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210743676-9780762484249-enchanted-foraging/"><u>Enchanted Foraging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210743332-9782755666892-le-livre-des-morts-tibetains/"><u>Le Livre Des Morts Tibétains | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210743324-9782755666885-les-transit-planetaire/"><u>Les Transit Planétaire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210745576-9781088082430-morning-manna/"><u>Morning Manna | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210743679-9781538740972-spiritual-anatomy/"><u>Spiritual Anatomy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563523-9789391028848-ashramed/"><u>Ashramed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563175-9782019465025-les-7-codes-de-larbre-de-vie/"><u>Les 7 codes de l'arbre de vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562414-9781935492023-serving-amp-giving/"><u>Serving &amp; Giving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563061-9781911670193-the-alexander-technique-workbook/"><u>The Alexander Technique Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562419-9781893020795-you-are-the-blessings/"><u>You Are the Blessings | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

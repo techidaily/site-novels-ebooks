@@ -1,7 +1,7 @@
 ---
 title: The Art of Radical Self-Love | Free Book
-date: 2024-10-22T19:42:49.196Z
-updated: 2024-10-26T21:31:10.223Z
+date: 2025-01-17T17:11:03.513Z
+updated: 2025-01-24T18:07:51.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c182b34a81e719363f8468fa72ea147151e584f1ee031ef14ea8769c795d9413.jpg
@@ -184,3 +184,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c182b34a81e719363f8468fa72ea147
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210124224-9780593189702-dusk-night-dawn/"><u>Dusk, Night, Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123885-9781789046397-everything-you-never-learned-about-sex/"><u>Everything You Never Learned About Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123887-9781789044331-medicine-of-the-imagination-dwelling-in-possibility/"><u>Medicine of the Imagination: Dwelling in Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123902-9781797200378-moon-bath/"><u>Moon Bath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124120-9781475857238-teach-like-a-human/"><u>Teach Like a Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124291-9781784884116-the-art-of-stillness-in-a-noisy-world/"><u>The Art of Stillness in a Noisy World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124296-9781783254347-the-numinous-cosmic-year/"><u>The Numinous Cosmic Year | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

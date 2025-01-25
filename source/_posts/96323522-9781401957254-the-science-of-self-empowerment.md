@@ -1,7 +1,7 @@
 ---
 title: The Science of Self-Empowerment | Free Book
-date: 2025-01-04T16:28:46.358Z
-updated: 2025-01-06T17:00:25.757Z
+date: 2025-01-22T03:51:47.189Z
+updated: 2025-01-24T23:27:52.187Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc95324fa154e7d769cae63fdb8bae584f5ad79.jpg
@@ -189,16 +189,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc9532
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210829648-9781398834682-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210829857-9781722527853-dick-sutphens-wisdom/"><u>Dick Sutphen's Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210829892-9781977234261-riding-with-ghosts-angels-and-the-spirits-of-the-dead/"><u>Riding with Ghosts, Angels, and the Spirits of the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210828084-9781960159786-sigue-adelante/"><u>Sigue Adelante | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210829181-9781623177768-the-road-to-eleusis/"><u>The Road to Eleusis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210827957-9781640285316-voices-bumps-thumps-and-jumps/"><u>Voices, Bumps, Thumps, and Jumps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210828188-9780525507475-when-things-dont-go-your-way/"><u>When Things Don't Go Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690409-9781399707947-acceptance/"><u>Acceptance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690773-9781639033065-awaken-my-soul/"><u>Awaken My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690800-9780760377642-in-focus-psychic-development/"><u>In Focus Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690926-9781932794519-magnificent-you/"><u>Magnificent You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690788-9798886165272-the-ninth-level-of-enlightenment/"><u>The Ninth Level of Enlightenment | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

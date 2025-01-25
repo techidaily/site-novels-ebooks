@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2025-01-11T22:04:27.184Z
-updated: 2025-01-18T22:34:38.592Z
+date: 2025-01-17T18:17:42.513Z
+updated: 2025-01-24T22:10:19.643Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,13 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1810816-9781501108310-a-survival-guide-for-landlocked-mermaids/"><u>A Survival Guide for Landlocked Mermaids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1813581-9781476613161-hauntings-and-poltergeists/"><u>Hauntings and Poltergeists | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1812039-9781101664452-infinite-life/"><u>Infinite Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1813711-9781583949467-moonlight-leaning-against-an-old-rail-fence/"><u>Moonlight Leaning Against an Old Rail Fence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508606-9789390030071-ancient-science-of-vastu/"><u>Ancient Science of Vastu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508631-9789354275746-atmanand-ka-geet/"><u>Atmanand ka Geet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508872-9781636304649-dear-dad-do-you-know/"><u>Dear Dad, Do You Know? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508931-9780998987088-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508945-9781088017265-prayer-in-the-presence-of-god/"><u>PRAYER in the PRESENCE of GOD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210509000-9780645262698-seeds-of-self-care/"><u>Seeds of Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511246-9781737699200-sensual-intelligence-the-lost-iq/"><u>Sensual Intelligence: The Lost IQ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508939-9781957343020-spirit-speaks-within-you/"><u>Spirit Speaks Within You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508895-9789382585237-the-journey-continues/"><u>The Journey Continues | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

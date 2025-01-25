@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2025-01-16T16:16:51.629Z
-updated: 2025-01-18T17:36:06.401Z
+date: 2025-01-22T16:59:38.013Z
+updated: 2025-01-25T03:29:06.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,14 +178,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1763376-9781776583669-adventurings-in-the-psychical/"><u>Adventurings in the Psychical | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763849-9781934336960-interviewed-by-god/"><u>Interviewed by God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763403-9781776584208-mind-and-body/"><u>Mind and Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763680-9780804152310-miracle-prayer/"><u>Miracle Prayer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763380-9781776583744-ten-thousand-dreams-interpreted/"><u>Ten Thousand Dreams Interpreted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500798-9781644114919-how-psychedelics-can-help-save-the-world/"><u>How Psychedelics Can Help Save the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500795-9781644113615-intimacy-in-emptiness/"><u>Intimacy in Emptiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500797-9781644114629-the-light-of-hermes-trismegistus/"><u>The Light of Hermes Trismegistus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500800-9781644115329-the-story-of-gaia/"><u>The Story of Gaia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500796-9781644114292-witches-druids-and-sin-eaters/"><u>Witches, Druids, and Sin Eaters | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

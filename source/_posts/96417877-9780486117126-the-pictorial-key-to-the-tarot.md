@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2025-01-11T22:21:24.729Z
-updated: 2025-01-18T17:23:09.922Z
+date: 2025-01-21T22:30:48.144Z
+updated: 2025-01-25T04:57:35.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,17 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1829413-9781317764939-betrayal-in-psychotherapy-and-its-antidotes/"><u>Betrayal in Psychotherapy and Its Antidotes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1830267-9780807010839-meditations-of-the-heart/"><u>Meditations of the Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1829876-9781501104725-my-life-after-death/"><u>My Life After Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1826155-9780698181953-no-goodbyes/"><u>No Goodbyes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1829945-9781476786216-promised-by-heaven/"><u>Promised by Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1829964-9781476777856-the-path/"><u>The Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1830279-9781583949443-the-sacred-ego/"><u>The Sacred Ego | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1824250-9780804153980-the-ultimate-journey/"><u>The Ultimate Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519633-9781639034055-life-interrupted/"><u>Life Interrupted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519628-9781639615964-my-five-guiding-principles/"><u>My Five Guiding Principles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519630-9781639613229-seeds-for-enlightenment-101/"><u>Seeds for Enlightenment 101 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210519925-9781669357605-summary-of-mark-epsteins-the-zen-of-therapy/"><u>Summary of Mark Epstein's The Zen of Therapy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

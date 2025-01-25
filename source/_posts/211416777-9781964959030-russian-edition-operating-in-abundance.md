@@ -1,7 +1,7 @@
 ---
 title: Russian Edition - Operating in Abundance | Free Book
-date: 2024-10-21T01:36:11.910Z
-updated: 2024-10-27T05:46:56.365Z
+date: 2025-01-19T19:41:17.948Z
+updated: 2025-01-25T02:50:11.112Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a76985f68da77ecc6adae9f534297ae9c84b6d10e45292aff699f1262f7c5a3.jpg
@@ -151,3 +151,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a76985f68da77ecc6adae9f534297a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209936376-9781644841761-fix-your-fairytale/"><u>Fix Your Fairytale | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209936394-9781989840023-inspirations-for-a-brighter-day-volume-ii/"><u>Inspirations for a Brighter Day Volume II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933425-9781913479138-lightworkers-gotta-work/"><u>Lightworkers Gotta Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933544-9781441130143-memory-and-urban-religion-in-the-ancient-world/"><u>Memory and Urban Religion in the Ancient World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209934762-9780648251316-soul-awakening/"><u>Soul Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933410-9781722524203-the-truth-about-magic/"><u>The Truth About Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

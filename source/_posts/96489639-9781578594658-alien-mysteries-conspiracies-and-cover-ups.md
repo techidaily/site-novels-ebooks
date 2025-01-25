@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-01-11T17:50:57.037Z
-updated: 2025-01-18T18:06:35.617Z
+date: 2025-01-19T23:36:08.045Z
+updated: 2025-01-24T16:17:31.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,17 +192,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138592996-9781449738914-finding-the-way/"><u>Finding the Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592890-9781475956047-forensics-by-the-stars/"><u>Forensics by the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138593017-9781452544427-forever-love/"><u>Forever Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592989-9781452549668-harness-the-power-of-your-laugh/"><u>Harness the Power of Your Laugh! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592983-9781452537061-love-and-accept-it-all/"><u>Love and Accept It All | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592964-9781452546834-reiki-fur-babies/"><u>Reiki Fur Babies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592976-9781452575384-step-into-abundance/"><u>Step into Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592781-9781452545387-the-mindful-heart/"><u>The Mindful Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359775-9780987513885-25-universal-laws/"><u>25 Universal Laws | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359776-9781637303405-cracking-the-healers-code/"><u>Cracking the Healer's Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359240-9781947151963-finding-your-path-engaging-your-purpose/"><u>Finding Your Path, Engaging Your Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359274-9781990093197-the-quest-of-rose/"><u>The Quest of Rose | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

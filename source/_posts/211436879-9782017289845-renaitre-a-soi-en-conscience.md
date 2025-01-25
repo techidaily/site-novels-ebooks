@@ -1,7 +1,7 @@
 ---
 title: Renaître à soi en conscience | Free Book
-date: 2024-10-24T20:49:29.500Z
-updated: 2024-10-27T04:33:58.787Z
+date: 2025-01-17T21:11:04.877Z
+updated: 2025-01-24T22:54:43.127Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/237268cbdbd008fbb66bfed7b8dcaeeed05335dfdfde3a152910b0757b50cc18.jpg
@@ -145,3 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/237268cbdbd008fbb66bfed7b8dcaee
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209846486-9780992520281-lucky-astrology-aries/"><u>Lucky Astrology - Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846480-9780648002338-lucky-astrology-cancer/"><u>Lucky Astrology - Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846481-9780648002376-lucky-astrology-capricorn/"><u>Lucky Astrology - Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846483-9780648002321-lucky-astrology-leo/"><u>Lucky Astrology - Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846476-9780648002390-lucky-astrology-pisces/"><u>Lucky Astrology - Pisces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846478-9780648002307-lucky-astrology-taurus/"><u>Lucky Astrology - Taurus | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

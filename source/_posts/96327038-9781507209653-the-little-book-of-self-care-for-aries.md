@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Aries | Free Book
-date: 2024-12-31T16:54:02.248Z
-updated: 2025-01-06T16:03:18.026Z
+date: 2025-01-22T06:11:44.925Z
+updated: 2025-01-25T00:42:27.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c673df5f0e24e4004b6764826ed31b1d645.jpg
@@ -178,15 +178,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210847311-9781960752758-at-the-feet-of-the-master/"><u>At the Feet of the Master | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847281-9781841815527-find-your-power-crystals/"><u>Find Your Power: Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847278-9781841815565-find-your-power-mindfulness/"><u>Find Your Power: Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847406-9798889452393-heaven-knows-why/"><u>HEAVEN KNOWS WHY | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847421-9781685681067-vive-sin-miedo/"><u>Vive sin miedo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847324-9798988315711-who-are-you-exploration-of-your-souls-journeys/"><u>Who Are You ? Exploration of Your Soul's Journeys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704318-9780834844827-casting-indras-net/"><u>Casting Indra's Net | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705120-9780760377857-decoding-the-stars/"><u>Decoding the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704109-9798886167337-entering-into-the-secrets-of-god/"><u>ENTERING INTO THE SECRETS OF GOD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705140-9780760379967-mountain-magic/"><u>Mountain Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704332-9780241626603-the-crystal-path/"><u>The Crystal Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704112-9781504081023-the-new-revelation/"><u>The New Revelation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704421-9781647008680-there-are-no-coincidences/"><u>There Are No Coincidences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210704587-9789948812845-nkat-taalmt-mnha/"><u>نقاط تعلمت منها | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

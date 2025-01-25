@@ -1,7 +1,7 @@
 ---
 title: "UFO Hunters: Hoax or History? | Free Book"
-date: 2024-10-23T17:31:36.795Z
-updated: 2024-10-27T04:19:53.529Z
+date: 2025-01-19T00:00:54.515Z
+updated: 2025-01-24T20:24:54.505Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3c5d03d7b19ed1c32bc4a09b146a69ac7d24485a251f518e97ef660af4a135c4.jpg
@@ -157,3 +157,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3c5d03d7b19ed1c32bc4a09b146a69a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209866815-9780578425351-confrontation-with-evil/"><u>Confrontation with Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209866731-9780938001836-destiny/"><u>Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209867120-9780648450023-i-make-mark/"><u>I Make Mark | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209867163-9780648391272-olive-trees-gift/"><u>Olive Tree's Gift | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

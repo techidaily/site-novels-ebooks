@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-01-13T21:09:23.446Z
-updated: 2025-01-18T19:28:30.036Z
+date: 2025-01-21T04:04:06.708Z
+updated: 2025-01-24T19:41:26.680Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,15 +192,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138569479-9781450230155-a-heart-to-give/"><u>A Heart to Give | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568971-9780595616152-lightning-holds-my-hand/"><u>Lightning Holds My Hand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568936-9781462051205-manifesting-101-beyond/"><u>Manifesting 101 & Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569257-9781440139246-the-root-of-all-healing/"><u>The Root of All Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569494-9781450255622-wake-up-for-ascension-to-a-new-earth-or-leave/"><u>Wake up for Ascension to a New Earth - or Leave | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569467-9781469727301-wealth-consciousness/"><u>Wealth Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309589-9781801349659-10-guided-meditations-for-anxiety/"><u>10 Guided Meditations For Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309029-9781908421487-great-moments-of-modern-mediumship/"><u>Great Moments of Modern Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309600-9781801348591-guided-meditations-for-deep-sleep-relaxation-anxiety-depression-2-in-1/"><u>Guided Meditations For Deep Sleep, Relaxation, Anxiety & Depression (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309597-9781801348553-manifesting-money-abundance-blueprint-the-law-of-attraction/"><u>Manifesting Money & Abundance Blueprint- The Law Of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210308991-9781910531174-mapping-the-psyche-volume-1/"><u>Mapping the Psyche Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210309737-9781638143086-the-mountain-and-valley-people/"><u>The Mountain and Valley People | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

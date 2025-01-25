@@ -1,7 +1,7 @@
 ---
 title: Interdimensional Entities | Free Book
-date: 2024-10-21T04:44:06.557Z
-updated: 2024-10-26T18:42:17.302Z
+date: 2025-01-23T23:06:33.795Z
+updated: 2025-01-25T06:11:22.305Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/39ed65cc2c360ed7645a359691d10deb8dd1842761bf0da701c317a899a6efe8.jpg
@@ -264,3 +264,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/39ed65cc2c360ed7645a359691d10de
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209848608-9781681274270-astrology-for-beginners/"><u>Astrology For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847929-9780995217218-best-in-bat-nation/"><u>Best In Bat Nation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847862-9781910559260-dirty-divine/"><u>Dirty & Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848358-9781788085403-goddess-rising/"><u>Goddess Rising | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847939-9781633831865-meditation-for-beginners/"><u>Meditation for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847875-9780995627215-the-hound-of-happiness-52-tips-to-feel-good/"><u>The Hound of Happiness - 52 Tips to Feel Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848261-9781911425830-the-little-book-of-big-leverage/"><u>The Little Book of Big Leverage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848453-9781772570953-walking-between-the-worlds-book-ii/"><u>Walking Between the Worlds ─ Book II | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

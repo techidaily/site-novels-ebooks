@@ -1,7 +1,7 @@
 ---
 title: The Kriya Serpent Yogi | Free Book
-date: 2024-10-24T21:29:02.448Z
-updated: 2024-10-26T23:44:00.090Z
+date: 2025-01-22T16:03:01.843Z
+updated: 2025-01-24T22:28:03.836Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d384c33825a0ad3543bc5690d2bb6472327b042fcbfb2c238652ab17012d1e.jpg
@@ -138,3 +138,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d384c33825a0ad3543bc5690d2bb6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209732445-9781788173605-crystals-for-energy-protection/"><u>Crystals for Energy Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209734648-9781787133402-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733632-9781722523572-self-mastery-through-conscious-autosuggestion-original-classic-edition/"><u>Self-Mastery Through Conscious Autosuggestion (Original Classic Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733677-9781609259259-tarot-card-combinations/"><u>Tarot Card Combinations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732469-9781984856609-the-new-stone-age/"><u>The New Stone Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209732439-9781401958107-the-universe-always-has-a-plan/"><u>The Universe Always Has a Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733413-9781507212639-the-witchs-book-of-love/"><u>The Witch's Book of Love | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

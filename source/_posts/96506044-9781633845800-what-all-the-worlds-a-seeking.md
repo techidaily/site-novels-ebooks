@@ -1,7 +1,7 @@
 ---
 title: What All the World’s A-Seeking | Free Book
-date: 2025-01-12T19:00:19.879Z
-updated: 2025-01-18T19:14:42.424Z
+date: 2025-01-18T02:49:42.002Z
+updated: 2025-01-24T19:16:40.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555bfdcc6a7f54df9f81071349024c853465d.jpg
@@ -138,15 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126066-9781609250300-spirit-maps/"><u>Spirit Maps | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126085-9781609250782-sun-of-god/"><u>Sun of gOd | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126089-9781609257101-tai-chi/"><u>Tai Chi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126083-9781609255046-the-study-of-witchcraft/"><u>The Study of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126098-9781609255718-the-tarot/"><u>The Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126099-9781609254346-the-tarot-book/"><u>The Tarot Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250964-9781513674155-channeled-human-wisdom-for-modern-times/"><u>Channeled Human Wisdom for Modern Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210251818-9781071591826-el-arte-olvidado-de-la-felicidad/"><u>El Arte Olvidado de la Felicidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210251404-9781947168039-manifesting/"><u>Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210251875-9781071589847-mensagens-do-universo/"><u>Mensagens do universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250947-9781644843345-shenomenal-women/"><u>Shenomenal Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250949-9791029912214-the-corpus-hermeticum-translated/"><u>The Corpus Hermeticum (translated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250976-9781647493325-the-secret-to-perfect-living/"><u>The Secret to Perfect Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210251713-9781071592113-transtorno-bipolar-ii-de-um-diagnostico-triste-a-uma-vida-feliz/"><u>Transtorno Bipolar II - De um Diagnóstico Triste a uma Vida Feliz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210250028-9781802357257-wicca-for-beginners/"><u>WICCA FOR BEGINNERS | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2025-01-13T17:17:26.026Z
-updated: 2025-01-18T19:50:40.318Z
+date: 2025-01-21T03:07:54.434Z
+updated: 2025-01-24T16:27:11.178Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,13 +249,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125534-9781609254704-applied-magic/"><u>Applied Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125535-9781609256609-aquarius-now/"><u>Aquarius Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125537-9781609257071-the-art-and-practice-of-astral-projection/"><u>The Art and Practice of Astral Projection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125539-9781609250706-the-art-and-practice-of-geomancy/"><u>The Art and Practice of Geomancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229149-9781952874437-exponiendo-practicas-espiritualistas-curativas/"><u>Exponiendo Prácticas Espiritualistas Curativas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228848-9780813174532-ghosts-of-old-louisville/"><u>Ghosts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229382-9781732823884-rise/"><u>RISE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210229431-9781951943325-spirits-speak/"><u>Spirits Speak | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

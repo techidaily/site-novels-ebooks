@@ -1,7 +1,7 @@
 ---
 title: Tarot for the Fiction Writer | Free Book
-date: 2024-10-20T01:35:07.701Z
-updated: 2024-10-27T01:23:14.869Z
+date: 2025-01-23T23:44:13.102Z
+updated: 2025-01-24T21:49:22.449Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/af0f0705cd15abd85dc5b579512a1e1e0ffdfa9da29d3d53471a42c5ab1689c0.jpg
@@ -149,3 +149,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/af0f0705cd15abd85dc5b579512a1e1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210166742-9781641384155-a-journey/"><u>A Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166526-9781642145922-da-life-of-metophors/"><u>Da Life of Metophors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166525-9781645842521-facing-the-problems-of-humanity/"><u>Facing the Problems of Humanity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166763-9781684092147-get-through-going-through-life/"><u>Get Through, Going through "Life " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167073-9781684092260-the-mscp-principle/"><u>The MSCP Principle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166589-9781642148831-visitations-to-heaven-and-talking-with-angels/"><u>Visitations to Heaven and Talking with Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166650-9781640271463-whats-the-deal-with-your-sign/"><u>What's the Deal with Your Sign? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166674-9781684560431-when-karma-is-at-its-strongest/"><u>When Karma Is at Its Strongest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210166983-9781640821910-your-name-is-written-on-the-palm-of-my-hands/"><u>Your Name Is Written on the Palm of My Hands | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

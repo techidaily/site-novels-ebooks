@@ -1,7 +1,7 @@
 ---
 title: "Antarctica: Shocking Secrets | Free Book"
-date: 2024-10-20T20:20:22.999Z
-updated: 2024-10-26T22:43:26.029Z
+date: 2025-01-18T05:43:21.521Z
+updated: 2025-01-24T17:47:16.706Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/270abbf4fa77f3f31b19fae52d34d8bd12b75779646632d7c58d1dcae9af7389.jpg
@@ -236,3 +236,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/270abbf4fa77f3f31b19fae52d34d8b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209719865-9781473572126-astrology-irl/"><u>Astrology IRL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209719879-9781632658340-becoming-psychic/"><u>Becoming Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209720455-9788472457218-egiptosophia/"><u>Egiptosophia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209721137-9781452176734-high-yoga/"><u>High Yoga | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

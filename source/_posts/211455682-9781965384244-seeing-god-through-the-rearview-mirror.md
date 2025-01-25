@@ -1,7 +1,7 @@
 ---
 title: Seeing God through the Rearview Mirror | Free Book
-date: 2024-10-19T21:56:41.086Z
-updated: 2024-10-26T17:53:14.770Z
+date: 2025-01-20T18:28:10.949Z
+updated: 2025-01-24T16:32:46.098Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e55f57250dbd3c9f3477750e1b8e00e2279e47e24602f1206a9a429c896f0a86.jpg
@@ -132,3 +132,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e55f57250dbd3c9f3477750e1b8e00e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209521753-9780253029133-creepy-california/"><u>Creepy California | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209520231-9781547521845-el-malentendido/"><u>El Malentendido | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209521748-9780253029126-horror-in-the-heartland/"><u>Horror in the Heartland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522186-9781446350058-tales-of-the-supernatural/"><u>Tales of the Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519672-9781789502893-the-complete-book-of-ghosts/"><u>The Complete Book of Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519674-9781788886987-the-power-of-angels/"><u>The Power of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209519673-9781788886994-the-zodiac-oracle/"><u>The Zodiac Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522193-9781446355879-ufos-caught-on-film/"><u>UFOs Caught on Film | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

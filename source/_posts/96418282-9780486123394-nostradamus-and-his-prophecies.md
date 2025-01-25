@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2025-01-17T17:17:42.780Z
-updated: 2025-01-18T21:56:34.625Z
+date: 2025-01-17T22:47:11.900Z
+updated: 2025-01-24T18:38:40.077Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,13 +151,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/195589-9781596255487-an-enquiry-concerning-human-understanding/"><u>An Enquiry Concerning Human Understanding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/195947-9781596259355-bushido/"><u>Bushido | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/195591-9781596258532-dialogues-concerning-natural-religion/"><u>Dialogues Concerning Natural Religion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1956479-9780812998399-the-light-between-us/"><u>The Light Between Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528009-9781644115282-ars-notoria-the-notory-art-of-solomon/"><u>Ars Notoria: The Notory Art of Solomon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528144-9781909141872-breathing-mudras-and-meridians/"><u>Breathing, Mudras and Meridians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528017-9781644116708-psychedelic-buddhism/"><u>Psychedelic Buddhism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528011-9781644115442-psychedelic-wisdom/"><u>Psychedelic Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528021-9781644117040-shamanic-dreaming/"><u>Shamanic Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528014-9781644115022-source-magic/"><u>Source Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528015-9781644116111-the-kabbalah-of-writing/"><u>The Kabbalah of Writing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528016-9781644116203-the-nature-of-astrology/"><u>The Nature of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528150-9781912085941-yoga-and-resilience/"><u>Yoga and Resilience | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

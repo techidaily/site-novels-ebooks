@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2025-01-13T16:14:52.442Z
-updated: 2025-01-18T17:11:26.294Z
+date: 2025-01-22T05:16:42.177Z
+updated: 2025-01-24T19:26:18.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,15 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1682856-9780980885927-ascending-with-both-feet-on-the-ground/"><u>Ascending with Both Feet On the Ground | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1683723-9781317994176-god-image-handbook-for-spiritual-counseling-and-psychotherapy/"><u>God Image Handbook for Spiritual Counseling and Psychotherapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1682855-9780980885941-love-it-forward/"><u>Love it Forward | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1684660-9781466873889-love-lives-using-astrology-to-build-the-perfect-relationship-with-any-star-sign/"><u>Love Lives: Using Astrology to Build the Perfect Relationship with Any Star Sign | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1684664-9781466873896-moon-signs-for-lovers/"><u>Moon Signs for Lovers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1680884-9780385348560-your-hidden-riches/"><u>Your Hidden Riches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476996-9780801888977-arcana-mundi-a-collection-of-ancient-texts/"><u>Arcana Mundi: A Collection of Ancient Texts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476720-9781504074650-beyond-any-kind-of-god/"><u>Beyond Any Kind of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210477048-9781421401171-investigating-the-supernatural/"><u>Investigating the Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476837-9781789044461-practically-pagan-an-alternative-guide-to-planet-friendly-living/"><u>Practically Pagan - An Alternative Guide to Planet Friendly Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476842-9781803411385-the-celtic-wheel-of-the-year/"><u>The Celtic Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476537-9781401970468-the-wisdom-of-the-council/"><u>The Wisdom of The Council | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476839-9781789047905-the-witchs-book-of-simples/"><u>The Witch's Book of Simples | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

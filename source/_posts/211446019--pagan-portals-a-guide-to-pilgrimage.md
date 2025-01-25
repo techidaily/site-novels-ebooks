@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - A Guide to Pilgrimage | Free Book
-date: 2024-10-24T01:53:35.940Z
-updated: 2024-10-26T19:40:57.221Z
+date: 2025-01-18T19:53:48.591Z
+updated: 2025-01-24T18:28:57.125Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f30cee6599584b797998af6a13b5f6c9545bb667cad97aba3597fffbb99fca1d.jpg
@@ -131,3 +131,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f30cee6599584b797998af6a13b5f6c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209748825-9781071500682-anunnaki-reptiliens-dans-lhistoire-de-lhumanite/"><u>Anunnaki: Reptiliens dans l’histoire de l’humanité | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209746254-9781506263151-beyond-the-content/"><u>Beyond the Content | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209746416-9781789040531-crystal-prescriptions/"><u>Crystal Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748830-9781547595051-la-magie-du-quartz-rose-jeter-de-simples-sorts-avec-une-seule-pierre/"><u>La Magie du Quartz Rose: Jeter de simples sorts avec une seule pierre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748262-9781743486863-taking-the-journey/"><u>Taking the Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748778-9781071501030-the-book-of-thoughts-ii/"><u>The Book of Thoughts II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209745843-9781642501834-the-magic-oracle-book/"><u>The Magic Oracle Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209748329-9781742288703-walking-in-light/"><u>Walking in Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

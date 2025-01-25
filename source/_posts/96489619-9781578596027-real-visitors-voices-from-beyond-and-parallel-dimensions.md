@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2025-01-11T17:21:00.634Z
-updated: 2025-01-18T18:21:50.246Z
+date: 2025-01-17T16:12:04.765Z
+updated: 2025-01-24T23:15:36.547Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,14 +254,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138591440-9781452505619-born-with-a-gift/"><u>Born with a Gift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591540-9781469732329-chasing-davis/"><u>Chasing Davis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591414-9781449723439-gods-perfect-timing/"><u>God’S Perfect Timing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591499-9781462049059-she-wouldnt-go/"><u>She Wouldn’T Go! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591478-9781469738543-the-grimpebbet-almanac/"><u>The Grimpebbet Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355825-9781644113943-becoming-a-garment-of-isis/"><u>Becoming a Garment of Isis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355820-9781644113011-flower-essences-from-the-witchs-garden/"><u>Flower Essences from the Witch's Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355826-9781644113998-love-in-the-time-of-impermanence/"><u>Love in the Time of Impermanence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355829-9781644114131-peacock-angel/"><u>Peacock Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355816-9781591434160-spirit-marriage/"><u>Spirit Marriage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355817-9781591434368-spirit-weaver/"><u>Spirit Weaver | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355819-9781644112977-the-light-of-god-2nd-ed/"><u>The Light of God (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355823-9781644113370-the-path-of-elemental-witchcraft/"><u>The Path of Elemental Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355821-9781644113127-the-twilight-of-pluto/"><u>The Twilight of Pluto | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

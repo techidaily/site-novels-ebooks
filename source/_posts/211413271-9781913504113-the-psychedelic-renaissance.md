@@ -1,7 +1,7 @@
 ---
 title: The Psychedelic Renaissance | Free Book
-date: 2024-10-20T21:19:04.784Z
-updated: 2024-10-26T23:25:32.469Z
+date: 2025-01-23T23:27:43.225Z
+updated: 2025-01-25T05:39:08.628Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a2b1032d91e1f9cfaba0a7edf31491e3fe756290ac770c9fd439f1f8951e22b.jpg
@@ -181,3 +181,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a2b1032d91e1f9cfaba0a7edf31491
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210029781-9781615649167-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210028092-9781250781789-before/"><u>Before | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210027520-9781476640365-captured-by-aliens/"><u>Captured by Aliens? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210031768-9782100814077-comprendre-et-aider-mon-enfant-different-avec-les-ecrans/"><u>Comprendre et aider mon enfant différent avec les écrans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210028098-9781250262158-electric-body-electric-health/"><u>Electric Body, Electric Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210027481-9781401952563-intimate-conversations-with-the-divine/"><u>Intimate Conversations with the Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210027146-9780835631839-man-son-of-man/"><u>Man, Son of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210029439-9781734077230-straight-talk-from-god-2nd-ed/"><u>Straight Talk from God (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

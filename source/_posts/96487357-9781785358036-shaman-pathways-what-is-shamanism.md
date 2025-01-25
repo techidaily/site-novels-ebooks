@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2025-01-14T22:24:50.029Z
-updated: 2025-01-18T16:13:51.685Z
+date: 2025-01-19T01:00:06.070Z
+updated: 2025-01-24T20:09:15.021Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,13 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621176-9781601639288-a-wiccan-bible/"><u>A Wiccan Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621180-9781601639905-companion-for-the-apprentice-wizard/"><u>Companion for the Apprentice Wizard | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621189-9781601637154-encyclopedia-of-the-undead/"><u>Encyclopedia of the Undead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621185-9781601636430-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393736-9780834844148-body-astrology/"><u>Body Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394851-9780998560366-comi/"><u>COMI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210392157-9781504067980-dictionary-of-poisons/"><u>Dictionary of Poisons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394833-9781736892213-ezekiels-awakening-into-light/"><u>Ezekiel's Awakening Into Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393724-9780834844216-pause-rest-be/"><u>Pause, Rest, Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394790-9781087989204-pray-what-you-preach/"><u>Pray What You Preach: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210394676-9781645314363-swipe/"><u>Swipe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393498-9789948834359-hdyth-alroh/"><u>حديث الروح | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

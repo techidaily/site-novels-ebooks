@@ -1,7 +1,7 @@
 ---
 title: 2038 The Great Pyramid Timeline Prophecy | Free Book
-date: 2025-01-05T17:04:15.089Z
-updated: 2025-01-06T17:04:55.453Z
+date: 2025-01-22T19:50:54.123Z
+updated: 2025-01-24T23:58:00.823Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1eb900475374970b6dbc69b5f89cf7563d3.jpg
@@ -137,16 +137,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761698-9781683641353-high-magick/"><u>High Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761689-9781683649397-mindfulness-meditation-for-pain-relief/"><u>Mindfulness Meditation for Pain Relief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761685-9781622031627-resurrecting-jesus/"><u>Resurrecting Jesus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761663-9781683648215-ritual/"><u>Ritual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761670-9781683648833-roar-like-a-goddess/"><u>Roar Like a Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761674-9781683649236-the-heart-of-who-we-are/"><u>The Heart of Who We Are | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761669-9781683648987-yoga-nidra/"><u>Yoga Nidra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614965-9781523505159-an-invitation-to-dream/"><u>An Invitation to Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614586-9781635862393-high-vibe-feng-shui/"><u>High-Vibe Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614512-9781523514021-how-dreams-speak/"><u>How Dreams Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614397-9781635861303-maia-tolls-wild-wisdom-companion/"><u>Maia Toll's Wild Wisdom Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614412-9781648291180-morning-rituals/"><u>Morning Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614415-9781648291173-restorative-rituals/"><u>Restorative Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614770-9781635862133-the-illustrated-bestiary/"><u>The Illustrated Bestiary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614686-9781635862232-the-illustrated-crystallary/"><u>The Illustrated Crystallary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614910-9781579659264-whole-beauty-meditation-mindfulness/"><u>Whole Beauty: Meditation & Mindfulness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Near Death Experiences and Sacred Scripture | Free Book
-date: 2024-10-21T04:23:41.632Z
-updated: 2024-10-27T01:33:52.166Z
+date: 2025-01-23T22:50:05.807Z
+updated: 2025-01-24T20:07:13.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/562eda6f6a8ca00a159ee36af75b1905b2e527829b6a15421cc223bc2d6d9228.jpg
@@ -165,3 +165,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/562eda6f6a8ca00a159ee36af75b190
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209976631-9781912551965-101-inspirational-quotes/"><u>101 Inspirational Quotes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209977859-9780750993494-britains-paranormal-forests/"><u>Britain's Paranormal Forests | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209975691-9781789043884-escaping-from-eden/"><u>Escaping from Eden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209975751-9781439667842-haunted-flint/"><u>Haunted Flint | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209977994-9781493047147-haunted-houses-4th-ed/"><u>Haunted Houses (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209976918-9781783254019-self-care-for-tough-times/"><u>Self-care for Tough Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209978773-9781618521255-the-discovery-tarot-path/"><u>The Discovery Tarot Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209975677-9781789043013-the-magdalene-lineage/"><u>The Magdalene Lineage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209975675-9781789043440-the-power-of-past-life-regression/"><u>The Power of Past Life Regression | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

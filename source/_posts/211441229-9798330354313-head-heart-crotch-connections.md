@@ -1,7 +1,7 @@
 ---
 title: Head, Heart, Crotch Connections | Free Book
-date: 2024-10-19T19:01:59.842Z
-updated: 2024-10-27T03:40:29.778Z
+date: 2025-01-22T22:33:47.898Z
+updated: 2025-01-24T22:33:40.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a60cb24f0c70952ae1400d5fe7911df2bbb31a5e8fbde8d63379cd07490a1b4.jpg
@@ -188,3 +188,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a60cb24f0c70952ae1400d5fe7911d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209801184-9781789041859-diary-of-a-death-doula/"><u>Diary of a Death Doula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804322-9781465498861-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804484-9781608936700-new-england-ufos/"><u>New England UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209803952-9780349425634-the-little-book-of-moon-magic/"><u>The Little Book of Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209805146-9781609949204-the-seven-paths/"><u>The Seven Paths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804591-9781609948016-yoga-wisdom-at-work/"><u>Yoga Wisdom at Work | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

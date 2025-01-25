@@ -1,7 +1,7 @@
 ---
 title: Shamanic Healing for Toxic Relationships | Free Book
-date: 2024-10-22T05:09:28.058Z
-updated: 2024-10-26T19:04:47.880Z
+date: 2025-01-22T22:03:32.556Z
+updated: 2025-01-25T06:07:32.366Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c5edaef0546339cf0c4c287e9d5654cc16082b13c96b07877270010ebb5e903.jpg
@@ -154,3 +154,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c5edaef0546339cf0c4c287e9d5654
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209840789-9780975253854-365-ways-to-a-stronger-you/"><u>365 Ways to a Stronger You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840755-9780996278010-ama-deus/"><u>Ama-Deus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840786-9781935214151-aura-reading-through-all-your-senses/"><u>Aura Reading Through All Your Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840736-9781935214199-cut-cords-of-attachment/"><u>Cut Cords of Attachment: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840728-9780473328320-the-magic-of-the-akashic-records/"><u>The Magic of the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840731-9781935214090-the-new-power-of-face-reading/"><u>The NEW Power of Face Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840732-9781935214274-use-your-power-of-command-for-spiritual-cleansing-and-protection/"><u>Use Your Power of Command for Spiritual Cleansing and Protection | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

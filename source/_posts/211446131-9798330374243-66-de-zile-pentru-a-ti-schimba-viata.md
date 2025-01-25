@@ -1,7 +1,7 @@
 ---
 title: 66 de zile pentru a-ți schimba viața | Free Book
-date: 2024-10-23T23:20:23.281Z
-updated: 2024-10-26T22:08:47.009Z
+date: 2025-01-17T19:15:27.006Z
+updated: 2025-01-24T23:50:29.568Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b14f38a6c84eaf6095cc4735580f5e47aa2b178fd8a8c2bc1e19bb5d72734bd6.jpg
@@ -179,3 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b14f38a6c84eaf6095cc4735580f5e4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209749541-9781984826824-coming-home-to-yourself/"><u>Coming Home to Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749072-9781071500309-la-revolucion-de-la-quema-de-sostenes-lo-quemamos-o-no/"><u>La revolución de la quema de sostenes: ¿lo quemamos o no? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209750872-9781578595570-lost-civilizations/"><u>Lost Civilizations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749336-9781452182865-ten-to-zen/"><u>Ten to Zen | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

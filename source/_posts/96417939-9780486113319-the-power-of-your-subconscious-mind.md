@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-01-12T20:23:07.722Z
-updated: 2025-01-18T19:59:23.117Z
+date: 2025-01-18T16:58:36.056Z
+updated: 2025-01-25T02:26:12.791Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac07a38be5866ac3c050132f9f679e6b03a3.jpg
@@ -141,14 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/185866-9781595470621-a-work-of-saturn/"><u>A Work of Saturn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1840239-9780698401617-looking-at-mindfulness/"><u>Looking at Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1839869-9781459730922-mysteries-and-secrets-the-16-book-complete-codex/"><u>Mysteries and Secrets: The 16-Book Complete Codex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/186036-9781595470669-the-golden-chain-of-homer/"><u>The Golden Chain of Homer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/184065-9781595470034-the-realness-of-witchcraft-in-america/"><u>The Realness of Witchcraft in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520165-9782017166016-courageuse/"><u>Courageuse ! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521490-9781662467967-life-is-hard/"><u>Life is Hard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520932-9781737991564-my-big-gods-masterpiece/"><u>My Big-GOD's Masterpiece | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210521449-9781685703394-something-to-ponder/"><u>Something to Ponder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520826-9780987622839-the-divine-dance-of-the-universe/"><u>The Divine Dance of The Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520310-9781788179126-the-mercury-retrograde-book/"><u>The Mercury Retrograde Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210520907-9781088022153-the-monad-manifesto/"><u>The Monad Manifesto | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

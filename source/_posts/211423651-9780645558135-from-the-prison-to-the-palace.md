@@ -1,7 +1,7 @@
 ---
 title: From the Prison to the Palace | Free Book
-date: 2024-10-24T23:26:57.614Z
-updated: 2024-10-27T05:32:56.396Z
+date: 2025-01-23T23:30:50.373Z
+updated: 2025-01-25T01:40:13.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00b7ff38de31a2c548461d80719250c2925b33abc31f5f68d678026750f6f11d.jpg
@@ -135,3 +135,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00b7ff38de31a2c548461d80719250c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209883273-9781783253883-a-dictionary-of-dream-symbols/"><u>A Dictionary of Dream Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882409-9781087817729-codex-illuminatus/"><u>Codex Illuminatus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882557-9781119584766-ghost-hunting-for-dummies/"><u>Ghost-Hunting For Dummies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883291-9780753734117-labyrinth-meditations/"><u>Labyrinth Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882460-9781643676654-rushing-to-sunset/"><u>Rushing to Sunset | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

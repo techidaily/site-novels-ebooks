@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2024-12-31T16:52:07.117Z
-updated: 2025-01-06T16:44:44.723Z
+date: 2025-01-20T02:57:19.583Z
+updated: 2025-01-24T23:09:41.216Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -141,15 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210765829-9781685680251-afirmaciones-cientificas-para-la-curacion-scientific-healing-affirmationsspanish/"><u>Afirmaciones científicas para la curación (Scientific Healing Affirmations—Spanish) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210767570-9781000818987-intrusions/"><u>Intrusions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210766000-9781087940878-mentally-fit-a-guide-to-engaging-the-mind-body-and-spirit/"><u>Mentally Fit: A Guide to Engaging the Mind, Body and Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210765966-9781736679395-no-gold-without-the-dragon-2nd-ed/"><u>No Gold Without the Dragon (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210766601-9788293725398-original-resistance/"><u>Original Resistance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210765920-9798886440805-whose-daughter-am-i/"><u>WHOSE DAUGHTER AM I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648160-9781631958397-a-book-about-you/"><u>A Book About YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210646868-9781608688449-hagitude/"><u>Hagitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648330-9782017166184-lastrologie/"><u>L'astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648314-9781087748085-lo-que-dios-dice-sobre-nuestros-cuerpos/"><u>Lo que Dios dice sobre nuestros cuerpos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210646288-9780593435762-reiki-illustrated/"><u>Reiki Illustrated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210646015-9781590207604-the-book-of-english-magic/"><u>The Book of English Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210648003-9781684931033-the-man-who-tapped-the-secrets-of-the-universe/"><u>The Man Who Tapped the Secrets of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210645927-9781685269654-what-is-life-all-about/"><u>What Is Life All About? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210646477-9781493063420-witches-and-warlocks-of-new-york/"><u>Witches and Warlocks of New York | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

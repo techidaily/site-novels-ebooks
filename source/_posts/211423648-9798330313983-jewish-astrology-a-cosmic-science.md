@@ -1,7 +1,7 @@
 ---
 title: Jewish Astrology, a Cosmic Science | Free Book
-date: 2024-10-21T21:33:22.307Z
-updated: 2024-10-26T19:29:05.035Z
+date: 2025-01-18T01:54:05.365Z
+updated: 2025-01-24T17:45:29.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c75f969644ece423afc4b7db3681c0934f517842eaaa5a7cd847bd5fbc380b74.jpg
@@ -151,3 +151,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c75f969644ece423afc4b7db3681c09
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209882173-9781948979276-bad-mind/"><u>Bad Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882367-9781950606054-brama-do-piatego-wymiaru/"><u>Brama do piątego wymiaru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882250-9789083034218-joyfulness-from-looking-in-to-looking-after/"><u>Joyfulness. From looking in to looking after | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882259-9780648652465-tarot-distinctions/"><u>Tarot Distinctions | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

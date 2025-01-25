@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2025-01-13T20:40:00.135Z
-updated: 2025-01-18T18:29:36.687Z
+date: 2025-01-19T19:22:13.012Z
+updated: 2025-01-24T17:34:22.811Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,16 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1938658-9780835630535-a-new-science-of-the-paranormal/"><u>A New Science of the Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1931505-9781476621333-a-world-in-a-grain-of-sand/"><u>A World in a Grain of Sand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/194600--antique-affair/"><u>Antique Affair | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/193231-9780767911528-breaking-open-the-head/"><u>Breaking Open the Head | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1938655-9780835631389-man-visible-and-invisible-2nd-ed/"><u>Man, Visible and Invisible (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1931481-9781476606484-psychics-sensitives-and-somnambules/"><u>Psychics, Sensitives and Somnambules | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1938592-9780835630405-the-reality-of-esp/"><u>The Reality of ESP | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528006-9781644114803-aleister-crowley-in-paris/"><u>Aleister Crowley in Paris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528008-9781644115596-american-metaphysical-religion/"><u>American Metaphysical Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528003-9781644113431-how-to-become-a-modern-magus/"><u>How to Become a Modern Magus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528007-9781644115152-initiation-into-dream-mysteries/"><u>Initiation into Dream Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528004-9781644114483-mysteries-of-the-far-north/"><u>Mysteries of the Far North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528005-9781644114193-occult-russia/"><u>Occult Russia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210527994-9781591434641-quantum-spirituality/"><u>Quantum Spirituality | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

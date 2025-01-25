@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-17T21:53:45.004Z
-updated: 2025-01-18T21:50:15.017Z
+date: 2025-01-19T21:43:39.337Z
+updated: 2025-01-25T05:21:11.628Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,18 +236,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138580579-9781450294041-a-manual-for-the-modern-mystic/"><u>A Manual for the Modern Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580725-9781452537191-beautys-way/"><u>Beauty’S Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580826-9781452558806-becoming-the-healer/"><u>Becoming the Healer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138581270-9781452532271-cosmic-spirit/"><u>Cosmic Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138581136-9781452532820-inspired-spiritual-wisdom-from-a-cat-named-sam-moo/"><u>Inspired Spiritual Wisdom from a Cat Named Sam-Moo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580207-9781462061181-lucid-death/"><u>Lucid Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580715-9781617647031-ovnis/"><u>Ovnis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580655-9781462000562-small-steps-huge-changes/"><u>Small Steps, Huge Changes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138580401-9781450293105-wisdom-for-the-good-life/"><u>Wisdom for the Good Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347531-9782226388599-a-la-recherche-de-la-vie-interieure/"><u>A la recherche de la vie intérieure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347520-9782226421968-de-lame/"><u>De l'âme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347653-9782226422033-oser-lemerveillement/"><u>Oser l'émerveillement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347527-9782226423023-une-vie-simple/"><u>Une vie simple | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

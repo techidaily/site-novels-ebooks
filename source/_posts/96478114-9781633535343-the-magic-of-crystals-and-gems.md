@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2025-01-13T20:04:51.245Z
-updated: 2025-01-18T19:21:40.110Z
+date: 2025-01-19T03:56:52.206Z
+updated: 2025-01-25T01:52:42.748Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,15 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138616816-9781614480570-ill-run-with-you/"><u>I'll Run With You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138616853-9781614483694-my-spirit-is-not-religious/"><u>My Spirit Is Not Religious | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138610327-9781550927061-nature-based-therapy/"><u>Nature-Based Therapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138617028-9781630476618-ready-set-live/"><u>Ready, Set, Live! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138604085-9781787133075-star-power/"><u>Star Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138616880-9781614485810-the-prosperity-game/"><u>The Prosperity Game | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382029-9781774816257-abraham-lincoln/"><u>Abraham Lincoln | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382002-9781774816004-autobiography-of-a-yogi/"><u>Autobiography of a Yogi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210381512-9781087998190-beneath-the-surface/"><u>Beneath The Surface | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210381448-9780760370964-dark-goddess-magick/"><u>Dark Goddess Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210381484-9781945169632-emotional-wholeness/"><u>Emotional Wholeness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382663-9781623176921-mirrors-in-the-earth/"><u>Mirrors in the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210382040-9781736679340-wake-up-awakening-through-reflection/"><u>Wake Up! Awakening Through Reflection | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

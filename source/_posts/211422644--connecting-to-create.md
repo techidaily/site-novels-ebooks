@@ -1,7 +1,7 @@
 ---
 title: Connecting to Create | Free Book
-date: 2024-10-20T21:49:55.311Z
-updated: 2024-10-27T00:18:10.239Z
+date: 2025-01-23T18:11:41.146Z
+updated: 2025-01-24T17:23:23.895Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/b8962671dc5ead47cbf2f991dcb6ffa44381a5d3abe9d55bcd0521baedb6b329.jpg
@@ -187,3 +187,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b8962671dc5ead47cbf2f991dcb6ffa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209987732-9781538754139-life-with-the-afterlife/"><u>Life with the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209984282-9781734770612-mind-body-home-3rd-ed/"><u>Mind Body Home (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209988338-9781641604499-the-power-of-hex/"><u>The Power of Hex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209984139-9781646540419-things-to-think-about/"><u>Things To Think About | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209984323-9781761033209-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209988874-9780989126311-undermind/"><u>UnderMind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209987490-9781734574111-vision-quest/"><u>Vision Quest | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

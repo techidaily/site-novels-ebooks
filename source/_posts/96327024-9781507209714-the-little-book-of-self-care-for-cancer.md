@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Cancer | Free Book
-date: 2025-01-02T16:37:12.368Z
-updated: 2025-01-06T16:03:12.442Z
+date: 2025-01-24T05:51:50.256Z
+updated: 2025-01-24T22:41:46.944Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc77010266581c0d7b9341443fd3de9c5ed.jpg
@@ -168,13 +168,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cbe3b2a771e2623911b91370dbe0bbc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210845546-9798889269649-beautiful-women-a-view-from-the-heart/"><u>Beautiful Women: A View from the Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845561-9781088143278-manifesting-your-dream-life/"><u>MANIFESTING YOUR DREAM LIFE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845432-9798822915527-precious-gems/"><u>Precious Gems | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210845544-9781684931842-the-healing-light/"><u>The Healing Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210702135-9781784886387-astrocrystals/"><u>AstroCrystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210701606-9781685680275-cantos-del-alma/"><u>Cantos del alma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210701644-9781943328956-haunted-inside-passage/"><u>Haunted Inside Passage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210701282-9780876129753-meditaties-voor-de-ziel/"><u>Meditaties voor de ziel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210700336-9781454946946-sigil-craft/"><u>Sigil Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210700333-9780760377246-the-karmic-birthday-book/"><u>The Karmic Birthday Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210701610-9780760371268-the-zenned-out-guide-to-understanding-tarot/"><u>The Zenned Out Guide to Understanding Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210701525-9781957343051-words-of-the-temple/"><u>Words of the Temple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210701567-9781958921128-your-soul-has-a-plan/"><u>Your Soul Has a Plan | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

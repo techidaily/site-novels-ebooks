@@ -1,7 +1,7 @@
 ---
 title: New Dimensions of Deep Analysis | Free Book
-date: 2024-10-21T21:13:30.423Z
-updated: 2024-10-27T00:48:07.682Z
+date: 2025-01-19T02:50:50.052Z
+updated: 2025-01-24T18:48:15.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/179356b0d90ce7a1a418ad18c45550c30cb1042a342899769994577fe03f9835.jpg
@@ -149,3 +149,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/179356b0d90ce7a1a418ad18c45550c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2096442-9780892546633-astrological-insights-into-personality/"><u>Astrological Insights into Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643983-9781632658050-before-you-cast-a-spell/"><u>Before You Cast A Spell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209644890-9782824631929-dans-la-lumiere-de-votre-ange-gardien/"><u>Dans la lumière de votre ange gardien | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643619-9780983704065-guia-de-peliculas-par-el-despertar/"><u>Guia De Peliculas Par el Despertar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645416-9781462920631-japanese-tea-ceremony/"><u>Japanese Tea Ceremony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645574-9781620559093-the-hermetic-science-of-transformation/"><u>The Hermetic Science of Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643614-9781780990576-the-high-heeled-guide-to-enlightenment/"><u>The High Heeled Guide to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645573-9781620558706-the-magian-tarok-3rd-ed/"><u>The Magian Tarok (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209645054-9781452175058-the-seasonal-soul/"><u>The Seasonal Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

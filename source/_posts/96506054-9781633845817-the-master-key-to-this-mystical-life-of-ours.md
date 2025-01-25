@@ -1,7 +1,7 @@
 ---
 title: The Master Key to This Mystical Life of Ours | Free Book
-date: 2025-01-13T17:20:42.470Z
-updated: 2025-01-18T22:07:49.362Z
+date: 2025-01-20T03:54:59.103Z
+updated: 2025-01-24T23:27:34.810Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12a11fbc32da1c1ed23a97823bc395dcab918e24a3cd08b443b32d9ea2f4b073.jpg
@@ -138,15 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12a11fbc32da1c1ed23a97823bc395d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126134-9781609256289-a-ufo-hunters-guide/"><u>A UFO Hunter's Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126112-9781609254698-the-training-work-of-an-initiate/"><u>The Training & Work of an Initiate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126127-9781609250232-the-tree-of-enchantment/"><u>The Tree of Enchantment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126150-9781609256296-the-way-of-the-oracle/"><u>The Way of the Oracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126122-9781609255084-trance-portation/"><u>Trance-Portation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126125-9781609251055-transition-now/"><u>Transition Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252601-9781682131831-an-army-in-heaven/"><u>An Army in Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252959-9781101993064-becoming-aware/"><u>Becoming Aware | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253203-9781087954615-finding-your-superpowers-in-the-place-you-left-them/"><u>Finding Your Superpowers in the Place you Left Them | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252504-9780760370582-herbal-magic/"><u>Herbal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253212-9780578840130-holy-bleep-that-was-not-a-coincidence/"><u>Holy BLEEP! That Was Not a Coincidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210253168-9781733807913-persephones-pearls/"><u>Persephone's Pearls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252443-9781638482437-the-book-of-earth-opus-ii-taking-jesus-off-the-cross/"><u>The Book of Earth Opus II - Taking Jesus Off the Cross | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252467-9781734337853-the-manual/"><u>The Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210252807-9781611534023-who-cares-what-the-numbers-say/"><u>Who Cares What the Numbers Say | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-01-12T16:56:15.429Z
-updated: 2025-01-18T22:13:59.686Z
+date: 2025-01-20T22:54:46.246Z
+updated: 2025-01-25T00:24:35.756Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,15 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1204896-9781583947586-collapsing-consciously-meditations/"><u>Collapsing Consciously Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207455-9781780999579-grimoire-of-a-kitchen-witch/"><u>Grimoire of a Kitchen Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207457-9781780994604-healing-divination/"><u>Healing Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207181-9781101615669-tapping-into-wealth/"><u>Tapping Into Wealth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1204923-9780307830470-the-pathwork-of-self-transformation/"><u>The Pathwork of Self-Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207437-9781442222281-the-scientific-basis-of-astrology/"><u>The Scientific Basis of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284790-9788792633804-211/"><u>21+1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284757-9781098077259-a-view-from-the-pew/"><u>A View from the Pew | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284748-9781098075163-growing-the-church/"><u>Growing the Church | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284776-9781641149167-i-am-that-bitch-blessed-in-the-church-house-lady/"><u>I am that B.I.T.C.H. (Blessed In The Church House) Lady | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

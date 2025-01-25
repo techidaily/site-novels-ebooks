@@ -1,7 +1,7 @@
 ---
 title: Mind-Body Health and Healing | Free Book
-date: 2025-01-05T16:51:13.102Z
-updated: 2025-01-06T16:06:57.488Z
+date: 2025-01-22T00:11:45.645Z
+updated: 2025-01-24T19:18:43.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8db117bf091c80d351409c4e99f8d0b8f0.jpg
@@ -185,18 +185,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210756962-9798218129262-conquering-animal-mysticism/"><u>Conquering Animal Mysticism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210758348-9781088093283-count-the-cost/"><u>COUNT THE COST | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210757024-9781910559857-enchanted-journeys/"><u>Enchanted Journeys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210757160-9785702158679-guru/"><u>Guru | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210757190-9781956368482-in-search-of-simple/"><u>In Search of Simple | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210757072-9781954920446-personal-heart-power/"><u>Personal Heart Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210756876-9798885408431-safe-at-first/"><u>Safe at First | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210758021-9781685709693-spiritual-renewal/"><u>Spiritual Renewal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210757063-9781088088814-the-corpus-germainius/"><u>The Corpus Germainius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592449-9780760373729-breathe/"><u>Breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593260-9781524881887-haunted-in-america/"><u>Haunted in America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210593201-9782017166160-le-garcon-qui-chevauchait-un-ane/"><u>Le garçon qui chevauchait un âne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592377-9798985892680-never-forgotten/"><u>Never Forgotten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210591818-9798985991673-when-silence-is-misunderstood/"><u>When Silence is Misunderstood | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

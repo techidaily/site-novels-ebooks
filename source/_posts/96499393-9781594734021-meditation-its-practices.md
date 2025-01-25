@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2025-01-13T21:19:36.440Z
-updated: 2025-01-18T19:45:50.560Z
+date: 2025-01-23T21:00:55.511Z
+updated: 2025-01-24T19:06:19.764Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,16 +166,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138576297-9781440183935-finding-our-center/"><u>Finding Our Center | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576367-9781450279314-from-hopeless-and-helpless-to-healing/"><u>From Hopeless and Helpless to Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576296-9781450246422-in-love-and-light/"><u>In Love and Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576286-9780595843923-keys-to-the-door-of-truth/"><u>Keys to the Door of Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576209-9780595608584-my-body-my-earth/"><u>My Body, My Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576232-9780595905690-pray-it-forward/"><u>Pray It Forward | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576269-9780595750719-the-ghost-next-door/"><u>The Ghost Next Door | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345999-9780744053517-alchemy/"><u>Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345647-9781737514916-faith-food-art/"><u>Faith, Food & Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346019-9782226461247-la-diagonale-de-la-joie/"><u>La Diagonale de la joie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346005-9782226460523-les-cles-de-lesoterisme-astrologie/"><u>Les Clés de l'ésotérisme - Astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346021-9782226460530-les-cles-de-lesoterisme-tarot/"><u>Les Clés de l'ésotérisme - Tarot | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

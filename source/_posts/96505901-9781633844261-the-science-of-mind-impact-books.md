@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2025-01-15T22:17:18.977Z
-updated: 2025-01-18T20:05:27.896Z
+date: 2025-01-17T21:21:07.829Z
+updated: 2025-01-25T04:54:12.805Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,15 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125655-9781609256173-coventry-magic-with-candles-oils-and-herbs/"><u>Coventry Magic with Candles, Oils, and Herbs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125656-9781609253394-create-a-world-that-works/"><u>Create a World That Works | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125658-9781609257590-custodians-of-truth/"><u>Custodians Of Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125669-9781609251987-devil-worship-in-france/"><u>Devil-Worship in France | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125670-9781609251802-dion-fortunes-book-of-the-dead/"><u>Dion Fortune's Book of the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125668-9781609253899-the-development-of-personality/"><u>The Development of Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233083-9781633411845-casting-lots/"><u>Casting Lots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233087-9781633412354-consorting-with-spirits/"><u>Consorting with Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233082-9781633412149-the-big-book-of-magical-incense/"><u>The Big Book of Magical Incense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233085-9781633412316-the-ufo-abduction-book/"><u>The UFO Abduction Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233086-9781633412170-yemaya/"><u>Yemaya | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

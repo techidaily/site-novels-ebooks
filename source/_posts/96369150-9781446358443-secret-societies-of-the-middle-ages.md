@@ -1,7 +1,7 @@
 ---
 title: Secret Societies of the Middle Ages | Free Book
-date: 2025-01-02T17:04:37.053Z
-updated: 2025-01-06T16:28:14.044Z
+date: 2025-01-24T04:50:23.104Z
+updated: 2025-01-24T19:41:20.557Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b775347a9552b96b09b72b89bf9a5e980fd2777.jpg
@@ -157,16 +157,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b77534
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210803181-9798822912250-admit-it-youre-god/"><u>Admit It, You're God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210803289-9783988312075-chakras-healing-for-beginners/"><u>CHAKRAS HEALING FOR BEGINNERS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210805353-9781667452555-from-the-other-side-of-the-moon/"><u>From the other side of the moon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210805317-9781667451602-il-gioco-dellincarnazione/"><u>Il gioco dell'incarnazione | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210803164-9798885057493-my-journey/"><u>My Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210802992-9788794430043-the-attack-on-the-ferris-wheel/"><u>THE ATTACK ON THE FERRIS WHEEL | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210803027-9781957917290-the-heart-of-fear/"><u>The Heart of Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676438-9781639854042-a-guiding-light-to-the-future/"><u>A Guiding Light To The Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676853-9781788604352-ageing-upwards/"><u>Ageing Upwards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677068-9781398827790-green-witchcraft/"><u>Green Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676582-9781958921043-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677067-9781398827998-the-book-of-tarot/"><u>The Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676635-9781948692175-third-place/"><u>Third Place | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676849-9781662469572-your-passport-to-alternative-spirituality-and-the-after-life/"><u>Your Passport to Alternative Spirituality and the After-Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

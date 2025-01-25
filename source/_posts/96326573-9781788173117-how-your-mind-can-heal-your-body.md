@@ -1,7 +1,7 @@
 ---
 title: How Your Mind Can Heal Your Body | Free Book
-date: 2025-01-03T16:51:19.050Z
-updated: 2025-01-06T16:52:57.809Z
+date: 2025-01-23T19:25:53.848Z
+updated: 2025-01-24T16:40:37.725Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae21f464db4b729cc585ccad327ca47566d7.jpg
@@ -210,18 +210,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210836604-9798987452455-a-lifetime-of-healing/"><u>A Lifetime of Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210836658-9780645011302-becoming-gutsy-and-formidable/"><u>Becoming Gutsy and Formidable | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210836539-9798986988610-birth-time-rectification/"><u>Birth Time Rectification | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210838426-9781952692659-healing-our-way-home/"><u>Healing Our Way Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210835946-9783988263483-household-gods/"><u>Household Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210838062-9782019469443-le-kybalion-et-les-7-lois-cosmiques/"><u>Le Kybalion et les 7 lois cosmiques | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210835737-9798987742907-rebels-of-kindness/"><u>Rebels Of Kindness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210838409-9781401965075-the-highest-level-of-enlightenment/"><u>The Highest Level of Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210836596-9781088117859-the-question-of-freemasonry/"><u>The Question of Freemasonry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210696101-9781959114628-dark-occult-magick-powerful-summoning-spells-for-entities-to-seek-protection-and-incredible-power/"><u>Dark Occult Magick | Powerful Summoning Spells for Entities to Seek Protection and Incredible Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210695950-9780876129715-in-het-diepst-van-je-ziel/"><u>In het diepst van je ziel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210696147-9798886163575-life-on-earth/"><u>Life on Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210694523-9781475870138-meditation-in-the-college-classroom/"><u>Meditation in the College Classroom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210696054-9780645206456-my-way-my-truthful-way/"><u>My Way, my Truthful Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210695949-9780876129982-nella-quiete-del-cuore/"><u>Nella Quiete del Cuore | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210696140-9798885406383-the-waiting-room/"><u>THE WAITING ROOM | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210694337-9781528939355-what-does-it-mean-to-be-human/"><u>What Does It Mean To Be Human? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210695951-9780876129517-zwiesprache-mit-gott/"><u>Zwiesprache mit Gott | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

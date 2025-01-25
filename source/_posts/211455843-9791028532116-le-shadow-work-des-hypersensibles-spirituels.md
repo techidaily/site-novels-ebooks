@@ -1,7 +1,7 @@
 ---
 title: Le shadow work des hypersensibles spirituels | Free Book
-date: 2024-10-25T22:50:13.913Z
-updated: 2024-10-26T16:27:34.755Z
+date: 2025-01-23T03:56:06.202Z
+updated: 2025-01-24T22:09:22.545Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19cc20b2f6a7e719ab5ac6d4c8d0bc67219e01f04a292dc8fd60ea740205b59a.jpg
@@ -176,3 +176,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19cc20b2f6a7e719ab5ac6d4c8d0bc6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209522213-9781446359310-a-people-bewitched/"><u>A People Bewitched | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522201-9781446357903-a-witches-bible/"><u>A Witches' Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522218-9781446358269-apparitions/"><u>Apparitions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522199-9781446357569-apparitions-and-haunted-houses/"><u>Apparitions and Haunted Houses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522220-9781446357743-ghosts-and-apparitions/"><u>Ghosts and Apparitions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522210-9781446358429-ghosts-of-the-tower-of-london/"><u>Ghosts of the Tower of London | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522209-9781446357866-memories-of-an-essex-ghosthunter/"><u>Memories of an Essex Ghosthunter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522203-9781446357804-science-and-the-paranormal/"><u>Science and the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522216-9781446359297-what-is-a-poltergeist/"><u>What is a Poltergeist? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

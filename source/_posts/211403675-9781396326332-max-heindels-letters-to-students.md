@@ -1,7 +1,7 @@
 ---
 title: Max Heindel's Letters to Students | Free Book
-date: 2024-10-24T21:54:20.325Z
-updated: 2024-10-26T21:25:24.753Z
+date: 2025-01-22T05:07:05.877Z
+updated: 2025-01-25T02:21:32.330Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/575433c00a183a53a3542bc81bdf98a3c956addeaa8f943df4141073a1c69820.jpg
@@ -160,3 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/575433c00a183a53a3542bc81bdf98a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210110999-9780648908227-breaking-free-to-be-me/"><u>Breaking Free to Be Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210108711-9788499887074-la-ciencia-y-las-practicas-espirituales/"><u>La ciencia y las prácticas espirituales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210110785-9781617508141-marys-miracles-and-messages/"><u>Mary's Miracles and Messages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210110224-9789389253443-the-spirits-talk-to-me/"><u>The Spirits Talk to Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210108529-9781735471020-you-are-intuitive/"><u>You Are Intuitive | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

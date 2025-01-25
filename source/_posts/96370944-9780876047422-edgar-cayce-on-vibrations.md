@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on Vibrations | Free Book
-date: 2024-12-30T16:25:47.694Z
-updated: 2025-01-06T16:57:11.007Z
+date: 2025-01-21T22:39:32.195Z
+updated: 2025-01-25T00:29:47.505Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc5535059efc28d07ed5501f222c0f4085ec0eb6.jpg
@@ -134,13 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc55350
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761782-9781683647638-how-to-be-loving/"><u>How to Be Loving | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761786-9781683648628-opening-to-darkness/"><u>Opening to Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761781-9781622034680-tending-the-heart-fire/"><u>Tending the Heart Fire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761790-9781649631381-the-three-conditions/"><u>The Three Conditions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210620550-9781446380864-100-plants-that-heal/"><u>100 Plants That Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210620137-9781733073837-brave-healing-2nd-ed/"><u>Brave Healing (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210622573-9798986194714-fill-the-gap/"><u>Fill The Gap | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619960-9781722527563-seven-games-of-life/"><u>Seven Games of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210620577-9780711264892-the-chakra-fix/"><u>The Chakra Fix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210622592-9798986162836-the-flourish-experience/"><u>The Flourish Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210620090-9781954920255-winks-from-above/"><u>Winks from Above | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

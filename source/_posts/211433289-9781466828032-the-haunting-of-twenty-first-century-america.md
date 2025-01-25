@@ -1,7 +1,7 @@
 ---
 title: The Haunting of Twenty-First-Century America | Free Book
-date: 2024-10-25T02:27:24.725Z
-updated: 2024-10-26T19:12:48.654Z
+date: 2025-01-23T21:33:05.587Z
+updated: 2025-01-25T04:21:51.165Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cc6f514b768e14ff56d99d74df44a5bfd327efe6cc178fa5059f92f5c7060e7e.jpg
@@ -176,3 +176,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cc6f514b768e14ff56d99d74df44a5b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209864726-9781732295117-a-joyful-pause/"><u>A Joyful Pause | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864776-9781732437159-about-face-3rd-ed/"><u>About Face (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864778-9780692198117-comfort-joy/"><u>Comfort & Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865174-9781773232430-mysticism/"><u>Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209865232-9781916468610-the-dark-night-of-the-soul/"><u>The Dark Night of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864452-9780938001713-unleash-your-psychic-powers/"><u>Unleash Your Psychic Powers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

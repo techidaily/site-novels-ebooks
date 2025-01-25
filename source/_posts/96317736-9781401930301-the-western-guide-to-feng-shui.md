@@ -1,7 +1,7 @@
 ---
 title: The Western Guide to Feng Shui | Free Book
-date: 2024-11-03T16:05:33.403Z
-updated: 2024-11-07T18:40:35.089Z
+date: 2025-01-19T18:44:55.784Z
+updated: 2025-01-24T17:30:56.475Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/395bedca21c6c4cb48ca1438ac953000d8068efcd0ac912f44c61b6d6e9fcb17.jpg
@@ -169,10 +169,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/395bedca21c6c4cb48ca1438ac95300
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209857784-9780965178013-a-daily-dose-of-mindful-moments/"><u>A Daily Dose of Mindful Moments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209857694-9781945894114-experimentando-con-la-verdad/"><u>Experimentando con la Verdad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209857689-9781945894107-experimenting-with-the-truth/"><u>Experimenting with the Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209857810-9780977617906-my-god-and-me/"><u>My God and Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209857722-9781948443012-the-all-of-everything/"><u>The All of Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711609-9781402790836-12000-dreams-interpreted/"><u>12,000 Dreams Interpreted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711656-9781435141391-houses-of-horror/"><u>Houses of Horror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711571-9781402776236-how-to-heal-toxic-thoughts/"><u>How to Heal Toxic Thoughts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711655-9781435141414-real-hauntings/"><u>Real Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711658-9781435141377-the-ghost-hunters-strangest-cases/"><u>The Ghost Hunter's Strangest Cases | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711659-9781435137257-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711299-9781959018520-wicca/"><u>Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711597-9781402789038-wiccapedia/"><u>Wiccapedia | Free Book</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

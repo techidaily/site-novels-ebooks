@@ -1,7 +1,7 @@
 ---
 title: Miracle Mongers and Their Methods | Free Book
-date: 2025-01-13T19:05:42.774Z
-updated: 2025-01-18T20:17:32.104Z
+date: 2025-01-23T04:59:05.131Z
+updated: 2025-01-24T17:57:07.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e18e749e6e3e5ddec50f37fe4245221bc77.jpg
@@ -148,15 +148,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc368d2e9f383d2c20267faf46733e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1640843-9781101638354-americas-most-haunted/"><u>America's Most Haunted | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1640621-9780698153837-i-ching/"><u>I Ching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1640825-9780698176928-mrs-wakeman-vs-the-antichrist/"><u>Mrs. Wakeman vs. the Antichrist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1639365-9781317712763-psychotherapy-with-gay-men-and-lesbians/"><u>Psychotherapy with Gay Men and Lesbians | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1640694-9780698176218-the-energies-of-love/"><u>The Energies of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1638139-9781780282299-who-built-the-moon/"><u>Who Built the Moon? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210458197-9781722527068-developing-your-sixth-sense/"><u>Developing Your Sixth Sense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210462392-9781774816684-echoes-from-the-orient/"><u>Echoes from The Orient | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210458239-9798985325300-spiritual-nurturing-for-intuitive-children/"><u>Spiritual Nurturing for Intuitive Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210462342-9798885253222-the-manifestors-guide-to-ease/"><u>The Manifestor's Guide to Ease | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

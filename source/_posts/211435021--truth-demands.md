@@ -1,7 +1,7 @@
 ---
 title: Truth Demands | Free Book
-date: 2024-10-20T21:56:00.065Z
-updated: 2024-10-27T04:13:15.646Z
+date: 2025-01-20T23:25:03.195Z
+updated: 2025-01-24T22:58:53.128Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/200312f1c42bc396a41b64a3dd9b19bdcfeaf637209d1a28faeea258db82872b.jpg
@@ -124,3 +124,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/200312f1c42bc396a41b64a3dd9b19b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209873704-9781945026553-bring-him-home/"><u>Bring Him Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209873489-9781535616782-heal-yourself-with-journaling-power/"><u>Heal Yourself with Journaling Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209873592-9780954528089-soul-completion/"><u>Soul Completion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209873570-9780648527244-the-story-of-woman-the-mountain/"><u>The Story of Woman The Mountain | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

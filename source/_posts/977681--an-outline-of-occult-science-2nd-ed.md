@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2025-01-13T21:09:35.862Z
-updated: 2025-01-18T18:49:39.192Z
+date: 2025-01-20T17:01:34.164Z
+updated: 2025-01-24T17:45:51.662Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,13 +131,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124197-9781619400436-astral-camera/"><u>Astral Camera | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124186-9780892545698-pregnant-darkness/"><u>Pregnant Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124198-9781619400450-the-astral-world/"><u>The Astral World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124193-9780892545704-theurgy-or-the-hermetic-practice/"><u>Theurgy, or the Hermetic Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210664-9781722526733-cosmic-habit-force/"><u>Cosmic Habit Force | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210858-9780998608853-grief-and-anger/"><u>Grief and Anger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210211036-9781735852485-im-done/"><u>I'm Done. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210666-9781722521554-in-tune-with-the-infinite-condensed-classics/"><u>In Tune With the Infinite (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210671-9780578846897-ingredients-of-singleness/"><u>Ingredients Of Singleness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210211133-9781528767828-the-marvels-beyond-science-being-a-record-of-progress-made-in-the-reduction-of-occult-phenomena-to-a-scientific-basis/"><u>The Marvels Beyond Science - Being a Record of Progress Made in the Reduction of Occult Phenomena to a Scientific Basis | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

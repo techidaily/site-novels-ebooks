@@ -1,7 +1,7 @@
 ---
 title: Queer Devotion | Free Book
-date: 2024-10-23T05:34:31.130Z
-updated: 2024-10-26T22:47:13.788Z
+date: 2025-01-21T03:25:08.420Z
+updated: 2025-01-25T02:39:23.833Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ac26561af9baea9160a7fbf926343227b3ab0c6edf1ace2ed12255c6fc985f4c.jpg
@@ -143,3 +143,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ac26561af9baea9160a7fbf92634322
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209844336-9780692747643-getting-unstuck/"><u>Getting unSTUCK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844042-9781945026010-god-is-in-the-little-things/"><u>God Is In The Little Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844243-9781911159018-life-within-the-entropy-paradigm/"><u>Life Within the Entropy Paradigm: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209843857-9789186613129-sensitelligent-a-guide-to-life/"><u>Sensitelligent - a guide to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844547-9781773021225-tormented-by-ghosts/"><u>Tormented By Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844124-9780994591616-truth-connections/"><u>TRUTH CONNECTIONS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844240-9780972749381-your-immortal-self/"><u>Your Immortal Self | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

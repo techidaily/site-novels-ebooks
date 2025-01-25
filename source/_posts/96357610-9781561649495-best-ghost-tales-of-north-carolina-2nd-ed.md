@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina (2nd ed.) | Free Book
-date: 2025-01-02T16:42:51.197Z
-updated: 2025-01-06T16:47:09.867Z
+date: 2025-01-20T05:31:23.346Z
+updated: 2025-01-25T00:42:34.055Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951cc0ca1ce8cce45e75434e981ae3e320eec.jpg
@@ -156,18 +156,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210772216-9798987313022-elevate/"><u>Elevate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210771674-9781646639595-face-lift/"><u>Face-Lift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772295-9781088121924-fearfully-forward-success/"><u>Fearfully Forward Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210771514-9781636980393-the-7-initiatory-fires-of-modern-manhood/"><u>The 7 Initiatory Fires of Modern Manhood | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770774-9781636920030-the-good-the-bad-and-the-ugly/"><u>The Good, the Bad, and the Ugly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772145-9798987754238-the-greater-purpose/"><u>The Greater Purpose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772170-9798218156527-the-tarot-decoded-2nd-ed/"><u>The Tarot Decoded (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210771159-9798218148201-who-am-i/"><u>Who Am I | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210772303-9781088123065-word-to-the-wise-20-108-days-of-power/"><u>Word to the Wise 2.0 - 108 Days of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655588-9781454940609-a-little-bit-of-zen/"><u>A Little Bit of Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655590-9781454940838-wicca-book-of-spells/"><u>Wicca Book of Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655596-9781454941019-wicca-crystal-magic/"><u>Wicca Crystal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655591-9781454941033-wicca-essential-oils-magic/"><u>Wicca Essential Oils Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655589-9781454940852-wicca-for-beginners/"><u>Wicca for Beginners | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

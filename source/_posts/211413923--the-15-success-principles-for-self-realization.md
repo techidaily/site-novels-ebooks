@@ -1,7 +1,7 @@
 ---
 title: The 15 Success Principles for Self-Realization | Free Book
-date: 2024-10-25T17:16:10.050Z
-updated: 2024-10-26T20:51:23.758Z
+date: 2025-01-18T04:36:41.765Z
+updated: 2025-01-24T19:21:36.873Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db291705ca33929a558099118bf1cb2d1a9a9773678c93870a915e6ee746f7ac.jpg
@@ -146,3 +146,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db291705ca33929a558099118bf1cb2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210041210-9781734864519-awakening-the-healing-soul/"><u>Awakening the Healing Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210043687-9798615143069-chiron/"><u>Chiron | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210040112-9781885983893-cold-moon/"><u>Cold Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210044108-9781942586791-frame-of-mind/"><u>Frame of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210039541-9780733645105-my-year-of-living-mindfully/"><u>My Year of Living Mindfully | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210039525-9781841815039-natures-hidden-oracles/"><u>Nature's Hidden Oracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210039531-9780753734490-tiny-healer-confidence/"><u>Tiny Healer: Confidence | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

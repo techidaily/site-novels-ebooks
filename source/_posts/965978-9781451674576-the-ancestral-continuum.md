@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2025-01-17T22:10:13.705Z
-updated: 2025-01-18T17:28:38.880Z
+date: 2025-01-24T05:43:37.009Z
+updated: 2025-01-24T16:37:05.383Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,14 +181,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1121187-9781842438213-conspiracy-theories/"><u>Conspiracy Theories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1121172-9781842439517-occult-london/"><u>Occult London | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1120958-9781780998428-pagan-portals-kitchen-witchcraft/"><u>Pagan Portals - Kitchen Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1115420-9781907203596-the-quirky-medium/"><u>The Quirky Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1120228-9780988432741-uppvaknande-genom-en-kurs-i-mirakler/"><u>Uppvaknande genom En Kurs i Mirakler | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200999-9781908005151-art-of-mindful-silence/"><u>Art of Mindful Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200996-9781908005137-art-of-mindful-walking/"><u>Art of Mindful Walking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201517-9781647465773-becoming-whole/"><u>Becoming Whole | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200997-9781908005540-mindfulness-the-art-of-managing-anger/"><u>Mindfulness & the Art of Managing Anger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200973-9781782401230-mindfulness-the-natural-world/"><u>Mindfulness & the Natural World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200731-9781610580502-the-best-meditations-on-the-planet/"><u>The Best Meditations on the Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210200695-9781627887601-the-key-to-crystals/"><u>The Key to Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210201660-9781735740126-trouble-in-paradise/"><u>Trouble In Paradise | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

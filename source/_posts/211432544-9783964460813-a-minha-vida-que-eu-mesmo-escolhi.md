@@ -1,7 +1,7 @@
 ---
 title: A minha vida que eu mesmo escolhi | Free Book
-date: 2024-10-19T21:23:38.497Z
-updated: 2024-10-26T17:55:31.748Z
+date: 2025-01-23T22:14:47.537Z
+updated: 2025-01-24T18:07:12.007Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e7954a90b478bf5509886efa21fa7faee74255ba80b126700f5fbbfcf9f4731.jpg
@@ -153,3 +153,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e7954a90b478bf5509886efa21fa7f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209863352-9780648352181-banyan-trees-gift/"><u>Banyan Tree's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863348-9780648352198-baobab-trees-gift/"><u>Baobab Tree's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863264-9781935214496-empath-empowerment-in-30-days/"><u>Empath Empowerment in 30 Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863178-9781999731939-love-sex-nakedness-and-the-divine/"><u>Love, Sex, Nakedness and the Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863368-9780648391210-oak-trees-gift/"><u>Oak Tree's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863355-9780648391203-rainbow-gums-gift/"><u>Rainbow Gum's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863095-9780995699922-reversing-the-race-to-global-destruction/"><u>Reversing the Race to Global Destruction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863373-9781732483613-the-mindfulness-effect/"><u>The Mindfulness Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863396-9781945026461-the-truth/"><u>The Truth | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

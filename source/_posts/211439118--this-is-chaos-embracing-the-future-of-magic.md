@@ -1,7 +1,7 @@
 ---
 title: "This Is Chaos: Embracing the Future of Magic | Free Book"
-date: 2024-10-25T18:49:03.285Z
-updated: 2024-10-27T04:33:22.638Z
+date: 2025-01-22T20:38:56.187Z
+updated: 2025-01-24T20:32:12.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4c0a376e6db51ace011acd52de76b1ac1967fbd34c4e51a0e3b1f1df53aaa8da.jpg
@@ -163,3 +163,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4c0a376e6db51ace011acd52de76b1a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209856015-9780648184638-acupuncture-of-the-mind/"><u>Acupuncture of The Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855916-9780692509623-deeply-wounded-hope/"><u>Deeply Wounded Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856190-9780956788764-exploring-the-eternal-soul-insights-from-the-life-between-lives/"><u>Exploring the Eternal Soul - Insights from the Life Between Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856195-9780956788771-healing-the-eternal-soul-insights-from-past-life-and-spiritual-regression/"><u>Healing the Eternal Soul - Insights from Past Life and Spiritual Regression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855880-9780999480595-the-power-formula/"><u>The Power Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855887-9780692986127-thought-optional/"><u>Thought Optional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856155-9780993448256-thrive/"><u>Thrive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856170-9781513601786-transform-into-lightbody/"><u>Transform Into Lightbody | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856206-9780995105942-where-do-i-go-when-i-meditate/"><u>Where Do I Go When I Meditate? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

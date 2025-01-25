@@ -1,7 +1,7 @@
 ---
 title: Manifesting | Free Book
-date: 2024-10-24T00:26:48.949Z
-updated: 2024-10-26T21:01:34.845Z
+date: 2025-01-22T05:29:23.509Z
+updated: 2025-01-24T17:54:13.579Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d001d99a920b71471f7ea4769042042ed58e0e5a4935966c8453f9681de4843.jpg
@@ -157,3 +157,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d001d99a920b71471f7ea476904204
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209541302-9780008319359-cancer-2020-your-personal-horoscope/"><u>Cancer 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541303-9780008319403-sagittarius-2020-your-personal-horoscope/"><u>Sagittarius 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541300-9780008319397-scorpio-2020-your-personal-horoscope/"><u>Scorpio 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541301-9780008319335-taurus-2020-your-personal-horoscope/"><u>Taurus 2020: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209541304-9780008319304-your-personal-horoscope-2020/"><u>Your Personal Horoscope 2020 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

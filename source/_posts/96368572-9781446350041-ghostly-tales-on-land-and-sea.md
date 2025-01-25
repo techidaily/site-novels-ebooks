@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales on Land and Sea | Free Book
-date: 2024-12-31T16:01:00.457Z
-updated: 2025-01-06T16:43:15.321Z
+date: 2025-01-23T02:48:52.961Z
+updated: 2025-01-24T18:45:16.649Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84ca67bb8fdd72f5a2d46f84bb32fed98e81.jpg
@@ -134,16 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210773430-9781685833800-life-simply-a-perspective/"><u>Life: Simply a perspective | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773420-9781649694188-nostradamus-unlocked/"><u>NOSTRADAMUS Unlocked | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773482-9781649698674-the-extraterrestrial-life/"><u>THE EXTRATERRESTRIAL LIFE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773509-9781922439727-the-floating-world/"><u>The Floating World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773538-9781649696526-the-quarry-event/"><u>The Quarry Event | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773452-9781649697189-the-sound-of-the-stone-being-rolled-away/"><u>The sound of the stone being rolled away | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773401-9781649692924-unknown/"><u>Unknown | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661228-9781914447624-calm-up/"><u>Calm Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661205-9798985332018-god-is-realyou-dont-even-have-to-wonder/"><u>God is REAL...You Don't Even Have to Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661284-9798985526776-gratitude/"><u>Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661767-9781956108033-soul-warrior/"><u>Soul Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661301-9798218009137-the-book-of-proverbs/"><u>The Book of Proverbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661783-9798986875514-the-real-you/"><u>The Real You | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

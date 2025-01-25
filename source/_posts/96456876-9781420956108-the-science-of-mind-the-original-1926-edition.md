@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2025-01-17T20:16:21.178Z
-updated: 2025-01-18T19:06:55.749Z
+date: 2025-01-21T00:32:50.536Z
+updated: 2025-01-25T05:47:27.907Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,15 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1658839-9780698185005-coleccion-abundancia-astrologica/"><u>Colección Abundancia Astrológica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1655470-9780349404608-colour-your-life/"><u>Colour Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1662434-9781614290933-feng-shui-seeing-is-believing/"><u>Feng Shui: Seeing Is Believing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1656054-9781608829040-the-practicing-happiness-workbook/"><u>The Practicing Happiness Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1657193-9781250054074-what-i-know-for-sure/"><u>What I Know For Sure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1655230-9780698171817-your-inner-will/"><u>Your Inner Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468839-9781761037870-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468704-9781639855025-dylights-4/"><u>Dylights 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468854-9781734249651-licensed-to-snap/"><u>Licensed to S.N.A.P. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468845-9781761037757-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468707-9781637103128-mindset/"><u>Mindset | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468998--the-veil-of-entanglement/"><u>The Veil of Entanglement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210468713-9781639853229-vida-despues-de-la-muerte-de-la-mano-de-dios/"><u>VIDA DESPUES DE LA MUERTE DE LA MANO DE DIOS | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Fairy Herbs for Fairy Magic | Free Book
-date: 2024-10-22T03:13:36.883Z
-updated: 2024-10-27T05:28:12.844Z
+date: 2025-01-19T00:48:17.165Z
+updated: 2025-01-24T22:56:39.807Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a02a743c3e97ddd122b16a0d5090a5ad7e507c8da02073c4a4bd3d255b7081cb.jpg
@@ -147,3 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a02a743c3e97ddd122b16a0d5090a5a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209974011-9781633412118-ancient-egyptian-magic-for-modern-witches/"><u>Ancient Egyptian Magic for Modern Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974015-9781633411760-earth-energy-meditations/"><u>Earth Energy Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974013-9781633411906-the-extraterrestrial-species-almanac/"><u>The Extraterrestrial Species Almanac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974012-9781632657633-war-of-the-gods/"><u>War of the Gods | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

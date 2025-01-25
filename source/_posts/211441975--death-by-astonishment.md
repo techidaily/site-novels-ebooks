@@ -1,7 +1,7 @@
 ---
 title: Death by Astonishment | Free Book
-date: 2024-10-24T16:12:19.600Z
-updated: 2024-10-27T01:23:14.602Z
+date: 2025-01-23T21:24:44.969Z
+updated: 2025-01-25T03:08:49.986Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb26a96a50c06cbdb9d5406b141d230350b8d3236385ceb95c04b83b8186294a.jpg
@@ -126,3 +126,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb26a96a50c06cbdb9d5406b141d230
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209841342-9780980784619-a-new-chapter/"><u>A New Chapter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841400-9780996278034-ama-deus/"><u>Ama-Deus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841620-9781943385010-anythings-possible/"><u>Anything's Possible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841462-9781939438386-mind-control-in-the-united-states/"><u>Mind Control In The United States | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841369-9780990584872-release-your-vision-torch/"><u>Release Your Vision Torch! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841521-9781942969990-seeds-for-life/"><u>Seeds for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841373-9780996531511-stepping-into-the-platinum-age/"><u>Stepping into the Platinum Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841460-9780692538128-the-emerald-doorway/"><u>THE EMERALD DOORWAY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841476-9780986297816-zakisms/"><u>Zakisms | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

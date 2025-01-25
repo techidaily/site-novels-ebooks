@@ -1,7 +1,7 @@
 ---
 title: The Complete Teachings of Modern Wicca For the Seeker | Free Book
-date: 2024-10-24T01:16:07.772Z
-updated: 2024-10-26T20:28:14.734Z
+date: 2025-01-19T22:42:25.827Z
+updated: 2025-01-24T16:03:24.094Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/02624218acefc0088f0f913544e34b24ea2ce3a0efa238763feceb11f6579702.jpg
@@ -141,3 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/02624218acefc0088f0f913544e34b2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210172900-9781736180112-awaken-the-wizard-within-1001-3rd-ed/"><u>Awaken the Wizard Within 1001 (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210172463-9789390492220-five-lessons/"><u>Five Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173120-9781735056319-liquid-love/"><u>Liquid Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210172896-9780985653521-the-healing-network/"><u>The Healing Network | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173481-9781777370022-unfold-me/"><u>Unfold Me | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

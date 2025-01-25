@@ -1,7 +1,7 @@
 ---
 title: the trigger warnings of caramelized butterflies | Free Book
-date: 2024-10-26T00:53:01.512Z
-updated: 2024-10-27T03:32:09.727Z
+date: 2025-01-22T23:06:44.530Z
+updated: 2025-01-24T18:06:29.605Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8965a17580e8d0051a5e6c8598b7858ac8c111c1961464a93e7954d7a0c5c7ea.jpg
@@ -158,3 +158,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8965a17580e8d0051a5e6c8598b7858
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209665234-9781608686049-from-suffering-to-peace/"><u>From Suffering to Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209665792-9781632658005-magical-oils-by-moonlight/"><u>Magical Oils by Moonlight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209663404-9781632657992-magickal-crafts/"><u>Magickal Crafts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209663988-9781934336298-the-healing-power-of-empathy/"><u>The Healing Power of Empathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209664833-9780486839684-the-unexpected-power-of-mindfulness-and-meditation/"><u>The Unexpected Power of Mindfulness and Meditation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

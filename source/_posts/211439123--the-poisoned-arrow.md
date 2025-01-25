@@ -1,7 +1,7 @@
 ---
 title: The Poisoned Arrow | Free Book
-date: 2024-10-25T19:14:31.317Z
-updated: 2024-10-27T02:31:30.098Z
+date: 2025-01-22T04:08:22.600Z
+updated: 2025-01-24T18:20:40.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8051e9fd4592fc673a189fed304374c7a5dc51275d8856513932daf22fa4e3a.jpg
@@ -148,3 +148,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8051e9fd4592fc673a189fed304374
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209857966-9781387222810-experience-gods-presence/"><u>Experience God's Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857935-9780692063705-how-to-become-who-you-are/"><u>How to become who you are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857911-9781880050125-new-world-wisdom-book-one/"><u>New World Wisdom, Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858210-9781907105135-the-mentor-within/"><u>The Mentor Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857997-9780988754775-the-trust-frequency/"><u>The Trust Frequency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209858345-9780648256915-you-are-the-horse-and-you-are-the-rider/"><u>You are the Horse and You are the Rider | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

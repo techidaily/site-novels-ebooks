@@ -1,7 +1,7 @@
 ---
 title: Make Up Your Mind to Be Happy | Free Book
-date: 2025-01-03T16:26:18.891Z
-updated: 2025-01-06T16:05:39.594Z
+date: 2025-01-24T02:08:15.143Z
+updated: 2025-01-24T16:28:00.445Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6390825bfede81050f5295315166d3340a.jpg
@@ -138,15 +138,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210816443-9781644116661-alphabets-and-the-mystery-traditions/"><u>Alphabets and the Mystery Traditions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816449-9781644118351-dendera-temple-of-time/"><u>Dendera, Temple of Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816447-9781644118047-living-wands-of-the-druids/"><u>Living Wands of the Druids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816448-9781644118306-pleiadian-soul-healing/"><u>Pleiadian Soul Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816445-9781644117453-the-hermetic-tree-of-life/"><u>The Hermetic Tree of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210816450-9781644118375-theurgy-theory-and-practice/"><u>Theurgy: Theory and Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685484-9781644116821-a-new-science-of-the-afterlife/"><u>A New Science of the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685483-9781644116012-runes-and-astrology-3rd-ed/"><u>Runes and Astrology (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685486-9781644116869-tales-and-legends-of-the-devil/"><u>Tales and Legends of the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685481-9781644112915-the-hermetic-marriage-of-art-and-alchemy/"><u>The Hermetic Marriage of Art and Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685487-9781644117170-the-royal-path-of-shakti/"><u>The Royal Path of Shakti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685485-9781644116098-the-secret-of-resilience/"><u>The Secret of Resilience | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

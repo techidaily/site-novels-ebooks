@@ -1,7 +1,7 @@
 ---
 title: Feral Magick | Free Book
-date: 2024-10-24T05:19:51.713Z
-updated: 2024-10-26T20:50:07.141Z
+date: 2025-01-17T20:56:53.974Z
+updated: 2025-01-24T20:01:14.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/002b7bc8ab073dc8b8946d2ffa128944aef3de1d00bc677f6084761614bc5f0c.jpg
@@ -149,3 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/002b7bc8ab073dc8b8946d2ffa12894
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209854628-9780648171614-arquetipos-de-innovacion/"><u>Arquetipos de Innovación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854570-9781912256471-kick-start-your-life/"><u>Kick Start your Life! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854335-9781889471303-spell-breaking-2/"><u>Spell Breaking 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854671-9780994925534-the-ancient-trinity/"><u>The Ancient Trinity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854477-9781912031634-the-zodiac-cooks/"><u>The Zodiac Cooks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854761-9780997457612-wonders-at-the-veil/"><u>Wonders at the Veil | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

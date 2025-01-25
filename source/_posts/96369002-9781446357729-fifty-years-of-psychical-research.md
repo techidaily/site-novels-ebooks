@@ -1,7 +1,7 @@
 ---
 title: Fifty Years of Psychical Research | Free Book
-date: 2025-01-02T16:14:02.403Z
-updated: 2025-01-06T16:57:26.482Z
+date: 2025-01-22T17:07:29.226Z
+updated: 2025-01-25T01:03:55.590Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2163593613e23d23e162d5f4e1237cd05c.jpg
@@ -139,17 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210780136-9781633413207-a-tea-witchs-grimoire/"><u>A Tea Witch's Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780138-9781633413122-magical-tarot/"><u>Magical Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780135-9781633413092-scott-cunninghamthe-path-taken/"><u>Scott Cunningham—The Path Taken | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780133-9781633413085-tarot-for-the-hard-work/"><u>Tarot for the Hard Work | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780137-9781633413153-the-marie-laveau-voodoo-grimoire/"><u>The Marie Laveau Voodoo Grimoire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780134-9781881098966-the-witches-almanac-2024-2025-standard-edition-issue-43/"><u>The Witches' Almanac 2024-2025 Standard Edition Issue 43 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780140-9781633413177-unlocking-the-secret-language-of-tarot/"><u>Unlocking the Secret Language of Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780141-9781633413184-wanderers-tarot-guidebook/"><u>Wanderer's Tarot Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664374-9782889059553-loracle-du-belier/"><u>L'Oracle du Bélier | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664368-9782889059706-loracle-du-cancer/"><u>L'Oracle du Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664377-9782889059546-loracle-du-taureau/"><u>L'Oracle du Taureau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664372-9782889059768-rituels-pour-explorer-en-douceur-la-puissance-de-son-feminin/"><u>Rituels pour explorer en douceur la puissance de son féminin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664378-9782889059782-souvrir-a-soi-grace-au-pendule/"><u>S'ouvrir à soi grâce au pendule | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

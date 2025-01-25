@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2025-01-13T18:38:32.679Z
-updated: 2025-01-18T18:32:07.065Z
+date: 2025-01-22T00:32:56.821Z
+updated: 2025-01-24T23:03:02.305Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,13 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125674-9781609255442-dowsing-beyond-duality/"><u>Dowsing Beyond Duality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125675-9781609255367-dr-quantums-little-book-of-big-ideas/"><u>Dr. Quantum's Little Book Of Big Ideas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125678-9781609251499-dreaming-of-the-council-ways/"><u>Dreaming of the Council Ways | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125679-9781609251512-the-druid-magic-handbook/"><u>The Druid Magic Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233091-9781633412378-hoodoo-justice-magic/"><u>Hoodoo Justice Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233089-9781633412347-ossman-steels-classic-household-guide-to-appalachian-folk-healing/"><u>Ossman & Steel's Classic Household Guide to Appalachian Folk Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233092-9781633412095-saturn/"><u>Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233090-9781633412026-spiritual-cleansing/"><u>Spiritual Cleansing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233088-9781633412330-the-mystical-qabalah/"><u>The Mystical Qabalah | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

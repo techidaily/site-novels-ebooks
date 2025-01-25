@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2025-01-14T22:18:25.543Z
-updated: 2025-01-18T17:42:36.691Z
+date: 2025-01-18T19:00:18.787Z
+updated: 2025-01-25T05:03:09.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,15 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1154549-9781608681136-living-in-the-light/"><u>Living in the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154551-9781577317470-look-for-the-good-and-youll-find-god/"><u>Look for the Good and You'll Find God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154554-9781608681228-love-has-wings/"><u>Love Has Wings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154561-9781608681143-meditation-the-complete-guide/"><u>Meditation: The Complete Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154579-9781608680313-one-minute-mindfulness/"><u>One-Minute Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154581-9781608680788-ordinary-sacred/"><u>Ordinary Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275267-9781989838419-bedtime-stories-and-guided-mindfulness-meditations-for-adults-2-in-1/"><u>Bedtime Stories And Guided Mindfulness Meditations For Adults (2 In 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275257-9781989838259-guided-meditations-for-deep-sleep-overcoming-anxiety-stress-relief/"><u>Guided Meditations For Deep Sleep, Overcoming Anxiety & Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275261-9781989838365-guided-meditations-for-deep-sleep-relaxation-and-stress-relief/"><u>Guided Meditations for Deep Sleep, Relaxation, and Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275269-9781989838440-guided-meditations-for-overthinking-anxiety-depression-mindfulness-beginners-scripts-for-deep-sleep-insomnia-self-healing-relaxation-overthinking-chakra-healing/"><u>Guided Meditations For Overthinking, Anxiety, Depression & Mindfulness: Beginners Scripts For Deep Sleep, Insomnia, Self-Healing, Relaxation, Overthinking, Chakra Healing& Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275264-9781989838426-guided-meditations-for-overthinking-anxiety-depression-mindfulness/"><u>Guided Meditations For Overthinking, Anxiety, Depression& Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275258-9781989838273-guided-meditations-for-overthinking-anxiety-depression-mindfulness-meditation-scripts-for-beginners-for-sleep-self-hypnosis-insomnia-self-healing-deep-relaxatio/"><u>Guided Meditations for Overthinking, Anxiety, Depression& Mindfulness Meditation Scripts For Beginners & For Sleep, Self-Hypnosis, Insomnia, Self-Healing, Deep Relaxation& Stress-Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275626-9781098048105-insights-and-prayers-for-the-spirit/"><u>Insights and Prayers for the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275268-9781989838372-rapid-weight-loss-hypnosis-for-women/"><u>Rapid Weight Loss Hypnosis For Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275640-9781098048921-the-absolute-best-little-book-of-poetry/"><u>The Absolute Best Little Book of Poetry | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

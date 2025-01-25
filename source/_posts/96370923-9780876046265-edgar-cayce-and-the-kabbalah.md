@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce and the Kabbalah | Free Book
-date: 2025-01-02T16:00:51.218Z
-updated: 2025-01-06T16:11:02.734Z
+date: 2025-01-21T22:10:44.771Z
+updated: 2025-01-24T20:21:49.448Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b212686194f65e619964bbbc63e450c7505b39c.jpg
@@ -146,18 +146,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b21268
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210761559-9781683640646-ending-the-search/"><u>Ending the Search | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761545-9781649630599-how-to-be-loving-the-journal/"><u>How to Be Loving: The Journal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761557-9781683640257-in-search-of-wisdom/"><u>In Search of Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761578-9781683642954-just-so/"><u>Just So | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761574-9781683642077-pause-breathe-smile/"><u>Pause, Breathe, Smile | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761553-9781683640509-the-book-of-beasties/"><u>The Book of Beasties | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761561-9781683641506-the-book-of-ceremony/"><u>The Book of Ceremony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761577-9781683642336-the-way-of-effortless-mindfulness/"><u>The Way of Effortless Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761551-9781649630186-what-makes-us-human/"><u>What Makes Us Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210609519-9781910231265-everyday-astrology-for-a-better-life/"><u>Everyday Astrology for a Better Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210609541-9781910231562-master-the-art-of-running/"><u>Master the Art of Running | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210609471-9781911163886-the-healing-home/"><u>The Healing Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210609528-9781910231418-the-magic-of-crystals/"><u>The Magic of Crystals | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

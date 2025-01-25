@@ -1,7 +1,7 @@
 ---
 title: Pagan Portals - Mestra the Shapeshifter | Free Book
-date: 2024-10-23T22:17:31.327Z
-updated: 2024-10-26T21:51:19.668Z
+date: 2025-01-18T16:27:02.632Z
+updated: 2025-01-25T06:02:00.481Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/246d8e5bc6cd5c1e037b7efe84837c3faa59248c81786355d78469b4ed8845e2.jpg
@@ -136,3 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/246d8e5bc6cd5c1e037b7efe84837c3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209742309-9781722523251-the-book-of-power/"><u>The Book of Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742323-9781722522636-the-kybalion-study-guide/"><u>The Kybalion Study Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742311-9781722523268-the-magic-of-believing-action-plan-master-class-series/"><u>The Magic of Believing Action Plan (Master Class Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742322-9781722521387-the-power-of-your-subconscious-mind-and-how-to-use-it-master-class-series/"><u>The Power of Your Subconscious Mind and How to Use It (Master Class Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209742304-9781722522667-the-power-of-your-subconscious-mind-with-study-guide/"><u>The Power of Your Subconscious Mind with Study Guide | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

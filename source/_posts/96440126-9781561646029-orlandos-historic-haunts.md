@@ -1,7 +1,7 @@
 ---
 title: Orlando's Historic Haunts | Free Book
-date: 2025-01-11T21:36:13.074Z
-updated: 2025-01-18T19:57:03.078Z
+date: 2025-01-23T01:22:33.904Z
+updated: 2025-01-24T16:28:19.604Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23fb2c0beebfd077499be5f6f06e4ce5e98b1afd30dfac023ec2096e3743d934.jpg
@@ -144,13 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23fb2c0beebfd077499be5f6f06e4ce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/2078517-9781476798950-denises-daily-word/"><u>Denise's Daily Word | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2077624-9781607349570-fortune-telling-using-playing-cards/"><u>Fortune Telling Using Playing Cards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2078465-9781501120244-the-creative-tarot/"><u>The Creative Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2078558-9781476771472-your-body-and-the-stars/"><u>Your Body and the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539579-9781447482840-a-dialogue-concerning-witches-and-witchcrafts/"><u>A Dialogue Concerning Witches and Witchcrafts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210538733-9781984861979-how-to-manifest/"><u>How to Manifest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210540101-9781447488583-practical-mysticism-a-little-book-for-normal-people/"><u>Practical Mysticism - A Little Book for Normal People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210541149-9781957869049-queering-psychedelics/"><u>Queering Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539866-9781447499275-recovering-the-ancient-magic/"><u>Recovering the Ancient Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210538707-9781952692345-the-bodhisattva-path/"><u>The Bodhisattva Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539385-9781473385641-the-gypsy-queen-dream-book-and-fortune-teller-divination-series/"><u>The Gypsy Queen Dream Book and Fortune Teller (Divination Series) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210540356-9781473361843-the-kybalion-a-study-of-the-hermetic-philosophy-of-ancient-egypt-and-greece/"><u>The Kybalion - A Study of the Hermetic Philosophy of Ancient Egypt and Greece | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539279-9781446549483-witchcraft-and-witchcraft-trials-in-orkney-and-shetland-folklore-history-series/"><u>Witchcraft and Witchcraft Trials in Orkney and Shetland (Folklore History Series) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

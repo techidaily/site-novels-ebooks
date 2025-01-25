@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2025-01-14T21:34:34.237Z
-updated: 2025-01-18T17:54:53.693Z
+date: 2025-01-24T00:15:11.103Z
+updated: 2025-01-25T03:41:36.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,14 +213,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621306-9781601634771-dragonflame/"><u>Dragonflame | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621308-9781601634337-experiences-from-the-light/"><u>Experiences From the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621311-9781601634450-lost-secrets-of-the-gods/"><u>Lost Secrets of the Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621307-9781601634375-the-alchemy-of-self-healing/"><u>The Alchemy of Self Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621310-9781601634962-viral-mythology/"><u>Viral Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398638-9781667413044-a-life-of-dreams/"><u>A Life of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398634-9781667412665-arquitectura-del-mas-alla-vida/"><u>Arquitectura Del Mas Alla Vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398632-9781667409641-consejos-para-ser-resiliente-en-momentos-de-estres/"><u>Consejos para ser resiliente en Momentos de Estrés: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398708-9781667410463-escribir-para-sanar/"><u>Escribir para sanar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399013-9780995395268-messages-from-the-spirit-realm/"><u>Messages From The Spirit Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398747-9781667414201-mindfulness-consejos-practicos-para-entrenarse-en-mindfulness/"><u>Mindfulness: consejos prácticos para entrenarse en Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398627-9781667414225-mindfulness-el-poder-supremo-de-mindfulness/"><u>Mindfulness: El poder supremo de Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398622-9781667414232-mindfulness-su-guia-diaria-para-lograr-la-atencion-plena/"><u>Mindfulness: su guía diaria para lograr la atención plena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398673-9781667414195-minfulness-una-guia-practica-al-mindfulness-para-principiantes/"><u>Minfulness: Una Guía Práctica al Mindfulness para Principiantes | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

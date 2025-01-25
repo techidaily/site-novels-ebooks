@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2025-01-14T17:20:16.965Z
-updated: 2025-01-18T22:38:22.850Z
+date: 2025-01-20T19:42:24.756Z
+updated: 2025-01-24T18:13:31.333Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,18 +167,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1424534-9781780283203-karma-yoga/"><u>Karma Yoga | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424541-9781780283401-prophecies/"><u>Prophecies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424535-9781780283227-secrets-of-meditation/"><u>Secrets of Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424536-9781780283319-the-imperial-guide-to-feng-shui-chinese-astrology/"><u>The Imperial Guide to Feng-Shui & Chinese Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424539-9781780283364-the-maya/"><u>The Maya | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424542-9781780283425-the-real-messiah/"><u>The Real Messiah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424544-9781780283449-the-return-of-the-perennial-philosophy/"><u>The Return of the Perennial Philosophy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424543-9781780283432-the-rise-and-fall-of-atlantis/"><u>The Rise and Fall of Atlantis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1424546-9781780283494-think-of-an-elephant/"><u>Think of an Elephant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412169-9781667417066-affrontare-i-momenti-difficili-con-la-resilienza/"><u>Affrontare i momenti difficili con la resilienza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412133-9781667415628-baraja-de-tarot-visconti-sforza-para-cortar/"><u>Baraja de Tarot Visconti-Sforza para Cortar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412173-9781667415505-escrever-para-sarar/"><u>Escrever para sarar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412148-9781667415345-meditacion-mindfulness-para-mejorar-el-sueno/"><u>Meditaciòn Mindfulness para mejorar el sueño | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412098-9781667414638-mindfulness-conoce-la-paz-y-felicidad-que-brindan-la-atencion-plena-y-la-meditacion/"><u>Mindfulness: Conoce la paz y felicidad que brindan la Atención Plena y la Meditación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412176-9781667415482-mindfulness-la-atencion-plena-para-principiantes/"><u>Mindfulness: La Atención Plena para principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412155-9781667415673-osare/"><u>Osare | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412099-9781667417097-trasforma-gli-estranei-in-amici/"><u>Trasforma gli estranei in amici | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

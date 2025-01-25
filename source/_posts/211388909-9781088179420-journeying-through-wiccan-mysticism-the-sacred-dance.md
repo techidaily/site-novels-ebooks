@@ -1,7 +1,7 @@
 ---
 title: "Journeying through Wiccan Mysticism: The Sacred Dance | Free Book"
-date: 2024-10-22T01:34:23.092Z
-updated: 2024-10-27T01:52:03.724Z
+date: 2025-01-22T17:01:20.600Z
+updated: 2025-01-24T23:43:58.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ac87088d9da0e46f2002efe894cf8c7352ab4819ecbb5c60383f1364568f4d3.jpg
@@ -166,3 +166,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ac87088d9da0e46f2002efe894cf8c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210129042-9781420970159-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129063-9780998864488-eyes-set-on-being/"><u>Eyes Set On Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129044-9781420970791-in-tune-with-the-infinite/"><u>In Tune with the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129031-9781420970814-the-edinburgh-lectures-on-mental-science/"><u>The Edinburgh Lectures on Mental Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129000-9781420970319-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129051-9781420970098-your-faith-is-your-fortune/"><u>Your Faith is Your Fortune | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

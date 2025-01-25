@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-01-13T22:18:37.780Z
-updated: 2025-01-18T21:37:11.646Z
+date: 2025-01-24T05:08:33.133Z
+updated: 2025-01-24T20:29:28.283Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,16 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1633913-9781612833279-children-of-a-living-universe/"><u>Children of a Living Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1635934-9781782794417-goddess-calling/"><u>Goddess Calling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1635942-9781782793182-spirited-nature/"><u>Spirited Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1635945-9781782793755-the-handbook-of-urban-druidry/"><u>The Handbook of Urban Druidry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1635947-9781782794653-the-rush-hour-shaman/"><u>The Rush Hour Shaman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1633912-9781938289187-thou-shall-not-suffer/"><u>Thou Shall Not Suffer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1637061-9781459728615-tomes-of-terror/"><u>Tomes of Terror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210455935-9781638147473-dream-on/"><u>Dream On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454558-9781774816660-eastern-stories-and-legends/"><u>Eastern Stories and Legends | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210456670-9780525508267-magic-days/"><u>Magic Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210454824-9780525541110-rise-and-shine/"><u>Rise and Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210456659-9781797208169-the-moon-sign-guide/"><u>The Moon Sign Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210455516-9781638854524-the-upside-down-tree/"><u>The Upside-Down Tree | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210455152-9781872240503-the-way-more-spirit-from-the-well/"><u>The Way - More Spirit from the Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210455157-9781872240510-the-way-spirit-from-the-well/"><u>The Way - Spirit from the Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210456246-9798985341607-wisdom-beyond-what-you-know/"><u>Wisdom Beyond What You Know | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

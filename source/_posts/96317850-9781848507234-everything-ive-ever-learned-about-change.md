@@ -1,7 +1,7 @@
 ---
 title: Everything I've Ever Learned About Change | Free Book
-date: 2025-01-01T16:59:21.586Z
-updated: 2025-01-06T16:27:46.511Z
+date: 2025-01-21T16:48:27.336Z
+updated: 2025-01-24T17:43:49.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d98a6879544e81b2d42c45bbab9d16bc55ef12cb5b81ed64b007b1a35bf6c1c4.jpg
@@ -142,13 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d98a6879544e81b2d42c45bbab9d16b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210818880-9781685680190-jornada-para-a-autorrealizacao/"><u>Jornada para a Autorrealização | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210818840-9781915889973-the-mind-detective/"><u>The Mind Detective | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210818827-9780646862965-your-happily-ever-after/"><u>Your Happily Ever After | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210818879-9780876129593-naputstviya-na-paramahansa-jogananda/"><u>Напътствия на Парамаханса Йогананда | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210686055-9780645266818-beautiful-powerful-you/"><u>Beautiful Powerful You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210686907-9781638858843-god-carried-me-through-my-addiction/"><u>God Carried Me through My Addiction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685852-9781785359705-healing-social-divisions/"><u>Healing Social Divisions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685857-9781789048636-the-ultimate-book-on-vocal-sound-healing/"><u>The Ultimate Book on Vocal Sound Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

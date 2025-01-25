@@ -1,7 +1,7 @@
 ---
 title: The Tarot Architect | Free Book
-date: 2024-10-25T20:08:52.538Z
-updated: 2024-10-27T05:46:18.104Z
+date: 2025-01-23T01:44:50.529Z
+updated: 2025-01-25T04:06:04.936Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5677c72d93017aa40acb98ba6e219a7ff846c1d78b3010bd19ab9803df2e31fa.jpg
@@ -161,3 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5677c72d93017aa40acb98ba6e219a7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209853290-9781615000784-a-journey-into-the-spiritual-quest-of-who-we-are/"><u>A Journey Into The Spiritual Quest of Who We Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853360-9781945604645-claim-your-healing/"><u>Claim Your Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853323-9780473402259-experimental-spirituality/"><u>Experimental Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853388-9780648089315-the-4-pillars-of-life/"><u>The 4 Pillars of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853357-9780473402792-the-matapaua-conversations/"><u>The Matapaua Conversations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853454-9781999738754-the-path-to-happy/"><u>The path to HAPPY | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Channeled Messages from Deep Space | Free Book
-date: 2025-01-05T16:37:19.083Z
-updated: 2025-01-06T16:49:40.334Z
+date: 2025-01-19T17:54:22.378Z
+updated: 2025-01-24T21:51:06.161Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f7b764cbb04d2a03ae69325a1bbdf28490.jpg
@@ -230,16 +230,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210770637-9781959018773-celtic-mythology/"><u>Celtic Mythology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770333-9798886540178-healing-with-gemstones/"><u>Healing with Gemstones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770132-9789152738191-modern-mediumship/"><u>Modern Mediumship | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770767-9781684988389-the-second-life/"><u>The Second Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770098-9781638145448-the-truth-about-your-healing/"><u>The Truth About Your Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770227-9781088078938-women-standing-strong-together-vol-ii/"><u>Women Standing Strong Together Vol II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210770670-9798886850147-wonderful-words-of-wisdom/"><u>Wonderful Words of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655587-9781454940463-year-of-the-ox/"><u>Year of the Ox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655573-9781454939108-zodiac-signs-scorpio/"><u>Zodiac Signs: Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655574-9781454939115-zodiac-signs-taurus/"><u>Zodiac Signs: Taurus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655580-9781454939122-zodiac-signs-virgo/"><u>Zodiac Signs: Virgo | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

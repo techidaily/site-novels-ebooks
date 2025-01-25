@@ -1,7 +1,7 @@
 ---
 title: Angels, Fairies, Demons, and the Elementals | Free Book
-date: 2024-12-30T16:48:27.916Z
-updated: 2025-01-06T16:36:22.837Z
+date: 2025-01-20T20:33:00.389Z
+updated: 2025-01-24T20:15:47.228Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19f35aee6960aca7159b3a586aa0394fe0e268b21b711c43d0b96de0f8187fc9.jpg
@@ -136,15 +136,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19f35aee6960aca7159b3a586aa0394
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210764923-9780645491432-a-journey-through-myth-and-legend/"><u>A Journey through Myth and Legend | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764785-9781722527822-awaken-the-healer-within/"><u>Awaken The Healer Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764833-9798986270548-composting-the-ego/"><u>Composting the Ego | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764872-9781802279252-i-am-god-we-are-god/"><u>I am God We are God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764826-9781958921227-may-the-loveforce-be-with-you-kali-ki-reiki/"><u>May the Loveforce Be With You: Kali-Ki Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210764791--practical-magick/"><u>Practical Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644956-9781591434566-catching-the-ascension-wave/"><u>Catching the Ascension Wave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644961-9781644115046-crystal-basics-pocket-encyclopedia/"><u>Crystal Basics Pocket Encyclopedia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644955-9781591434405-the-ancient-tradition-of-angels/"><u>The Ancient Tradition of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644954-9781591434467-the-first-female-pharaoh/"><u>The First Female Pharaoh | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

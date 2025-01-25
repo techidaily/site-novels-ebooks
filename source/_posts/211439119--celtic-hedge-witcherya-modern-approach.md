@@ -1,7 +1,7 @@
 ---
 title: Celtic Hedge Witchery—A Modern Approach | Free Book
-date: 2024-10-20T01:31:06.389Z
-updated: 2024-10-26T23:20:20.384Z
+date: 2025-01-18T20:03:57.891Z
+updated: 2025-01-25T02:26:39.142Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc084a993fed27cb30861e510c50962418ffb7716a963759185addb5cd2effe8.jpg
@@ -154,3 +154,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc084a993fed27cb30861e510c50962
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209856265-9781945252358-from-rifles-to-roses/"><u>From Rifles to Roses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856341-9781513629278-nikola-tesla-presents/"><u>Nikola Tesla Presents: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856439-9780999742952-the-silver-bullet-of-god/"><u>The Silver Bullet of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856380-9780999742921-the-way/"><u>The Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209856209-9781642042535-uncover-your-purpose/"><u>Uncover Your Purpose | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

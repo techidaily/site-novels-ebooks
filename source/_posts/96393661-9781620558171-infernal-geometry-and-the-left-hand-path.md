@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2025-01-05T16:54:22.302Z
-updated: 2025-01-06T17:05:06.282Z
+date: 2025-01-21T18:09:51.478Z
+updated: 2025-01-25T00:57:27.778Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,16 +203,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210730939-9781958518373-carry-on/"><u>Carry On | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210731122-9798987435809-elements-of-my-soul/"><u>Elements of My Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210730903-9781990867101-losing-you-finding-me/"><u>Losing You, Finding Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210730630-9781952692611-peace-is-this-moment/"><u>Peace Is This Moment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210730623-9781401971489-radical-tarot/"><u>Radical Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210729833-9781958434253-the-war-on-health/"><u>The War on Health | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210730313-9781455613687-voodoo-fire-in-haiti/"><u>Voodoo Fire In Haiti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210553446-9781087951577-a-mothers-cry-the-anthology-vol-1/"><u> "A Mother's Cry " The Anthology (Vol. 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210553426-9781957956077-alone-in-grief/"><u>Alone in Grief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210552549-9781984861009-black-people-breathe/"><u>Black People Breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210552241-9782019465032-code-rouge/"><u>Code rouge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210553420-9783947982653-dianetik-entwicklung-einer-wissenschaft/"><u>Dianetik - Entwicklung einer Wissenschaft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210553487-9781990346057-het-ce-5-handboek/"><u>HET CE-5 HANDBOEK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210552251-9782017166306-le-bureau-des-ames/"><u>Le bureau des âmes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210553336-9780982460573-the-code-of-opposites-book-2/"><u>The Code of Opposites-Book 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210554259-9781846150104-the-occult-laboratory/"><u>The Occult Laboratory | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

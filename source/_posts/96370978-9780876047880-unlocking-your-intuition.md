@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Intuition | Free Book
-date: 2025-01-02T17:00:03.836Z
-updated: 2025-01-06T16:56:07.091Z
+date: 2025-01-18T03:31:28.550Z
+updated: 2025-01-24T20:39:31.717Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc91bdc663b6f65fa5b3200c18dc7433ba47.jpg
@@ -144,17 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210762239-9781786857361-calm/"><u>Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762238-9781786857392-happiness/"><u>Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762205-9781786858856-how-to-relax/"><u>How to Relax | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762230-9781786857422-inspiration/"><u>Inspiration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762197-9781787830486-live-your-best-life/"><u>Live Your Best Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762201-9781786858887-slow/"><u>Slow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762207-9781786859334-the-little-book-of-the-zodiac/"><u>The Little Book of the Zodiac | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762234-9781786857453-wisdom/"><u>Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642121-9781662455445-cognitive-liberty/"><u>Cognitive Liberty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210641195-9781538726952-deeper-mindfulness/"><u>Deeper Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642052-9781788179515-energy-rules/"><u>Energy Rules | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642107-9781662483523-from-the-other-side-of-the-bed/"><u>From the Other Side of the Bed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642171-9780645491265-just-soras-soliloquies/"><u>Just Sora's Soliloquies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210640753-9798218046828-refined/"><u>Refined | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642038-9781786787446-the-moon-dust-dream-dictionary/"><u>The Moon Dust Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210641243-9780762482108-weed-witch/"><u>Weed Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210641186-9780762482214-well-rested-every-day/"><u>Well-Rested Every Day | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

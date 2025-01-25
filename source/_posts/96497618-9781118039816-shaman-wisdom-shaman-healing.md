@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2025-01-11T21:08:47.823Z
-updated: 2025-01-18T16:25:38.293Z
+date: 2025-01-23T20:51:12.506Z
+updated: 2025-01-24T22:46:43.546Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,14 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138572084-9781449708528-por-que-no-yo/"><u>¿Por Qué No Yo? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572190-9781440109621-hands-of-hope/"><u>Hands of Hope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572138-9781450255387-miss-thang-destiny-fulfilled/"><u>Miss Thang! Destiny Fulfilled | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572158-9781450210386-rising-from-the-dark-side-of-life/"><u>Rising from the Dark Side of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138572083-9781450297257-the-pounce-theory/"><u>The Pounce Theory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210329460-9781528767521-ancient-mysteries-and-modern-revelations/"><u>Ancient Mysteries and Modern Revelations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330604-9781087974897-healing-growth-and-forgiveness/"><u>Healing, Growth, and Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330462-9781644844670-just-what-the-doctor-ordered/"><u>Just What the Doctor Ordered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210329501-9781736712313-reflections-on-being-your-true-self-in-any-situation/"><u>Reflections on Being Your True Self in Any Situation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210329498-9781736712337-reflections-on-doing-your-great-work-in-any-occupation/"><u>Reflections on Doing Your Great Work in Any Occupation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330292-9781647225810-river-of-offerings/"><u>River of Offerings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330471-9781098072605-under-the-influence/"><u>Under the Influence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328456-9781937856700-warrior-pose/"><u>Warrior Pose | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

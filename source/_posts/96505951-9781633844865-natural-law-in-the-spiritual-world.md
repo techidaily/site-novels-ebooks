@@ -1,7 +1,7 @@
 ---
 title: Natural Law in the Spiritual World | Free Book
-date: 2025-01-17T17:06:42.010Z
-updated: 2025-01-18T19:13:06.636Z
+date: 2025-01-21T02:58:17.545Z
+updated: 2025-01-25T01:26:48.625Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf6958958cca10e64f647f82e013fd8bf669c9.jpg
@@ -143,17 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf695
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125777-9781609251864-how-to-get-a-good-reading-from-a-psychic-medium/"><u>How to Get a Good Reading from a Psychic Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125780-9781609251413-how-to-read-your-astrological-chart/"><u>How to Read Your Astrological Chart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125785-9781609253134-i-ching-companion/"><u>I Ching Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125795-9781609257385-initiation-into-numerology/"><u>Initiation into Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125800-9781609252304-intuition/"><u>Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125801-9781609251352-intuitive-living/"><u>Intuitive Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125805-9781609255725-john-dees-five-books-of-mystery/"><u>John Dee's Five Books of Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125797-9781609253875-the-inner-planets/"><u>The Inner Planets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210236000-9781582707242-intuitive-intelligence/"><u>Intuitive Intelligence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210236349-9780760370124-mindful-astrology/"><u>Mindful Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210235979-9781582707259-miracle-minded-manager/"><u>Miracle Minded Manager | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210236353-9780760370841-the-complete-guide-to-astrological-self-care/"><u>The Complete Guide to Astrological Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210235978-9781582708294-the-way-of-miracles/"><u>The Way of Miracles | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

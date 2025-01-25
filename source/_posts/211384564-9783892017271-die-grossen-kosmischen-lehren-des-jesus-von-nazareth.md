@@ -1,7 +1,7 @@
 ---
 title: Die großen kosmischen Lehren des Jesus von Nazareth | Free Book
-date: 2024-10-20T18:14:16.942Z
-updated: 2024-10-26T19:03:35.559Z
+date: 2025-01-20T19:36:44.695Z
+updated: 2025-01-24T20:26:30.676Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21a6f6da3d658efcb82f5a3236dc84532c3dfcf5c53f3bdb5bce042a05398623.jpg
@@ -172,3 +172,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21a6f6da3d658efcb82f5a3236dc845
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210184115-9781952076138-concordance-to-the-prophecies-of-nostradamus/"><u>Concordance to The Prophecies of Nostradamus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184258-9781777094317-light-codes-for-the-soul/"><u>Light Codes for the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184240-9781735758213-light-in-my-darkness/"><u>Light in my darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184322-9781922428172-mas-que-humanos/"><u>MAS QUE HUMANOS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184135-9781937919085-the-cosmic-family-volume-1/"><u>The Cosmic Family, Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184193-9781952046995-the-interactive-zodiac-guide/"><u>The Interactive Zodiac Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184301-9781735549729-the-jupiter-advantage-astrologys-path-to-opportunity/"><u>The Jupiter Advantage, Astrology's Path to Opportunity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184143-9781953223623-visits-prisons-freedom-and-a-funny-little-hill/"><u>Visits, Prisons, Freedom and a Funny Little Hill | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

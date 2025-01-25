@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2025-01-12T22:03:54.964Z
-updated: 2025-01-18T17:19:30.396Z
+date: 2025-01-20T21:31:07.208Z
+updated: 2025-01-24T19:54:52.013Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,13 +171,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1154537-9781577317050-a-still-small-voice/"><u>A Still, Small Voice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154463-9781577316916-el-poder-del-ahora/"><u>El poder del ahora | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154469-9781577319467-human-design/"><u>Human Design | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154532-9781608681464-the-magical-path/"><u>The Magical Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273354-9781634243056-a-history-of-the-goddess/"><u>A History of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275245-9781989838143-guided-meditation-for-detachment-from-overthinking-anxiety-and-depression/"><u>Guided Meditation for Detachment from Overthinking, Anxiety, and Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275249-9781989838181-guided-meditations-for-anxiety-deep-sleep-and-self-healing/"><u>Guided Meditations for Anxiety, Deep Sleep, and Self Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275250-9781989838198-guided-mindfulness-meditation-for-anxiety-stress-and-insomnia/"><u>Guided Mindfulness Meditation for Anxiety, Stress and Insomnia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275251-9781989838204-guided-mindfulness-meditation-for-sleep-overcoming-anxiety-and-stress-relief/"><u>Guided Mindfulness Meditation for Sleep, Overcoming Anxiety and Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210274300-9781000403251-the-development-of-empathy/"><u>The Development of Empathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275097-9781589239883-the-ultimate-guide-to-astrology/"><u>The Ultimate Guide to Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273334-9781612834566-voyage-beyond-doubt/"><u>Voyage Beyond Doubt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210273333-9781612834573-voyages-into-the-afterlife/"><u>Voyages into the Afterlife | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

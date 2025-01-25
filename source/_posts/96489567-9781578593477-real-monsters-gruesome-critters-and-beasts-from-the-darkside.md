@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2025-01-15T20:05:59.428Z
-updated: 2025-01-18T18:36:46.551Z
+date: 2025-01-17T20:19:17.372Z
+updated: 2025-01-24T19:01:30.606Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,17 +262,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138621334-9781601636003-a-new-way-to-be-human/"><u>A New Way to Be Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621336-9781601637543-ascension/"><u>Ascension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621343-9781601637574-contactees/"><u>Contactees | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621329-9781601636300-exposed-uncovered-declassified-lost-civilizations-secrets-of-the-past/"><u>Exposed, Uncovered, & Declassified: Lost Civilizations & Secrets of the Past | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621344-9781601637321-historys-mysteries/"><u>History's Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621331-9781601636386-lightworker/"><u>Lightworker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621328-9781601636805-the-poltergeist-phenomenon/"><u>The Poltergeist Phenomenon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138621345-9781601637765-the-resonance-key/"><u>The Resonance Key | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399450-9781087900766-i-am-the-mind-of-god-creation-a-world-of-words/"><u>''I AM'' The Mind of God: Creation: A World of Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399393-9781088008485-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399399-9781088008409-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399517-9781946088390-feminine-callings/"><u>Feminine Callings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399453-9781801520256-monsters/"><u>Monsters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399439-9798985067118-nourish/"><u>Nourish | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399236-9789388760867-the-game-of-life-and-how-to-play-it/"><u>The Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399241-9789389157635-the-seven-laws-of-teaching/"><u>The Seven Laws of Teaching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210400307-9781507218426-who-do-the-stars-say-you-are/"><u>Who Do the Stars Say You Are? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

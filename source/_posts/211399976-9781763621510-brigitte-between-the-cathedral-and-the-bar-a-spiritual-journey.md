@@ -1,7 +1,7 @@
 ---
 title: "Brigitte: Between the Cathedral and the Bar (A Spiritual Journey) | Free Book"
-date: 2024-10-24T04:40:19.627Z
-updated: 2024-10-26T20:45:46.468Z
+date: 2025-01-23T00:10:20.816Z
+updated: 2025-01-24T16:08:59.459Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dc389f8927ed28ada3fb17d3f9b559a854b378d4a7f3b57a389a751bad3912a1.jpg
@@ -186,3 +186,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dc389f8927ed28ada3fb17d3f9b559a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210091631-9781000249002-chemistry-of-aromatherapeutic-oils-3rd-ed/"><u>Chemistry of Aromatherapeutic Oils (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091551-9780857304216-hauntology/"><u>Hauntology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091755-9781614237372-massachusetts-book-of-the-dead/"><u>Massachusetts Book of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091430-9781515445456-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

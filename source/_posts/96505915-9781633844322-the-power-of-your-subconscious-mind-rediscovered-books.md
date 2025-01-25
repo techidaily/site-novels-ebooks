@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2025-01-14T16:31:30.353Z
-updated: 2025-01-18T22:20:33.409Z
+date: 2025-01-24T01:18:29.004Z
+updated: 2025-01-25T04:55:10.406Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,15 +153,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125681-9781609253868-dynamics-of-the-unconscious/"><u>Dynamics of the Unconscious | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125702-9781609254711-everyday-tarot/"><u>Everyday Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125700-9781609256432-the-everyday-psychic/"><u>The Everyday Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125711-9781609254452-the-fifth-dimension/"><u>The Fifth Dimension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125737-9781609250140-the-god-theory/"><u>The God Theory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125744-9781609254216-the-great-secret-or-occultism-unveiled/"><u>The Great Secret or Occultism Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233098-9781633412385-espiritismo/"><u>Espiritismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233093-9781633412408-pure-magic/"><u>Pure Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233096-9781950253203-the-7-energies-of-the-soul/"><u>The 7 Energies of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233095-9781633412392-the-witch-at-the-forests-edge/"><u>The Witch at the Forest's Edge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233097-9781881098829-the-witches-almanac-2022-2023-standard-edition-issue-41/"><u>The Witches' Almanac 2022-2023 Standard Edition Issue 41 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

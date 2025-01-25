@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2025-01-14T17:18:48.817Z
-updated: 2025-01-18T21:04:21.885Z
+date: 2025-01-23T16:59:20.059Z
+updated: 2025-01-25T04:31:00.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,13 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124270-9781619400153-a-true-story-of-startling-seances-in-san-francisco/"><u>A True Story of Startling Seances in San Francisco | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124261-9781619400733-sister-masons-a-burlesque-in-one-act/"><u>Sister Masons: A Burlesque in One Act: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124263-9781619400405-snake-charming/"><u>Snake Charming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124264-9781619400474-the-sons-of-osiris-a-side-degree/"><u>The Sons of Osiris: A Side Degree | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210222917-9781910531518-alchemy/"><u>Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221023-9781506471204-dimming-the-day-evening-meditations-for-quiet-wonder/"><u>Dimming the Day: Evening Meditations for Quiet Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221720-9781841815053-judy-halls-complete-crystal-workshop/"><u>Judy Hall's Complete Crystal Workshop | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221081-9781913590185-rosas-choice/"><u>Rosa's Choice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221776-9780757324178-say-yes-to-your-life/"><u>Say Yes to Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221722-9780753734735-the-angel-experience/"><u>The Angel Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210221717-9780753734742-the-chakra-experience/"><u>The Chakra Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210222918-9781910531525-where-in-the-world/"><u>Where in the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210222447-9781473596641-you-are-powerful/"><u>You Are Powerful | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

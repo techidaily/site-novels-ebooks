@@ -1,7 +1,7 @@
 ---
 title: "Paranormal Perspectives: A Jungian Understanding of Transcendent Experiences | Free Book"
-date: 2024-10-20T04:35:31.175Z
-updated: 2024-10-27T05:02:29.361Z
+date: 2025-01-20T20:15:12.207Z
+updated: 2025-01-25T02:35:39.559Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/08c275f03f5912b851bd8c47ab1a66f68f6416b4b4d75a5ad997e07fbeccbe7d.jpg
@@ -146,3 +146,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/08c275f03f5912b851bd8c47ab1a66f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209868253-9780578445687-finding-home-restoring-the-sacred-to-life/"><u>Finding Home: Restoring the Sacred to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868200-9781912014262-mighty-angels-by-your-side/"><u>Mighty Angels By Your Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209867886-9781684540723-radical-prayer/"><u>Radical Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868136-9781947811027-surfing-the-himalayas/"><u>Surfing the Himalayas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868072-9780957619524-the-human-energy-system/"><u>The Human Energy System | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868015-9789387550179-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868237-9780578445625-women-wisdom-dreams/"><u>Women, Wisdom & Dreams | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

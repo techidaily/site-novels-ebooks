@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2025-01-16T16:00:40.107Z
-updated: 2025-01-18T19:01:03.795Z
+date: 2025-01-23T01:31:15.300Z
+updated: 2025-01-24T22:05:53.293Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,17 +182,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1155124-9781608681389-a-womans-book-of-rituals-and-celebrations/"><u>A Woman's Book of Rituals and Celebrations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1159253-9781583946565-awaken-your-genius/"><u>Awaken Your Genius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1155125-9781608682133-circle-of-stones/"><u>Circle of Stones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154586-9781577313564-path-of-empowerment/"><u>Path of Empowerment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154592-9781577313434-practicing-the-power-of-now/"><u>Practicing the Power of Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154593-9781608681358-practicing-the-presence-of-the-goddess/"><u>Practicing the Presence of the Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1157615-9781780996004-tarot-for-grownups/"><u>Tarot for Grownups | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1155122-9781608682089-the-christmas-house/"><u>The Christmas House | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276847-9780998276540-ayahuasca-religions/"><u>Ayahuasca Religions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210277401-9781637301456-beyond-the-diploma/"><u>Beyond the Diploma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210277069-9781722526689-manifest-the-perfect-mate/"><u>Manifest the Perfect Mate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276055-9781948626286-radical-loving/"><u>Radical Loving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276145-9781493044849-spooky-great-smokies/"><u>Spooky Great Smokies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276146-9781493044887-spooky-massachusetts-2nd-ed/"><u>Spooky Massachusetts (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210275982-9781922456564-the-soul-warrior/"><u>The Soul Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210277068-9781722526276-wake-up-and-live/"><u>Wake Up and Live! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210276437-9781401963125-you-are-more-than-you-think-you-are/"><u>You Are More Than You Think You Are | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

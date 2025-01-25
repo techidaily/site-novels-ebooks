@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2025-01-13T19:08:57.483Z
-updated: 2025-01-18T22:34:56.308Z
+date: 2025-01-22T21:02:17.997Z
+updated: 2025-01-24T18:51:18.240Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,15 +183,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138597062-9781475904499-daniels-view/"><u>Daniel's View | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597273-9781452534220-from-loss-to-enlightenment/"><u>From Loss to Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597167-9781449733827-healing-strength-loss/"><u>Healing Strength: Loss | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138596982-9781452597812-jingle-bell-disorder/"><u>Jingle Bell Disorder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597128-9781449718992-the-art-of-stubbornness/"><u>The Art of Stubbornness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138597044-9781452539775-the-infinite-dream/"><u>The Infinite Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377647-9780980211146-answers-to-lifes-enduring-questions/"><u>Answers to Life's Enduring Questions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210376696-9781638851639-blessins-and-lessons/"><u>Blessins and Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377769-9781589239869-green-witch-magick/"><u>Green Witch Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377832-9781638745068-my-covid-journey/"><u>My COVID Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377814-9781098091583-positive-manifestation-and-self-healing/"><u>Positive Manifestation And Self Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377810-9781098087289-rhymes-of-the-times/"><u>Rhymes of the Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210376306-9781638600527-soul-licensed/"><u>Soul Licensed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210377736-9781396320378-the-prophet/"><u>The Prophet | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

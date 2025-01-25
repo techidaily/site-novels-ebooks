@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2025-01-12T16:16:35.496Z
-updated: 2025-01-18T18:54:14.598Z
+date: 2025-01-22T23:27:50.445Z
+updated: 2025-01-25T01:38:01.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,18 +179,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1757245--blood-of-avalon/"><u>Blood of Avalon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1759790-9781599217239-crazy-sexy-cancer-tips/"><u>Crazy Sexy Cancer Tips | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/175605-9781416500179-experiencing-the-next-world-now/"><u>Experiencing the Next World Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763375-9781776583645-historic-ghosts-and-ghost-hunters/"><u>Historic Ghosts and Ghost Hunters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1755761-9780857011732-the-four-dragons/"><u>The Four Dragons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1753632-9781780288246-the-phoenix-generation/"><u>The Phoenix Generation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/176192-9781416500575-three-men-seeking-monsters/"><u>Three Men Seeking Monsters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1763349-9781776583126-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1755929-9781618520814-you-a-spiritual-being-on-a-spiritual-journey/"><u>YOU: A Spiritual Being on a Spiritual Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500794-9781591434443-animal-wayshowers/"><u>Animal Wayshowers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500296-9781999209780-darwins-replacement-summary-introduction/"><u>DARWIN'S REPLACEMENT - SUMMARY INTRODUCTION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500297-9781736597217-feed-your-moon/"><u>Feed Your Moon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500793-9781591434580-shadow-animals/"><u>Shadow Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500600-9781510771833-the-astrology-of-sex/"><u>The Astrology of Sex | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

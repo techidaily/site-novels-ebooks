@@ -1,7 +1,7 @@
 ---
 title: The Practice of Journaling Prayer, Testimony, and Gratitude | Free Book
-date: 2024-10-19T17:25:34.199Z
-updated: 2024-10-27T00:02:18.156Z
+date: 2025-01-23T23:51:57.983Z
+updated: 2025-01-24T18:48:05.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/063edf79b834d28833971d9e08009078b50df570e1da468871aa5502003a9e10.jpg
@@ -192,3 +192,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/063edf79b834d28833971d9e0800907
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209933396-9781722524159-the-miracle-month/"><u>The Miracle Month | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933409-9781722524135-the-seekers-guide-to-the-secret-teachings-of-all-ages/"><u>The Seeker's Guide to The Secret Teachings of All Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209932431-9781945252440-you-can-choose-your-life/"><u>You Can Choose Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209933317-9781670223944-youre-doing-great-sweetie/"><u>You're Doing Great Sweetie | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

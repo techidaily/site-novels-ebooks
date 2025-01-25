@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2025-01-16T19:16:56.557Z
-updated: 2025-01-18T17:09:06.368Z
+date: 2025-01-19T18:17:45.516Z
+updated: 2025-01-24T22:03:42.882Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,17 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1386972-9781476612751-advances-in-parapsychological-research-9/"><u>Advances in Parapsychological Research 9 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138627457-9781401930325-feng-shui-for-the-soul/"><u>Feng Shui for the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138627445-9781401930646-goddesses/"><u>Goddesses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138627448-9781401925062-grace-gaia-and-the-end-of-days/"><u>Grace, Gaia, and The End of Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138627458-9781401929923-happily-even-after/"><u>Happily Even After | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138627456-9781401922559-mother-god/"><u>Mother God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138627426-9781401932930-the-god-code/"><u>The God Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138627440-9781401925987-the-parables-of-kryon/"><u>The Parables of Kryon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410930-9781644114575-embodying-the-mystery/"><u>Embodying the Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410931-9781644114643-lightbringers-of-the-north/"><u>Lightbringers of the North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410929-9781644114315-sacred-geometry-of-the-starcut-diagram-2nd-ed/"><u>Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410926-9781644114551-the-hermetic-physician/"><u>The Hermetic Physician | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410932-9781644114759-the-kabbalah-of-light/"><u>The Kabbalah of Light | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

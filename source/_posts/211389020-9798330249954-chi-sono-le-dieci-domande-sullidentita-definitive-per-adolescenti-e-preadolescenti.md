@@ -1,7 +1,7 @@
 ---
 title: Chi sono? Le DIECI domande sull'IDENTITÀ definitive per ADOLESCENTI e Preadolescenti | Free Book
-date: 2024-10-23T20:06:45.108Z
-updated: 2024-10-26T20:16:48.455Z
+date: 2025-01-19T22:57:25.505Z
+updated: 2025-01-24T19:40:56.875Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/236bb9280addddb4c708e03d0615583bfb9518bbb3be4c9c38f07f112104bd7f.jpg
@@ -164,3 +164,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/236bb9280addddb4c708e03d0615583
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210133166-9781644112151-answering-the-call-of-the-elementals/"><u>Answering the Call of the Elementals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133168-9781644112090-crazy-wisdom-of-the-yogini/"><u>Crazy Wisdom of the Yogini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133169-9781644111642-sex-magicians/"><u>Sex Magicians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133167-9781644111666-the-ancient-language-of-sacred-sound-2nd-ed/"><u>The Ancient Language of Sacred Sound (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Where Our Humanity Meets Our Divinity | Free Book
-date: 2024-10-20T23:53:08.325Z
-updated: 2024-10-26T23:49:10.784Z
+date: 2025-01-21T01:48:46.950Z
+updated: 2025-01-25T05:15:59.912Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1b982e264bf797fd19eccec87cd9e2e4a51501df4d6e7fd1c6f5e80914457ca4.jpg
@@ -166,3 +166,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1b982e264bf797fd19eccec87cd9e2e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209547536-9781609256418-consult-your-inner-psychic/"><u>Consult Your Inner Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209544370-9781547551835-conversazioni-con-il-padre/"><u>Conversazioni con il Padre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547074-9781632658227-hollands-grimoire-of-magickal-correspondence/"><u>Holland's Grimoire of Magickal Correspondence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209545957-9781528786430-myths-and-dreams/"><u>Myths and Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547537-9781609255978-quantum-affirmations/"><u>Quantum Affirmations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209547538-9781609252809-they-dont-see-what-i-see/"><u>They Don't See What I See | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

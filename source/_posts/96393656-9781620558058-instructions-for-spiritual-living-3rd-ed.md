@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2025-01-05T16:43:29.526Z
-updated: 2025-01-06T17:05:06.189Z
+date: 2025-01-23T17:37:27.370Z
+updated: 2025-01-24T21:11:37.259Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -193,14 +193,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210727501-9780760361177-meditation/"><u>Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727507-9781592338085-moon-power/"><u>Moon Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727512-9781610580502-the-best-meditations-on-the-planet/"><u>The Best Meditations on the Planet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727620-9781627887618-the-key-to-tarot-from-suits-to-symbolism/"><u>The Key to Tarot: From Suits to Symbolism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210727513-9781592337972-the-world-is-your-oracle/"><u>The World Is Your Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551537-9798985224825-chimera-conflict/"><u>Chimera Conflict | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551517-9798985735239-egos/"><u>Egos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551521-9798985735215-kosmos/"><u>Kosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210550652-9781667428833-les-followers-de-megan/"><u>Les followers de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551518-9798985735277-logos/"><u>Logos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210550634-9781667427430-megans-garten/"><u>Megans Garten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210550628-9781667430805-perdao/"><u>Perdão... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551093-9781529901733-the-book-of-ceremonial-magic/"><u>The Book Of Ceremonial Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
