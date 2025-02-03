@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2025-01-23T17:13:13.706Z
-updated: 2025-01-24T19:28:45.456Z
+date: 2025-01-31T20:23:57.370Z
+updated: 2025-02-02T05:33:42.805Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,17 +164,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210528990-9781955312394-arethas-food-for-the-mind/"><u>Aretha's Food for The Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528709-9798985753400-invocations/"><u>Invocations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529374-9781685171940-it-takes-two/"><u>It Takes Two | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528181-9781909141711-mindful-relationships/"><u>Mindful Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529087-9781736398296-science-subtle-energies-and-spirituality/"><u>Science, Subtle Energies, and Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529162-9798885830058-the-patient-is-wearing-lipstick/"><u>The Patient Is Wearing Lipstick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528516-9781529082128-wild-card/"><u>Wild Card | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529309-9780645073287-yama-niyama/"><u>Yama Niyama | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447420-9798330379460-66-hmeres-gia-na-alla3ete-th-zwh-sas/"><u>66 ημέρες για να αλλάξετε τη ζωή σας | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447732-9781528799980-moon-magic-lunar-myths-goddesses-horoscopes-and-herbs/"><u>Moon Magic: Lunar Myths, Goddesses, Horoscopes, and Herbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447733-9781528799966-moon-phases-a-witchs-guide-to-the-lunar-calendar/"><u>Moon Phases: A Witch's Guide to the Lunar Calendar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447429-9798893331783-the-miraculous-healing-power-of-god/"><u>The Miraculous Healing Power of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447790-9798330379774-un-nou-mod-de-a-exista/"><u>Un Nou Mod de a Exista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447815-9798330379590-una-nueva-forma-de-existir/"><u>Una Nueva Forma de Existir | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

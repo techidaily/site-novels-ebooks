@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2025-01-22T02:40:18.028Z
-updated: 2025-01-24T17:49:12.859Z
+date: 2025-01-27T00:19:52.394Z
+updated: 2025-02-01T20:00:33.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,16 +169,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210533603-9781398814486-aries/"><u>Aries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533601-9781398814509-gemini/"><u>Gemini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533604-9781398814479-leo/"><u>Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533602-9781398814493-taurus/"><u>Taurus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533925-9780645088717-the-new-angel-messages/"><u>The New Angel Messages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533872-9781739722913-the-triple-c-method/"><u>The Triple C Method® | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210534028-9781637107553-thom-jons/"><u>Thom Jons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455603-9781942253662-50-anos-de-milagros/"><u>50 años de milagros | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455843-9791028532116-le-shadow-work-des-hypersensibles-spirituels/"><u>Le shadow work des hypersensibles spirituels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455886-9782017230335-les-17-cles-du-succes/"><u>Les 17 clés du succès | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455878-9782017289883-les-72-vibrations-divines/"><u>Les 72 vibrations divines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455877-9782017289630-les-bienfaits-de-la-sonotherapie/"><u>Les bienfaits de la sonothérapie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455682-9781965384244-seeing-god-through-the-rearview-mirror/"><u>Seeing God through the Rearview Mirror | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

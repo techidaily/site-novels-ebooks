@@ -1,7 +1,7 @@
 ---
 title: The Secret Commonwealth of Elves, Fauns and Fairies | Free Book
-date: 2025-01-23T19:17:25.407Z
-updated: 2025-01-25T04:59:56.636Z
+date: 2025-01-26T01:39:41.852Z
+updated: 2025-02-01T17:55:04.791Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98003b2b3dc248ebba8af5ed8092e4b1dc0.jpg
@@ -168,16 +168,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210532594-9780979510120-field-trust-project/"><u>FIELD TRUST PROJECT | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210532566-9781952828171-hold-me-up/"><u>Hold Me Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210532549-9781989531358-inspirational-calendar-book/"><u>Inspirational Calendar Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210532683-9780645073294-lo-yoga-per-tutti/"><u>Lo Yoga per Tutti | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210532939-9780762478040-signs-skymates/"><u>Signs & Skymates | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210531987-9781438092959-the-book-of-spells-vintage-edition-2nd-ed/"><u>The Book of Spells: Vintage Edition (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210532520-9798985607109-zodiac-hacks-2nd-ed/"><u>Zodiac Hacks (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211453554-9781466894891-a-sabbath-life/"><u>A Sabbath Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454958-9798218498870-listening-circles-seeding-life/"><u>Listening Circles, Seeding Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454815-9781528799331-magic-white-and-black-or-the-science-of-finate-and-infinate-life-containing-practical-hints-for-students-of-occultism/"><u>Magic, White and Black; Or, The Science of Finate and Infinate Life, Containing Practical Hints for Students of Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211453376-9781466891197-the-encyclopedia-of-hell/"><u>The Encyclopedia of Hell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454959-9798218497255-the-trigger-warnings-of-caramelized-butterflies/"><u>the trigger warnings of caramelized butterflies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211454860-9781685748937-therapeutic-tarot/"><u>Therapeutic TAROT | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

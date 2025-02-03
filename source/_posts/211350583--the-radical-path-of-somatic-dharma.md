@@ -1,7 +1,7 @@
 ---
 title: The Radical Path of Somatic Dharma | Free Book
-date: 2024-10-23T23:35:17.966Z
-updated: 2024-10-27T02:08:49.038Z
+date: 2025-01-31T20:43:02.919Z
+updated: 2025-02-02T03:39:16.357Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f3b7fc087031f0ed61a2059c0f0a3bd8627f49fe25bc7253788e607d736a8433.jpg
@@ -161,3 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f3b7fc087031f0ed61a2059c0f0a3bd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211010400-9781088238721-valio-la-pena/"><u>¡VALIÓ LA PENA! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010397-9781088244197-love-your-enemies/"><u>Love Your Enemies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010398-9781088243558-the-cliff-house/"><u>THE CLIFF HOUSE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010396-9781088239940-veilchen-am-fenster/"><u>Veilchen am Fenster | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

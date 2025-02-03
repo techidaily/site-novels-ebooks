@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2025-01-20T22:27:22.655Z
-updated: 2025-01-24T22:51:01.895Z
+date: 2025-02-01T03:07:11.578Z
+updated: 2025-02-01T23:03:34.162Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,14 +184,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210557710-9781734226546-anorexia-more-articles-from-thejournal-1999-2006-with-a-focus-on-anorexia/"><u>Anorexia - More articles from theJournal (1999-2006) with a focus on Anorexia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557416-9780744068948-crystals/"><u>Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557129-9798985735291-ethos/"><u>Ethos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557711-9781990346071-poradnik-ce-5/"><u>PORADNIK CE-5 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557699-9798985908213-venus-book-1/"><u>Venus, Book 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477907-9781507305683-atlas-of-extraterrestrial-zones/"><u>Atlas of Extraterrestrial Zones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477942-9781667479408-cuando-el-divorcio-es-imprescindible/"><u>Cuando el divorcio es imprescindible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2129387--sun-signs/"><u>Sun Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477908-9781507304334-the-magick-of-lenormand/"><u>The Magick of Lenormand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120495-9780892546299-the-tantric-alchemist/"><u>The Tantric Alchemist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120395-9781633410138-walking-among-us/"><u>Walking Among Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2120479-9780857012036-white-moon-on-the-mountain-peak/"><u>White Moon on the Mountain Peak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2129456-9780349404646-working-with-spirit-guides/"><u>Working With Spirit Guides | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

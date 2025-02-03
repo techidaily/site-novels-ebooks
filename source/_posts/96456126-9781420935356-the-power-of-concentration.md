@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2025-01-17T23:45:21.986Z
-updated: 2025-01-25T04:53:26.347Z
+date: 2025-01-30T07:01:55.083Z
+updated: 2025-02-01T17:39:34.007Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,18 +140,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210458189-9781722527174-30-day-mental-challenge/"><u>30 Day Mental Challenge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210456963-9781662461262-and-the-trust-shall-set-us-free/"><u>And the Trust Shall Set Us Free | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210457000-9781957208299-finding-spirit-in-prison-inmates-dreams/"><u>Finding Spirit in Prison Inmates Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210456935-9780876127902-in-the-sanctuary-of-the-soul/"><u>In the Sanctuary of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210458192-9781722527129-jose-silvas-choose-success-master-course/"><u>José Silva's Choose Success Master Course | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210456724-9782017150107-les-nombres-cles-de-votre-destinee/"><u>Les nombres clés de votre destinée | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210458150-9781623177393-the-ethical-psychic/"><u>The Ethical Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210458193-9781722527181-the-journey-beyond-enlightenment/"><u>The Journey Beyond Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210457039-9781638855583-waking-up-unafraid/"><u>WAKING - UP - UNAFRAID | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400120-9798330252916-healing-a-journey/"><u>HEALING A JOURNEY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400084-9798330252473-hygge-harmony/"><u>Hygge Harmony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400014-9798330258192-if-i-didnt-love-you-so-much/"><u>If I didn´t Love you so much | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400065-9798330250899-rila-a-gateway-to-agartha/"><u>RILA A GATEWAY TO AGARTHA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400028-9798330255177-super-simple-spells/"><u>Super Simple Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400319--tales-from-the-whispering-woods/"><u>Tales from the Whispering Woods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399986-9798990532403-the-great-descend/"><u>The Great Descend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211400224-9798330266012-twin-falls-saucer-hoax-simplified/"><u>Twin Falls Saucer Hoax Simplified | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

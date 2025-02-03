@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2025-01-21T22:30:48.144Z
-updated: 2025-01-25T04:57:35.078Z
+date: 2025-01-29T19:53:00.738Z
+updated: 2025-02-02T03:45:42.802Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,13 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210519633-9781639034055-life-interrupted/"><u>Life Interrupted | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210519628-9781639615964-my-five-guiding-principles/"><u>My Five Guiding Principles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210519630-9781639613229-seeds-for-enlightenment-101/"><u>Seeds for Enlightenment 101 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210519925-9781669357605-summary-of-mark-epsteins-the-zen-of-therapy/"><u>Summary of Mark Epstein's The Zen of Therapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441830--palmistry-for-happiness/"><u>Palmistry for Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441723--sacred-forest-bathing/"><u>Sacred Forest Bathing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441833--the-call-of-the-old-gods/"><u>The Call of the Old Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441832--the-languages-of-magic/"><u>The Languages of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441835--the-prenatal-shadow/"><u>The Prenatal Shadow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441722--the-psychedelic-shaman/"><u>The Psychedelic Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441765--the-sacred-mushroom-3rd-ed/"><u>The Sacred Mushroom (3rd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

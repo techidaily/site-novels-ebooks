@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2025-01-19T20:35:56.884Z
-updated: 2025-01-24T17:36:27.763Z
+date: 2025-01-28T17:28:59.198Z
+updated: 2025-02-02T02:03:48.640Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,16 +144,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210289270-9781398814073-discover-your-psychic-self/"><u>Discover Your Psychic Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289115-9781493046911-haunted-new-mexico/"><u>Haunted New Mexico | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289614-9780578909578-her-psalms/"><u>Her Psalms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289116-9781608937271-mythical-creatures-of-maine/"><u>Mythical Creatures of Maine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289628-9788792633606-tarology/"><u>Tarology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289620-9780645169911-the-power-of-love-with-animals/"><u>The Power of Love with Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289275-9781398814080-the-power-of-meditation/"><u>The Power of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236560-9798889402800-5d-consciousness-activations/"><u>5D Consciousness Activations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236502-9781990863516-get-your-footprints-out-of-my-garden/"><u>Get Your Footprints Out Of My Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236529-9798869145369-how-to-fight-darkness-with-light/"><u>How to Fight Darkness with Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236537-9798869145864-realms-unbound/"><u>Realms Unbound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236509-9780979384783-underneath-your-personality/"><u>Underneath Your Personality | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

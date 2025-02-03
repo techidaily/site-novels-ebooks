@@ -1,7 +1,7 @@
 ---
 title: "Malleus Maleficarum: Hammer of the Witches | Free Book"
-date: 2024-10-25T00:14:40.002Z
-updated: 2024-10-27T04:19:17.299Z
+date: 2025-01-29T22:03:45.061Z
+updated: 2025-02-02T02:47:54.730Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/84b03ed31531d65798f04fa9c7225f02e66d22b20f4e66164553b7bbec0fbed0.jpg
@@ -146,3 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/84b03ed31531d65798f04fa9c7225f0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210832834-9781493069828-haunted-dakotas/"><u>Haunted Dakotas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210832984-9781401973575-intuwitchin/"><u>IntuWitchin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210832628-9782017186687-la-magie-naturelle/"><u>La magie naturelle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210832966-9780593543566-who-do-you-think-you-are/"><u>Who Do You Think You Are? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

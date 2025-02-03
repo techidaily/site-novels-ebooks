@@ -1,7 +1,7 @@
 ---
 title: La Puissance du Subconscient | Free Book
-date: 2024-10-22T23:01:23.249Z
-updated: 2024-10-26T23:17:49.009Z
+date: 2025-02-01T01:18:06.244Z
+updated: 2025-02-02T01:35:40.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70e16ea68659ec9c6f4edca49ab87090d4252850349897b2b2a1dbef5a9ebd42.jpg
@@ -143,3 +143,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70e16ea68659ec9c6f4edca49ab8709
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932922-9781855843448-breathing-the-spirit/"><u>Breathing the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932917-9781855844780-christ-and-the-human-soul/"><u>Christ and the Human Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932907-9781912230594-dementia/"><u>Dementia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932932-9781855843578-nature-spirits/"><u>Nature Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932920-9781855842915-on-epidemics/"><u>On Epidemics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932928-9781855842922-on-fear/"><u>On Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932908-9781855842830-rosicrucian-wisdom/"><u>Rosicrucian Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932923-9781912992249-the-lucifer-deception/"><u>The Lucifer Deception | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-20T20:37:30.150Z
-updated: 2025-01-24T20:12:11.158Z
+date: 2025-01-31T04:40:52.240Z
+updated: 2025-02-02T02:20:13.987Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,15 +238,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210349180-9782226308306-cheminer-contempler/"><u>Cheminer, contempler | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349200-9782226304216-contes-des-petits-riens-et-de-tous-les-possibles/"><u>Contes des petits riens et de tous les possibles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349153-9782226307408-lexil-occidental/"><u>L'Exil occidental | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349125-9782226308986-le-cercle-de-vie/"><u>Le Cercle de vie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349147-9782226308924-le-zen-autrement/"><u>Le Zen autrement | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210349164-9782226306388-prendre-soin-de-letre/"><u>Prendre soin de l'être | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316523-9798869303349-erotic-enchantments/"><u>Erotic Enchantments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316703-9781611250329-living-beyond-the-five-senses/"><u>Living Beyond the Five Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316512-9798990244894-sanguinomicon/"><u>Sanguinomicon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316603-9782384553044-spiritism-and-the-fallen-angels/"><u>Spiritism and the Fallen Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316495-9781936690572-the-comte-de-st-germain-the-secret-of-kings/"><u>THE COMTE DE ST. GERMAIN The Secret of kings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316694-9781611250503-the-god-molecule/"><u>The God Molecule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316704-9781611250282-the-power-of-i-am/"><u>The Power Of I Am | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211316711-9781611250473-the-toad-of-dawn/"><u>The Toad of Dawn | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

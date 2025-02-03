@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-01-18T05:27:40.878Z
-updated: 2025-01-24T22:20:04.618Z
+date: 2025-01-28T22:56:14.081Z
+updated: 2025-02-01T17:59:13.932Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,16 +262,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210305595-9781098081331-a-walking-miracle/"><u>A Walking Miracle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210305879-9781907767609-astrology-as-art/"><u>Astrology as Art | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210305877-9781774341056-extreme-weight-loss-hypnosis/"><u>Extreme Weight Loss Hypnosis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210305925-9781736898802-follow-your-design/"><u>Follow Your Design | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210305934-9781801348744-guided-meditations-breathwork-for-anxiety-deep-sleep/"><u>Guided Meditations & Breathwork For Anxiety & Deep Sleep | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210306569-9781493045914-haunted-us-battlefields-2nd-ed/"><u>Haunted U.S. Battlefields (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210306547-9780750994415-the-south-shields-poltergeist/"><u>The South Shields Poltergeist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211250154-9781954925076-allies-for-awakening/"><u>Allies For Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252485-9781454945512-divination-rules/"><u>Divination Rules | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252648-9798868976889-dorm-room-feng-shui/"><u>Dorm Room Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211250159-9781954925090-eye-of-the-seeress-voice-of-the-poet/"><u>Eye of the Seeress / Voice of the Poet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252571-9781961548039-sifting-through-the-ashes/"><u>Sifting Through the Ashes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252717-9798868987076-sortileges-en-bocaux-pour-debutants/"><u>Sortilèges en Bocaux pour Débutants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252721-9798868987045-sortileges-en-bocaux-pour-debutants/"><u>Sortilèges en Bocaux pour Débutants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211252707-9798988682615-the-power-of-the-hollow-bone/"><u>The Power of the Hollow Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211250158-9781954925113-the-toad-and-the-jaguar/"><u>The Toad and the Jaguar | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

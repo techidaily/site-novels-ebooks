@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2025-01-20T19:48:09.318Z
-updated: 2025-01-25T04:41:43.225Z
+date: 2025-01-29T03:39:10.996Z
+updated: 2025-02-02T00:35:01.277Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,16 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210282119-9781955275002-alma-mater/"><u>Alma Mater | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282111-9780645160918-god-is-me/"><u>God is Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282131-9780645116113-grow-your-mind-grow-your-life/"><u>Grow Your Mind, Grow Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210281669-9781631950476-life-20/"><u>Life 2.0 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282278-9781589239944-magickal-tarot/"><u>Magickal Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282196-9781736532614-rippling-waves/"><u>Rippling Waves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282248-9781737092490-the-ultimate-journey-2nd-edition-2nd-ed/"><u>The Ultimate Journey (2nd Edition) (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224383-9781529439021-spells-for-self-care/"><u>Spells for Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224404-9780762486755-the-cosmic-symposium/"><u>The Cosmic Symposium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224389-9780762488360-the-little-encyclopedia-of-enchanted-woodland-creatures/"><u>The Little Encyclopedia of Enchanted Woodland Creatures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224395-9780762488377-the-little-encyclopedia-of-mermaids/"><u>The Little Encyclopedia of Mermaids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211224405--your-birthday/"><u>Your Birthday | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Psychological Meaning of the Single Characteristics in Handwriting - A Historical Article on the Analysis and Interpretation of Handwriting | Free Book
-date: 2024-10-20T20:55:44.983Z
-updated: 2024-10-27T01:43:12.423Z
+date: 2025-01-28T20:31:01.866Z
+updated: 2025-02-01T19:21:54.367Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1cc2365c56c3e677e9d2d7b756af52a97fc7a82b1092fac79498c6859785583.jpg
@@ -142,3 +142,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1cc2365c56c3e677e9d2d7b756af52
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210934854-9781800650411-natural-cures-remedies/"><u>Natural Cures & Remedies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934832-9781800651760-the-green-witch-at-home/"><u>The Green Witch at Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934837-9781800650428-the-nordic-book-of-runes/"><u>The Nordic Book of Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934858-9781800651791-the-witch-of-the-woods/"><u>The Witch of The Woods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934841-9781800651401-your-magickal-year/"><u>Your Magickal Year | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

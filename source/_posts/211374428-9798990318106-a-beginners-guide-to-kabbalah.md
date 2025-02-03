@@ -1,7 +1,7 @@
 ---
 title: A Beginner's Guide to Kabbalah | Free Book
-date: 2024-10-22T21:47:45.650Z
-updated: 2024-10-26T16:25:25.157Z
+date: 2025-01-31T01:34:16.817Z
+updated: 2025-02-01T23:37:47.236Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb608d3f181a080e672d969e1e79ae1718631de2b677c4209837de0e4c714026.jpg
@@ -233,3 +233,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb608d3f181a080e672d969e1e79ae1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761832-9781649630612-a-box-of-magick/"><u>A Box of Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761846-9781604073324-falling-into-grace/"><u>Falling into Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761835-9781591798910-feng-shui-for-abundance/"><u>Feng Shui for Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761837-9781591798514-instant-enlightenment/"><u>Instant Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761840-9781649631060-reverse-meditation/"><u>Reverse Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761831-9781622033898-shift-into-freedom/"><u>Shift into Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761834-9781591798781-tapping-in/"><u>Tapping In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761844-9781622031665-the-radiance-sutras/"><u>The Radiance Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761839-9781591799016-the-sacred-yes/"><u>The Sacred Yes | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2025-01-23T17:37:27.370Z
-updated: 2025-01-24T21:11:37.259Z
+date: 2025-01-25T20:22:29.032Z
+updated: 2025-02-01T21:06:24.031Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -193,17 +193,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210551537-9798985224825-chimera-conflict/"><u>Chimera Conflict | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551517-9798985735239-egos/"><u>Egos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551521-9798985735215-kosmos/"><u>Kosmos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210550652-9781667428833-les-followers-de-megan/"><u>Les followers de Megan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551518-9798985735277-logos/"><u>Logos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210550634-9781667427430-megans-garten/"><u>Megans Garten | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210550628-9781667430805-perdao/"><u>Perdão... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551093-9781529901733-the-book-of-ceremonial-magic/"><u>The Book Of Ceremonial Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472567-9780645962055-beginners-feng-shui-love-and-relationships/"><u>Beginners Feng Shui Love and Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472629-9781637776421-born-again-to-serve-with-love/"><u>Born Again to Serve with Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472569-9798330454860-el-exilio/"><u>El Exilio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211473257--flamingo-estate-the-guide-to-becoming-alive/"><u>Flamingo Estate: The Guide to Becoming Alive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472963-9781964959139-melchizedek-frequencies/"><u>Melchizedek Frequencies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472925-9798893305401-recovery-happens-through-christ-my-story-of-abuse-alcoholism-and-adultery/"><u>Recovery Happens Through Christ (My Story of Abuse, Alcoholism, and Adultery) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472921-9798330457786-shadows-of-a-secret/"><u>Shadows of a Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472983-9781397665225-the-flying-saucers-are-real/"><u>The Flying Saucers Are Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472977-9781951879198-the-spiritual-design-wave-4/"><u>The Spiritual Design Wave 4 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

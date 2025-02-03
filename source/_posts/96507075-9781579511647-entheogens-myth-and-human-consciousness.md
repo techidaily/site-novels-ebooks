@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2025-01-20T00:17:54.214Z
-updated: 2025-01-24T18:51:52.248Z
+date: 2025-01-29T06:32:39.202Z
+updated: 2025-02-02T04:36:06.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,14 +246,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210269999-9781071594049-bible-de-meditation-quotidienne/"><u>Bible de méditation quotidienne | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210269968-9781071592656-bonecas-mascotes-eslavas/"><u>Bonecas mascotes eslavas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210269719-9782019459147-et-si-cela-vous-arrivait/"><u>Et si cela vous arrivait ? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270009-9781071594056-meditation-fur-anfanger/"><u>Meditation für Anfänger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210269717-9782017168881-psychic-witch/"><u>Psychic Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211206264-9781684814879-crones-dont-whine/"><u>Crones Don't Whine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211206327-9798887938639-gods-universal-foundation/"><u>God's Universal Foundation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211204321--its-all-magic/"><u>It's All Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211203718-9791028528652-lamour-une-aventure-spirituelle/"><u>L'Amour, une aventure spirituelle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211203716-9782017230021-le-guide-moderne-des-mudras/"><u>Le guide moderne des Mudras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211202983-9780762487387-the-little-encyclopedia-of-fairies/"><u>The Little Encyclopedia of Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211202982-9780762486991-the-little-encyclopedia-of-mythical-horses/"><u>The Little Encyclopedia of Mythical Horses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211203575-9781493083992-yellowstone-ghost-stories/"><u>Yellowstone Ghost Stories | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

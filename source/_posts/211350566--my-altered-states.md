@@ -1,7 +1,7 @@
 ---
 title: My Altered States | Free Book
-date: 2024-10-26T05:06:50.293Z
-updated: 2024-10-26T18:57:08.068Z
+date: 2025-02-01T05:16:06.421Z
+updated: 2025-02-02T04:03:12.231Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b5ffb988603a71898a88a287b101c98997964a0ccbb10b8fcae974ac52fb1ea3.jpg
@@ -152,3 +152,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b5ffb988603a71898a88a287b101c98
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210974367-9781088249062-cautivos-y-libertos/"><u>Cautivos y Libertos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974369-9781088249536-detestable-no-soy-adolescente/"><u>Detestable, no. ¡Soy adolescente! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974366-9781088249413-el-cielo-puede-esperar/"><u>El Cielo Puede Esperar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974363-9781088251140-el-esclavo-de-africa-a-la-senzala/"><u>El Esclavo De África a la Senzala | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974368-9781088251447-hijo-adoptivo/"><u>Hijo Adoptivo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974370-9781088251850-la-gruta-de-las-orquideas/"><u>LA GRUTA DE LAS ORQUÍDEAS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974364-9781088251928-la-intrusa/"><u>La Intrusa | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales of Pennsylvania | Free Book
-date: 2024-10-22T00:27:32.530Z
-updated: 2024-10-27T00:59:59.737Z
+date: 2025-01-26T20:15:45.336Z
+updated: 2025-02-01T16:59:58.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/993033fb7e5e8bd7d10a99d0d66956620c836ae71e2c853919d9f0d3ddc0dd8e.jpg
@@ -199,3 +199,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/993033fb7e5e8bd7d10a99d0d669566
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210714875-9781528798495-a-course-of-advanced-lessons-in-clairvoyance-and-occult-power/"><u>A Course of Advanced Lessons in Clairvoyance and Occult Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713619-9781739165321-a-gentle-goodbye-with-cinnamon-the-rabbit/"><u>A Gentle Goodbye with Cinnamon the Rabbit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714961-9781739194710-a-journey-of-wilding-women/"><u>A Journey of Wilding Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714897-9798822908178-everything-i-learned-about-prostate-cancer-began-at-sixty-five/"><u>Everything I Learned about Prostate Cancer Began at Sixty-Five | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714949-9781959656050-nighty-night-dreamtime/"><u>Nighty Night Dreamtime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714968-9781959656067-nighty-night-dreamtime-collection-2-sleep-stories-to-reduce-stress-and-anxiety/"><u>Nighty Night Dreamtime Collection 2, Sleep Stories to Reduce Stress and Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714746-9780984511990-river-of-angels/"><u>River of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713689-9798885409599-stress-less-and-soar-more/"><u>Stress Less and Soar More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713688-9798885408721-the-birthing-of-a-prophet/"><u>The Birthing of a Prophet | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-01-19T23:36:08.045Z
-updated: 2025-01-24T16:17:31.296Z
+date: 2025-01-27T19:32:55.270Z
+updated: 2025-02-01T16:15:14.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,13 +192,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210359775-9780987513885-25-universal-laws/"><u>25 Universal Laws | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210359776-9781637303405-cracking-the-healers-code/"><u>Cracking the Healer's Code | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210359240-9781947151963-finding-your-path-engaging-your-purpose/"><u>Finding Your Path, Engaging Your Purpose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210359274-9781990093197-the-quest-of-rose/"><u>The Quest of Rose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332526-9798869177308-declarado-morto-por-45-minutos/"><u>Declarado morto por 45 minutos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332528-9798869177148-declarado-muerto-durante-45-minutos-lo-que-vio-y-como-cambio-su-vida-para-siempre/"><u>Declarado muerto durante 45 minutos: lo que vio y cómo cambió su vida para siempre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332763-9789362619792-divine-timing-oracle-guidebook-unlocking-the-tapestry-of-time/"><u>Divine Timing Oracle Guidebook (Unlocking the Tapestry of Time! ) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332780-9798893810240-just-when-you-thought-you-knew/"><u>Just When You Thought You Knew | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332527-9798869176653-pronounced-dead-for-45-minutes/"><u>Pronounced Dead for 45 Minutes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332525-9798869177377-obuyavlen-mertvym-na-45-minut/"><u>Объявлен мертвым на 45 минут | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211332532-9798869177605-hvkhrz-khmt-l-45-dkvt-mh-hv-rh-vykh-zh-ynh-t-hyyv-lntsh-hvvyh-l-krvv-lmvvt-nde/"><u>הוכרז כמת ל -45 דקות - מה שהוא ראה ואיך זה שינה את חייו לנצח - חוויה של קרוב למוות (NDE) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

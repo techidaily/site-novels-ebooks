@@ -1,7 +1,7 @@
 ---
 title: Crystal Rituals by the Moon | Free Book
-date: 2024-10-20T02:42:40.839Z
-updated: 2024-10-26T21:49:14.126Z
+date: 2025-01-26T17:19:21.165Z
+updated: 2025-02-01T22:03:10.518Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/672499d33b213a006cf94775d2c71c18e55b052de801e7cdd9e111e6f89daa78.jpg
@@ -180,3 +180,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/672499d33b213a006cf94775d2c71c1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210857719-9789354407673-divine-teachings-of-ram/"><u>Divine Teachings of Ram | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857408-9798218216061-higher-self-connection/"><u>Higher Self Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857516-9781944155360-in-and-out-of-focus/"><u>In and Out of Focus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857844-9781493069897-spooky-christmas/"><u>Spooky Christmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857338-9798986796987-the-connection-cleanse/"><u>The Connection Cleanse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857453-9798986796963-the-connection-cleanse-toolkit/"><u>The Connection Cleanse Toolkit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857219-9798887933771-the-medallion/"><u>The Medallion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210857691-9789354407765-the-spiritual-philosophy-of-tagore/"><u>The Spiritual Philosophy of Tagore | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

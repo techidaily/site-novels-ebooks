@@ -1,7 +1,7 @@
 ---
 title: Alchemical Hermeticism | Free Book
-date: 2024-10-24T19:36:33.144Z
-updated: 2024-10-26T21:54:53.544Z
+date: 2025-01-29T23:49:59.377Z
+updated: 2025-02-02T02:52:10.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a9a7432a57dfabe37c59f3c0e13ac4c6d22006ecb024af636107744a46cc139.jpg
@@ -165,3 +165,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a9a7432a57dfabe37c59f3c0e13ac4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210974497-9782384551750-100-proofs-that-earth-is-not-a-globe/"><u>100 Proofs That Earth Is Not A Globe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974503-9781088248607-amad-a-los-enemigos/"><u>Amad a los Enemigos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211009199-9789358056471-animal-ghosts-or-animal-hauntings-and-the-hereafter/"><u>Animal Ghosts Or, Animal Hauntings and the Hereafter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211009204-9789358057119-byways-of-ghost-land/"><u>Byways of Ghost-Land | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211008370-9781782742845-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211008406-9781782744016-ghost-sightings/"><u>Ghost Sightings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211008372-9781909160088-i-ching/"><u>I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211009182-9789358056761-some-haunted-houses-of-england-wales/"><u>Some Haunted Houses of England Wales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211002477-9798890039620-the-way-of-the-witch/"><u>The Way of the Witch | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

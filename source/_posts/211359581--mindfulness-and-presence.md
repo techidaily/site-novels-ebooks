@@ -1,7 +1,7 @@
 ---
 title: Mindfulness and Presence | Free Book
-date: 2024-10-25T20:59:54.372Z
-updated: 2024-10-26T21:42:12.627Z
+date: 2025-01-27T17:20:02.985Z
+updated: 2025-02-02T04:02:16.391Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2486e0ddc0c4c3e4e93e96f06b746605639b9a57610dd65d16b70a6589d38602.jpg
@@ -147,3 +147,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2486e0ddc0c4c3e4e93e96f06b74660
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932703-9781912992119-christ-power-and-earth-wisdom/"><u>Christ Power and Earth Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932685-9781915776013-connecting-with-nature/"><u>Connecting with Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932704-9781855843653-from-crystals-to-crocodiles/"><u>From Crystals to Crocodiles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932696-9781855844612-inward-experiences-after-death/"><u>Inward Experiences After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932697-9781905570522-nature-spirits-the-remembrance/"><u>Nature Spirits: The Remembrance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932707-9781855844285-the-inner-nature-of-man/"><u>The Inner Nature of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932686-9781855844896-the-karma-of-untruthfulness-v-1/"><u>The Karma of Untruthfulness: v. 1 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

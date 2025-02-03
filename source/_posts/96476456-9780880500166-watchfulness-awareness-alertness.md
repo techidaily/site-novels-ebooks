@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2025-01-19T18:17:45.516Z
-updated: 2025-01-24T22:03:42.882Z
+date: 2025-01-26T23:59:34.371Z
+updated: 2025-02-01T23:38:47.727Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,14 +164,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210410930-9781644114575-embodying-the-mystery/"><u>Embodying the Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410931-9781644114643-lightbringers-of-the-north/"><u>Lightbringers of the North | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410929-9781644114315-sacred-geometry-of-the-starcut-diagram-2nd-ed/"><u>Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410926-9781644114551-the-hermetic-physician/"><u>The Hermetic Physician | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210410932-9781644114759-the-kabbalah-of-light/"><u>The Kabbalah of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211369875-9783964463470-isten-gyogyit/"><u>Isten gyógyít | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211369871-9783964463494-liobani/"><u>Liobani | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211370308-9780253034731-new-england-nightmares/"><u>New England Nightmares | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211369927-9781787959514-quantum-mythology/"><u>Quantum Mythology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211369841-9798330208517-radical-de-vie-dincolo-de-abuz/"><u>RADICAL DE VIE Dincolo de Abuz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211369893-9783892019039-tu-el-animal-tu-el-hombre/"><u>Tú, el animal. Tú el hombre | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

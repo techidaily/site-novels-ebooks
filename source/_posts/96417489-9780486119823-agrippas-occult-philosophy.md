@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2025-01-17T18:17:42.513Z
-updated: 2025-01-24T22:10:19.643Z
+date: 2025-01-27T16:15:52.618Z
+updated: 2025-02-02T04:46:16.126Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,18 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210508606-9789390030071-ancient-science-of-vastu/"><u>Ancient Science of Vastu | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210508631-9789354275746-atmanand-ka-geet/"><u>Atmanand ka Geet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210508872-9781636304649-dear-dad-do-you-know/"><u>Dear Dad, Do You Know? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210508931-9780998987088-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210508945-9781088017265-prayer-in-the-presence-of-god/"><u>PRAYER in the PRESENCE of GOD | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210509000-9780645262698-seeds-of-self-care/"><u>Seeds of Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210511246-9781737699200-sensual-intelligence-the-lost-iq/"><u>Sensual Intelligence: The Lost IQ | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210508939-9781957343020-spirit-speaks-within-you/"><u>Spirit Speaks Within You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210508895-9789382585237-the-journey-continues/"><u>The Journey Continues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439394-9798894790343-keys-to-a-sacred-place/"><u>Keys To A Sacred Place | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439399--mediumship/"><u>Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439126--naturally-modern-magick/"><u>Naturally Modern Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439302-9798330345380-sceptres-brises/"><u>SCEPTRES BRISÉS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211439123--the-poisoned-arrow/"><u>The Poisoned Arrow | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

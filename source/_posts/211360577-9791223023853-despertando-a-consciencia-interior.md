@@ -1,7 +1,7 @@
 ---
 title: Despertando a Consciência Interior | Free Book
-date: 2024-10-21T05:14:07.422Z
-updated: 2024-10-27T02:44:05.377Z
+date: 2025-01-29T19:20:29.086Z
+updated: 2025-02-01T17:33:02.830Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1df20252ff57cfc997d686c4193b4224befd249474c290f9e0a6ef59b53cb5fa.jpg
@@ -145,3 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1df20252ff57cfc997d686c4193b422
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932983-9781912230853-are-there-people-without-a-self/"><u>Are There People Without a Self? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932978-9781855843486-living-with-the-dead/"><u>Living with the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932976-9781855844575-metamorphosis-of-the-memory-in-the-life-after-death/"><u>Metamorphosis of The Memory In The Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932977-9781912230501-the-michael-prophecy-and-the-years-2012-2033/"><u>The Michael Prophecy and the Years 2012-2033 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932981-9781855843318-the-work-of-the-angel-in-our-astral-body/"><u>The Work of the Angel in Our Astral Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932982-9781912230860-travels-on-the-northern-parth-of-initiation/"><u>Travels on the Northern Parth of Initiation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

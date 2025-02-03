@@ -1,7 +1,7 @@
 ---
 title: The Keys to the Kingdom, and the Second War in Heaven | Free Book
-date: 2024-10-25T18:03:55.985Z
-updated: 2024-10-26T21:54:52.117Z
+date: 2025-01-26T03:00:11.309Z
+updated: 2025-02-02T07:57:27.496Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7747358618e5f7a7ae737d49389f927aac644b11bcc9d9644347db70ec2e0150.jpg
@@ -142,3 +142,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7747358618e5f7a7ae737d49389f927
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210909717-9781961123502-a-legacy-of-light-a-true-work-of-heart/"><u>A Legacy of Light-A True Work of Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909675-9784016249073-a-promise-40/"><u>A Promise @ 40 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909700-9781952491580-can-i-be-honest/"><u>Can I Be Honest? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909705-9781088199855-impegnarsi-in-una-conversazione-intima-con-dio-dio-e-desiderato-di-coinvolgerti/"><u>Impegnarsi in una conversazione intima con Dio Dio è DESIDERATO di COINVOLGERTI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909715-9781088202593-mots-parfaits-oeuvres-parfaites-et-merveilles-parfaites/"><u>Mots parfaits, ŒUVRES parfaites et MERVEILLES parfaites | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909710-9781088200025-participar-en-una-conversacion-intima-con-dios-dios-esta-ansioso-de-comprometerte/"><u>Participar en una conversación íntima con Dios Dios está ANSIOSO de COMPROMETERTE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909714-9781088202883-perfekte-worte-perfekte-werke-und-perfekte-wunder/"><u>Perfekte WORTE, perfekte WERKE und perfekte WUNDER | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909702-9781088199589-sengager-dans-une-conversation-intime-avec-dieu-dieu-est-desireux-de-vous-engager/"><u>S'engager dans une conversation intime avec Dieu Dieu est désireux de vous engager | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909704-9781088199725-sich-auf-ein-intimes-gesprach-mit-gott-einlassen-gott-ist-bestrebt-sie-zu-engagieren/"><u>Sich auf ein intimes Gespräch mit Gott einlassen Gott ist bestrebt, Sie zu engagieren | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

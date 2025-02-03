@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Ralph Waldo Trine | Free Book
-date: 2025-01-23T05:08:01.885Z
-updated: 2025-01-24T23:12:06.107Z
+date: 2025-01-27T23:42:10.561Z
+updated: 2025-02-01T23:07:18.230Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399143e33e364df922e51683bcdc0dfe214d.jpg
@@ -146,14 +146,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210252317-9781722526788-5-spiritual-steps-to-overcome-adversity/"><u>5 Spiritual Steps to Overcome Adversity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210252385-9781662424359-before-i-die/"><u>Before I Die | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210252419-9781990175015-i-shall-live/"><u>I Shall Live | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210252348-9781098077020-its-time-for-a-revolution/"><u>It's Time for a Revolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210252428-9781945252884-the-four-fundamental-aspects-of-love/"><u>The Four Fundamental Aspects of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211168077-9782017229575-astro-numero/"><u>Astro & Numéro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166628-9781837822386-dreams-of-awakening-revised-edition/"><u>Dreams of Awakening (Revised Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211168067-9782017186601-le-grand-livre-de-lastrologie/"><u>Le grand livre de l'astrologie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211168079-9782017229940-magie-au-quotidien/"><u>Magie au quotidien | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166603--the-little-book-of-gratitude/"><u>The Little Book of Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166602-9781841815817-the-little-book-of-meditation/"><u>The Little Book of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211168370--the-report-on-unidentified-flying-objects/"><u>The Report on Unidentified Flying Objects | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166571-9781396323119-wisdom-of-the-ages/"><u>Wisdom of the Ages | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

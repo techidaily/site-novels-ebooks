@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2025-01-17T19:08:50.469Z
-updated: 2025-01-25T05:18:23.069Z
+date: 2025-01-29T01:32:38.451Z
+updated: 2025-02-02T06:48:33.442Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,17 +135,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210297891-9781645593300-a-quote-of-evidence/"><u>A Quote of Evidence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297895-9781636300160-how-to-have-the-favor-of-god/"><u>How to Have the Favor of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297335-9781640792920-revelations-of-a-real-man-or-woman/"><u>Revelations of A Real Man (or Woman) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297364-9781644586051-she-wasnt-just-a-kitty/"><u>She Wasn't Just A Kitty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297715-9781644684733-the-replacement-theory-the-power-of-pain-and-prayer/"><u>The Replacement Theory: The Power of Pain and Prayer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298197-9781644680636-three-simple-words/"><u>Three Simple Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210298061-9781644680902-who-am-i/"><u>Who Am I? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210297535-9781990346033-eshyo-odin-spravochnik-ce-5/"><u>ЕЩЁ ОДИН СПРАВОЧНИК CE-5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246073-9783964464965-astral-horror/"><u>Astral Horror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211245958-9780645276176-getting-into-the-flow/"><u>Getting into the Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211245943-9798869208286-leads-to-nowhere/"><u>Leads to Nowhere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211246088-9781739089832-thoughtless/"><u>Thoughtless | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

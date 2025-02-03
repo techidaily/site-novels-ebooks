@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2025-01-21T00:32:50.536Z
-updated: 2025-01-25T05:47:27.907Z
+date: 2025-01-29T17:17:12.858Z
+updated: 2025-02-02T03:39:14.649Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,16 +156,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210468839-9781761037870-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210468704-9781639855025-dylights-4/"><u>Dylights 4 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210468854-9781734249651-licensed-to-snap/"><u>Licensed to S.N.A.P. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210468845-9781761037757-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210468707-9781637103128-mindset/"><u>Mindset | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210468998--the-veil-of-entanglement/"><u>The Veil of Entanglement | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210468713-9781639853229-vida-despues-de-la-muerte-de-la-mano-de-dios/"><u>VIDA DESPUES DE LA MUERTE DE LA MANO DE DIOS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412797-9781778310621-escape-nightmares/"><u>Escape Nightmares | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412846-9781736221792-how-he-got-me-started/"><u>HOW HE GOT ME STARTED | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412317-9782385640668-le-mini-guide-ultime-des-signes-et-synchronicites/"><u>Le Mini-guide ultime des signes et synchronicités | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412901-9783892016083-mi-vida-que-yo-mismo-elegi/"><u>Mi vida que yo mismo elegí | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412806-9798869366399-the-mindful-journey/"><u>The Mindful Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412883-9780645878059-zen-demystified/"><u>Zen Demystified | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

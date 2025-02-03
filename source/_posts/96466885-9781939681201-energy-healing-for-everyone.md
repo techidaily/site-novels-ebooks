@@ -1,7 +1,7 @@
 ---
 title: Energy Healing for Everyone | Free Book
-date: 2025-01-19T19:57:21.871Z
-updated: 2025-01-24T22:38:24.269Z
+date: 2025-01-27T17:39:56.968Z
+updated: 2025-02-02T04:27:22.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859a2687327012523ee141028dafe5e3e789.jpg
@@ -175,16 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4128019400872fbe24dbae5a4d5c859
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210500808-9781644115633-archangel-alchemy-healing/"><u>Archangel Alchemy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500801-9781644115381-being-nature-4th-ed/"><u>Being Nature (4th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500802-9781644115466-chakras-en-la-practica-chamanica-2nd-ed/"><u>Chakras en la práctica chamánica (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500807-9781644115503-escribe-el-guion-de-la-vida-que-quieres/"><u>Escribe el guion de la vida que quieres | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500805-9781644115527-lecciones-de-los-12-arcangeles/"><u>Lecciones de los 12 Arcángeles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500806-9781644115619-radical-regeneration/"><u>Radical Regeneration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500803-9781644115343-the-dharma-of-direct-experience/"><u>The Dharma of Direct Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434152-9781507303801-land-healing/"><u>Land Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434118-9781507303788-new-directions-in-tarot/"><u>New Directions in Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433934-9781803410272-pagan-portals-sulis/"><u>Pagan Portals - Sulis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433936-9781803415260-paranormal-perspectives-a-jungian-understanding-of-transcendent-experiences/"><u>Paranormal Perspectives: A Jungian Understanding of Transcendent Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434022-9781507303771-plus-one/"><u>Plus One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434032-9781507303795-soul/"><u>Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434136-9781507303818-the-magick-of-lenormand-card-reading/"><u>The Magick of Lenormand Card Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433718-9781429953962-ufo-hunters-hoax-or-history/"><u>UFO Hunters: Hoax or History? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211433699-9781466882553-zodiac-spells/"><u>Zodiac Spells | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

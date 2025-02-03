@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2025-01-24T04:39:39.722Z
-updated: 2025-01-24T21:36:52.417Z
+date: 2025-01-25T21:53:14.771Z
+updated: 2025-02-01T17:59:37.139Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,17 +175,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210199809-9781631597077-10-minute-magic-spells/"><u>10-Minute Magic Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210199891-9781592338016-crystals-for-energy-healing/"><u>Crystals for Energy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210199949-9780760361177-in-focus-meditation/"><u>In Focus Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200040-9780760364994-in-focus-reiki/"><u>In Focus Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210199863-9780760365847-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210199780-9781610586405-one-zentangle-a-day/"><u>One Zentangle A Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210199845-9780760362297-the-dictionary-of-dreams/"><u>The Dictionary of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210199948-9781631595769-the-ultimate-guide-to-crystal-grids/"><u>The Ultimate Guide to Crystal Grids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122981-9783988319029-dark-psychology-secrets/"><u>DARK PSYCHOLOGY SECRETS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123000-9781088253328-feeling-in-your-skin/"><u>FEELING IN YOUR SKIN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123014-9781088250495-la-actriz/"><u>La Actriz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122968-9781685221928-maximizing-your-potential-increase-your-mental-capacity-to-become-the-person-youve-always-wanted-to-be-in-life-with-nothing-standing-in-your-way/"><u>Maximizing Your Potential: Increase Your Mental Capacity To Become The Person You've Always Wanted To Be In Life, With Nothing Standing In Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122991-9781952491450-the-ultimate-quest/"><u>The Ultimate Quest | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

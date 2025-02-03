@@ -1,7 +1,7 @@
 ---
 title: Healed to Healer A Woman's Transformation through Christian Shamanism and the Power of Spirit | Free Book
-date: 2024-10-25T23:38:47.648Z
-updated: 2024-10-27T01:10:08.401Z
+date: 2025-01-28T05:41:20.393Z
+updated: 2025-02-02T03:31:13.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7764a38e4e9b3b1ca7c0fc106d6a3cc3bf7378dab8f31065bdd328fff9f44ff.jpg
@@ -138,3 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7764a38e4e9b3b1ca7c0fc106d6a3c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932900-9781855844223-from-mammoths-to-mediums/"><u>From Mammoths to Mediums... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932901-9781855844346-mystery-of-the-universe/"><u>Mystery of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932903-9781855843011-secret-brotherhoods/"><u>Secret Brotherhoods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932897-9781855843257-the-goddess/"><u>The Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932906-9781855842953-theosophy/"><u>Theosophy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

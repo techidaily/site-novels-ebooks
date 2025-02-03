@@ -1,7 +1,7 @@
 ---
 title: Histeria e Fenômenos Psíquicos | Free Book
-date: 2024-10-19T17:16:26.784Z
-updated: 2024-10-26T16:10:58.122Z
+date: 2025-02-01T03:46:48.409Z
+updated: 2025-02-02T05:37:52.028Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c6fb53846a2a37329fef14f1e534a4fe08b6b84d6dbd1f112a1b59537316654e.jpg
@@ -163,3 +163,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c6fb53846a2a37329fef14f1e534a4f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210829943-9781977240408-a-knock-in-the-attic/"><u>A Knock in the Attic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829648-9781398834682-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829857-9781722527853-dick-sutphens-wisdom/"><u>Dick Sutphen's Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210830072-9781977219749-over-1000-beatings-spiritual-sanity-and-the-rejection-of-evil/"><u>Over 1,000 Beatings, Spiritual Sanity and the Rejection of Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829892-9781977234261-riding-with-ghosts-angels-and-the-spirits-of-the-dead/"><u>Riding with Ghosts, Angels, and the Spirits of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210830221-9781977236920-the-definitive-book-on-the-afterlife/"><u>The Definitive Book on the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210829181-9781623177768-the-road-to-eleusis/"><u>The Road to Eleusis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210828188-9780525507475-when-things-dont-go-your-way/"><u>When Things Don't Go Your Way | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

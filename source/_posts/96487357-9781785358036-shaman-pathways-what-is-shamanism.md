@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2025-01-19T01:00:06.070Z
-updated: 2025-01-24T20:09:15.021Z
+date: 2025-01-26T01:43:36.465Z
+updated: 2025-02-01T23:53:54.156Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,17 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210393736-9780834844148-body-astrology/"><u>Body Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394851-9780998560366-comi/"><u>COMI | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210392157-9781504067980-dictionary-of-poisons/"><u>Dictionary of Poisons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394833-9781736892213-ezekiels-awakening-into-light/"><u>Ezekiel's Awakening Into Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210393724-9780834844216-pause-rest-be/"><u>Pause, Rest, Be | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394790-9781087989204-pray-what-you-preach/"><u>Pray What You Preach: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210394676-9781645314363-swipe/"><u>Swipe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210393498-9789948834359-hdyth-alroh/"><u>حديث الروح | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352079-9798869385574-el-secuestro/"><u>El Secuestro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211351144-9780061984419-heroes-among-us/"><u>Heroes Among Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352063-9798869384065-los-vagabundos/"><u>Los Vagabundos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352196--nur-positive-schwingungen/"><u>Nur Positive Schwingungen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211352176-9789362613165-switch-mantra/"><u>Switch Mantra | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

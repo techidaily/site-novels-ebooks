@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2025-01-17T19:26:04.186Z
-updated: 2025-01-24T21:15:36.694Z
+date: 2025-01-28T16:34:55.490Z
+updated: 2025-02-02T03:24:59.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,14 +136,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210454482-9781774816646-clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454455-9781957048024-manifestation-mastery/"><u>Manifestation Mastery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454392-9789814952811-motivation-journal-for-women/"><u>Motivation Journal For Women | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454444-9781737688600-shadowed-soul/"><u>Shadowed Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454391-9798985487619-the-gratitude-beads/"><u>The Gratitude Beads | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394062-9781507300480-aliens-god-and-the-bible/"><u>Aliens, God, and the Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394058-9781507301418-living-a-life-in-balance/"><u>Living a Life in Balance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394112-9781507300527-spirits-speak-of-conspiracies-mysteries/"><u>Spirits Speak of Conspiracies & Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394037-9781507301111-tarot-for-the-fiction-writer/"><u>Tarot for the Fiction Writer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394163-9781507300091-the-ufo-phenomenon/"><u>The UFO Phenomenon | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

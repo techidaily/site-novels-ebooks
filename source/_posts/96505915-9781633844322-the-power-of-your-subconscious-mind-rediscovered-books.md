@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2025-01-24T01:18:29.004Z
-updated: 2025-01-25T04:55:10.406Z
+date: 2025-01-29T19:09:54.524Z
+updated: 2025-02-01T18:11:52.207Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,14 +153,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210233098-9781633412385-espiritismo/"><u>Espiritismo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233093-9781633412408-pure-magic/"><u>Pure Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233096-9781950253203-the-7-energies-of-the-soul/"><u>The 7 Energies of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233095-9781633412392-the-witch-at-the-forests-edge/"><u>The Witch at the Forest's Edge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233097-9781881098829-the-witches-almanac-2022-2023-standard-edition-issue-41/"><u>The Witches' Almanac 2022-2023 Standard Edition Issue 41 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150231-9780008667634-aquarius-2025-your-personal-horoscope/"><u>Aquarius 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150230-9780008667627-capricorn-2025-your-personal-horoscope/"><u>Capricorn 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150227-9780008667597-libra-2025-your-personal-horoscope/"><u>Libra 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150232-9780008667641-pisces-2025-your-personal-horoscope/"><u>Pisces 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150228-9780008667603-scorpio-2025-your-personal-horoscope/"><u>Scorpio 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150226-9780008667580-virgo-2025-your-personal-horoscope/"><u>Virgo 2025: Your Personal Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

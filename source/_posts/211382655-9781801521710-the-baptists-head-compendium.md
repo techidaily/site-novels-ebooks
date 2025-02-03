@@ -1,7 +1,7 @@
 ---
 title: The Baptist's Head Compendium | Free Book
-date: 2024-10-20T04:57:23.626Z
-updated: 2024-10-27T04:42:01.113Z
+date: 2025-01-30T05:17:17.560Z
+updated: 2025-02-01T23:44:45.742Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0863c7b8ca6b566a0be093928372b98544ec97c7bb4d924b277720aab1be91ea.jpg
@@ -210,3 +210,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0863c7b8ca6b566a0be093928372b98
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210742023-9781454945758-1001-crystals/"><u>1001 Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742001-9798885053419-fully-armed-with-unbreakable-faith/"><u>Fully Armed With Unbreakable Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210740356-9781398827899-secrets-to-manifesting/"><u>Secrets to Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210741325-9781786787958-the-astral-geographic/"><u>The Astral Geographic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210739707-9798886540833-the-handbook-of-you/"><u>The Handbook of YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210740608-9781959434603-the-journey/"><u>The Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210740352-9781782120438-the-labyrinth-of-time/"><u>The Labyrinth of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742310-9781506483153-the-spirituality-of-dreaming-unlocking-the-wisdom-of-our-sleeping-selves/"><u>The Spirituality of Dreaming: Unlocking the Wisdom of Our Sleeping Selves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210741491-9781957114491-why-believe-it/"><u>Why Believe It? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

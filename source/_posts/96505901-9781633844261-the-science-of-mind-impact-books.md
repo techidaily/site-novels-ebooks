@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2025-01-17T21:21:07.829Z
-updated: 2025-01-25T04:54:12.805Z
+date: 2025-01-28T02:35:49.703Z
+updated: 2025-02-01T20:42:55.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,14 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210233083-9781633411845-casting-lots/"><u>Casting Lots | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233087-9781633412354-consorting-with-spirits/"><u>Consorting with Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233082-9781633412149-the-big-book-of-magical-incense/"><u>The Big Book of Magical Incense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233085-9781633412316-the-ufo-abduction-book/"><u>The UFO Abduction Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233086-9781633412170-yemaya/"><u>Yemaya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211148665-9781398838048-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211149717-9780645870213-by-divine-instruction-lessons-in-metaphysical-healing/"><u>By Divine Instruction - Lessons in Metaphysical Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211148663-9781398838055-palmistry/"><u>Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211149654-9780711294226-radical-self-care/"><u>Radical Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211149667-9780760391341-the-aura-chakra-healing-companion/"><u>The Aura & Chakra Healing Companion | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

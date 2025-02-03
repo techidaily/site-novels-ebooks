@@ -1,7 +1,7 @@
 ---
 title: Fasting Expands Consciousness | Free Book
-date: 2024-10-26T01:39:13.608Z
-updated: 2024-10-26T16:25:40.314Z
+date: 2025-01-27T23:43:44.845Z
+updated: 2025-02-01T18:45:48.328Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/edb2c5a22673611fa2e60c8d6d637f96f8cc80b2cd89427d6cf4b2cf0fd3ea50.jpg
@@ -164,3 +164,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/edb2c5a22673611fa2e60c8d6d637f9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210845546-9798889269649-beautiful-women-a-view-from-the-heart/"><u>Beautiful Women: A View from the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845561-9781088143278-manifesting-your-dream-life/"><u>MANIFESTING YOUR DREAM LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845432-9798822915527-precious-gems/"><u>Precious Gems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845544-9781684931842-the-healing-light/"><u>The Healing Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

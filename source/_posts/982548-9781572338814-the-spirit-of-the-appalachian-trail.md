@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2025-01-21T03:07:54.434Z
-updated: 2025-01-24T16:27:11.178Z
+date: 2025-02-01T04:54:05.505Z
+updated: 2025-02-01T22:31:41.414Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,13 +249,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210229149-9781952874437-exponiendo-practicas-espiritualistas-curativas/"><u>Exponiendo Prácticas Espiritualistas Curativas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210228848-9780813174532-ghosts-of-old-louisville/"><u>Ghosts of Old Louisville | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210229382-9781732823884-rise/"><u>RISE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210229431-9781951943325-spirits-speak/"><u>Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145199-9781804530320-gemini/"><u>Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145203-9781804530344-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145194-9781804530368-libra/"><u>Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145196-9781804530382-sagittarius/"><u>Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145198-9781804530375-scorpio/"><u>Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145201-9781804530191-taurus/"><u>Taurus | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

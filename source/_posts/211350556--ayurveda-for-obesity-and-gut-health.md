@@ -1,7 +1,7 @@
 ---
 title: Ayurveda for Obesity and Gut Health | Free Book
-date: 2024-10-19T23:43:36.551Z
-updated: 2024-10-27T03:08:39.274Z
+date: 2025-01-31T17:46:26.622Z
+updated: 2025-02-01T21:46:32.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f55008e4a0d2c0e56a31f062bc31fb3b54f846966be79f5781318d9f5283883d.jpg
@@ -160,3 +160,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f55008e4a0d2c0e56a31f062bc31fb3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210971391-9798888321447-365-pray-it-read-it-speak-it/"><u>365 Pray it, Read it, Speak it | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971299-9781088240182-cosechando-bendiciones/"><u>COSECHANDO BENDICIONES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971292-9781088240946-el-alma-de-las-cosas/"><u>EL ALMA DE LAS COSAS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971294-9781088238998-francisco-de-asis/"><u>Francisco de Asís | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971298-9781088240526-soldado-dowding/"><u>SOLDADO DOWDING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971300-9781088236123-tres-almas-y-un-destino/"><u>Tres Almas y un Destino | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971297-9781088238769-yo-barrabas/"><u>Yo, Barrabás | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

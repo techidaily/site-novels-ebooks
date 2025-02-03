@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2025-01-18T22:09:05.989Z
-updated: 2025-01-25T04:54:53.993Z
+date: 2025-01-31T17:26:42.122Z
+updated: 2025-02-02T02:48:34.252Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,13 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210279536-9781788174824-consciousness-rising/"><u>Consciousness Rising | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210278911-9781636306940-feelings-and-faith/"><u>Feelings and Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210279584-9781922380449-im-positive-2nd-ed/"><u>I'm Positive! (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210279723-9781910056844-lifting-the-veils-of-illusion/"><u>Lifting the Veils of Illusion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211221693-9798886859355-gods-still-calling/"><u>...God's Still Calling... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211220370-9798889609087-birth-of-a-jewel/"><u>Birth of a Jewel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211221085-9780740798382-keep-calm-and-carry-on/"><u>Keep Calm and Carry On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211221703--lazy-witchcraft-for-crazy-shtty-days/"><u>Lazy Witchcraft for Crazy, Sh*tty Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211221713-9780760392256-sea-magick/"><u>Sea Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211220855-9798350070712-summary-of-garrett-graffs-ufo/"><u>Summary of Garrett Graff's UFO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211220220-9780711290754-the-stories-behind-astrology/"><u>The Stories Behind Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211220310--the-uncommon-book-of-prayer/"><u>The Uncommon Book of Prayer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

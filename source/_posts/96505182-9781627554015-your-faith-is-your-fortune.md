@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2025-01-20T04:37:39.688Z
-updated: 2025-01-24T23:13:10.912Z
+date: 2025-01-28T21:04:52.812Z
+updated: 2025-02-01T19:11:08.301Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,14 +142,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210288935-9781439672808-gracious-ghosts-of-cheyenne/"><u>Gracious Ghosts of Cheyenne | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210287020-9781071599242-i-followers-di-megan/"><u>I Followers di Megan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289099-9781789048933-practically-pagan-an-introduction-to-alternative-guides-to-living/"><u>Practically Pagan - An Introduction to Alternative Guides to Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289015-9789768307101-vision-aligning-with-gods-purpose-for-your-life/"><u>VISION: Aligning With God's Purpose For Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210288997-9781648410475-you-are-a-great-and-powerful-wizard/"><u>You Are a Great and Powerful Wizard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236362-9798886151879-a-sacred-way-to-gain-freedom-from-multi-generational-curses/"><u>A Sacred Way to Gain Freedom from Multi-Generational Curses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236379-9781396324833-in-days-to-come/"><u>In Days to Come | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236454-9798869146021-lecciones-de-la-senzala/"><u>Lecciones de la Senzala | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236445-9798218337025-love-heals-all-wounds/"><u>Love Heals All Wounds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236425-9798868943508-my-time-keeping-the-light-shining/"><u>MY TIME: Keeping The Light Shining | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236380-9789358814279-the-art-of-letting-go/"><u>The Art of Letting Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236418-9798989828623-the-art-of-mindkeeping/"><u>The Art of Mindkeeping | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236481-9781396324956-the-tarot/"><u>The Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236376-9781778921049-aaatmad-bh-nfs-zibatrin-lbasi-kh-mitoni-bposhi/"><u>اعتماد به نفس زیباترین لباسی که میتونی بپوشی | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

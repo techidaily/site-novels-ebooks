@@ -1,7 +1,7 @@
 ---
 title: 5 Transformative True-life Stories on Visitation to Heaven, Hell and the Dark Kingdom | Free Book
-date: 2024-10-25T02:12:44.513Z
-updated: 2024-10-27T01:00:07.588Z
+date: 2025-01-30T05:13:35.077Z
+updated: 2025-02-01T22:41:05.258Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7da53a86c30433cc7a334a4a20885e05980571aa56d411722589db59ed252c65.jpg
@@ -164,3 +164,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7da53a86c30433cc7a334a4a20885e0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210882857-9781088186657-authority-and-power-for-todays-ministry/"><u>AUTHORITY AND POWER FOR TODAY'S MINISTRY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884477-9781646042777-herbal-tea-magic-for-the-modern-witch/"><u>Herbal Tea Magic for the Modern Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883111-9780834845299-the-lost-art-of-silence/"><u>The Lost Art of Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883116-9780834845305-the-luminous-self/"><u>The Luminous Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210883306-9781837831593-the-lunar-year/"><u>The Lunar Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210884475-9781646043255-the-modern-art-of-brujeria/"><u>The Modern Art of Brujería | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

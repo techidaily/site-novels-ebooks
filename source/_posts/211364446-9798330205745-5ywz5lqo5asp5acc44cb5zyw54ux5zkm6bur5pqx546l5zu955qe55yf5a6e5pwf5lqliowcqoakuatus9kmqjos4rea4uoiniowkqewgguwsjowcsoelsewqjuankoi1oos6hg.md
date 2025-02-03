@@ -1,7 +1,7 @@
 ---
 title: 关于天堂、地狱和黑暗王国的真实故事 在濒死体验中游览天堂和地狱后捐赠了 | Free Book
-date: 2024-10-25T20:44:08.295Z
-updated: 2024-10-27T03:52:14.504Z
+date: 2025-01-25T18:51:28.632Z
+updated: 2025-02-02T06:24:09.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ad3e2924e0df2cb8286035e4c1bc41d33e23e83b564b8ffee9f407d0eaf801a.jpg
@@ -156,3 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ad3e2924e0df2cb8286035e4c1bc41
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877363-9781633411579-enochian-vision-magick/"><u>Enochian Vision Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877364-9781934708590-hidden-wisdom/"><u>Hidden Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877362-9781633411173-magickal-astrology/"><u>Magickal Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877361-9781633411616-the-practice-of-enochian-magick/"><u>The Practice of Enochian Magick | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Woorden des levens voor de gezondheid van ziel en lichaam: Dit boek is gebaseerd op de Christus-openbaring | Free Book"
-date: 2024-10-20T21:26:57.112Z
-updated: 2024-10-26T17:29:14.212Z
+date: 2025-01-26T20:04:25.496Z
+updated: 2025-02-01T23:31:46.726Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/394829a8286f191c6451f47e415accb1b94402850283fd6d282b358679e22b04.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/394829a8286f191c6451f47e415accb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210812952-9798822912441-everything-i-learned-about-mental-health-began-at-twenty-two/"><u>Everything I Learned about Mental Health Began at Twenty-Two | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210815021-9782889701551-guerir-ses-blessures-dame-avec-les-annales-akashiques/"><u>Guérir ses blessures d'âme avec les annales akashiques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210813108-9781529370638-handbook-for-hard-times/"><u>Handbook for Hard Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210813058-9781958921241-sound/"><u>Sound | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

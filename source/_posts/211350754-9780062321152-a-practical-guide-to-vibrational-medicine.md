@@ -1,7 +1,7 @@
 ---
 title: A Practical Guide to Vibrational Medicine | Free Book
-date: 2024-10-23T16:54:12.730Z
-updated: 2024-10-26T22:35:30.643Z
+date: 2025-01-29T18:38:46.673Z
+updated: 2025-02-02T02:02:58.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49cf9467b767d2a343543f44e3896a80d403d19127999c8e9419342d84ad244b.jpg
@@ -168,3 +168,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49cf9467b767d2a343543f44e3896a8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211013581-9781644119181-astrology-of-the-shadow-self/"><u>Astrology of the Shadow Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013582-9781644119228-coma-and-near-death-experience/"><u>Coma and Near-Death Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013579-9781644118917-healing-wisdom-from-the-afterlife/"><u>Healing Wisdom from the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013573-9781644117354-occult-germany/"><u>Occult Germany | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013504-9781591435075-shamanic-teachings-of-the-condor/"><u>Shamanic Teachings of the Condor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013505-9781591435099-sorcerers-of-stone/"><u>Sorcerers of Stone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013572-9781644116340-the-hoodoo-tarot-workbook/"><u>The Hoodoo Tarot Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013503-9781591434870-the-mystery-of-life-energy/"><u>The Mystery of Life Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013578-9781644118634-the-occult-sylvia-plath/"><u>The Occult Sylvia Plath | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

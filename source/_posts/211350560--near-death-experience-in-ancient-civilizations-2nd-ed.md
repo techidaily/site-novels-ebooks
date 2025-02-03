@@ -1,7 +1,7 @@
 ---
 title: Near-Death Experience in Ancient Civilizations (2nd ed.) | Free Book
-date: 2024-10-24T00:15:05.141Z
-updated: 2024-10-26T20:29:59.093Z
+date: 2025-01-26T01:14:33.067Z
+updated: 2025-02-02T06:01:36.406Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3109dfbb5680e3d73b180ff4964bf91d553ea8231d32dc531ed6e72f19cbf6d2.jpg
@@ -159,3 +159,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3109dfbb5680e3d73b180ff4964bf91
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210974014-9781606390603-montana-ghost-stories/"><u>Montana Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974007-9781606390580-montana-ufos-and-extraterrestrials/"><u>Montana UFOs and Extraterrestrials | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971394-9798888328118-soldiers-of-fitness/"><u>Soldiers Of Fitness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210973804-9782017229926-transformez-ce-qui-vous-plombe-en-tresor/"><u>Transformez ce qui vous plombe en trésor | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

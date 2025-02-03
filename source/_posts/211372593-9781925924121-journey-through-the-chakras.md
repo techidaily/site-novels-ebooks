@@ -1,7 +1,7 @@
 ---
 title: Journey Through The Chakras | Free Book
-date: 2024-10-22T02:29:29.383Z
-updated: 2024-10-26T17:22:23.579Z
+date: 2025-01-26T18:34:40.319Z
+updated: 2025-02-02T05:32:05.956Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/18603faf2471d1ac8cf935fefbb287ce68ee506a3ec80bc7deeea412fb53d29a.jpg
@@ -161,3 +161,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/18603faf2471d1ac8cf935fefbb287c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210800789-9798886541588-born-to-win/"><u>Born to Win | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210801009-9798887594767-fcking-our-way-to-enlightenment/"><u>F*cking our way to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800774-9798886546552-life-the-journey-to-eternal-joy/"><u>Life The Journey To Eternal Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800965-9781088106556-making-way-for-the-new/"><u>Making Way For The New | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800782-9781662465376-the-inextinguishable-dark-flame-of-blackman/"><u>The Inextinguishable Dark Flame of Blackman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210801824-9781841508832-the-posthuman-condition/"><u>The Posthuman Condition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210801050-9780875169217-the-word-of-neville/"><u>THE WORD OF NEVILLE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210801051-9798887740799-working-with-the-law/"><u>WORKING WITH THE LAW | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

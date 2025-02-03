@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2025-01-17T22:47:11.900Z
-updated: 2025-01-24T18:38:40.077Z
+date: 2025-01-26T04:35:42.863Z
+updated: 2025-02-01T18:52:18.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,18 +151,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210528009-9781644115282-ars-notoria-the-notory-art-of-solomon/"><u>Ars Notoria: The Notory Art of Solomon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528144-9781909141872-breathing-mudras-and-meridians/"><u>Breathing, Mudras and Meridians | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528017-9781644116708-psychedelic-buddhism/"><u>Psychedelic Buddhism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528011-9781644115442-psychedelic-wisdom/"><u>Psychedelic Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528021-9781644117040-shamanic-dreaming/"><u>Shamanic Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528014-9781644115022-source-magic/"><u>Source Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528015-9781644116111-the-kabbalah-of-writing/"><u>The Kabbalah of Writing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528016-9781644116203-the-nature-of-astrology/"><u>The Nature of Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210528150-9781912085941-yoga-and-resilience/"><u>Yoga and Resilience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447313-9798330373581-alef-la-verdad-original/"><u>Alef - La Verdad Original | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447352-9798991067140-from-quiet-moments/"><u>From Quiet Moments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447353-9798991067126-from-quiet-moments/"><u>From Quiet Moments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447354-9798991067188-from-quiet-moments/"><u>From Quiet Moments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447324-9798991221726-the-power-of-life-coaching-volume-4/"><u>The Power of Life Coaching Volume 4 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

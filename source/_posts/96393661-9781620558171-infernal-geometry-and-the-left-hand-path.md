@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2025-01-21T18:09:51.478Z
-updated: 2025-01-25T00:57:27.778Z
+date: 2025-01-29T22:51:00.733Z
+updated: 2025-02-02T06:32:44.887Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,18 +203,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210553446-9781087951577-a-mothers-cry-the-anthology-vol-1/"><u> "A Mother's Cry " The Anthology (Vol. 1) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210553426-9781957956077-alone-in-grief/"><u>Alone in Grief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210552549-9781984861009-black-people-breathe/"><u>Black People Breathe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210552241-9782019465032-code-rouge/"><u>Code rouge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210553420-9783947982653-dianetik-entwicklung-einer-wissenschaft/"><u>Dianetik - Entwicklung einer Wissenschaft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210553487-9781990346057-het-ce-5-handboek/"><u>HET CE-5 HANDBOEK | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210552251-9782017166306-le-bureau-des-ames/"><u>Le bureau des âmes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210553336-9780982460573-the-code-of-opposites-book-2/"><u>The Code of Opposites-Book 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210554259-9781846150104-the-occult-laboratory/"><u>The Occult Laboratory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476316--close-encounters/"><u>Close Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476671-9781907767494-prophecy-and-power-2nd-ed/"><u>Prophecy and Power (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211475872--redistribution-of-wealth-in-america-and-beyond-the-new-civil-war/"><u>Redistribution Of Wealth In America And Beyond - The New Civil War | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476485-9781839388712-rosicrucianism/"><u>Rosicrucianism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476413-9781839388699-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211475891-9781397665270-the-call-of-kumayl/"><u>The Call of Kumayl | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477015-9781397665355-the-secret-of-the-saucers/"><u>The Secret of the Saucers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211476238-9781397665300-the-sixth-book-of-moses-and-the-seventh-book-of-moses/"><u>The Sixth Book of Moses and The Seventh Book of Moses | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

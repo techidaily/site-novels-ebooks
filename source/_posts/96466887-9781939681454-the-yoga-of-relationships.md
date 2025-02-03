@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2025-01-17T20:02:11.859Z
-updated: 2025-01-24T21:29:41.442Z
+date: 2025-01-27T05:12:07.180Z
+updated: 2025-02-02T00:53:23.995Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,17 +162,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210500818-9781644115855-creating-places-of-power-2nd-ed/"><u>Creating Places of Power (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500823-9781644116579-el-elemento-perdido/"><u>El elemento perdido | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500820-9781644115831-healing-sounds-4th-ed/"><u>Healing Sounds (4th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210501568-9780241987681-luna/"><u>Luna | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210501674-9798985634815-my-little-town/"><u>My Little Town | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500814-9781644115770-psychiatry-and-the-spirit-world/"><u>Psychiatry and the Spirit World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500813-9781644115978-the-flowering-wand/"><u>The Flowering Wand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210500815-9781644115930-uncertain-places/"><u>Uncertain Places | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211434956-9781648414688-cooking-with-magic-mushrooms/"><u>Cooking with Magic Mushrooms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435308-9781068848902-decode-the-deck/"><u>Decode the Deck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435707-9788412856330-die-wahl-der-seele-teil-1/"><u>Die Wahl der Seele. Teil 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435708-9788412856354-die-wahl-der-seele-teil-2/"><u>Die Wahl der Seele. Teil 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435706-9798894650548-our-spiritual-being-above-and-beyond-our-human-condition-spirit-form/"><u>Our Spiritual Being Above and Beyond our Human Condition: Spirit & Form | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435042--pain-free/"><u>Pain Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435582-9798218474614-spell-jars-and-pouches/"><u>Spell Jars and Pouches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211435021--truth-demands/"><u>Truth Demands | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2025-01-20T17:38:18.841Z
-updated: 2025-01-25T05:57:31.888Z
+date: 2025-01-30T06:22:53.209Z
+updated: 2025-02-01T20:41:54.739Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,17 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210470841-9781777878429-embodied/"><u>Embodied | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470557-9789692292788-enriching-the-immortal-soul/"><u>Enriching the Immortal Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470836-9789814952897-how-to-do-nothing/"><u>How To Do Nothing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470498-9780578362809-life-is-worth-more-than-just-living/"><u>Life Is Worth More Than Just Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470919-9789354621055-meditations/"><u>Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470837-9789814952835-motivation-workbook-positive-mindset-only/"><u>Motivation Workbook: Positive Mindset Only | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210470502-9781087891613-now-i-know-my-abcs-life-alphabet/"><u>Now I know my ABC's Life Alphabet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210472677-9780253014641-where-the-spirits-ride-the-wind/"><u>Where the Spirits Ride the Wind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413167-9798330285105-cosmic-pleasures/"><u>Cosmic Pleasures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413223-9798218464752-healing-the-inner-child/"><u>Healing the Inner Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413228-9798330282470-radicalement-vivant-au-dela-de-labus/"><u>Radicalement Vivant Au-delà de l'Abus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413271-9781913504113-the-psychedelic-renaissance/"><u>The Psychedelic Renaissance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413356-9781738396412-the-science-of-human-possibilities/"><u>The Science of Human Possibilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413069-9798893795936-the-secret-52-star-codes-of-creation-hearts/"><u>The Secret 52 Star Codes of Creation (Hearts) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211413074-9798893795950-the-secret-52-star-codes-of-creation-spades/"><u>The Secret 52 Star Codes of Creation (Spades) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

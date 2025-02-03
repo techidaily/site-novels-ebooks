@@ -1,7 +1,7 @@
 ---
 title: Psychedelics and Mental Health (2nd ed.) | Free Book
-date: 2024-10-21T20:02:43.521Z
-updated: 2024-10-26T17:51:48.227Z
+date: 2025-02-01T06:31:29.911Z
+updated: 2025-02-02T04:17:10.113Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e59d6936d0ca204b8e5d093f0a6513209269b824c5f4c95efc32a0f61ed359e8.jpg
@@ -161,3 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e59d6936d0ca204b8e5d093f0a65132
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211009248-9789358056716-ghostly-phenomena/"><u>Ghostly Phenomena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211009237-9789358056969-the-banshee/"><u>The Banshee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010229-9781648015472-the-book-of-courage-i-woke-up-when-i-supposed-to-be-asleep/"><u>The Book of Courage I Woke Up When I Supposed to Be Asleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010135-9781578598304-werewolf-stories/"><u>Werewolf Stories | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

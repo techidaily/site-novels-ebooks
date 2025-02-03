@@ -1,7 +1,7 @@
 ---
 title: Occultism - Two Essays from the Hibbert Journal | Free Book
-date: 2024-10-20T02:34:00.321Z
-updated: 2024-10-27T04:10:20.957Z
+date: 2025-01-29T06:41:26.710Z
+updated: 2025-02-02T03:44:31.590Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3af9005359fefe8a84b81062ee8a6cb28dda2ef27867692dc3460775bea62e53.jpg
@@ -138,3 +138,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3af9005359fefe8a84b81062ee8a6cb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877159-9781609252151-between-the-gates/"><u>Between the Gates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877152-9781601639882-conversations-with-the-children-of-now/"><u>Conversations With the Children of Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877156-9781601639738-gnosis/"><u>Gnosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877153-9781601639660-indigo-adults/"><u>Indigo Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877160-9781601639547-northern-tradition-for-the-solitary-practitioner/"><u>Northern Tradition for the Solitary Practitioner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877161-9781609251437-qbl/"><u>Q.B.L. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877162-9781609251772-the-golden-builders/"><u>The Golden Builders | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

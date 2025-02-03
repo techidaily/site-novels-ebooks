@@ -1,7 +1,7 @@
 ---
 title: Hidden Realms, Lost Civilizations, and Beings from Other Worlds | Free Book
-date: 2025-01-19T01:34:51.985Z
-updated: 2025-01-25T00:06:59.470Z
+date: 2025-01-26T01:22:41.156Z
+updated: 2025-02-02T04:40:55.861Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac2546288d509c002b2670283d03081d39a84a5a.jpg
@@ -227,14 +227,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a09dad0f59d7f1be359796c9ac25462
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210348683-9782226306043-du-sommeil-et-autres-joies-deraisonnables/"><u>Du sommeil et autres joies déraisonnables | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348819-9782226308382-le-corps-du-meditant/"><u>Le Corps du méditant | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348738-9782226300379-le-desert-interieur/"><u>Le Désert intérieur | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348829-9782226309754-parole-du-passant/"><u>Parole du passant | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210348772-9782226338006-une-etoile-qui-danse-sur-le-chaos/"><u>Une étoile qui danse sur le chaos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315055-9781501132063-heal-yourself-heal-the-world/"><u>Heal Yourself, Heal the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314915-9781507201916-how-to-interpret-dreams/"><u>How to Interpret Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314927-9781440511394-lovecasts/"><u>Lovecasts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315078-9781416591924-postcards-from-heaven/"><u>Postcards from Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314745-9781982174361-the-dabblers-guide-to-witchcraft/"><u>The Dabbler's Guide to Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314773-9781451672848-the-new-game-of-life-and-how-to-play-it/"><u>The New Game of Life and How to Play It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315631-9781440515064-the-only-psychic-power-book-youll-ever-need/"><u>The Only Psychic Power Book You'll Ever Need | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211315056-9780743277440-the-power-of-playing-cards/"><u>The Power of Playing Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314925-9781507202548-the-power-of-positive-energy/"><u>The Power of Positive Energy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

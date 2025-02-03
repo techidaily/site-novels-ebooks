@@ -1,7 +1,7 @@
 ---
 title: Your Invisible Power and How to Use It | Free Book
-date: 2025-01-22T23:42:44.315Z
-updated: 2025-01-25T00:42:27.251Z
+date: 2025-01-30T18:58:54.291Z
+updated: 2025-02-01T19:21:42.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035b03b1cc767fa3501b8a4d68e2e51d3180.jpg
@@ -140,13 +140,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e45a4c9927bef70001c9fb937cd035
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210243995-9781614297680-meditations-on-the-trail/"><u>Meditations on the Trail | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243915-9780486849188-seeds-of-mindfulness/"><u>Seeds of Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243718-9780999717943-social-presencing-theater/"><u>Social Presencing Theater | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243290-9781736856208-unlock-your-inner-self/"><u>Unlock Your Inner Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159965-9780062029126-dream-magic/"><u>Dream Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159962-9780063014923-journeying-through-the-invisible/"><u>Journeying Through the Invisible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211160886-9798989522217-life-and-life/"><u>Life and Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211160507-9782889702183-pratiquer-la-magie-blanche/"><u>Pratiquer la magie blanche | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211161031-9781801520966-the-secret-of-the-five-rites/"><u>The Secret of the Five Rites | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

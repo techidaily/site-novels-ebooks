@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2025-01-19T18:10:03.205Z
-updated: 2025-01-24T16:34:34.020Z
+date: 2025-01-26T05:58:52.080Z
+updated: 2025-02-02T00:04:56.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,15 +155,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210245469-9781098037888-church-advance-forward-boots-on-the-ground/"><u>Church Advance Forward, Boots on the Ground | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210245414-9781098057138-the-days-of-echoes-past/"><u>The Days of Echoes Past | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210245372-9781098063924-the-divine-body/"><u>The Divine Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210245347-9781098060978-the-five-stressors/"><u>The Five Stressors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210245445-9781098037093-the-making-of-a-prayer-princess/"><u>The Making of a Prayer Princess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210245437-9781098049225-voices-lost-spirit-found/"><u>Voices Lost, Spirit Found | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165210-9798989500406-aliens-are-with-us/"><u>Aliens Are With Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165297-9781925370379-crossing-the-bridge-to-animal-consciousness/"><u>Crossing the Bridge to Animal Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165224-9781961959002-karmic-astrology/"><u>Karmic Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165231-9798868931642-packing-up/"><u>Packing Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165256-9781922954633-the-other-side-of-the-looking-glass/"><u>The Other Side of the Looking Glass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211165281-9798985566772-the-willingness-muscle/"><u>The Willingness Muscle | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

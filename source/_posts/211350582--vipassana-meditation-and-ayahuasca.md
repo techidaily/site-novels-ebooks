@@ -1,7 +1,7 @@
 ---
 title: Vipassana Meditation and Ayahuasca | Free Book
-date: 2024-10-23T00:13:13.714Z
-updated: 2024-10-26T17:23:50.384Z
+date: 2025-01-28T23:39:59.477Z
+updated: 2025-02-01T16:39:36.173Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2883821c791dce0bb54b29baa1836e2cd560e20ee84707cd8bb21d69d038b89d.jpg
@@ -163,3 +163,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2883821c791dce0bb54b29baa1836e2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/211010311-9798988097938-amplify-infinite-potential-within/"><u>Amplify Infinite Potential Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010393-9780968676295-dying-to-live-learn-to-live-a-full-life-from-your-lived-experiences-learn-to-live-a-full-life-from-your-lived-experiences-learn-to-live-a-full-life-from-your-li/"><u>Dying to Live: Learn to Live a Full Life From Your Lived Experiences: Learn to Live A Full Life From Your Lived Experiences: Learn to Live a Full Life From Your Lived Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010333-9781088234891-frente-a-la-eternidad/"><u>Frente a la Eternidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010337-9781088257388-la-roca-de-los-amantes/"><u>LA ROCA DE LOS AMANTES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010384-9781088240625-le-vol-de-la-mouette/"><u>Le Vol De La Mouette | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010321-9780645666632-running-in-circles/"><u>Running In Circles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211010395-9781088244036-the-flight-of-the-seagull/"><u>The Flight of the Seagull | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-01-24T05:08:33.133Z
-updated: 2025-01-24T20:29:28.283Z
+date: 2025-01-29T03:21:44.056Z
+updated: 2025-02-01T23:52:32.010Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,18 +156,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210455935-9781638147473-dream-on/"><u>Dream On | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454558-9781774816660-eastern-stories-and-legends/"><u>Eastern Stories and Legends | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210456670-9780525508267-magic-days/"><u>Magic Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454824-9780525541110-rise-and-shine/"><u>Rise and Shine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210456659-9781797208169-the-moon-sign-guide/"><u>The Moon Sign Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210455516-9781638854524-the-upside-down-tree/"><u>The Upside-Down Tree | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210455152-9781872240503-the-way-more-spirit-from-the-well/"><u>The Way - More Spirit from the Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210455157-9781872240510-the-way-spirit-from-the-well/"><u>The Way - Spirit from the Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210456246-9798985341607-wisdom-beyond-what-you-know/"><u>Wisdom Beyond What You Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399977-9781763621534-brigitte/"><u>Brigitte | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399976-9781763621510-brigitte-between-the-cathedral-and-the-bar-a-spiritual-journey/"><u>Brigitte: Between the Cathedral and the Bar (A Spiritual Journey) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399938-9798330259335-hearing-and-heeding/"><u>Hearing and Heeding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211396870-9781528799294-possession-demoniacal-and-other/"><u>Possession - Demoniacal and Other | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211398899-9781960415196-rejected/"><u>Rejected | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399907-9781735221434-tarot-for-beginners/"><u>Tarot for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211399869-9798330261383-the-force-of-life/"><u>The Force of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211398898-9798330263066-trafico/"><u>Tráfico | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Rest Is Sacred | Free Book
-date: 2024-10-24T21:56:55.922Z
-updated: 2024-10-27T00:24:52.728Z
+date: 2025-01-27T17:24:50.104Z
+updated: 2025-02-02T07:22:29.617Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f8daf9d1944b21f8cf9006ad766039891add8356c9a0d5ea92558c5b65c4e98.jpg
@@ -144,3 +144,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f8daf9d1944b21f8cf9006ad766039
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932856-9781855843493-finding-the-greater-self/"><u>Finding the Greater Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932848-9781855842724-guardian-angels/"><u>Guardian Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932855-9781855844582-life-between-death-and-a-new-incarnation/"><u>Life Between Death And a New Incarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932854-9781855843387-michaelmas/"><u>Michaelmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932852-9781855844599-our-experiences-during-the-night-and-the-life-after-death/"><u>Our Experiences During The Night and The Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932850-9781905570478-seven-steps-to-eternity/"><u>Seven Steps to Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932847-9781855842847-sexuality-love-and-partnership/"><u>Sexuality, Love and Partnership | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932860-9781912230921-the-future-of-ahriman-and-the-awakening-of-souls/"><u>The Future of Ahriman and the Awakening of Souls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932863-9781855844315-transforming-the-soul-volume-2/"><u>Transforming The Soul: Volume 2 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

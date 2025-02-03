@@ -1,7 +1,7 @@
 ---
 title: Life Power and How to Use It | Free Book
-date: 2025-01-24T05:55:36.869Z
-updated: 2025-01-24T16:08:22.524Z
+date: 2025-01-31T01:00:05.315Z
+updated: 2025-02-01T23:16:59.140Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f8b0d68c30dc559a17ffd4ac5d1f54a86a.jpg
@@ -135,16 +135,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210302502-9781802868128-ama-il-tuo-corpo/"><u>AMA IL TUO CORPO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210302336-9781638374251-my-window-on-consciousness/"><u>My Window on Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210302559-9781788176460-runes-made-easy/"><u>Runes Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210302712-9781446358504-the-book-of-witches/"><u>The Book of Witches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210303110-9781647501563-the-fire-that-never-dies/"><u>The Fire That Never Dies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210302306-9782357288102-thrice-greatest-hermes/"><u>Thrice-Greatest Hermes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210302302-9782357288058-thrice-greatest-hermes-studies-in-hellenistic-theosophy-and-gnosis-volume-ii-sermons/"><u>Thrice-Greatest Hermes: Studies in Hellenistic Theosophy and Gnosis Volume II.- Sermons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249717-9781950921379-creepy-paranormal-stories/"><u>Creepy Paranormal Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249736-9780995850835-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249692-9781638128472-gods-paintbrush-at-dawn/"><u>God's Paintbrush at Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249681-9781088014301-mastering-your-mindset-the-journal-to-self-discovery/"><u>Mastering Your Mindset, The Journal to Self-Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211249616-9781951694944-the-encyclopedia-of-quantum-human-design/"><u>The Encyclopedia of Quantum Human Design | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

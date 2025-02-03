@@ -1,7 +1,7 @@
 ---
 title: L'astrologie des maîtres de l'Inde | Free Book
-date: 2024-10-19T20:04:54.932Z
-updated: 2024-10-26T17:15:14.424Z
+date: 2025-01-28T18:54:55.399Z
+updated: 2025-02-02T04:19:10.262Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e8ba755286f8c4b8e9860674db1b97b060b2a17cb713671e338daaf3c16cb7f.jpg
@@ -151,3 +151,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e8ba755286f8c4b8e9860674db1b97
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210762111-9781787838574-calm-af/"><u>Calm AF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762091-9781800073531-the-art-of-simple-living/"><u>The Art of Simple Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762104-9781800072541-the-secrets-of-fortune-telling/"><u>The Secrets of Fortune Telling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762109-9781800072572-the-secrets-of-spiritual-healing/"><u>The Secrets of Spiritual Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762075-9781800073296-you-can-totally-do-this/"><u>You Can Totally Do This | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

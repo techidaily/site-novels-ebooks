@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2025-01-18T02:52:32.889Z
-updated: 2025-01-24T21:19:12.841Z
+date: 2025-01-29T18:19:46.360Z
+updated: 2025-02-01T22:17:02.644Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,16 +219,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210345191-9781940837581-a-taste-of-india/"><u>A Taste of India | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210345130-9781940837604-blessings/"><u>Blessings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210345368-9781401965501-happy-days/"><u>Happy Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210345135-9781940837659-heroes-saints-and-yogis/"><u>Heroes, Saints, and Yogis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210344852-9781633412361-hoodoo-your-love/"><u>Hoodoo Your Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210345138-9781940837710-merging-with-the-infinite/"><u>Merging with the Infinite | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210345127-9781934532485-the-21-stages-of-meditation/"><u>The 21 Stages of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211277714-9798869289414-galactic-ganja-guide/"><u>Galactic Ganja Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211278185-9781667470450-le-divorce-est-il-une-decision-incontournable/"><u>Le divorce : est-il une décision incontournable ? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211277920-9781962581110-panic-to-peace/"><u>Panic to Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211278067-9781738377404-pineal-gland/"><u>Pineal Gland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211277720-9798888242995-rise-in-recovery/"><u>Rise in Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211277773-9798869237682-the-psychic-gourmets-guide-to-high-vibrational-eating/"><u>The Psychic Gourmet's Guide to High Vibrational Eating | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

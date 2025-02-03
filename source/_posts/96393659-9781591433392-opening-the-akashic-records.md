@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2025-01-23T21:54:47.765Z
-updated: 2025-01-25T05:25:52.548Z
+date: 2025-01-28T07:42:44.499Z
+updated: 2025-02-01T19:17:55.553Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -189,13 +189,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210551667-9798986204802-30-days-of-me/"><u>30 Days of Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551752-9781662452376-facing-reality/"><u>Facing Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551886-9781777306472-life-enhancement-secrets/"><u>Life Enhancement Secrets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551674-9798886808605-runes-of-the-mystic-stag/"><u>Runes of the Mystic Stag | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211473334--le-grand-livre-de-la-detox-emotionelle/"><u>Le grand livre de la détox emotionelle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211473385-9782385640118-revelez-votre-dharma/"><u>Révélez votre Dharma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211475845-9798987506233-the-wind-of-spoken-words/"><u>The Wind of Spoken Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211475075-9789948749684-klyl-mn-alshr-la-ydr/"><u>قليل من الشر لا يضر | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

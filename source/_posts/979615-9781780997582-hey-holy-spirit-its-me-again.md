@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2025-01-21T17:10:58.635Z
-updated: 2025-01-24T20:39:19.757Z
+date: 2025-01-30T19:35:11.217Z
+updated: 2025-02-02T08:02:49.109Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,16 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210220939-9781736617212-bad-father-good-father/"><u>Bad Father Good Father | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221021-9781506470689-breath-prayer-an-ancient-practice-for-the-everyday-sacred/"><u>Breath Prayer: An Ancient Practice for the Everyday Sacred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219658-9780895566386-floating-in-quiet-darkness/"><u>Floating in Quiet Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219828-9781460712764-in-plain-sight/"><u>In Plain Sight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210220619-9780593418352-lighting-the-wick/"><u>Lighting the Wick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219778-9789389253030-mahavir/"><u>Mahavir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210220930-9781643344591-pequenas-puertas-para-inmenso-pensar-en-recordar/"><u>Pequeñas Puertas Para Inmenso Pensar En Recordar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140235-9781088082669-awakening-the-souls-vibration/"><u>Awakening the Soul's Vibration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140333-9781988842042-druidism/"><u>Druidism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140243-9781958082768-here-and-hereafter/"><u>Here and Hereafter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140754-9781960466198-messages-from-the-mystical-cards/"><u>Messages from the Mystical Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140596-9781961064102-play/"><u>Play | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140580-9781960466150-the-future/"><u>The Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140741-9798989283613-the-recipe/"><u>The Recipe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211139877-9781642587494-walking-with-god/"><u>Walking with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140344-9781961364073-women-who-dream/"><u>Women Who Dream | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

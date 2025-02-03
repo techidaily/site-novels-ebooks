@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2025-01-22T23:08:08.014Z
-updated: 2025-01-24T23:03:59.733Z
+date: 2025-01-29T21:23:14.068Z
+updated: 2025-02-02T04:01:46.801Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -214,13 +214,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210547565-9781685177423-from-the-pit-to-the-gate/"><u>From the Pit to the Gate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210547578-9781685177768-spiritual-treatment-for-the-troubled-soul/"><u>Spiritual Treatment for the Troubled Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210547590-9781685175801-the-protectors-and-the-motorcyclists/"><u>The Protectors and the Motorcyclists | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210547577-9781639611591-wisdom-for-millennials-and-others/"><u>Wisdom for Millennials and Others | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465690--hedge-witch-the-art-of-hedge-riding/"><u>Hedge Witch & the Art of Hedge Riding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466459-9781684869077-in-the-beginning/"><u>IN THE BEGINNING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211466256-9798330434206-minding-less/"><u>Minding Less | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465993-9798330431304-nagual/"><u>NAGUAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211465805-9781646494071-past-lives-present-purpose/"><u>Past Lives & Present Purpose | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

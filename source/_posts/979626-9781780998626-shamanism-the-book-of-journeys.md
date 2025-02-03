@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2025-01-23T16:59:20.059Z
-updated: 2025-01-25T04:31:00.690Z
+date: 2025-01-28T22:38:25.883Z
+updated: 2025-02-02T04:29:34.698Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,18 +141,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210222917-9781910531518-alchemy/"><u>Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221023-9781506471204-dimming-the-day-evening-meditations-for-quiet-wonder/"><u>Dimming the Day: Evening Meditations for Quiet Wonder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221720-9781841815053-judy-halls-complete-crystal-workshop/"><u>Judy Hall's Complete Crystal Workshop | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221081-9781913590185-rosas-choice/"><u>Rosa's Choice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221776-9780757324178-say-yes-to-your-life/"><u>Say Yes to Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221722-9780753734735-the-angel-experience/"><u>The Angel Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221717-9780753734742-the-chakra-experience/"><u>The Chakra Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210222918-9781910531525-where-in-the-world/"><u>Where in the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210222447-9781473596641-you-are-powerful/"><u>You Are Powerful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140879-9781960466167-lenormand-tarot-deck-meaning/"><u>Lenormand Tarot Deck Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140846-9788797273937-love-in-the-5th-dimension/"><u>Love in the 5th Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140889-9781801520843-pragmatic-magical-thinking/"><u>Pragmatic Magical Thinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141753-9781591435211-rediscovering-turtle-island/"><u>Rediscovering Turtle Island | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141752--the-geoengineered-transhuman-2nd-ed/"><u>The Geoengineered Transhuman (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140891-9781801520898-the-homes-of-the-soul/"><u>The Homes of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141751-9781591434917-the-realized-light-of-the-twelve-dimensions/"><u>The Realized Light of the Twelve Dimensions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141750-9781591434894-the-ufo-paradox/"><u>The UFO Paradox | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

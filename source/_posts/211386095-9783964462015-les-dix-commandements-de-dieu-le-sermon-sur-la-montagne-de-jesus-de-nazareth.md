@@ -1,7 +1,7 @@
 ---
 title: Les Dix Commandements de Dieu & Le Sermon sur la Montagne de Jésus de Nazareth | Free Book
-date: 2024-10-26T05:48:22.308Z
-updated: 2024-10-26T19:41:54.185Z
+date: 2025-01-31T17:27:55.375Z
+updated: 2025-02-01T20:47:17.141Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c263b81269d78a3956ddde8abd9672043439eeed89f87cc7d8e99d033e0b80ab.jpg
@@ -178,3 +178,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c263b81269d78a3956ddde8abd96720
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210722305-9781958921067-ascension/"><u>Ascension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210721130-9798218102616-breaking-free-from-workbook/"><u>Breaking Free From... Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210722274-9781666623444-fireside-reading-of-the-prophet/"><u>Fireside Reading of The Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210722505-9781797224367-luminous-dreams/"><u>Luminous Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210721542-9781956198232-my-life-as-prayer/"><u>My Life As Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210722291-9781524886134-the-little-book-of-manifestation/"><u>The Little Book of Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210722427-9781685176044-the-little-things/"><u>The Little Things | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

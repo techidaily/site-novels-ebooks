@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2025-01-24T02:48:10.481Z
-updated: 2025-01-25T02:40:59.792Z
+date: 2025-01-31T19:15:38.805Z
+updated: 2025-02-02T01:25:42.238Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,16 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210286951-9781071599785-baralho-de-taro-visconti-sforza-para-recortar/"><u>Baralho de tarô Visconti-Sforza para recortar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210286970-9781071598375-charkas-para-todos/"><u>Charkas Para Todos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210286776-9781071599280-megan-en-de-rondreizende-show-van-radio-een/"><u>Megan en de Rondreizende Show van Radio Eén | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210286748-9781071596982-mujeres-les-amo/"><u>Mujeres... les amo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210286792-9781071598122-perfect-exactly-as-i-am/"><u>Perfect Exactly As I Am | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210286879-9781071599884-perfecta-exactamente-como-soy/"><u>Perfecta exactamente como soy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210286762-9781071597781-the-mystery-of-vibrated-prayer/"><u>The Mystery of Vibrated Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236152-9781737127901-awaken-to-ascension/"><u>Awaken to Ascension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236168-9781738282319-echoes-of-krishna/"><u>Echoes of Krishna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236222-9781998101689-effective-communication-in-relationships-marriage/"><u>Effective Communication In Relationships & Marriage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236159-9781739692339-egoist-effect/"><u>Egoist Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236234-9798869140395-habla-miguel/"><u>Habla Miguel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235971-9781963254020-once-again/"><u>Once Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235945-9781960861993-the-raptured-saints-and-the-left-behind/"><u>The Raptured Saints and the Left Behind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

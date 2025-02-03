@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2025-01-22T21:02:17.997Z
-updated: 2025-01-24T18:51:18.240Z
+date: 2025-01-31T20:09:17.871Z
+updated: 2025-02-02T04:09:23.309Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,17 +183,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210377647-9780980211146-answers-to-lifes-enduring-questions/"><u>Answers to Life's Enduring Questions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210376696-9781638851639-blessins-and-lessons/"><u>Blessins and Lessons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210377769-9781589239869-green-witch-magick/"><u>Green Witch Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210377832-9781638745068-my-covid-journey/"><u>My COVID Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210377814-9781098091583-positive-manifestation-and-self-healing/"><u>Positive Manifestation And Self Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210377810-9781098087289-rhymes-of-the-times/"><u>Rhymes of the Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210376306-9781638600527-soul-licensed/"><u>Soul Licensed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210377736-9781396320378-the-prophet/"><u>The Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211347294-9781454956075-a-glitch-in-the-matrix/"><u>A Glitch in the Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211347353-9798869369871-galactic-chronicles-book-one/"><u>Galactic Chronicles Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211347311-9798893810400-life-and-love/"><u>Life and Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211347335-9798990399303-the-calculus-of-life/"><u>The Calculus of Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

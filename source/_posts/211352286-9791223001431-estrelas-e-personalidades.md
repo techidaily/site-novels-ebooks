@@ -1,7 +1,7 @@
 ---
 title: Estrelas e Personalidades | Free Book
-date: 2024-10-22T02:40:00.085Z
-updated: 2024-10-26T21:10:22.428Z
+date: 2025-01-25T23:27:00.135Z
+updated: 2025-02-02T02:31:15.541Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a4f5876f34a572242c02dfb97cb02efb672559964131f3e4f33a61b47d139e0.jpg
@@ -139,3 +139,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a4f5876f34a572242c02dfb97cb02e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210964185-9781088222881-al-otro-lado-del-espejo/"><u>Al Otro lado del Espejo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210964157-9781761039287-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210964163-9781761039317-desarrollo-psiquico/"><u>Desarrollo psíquico | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210964000-9781636980812-the-secrets-of-immortality/"><u>The Secrets of Immortality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210964076-9781088212974-under-the-border/"><u>Under the Border | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210964005-9781636980898-your-positive-mindset-playbook/"><u>Your Positive Mindset Playbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210964071-9789394615120-zodiac-signs/"><u>Zodiac Signs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

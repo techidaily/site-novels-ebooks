@@ -1,7 +1,7 @@
 ---
 title: Embracing Release | Free Book
-date: 2024-10-21T16:59:56.279Z
-updated: 2024-10-26T21:25:14.606Z
+date: 2025-01-31T06:08:40.024Z
+updated: 2025-02-01T21:09:51.975Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1f26c75a83f84ef85935ba9d3c4c3ba32e3ae033403f9c08c1bcbf9f82f71212.jpg
@@ -132,3 +132,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1f26c75a83f84ef85935ba9d3c4c3ba
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761538-9781622036530-art-of-attention/"><u>Art of Attention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761528-9781622037940-encounters-with-power/"><u>Encounters with Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761545-9781649630599-how-to-be-loving-the-journal/"><u>How to Be Loving: The Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761541-9781622039043-leopard-warrior/"><u>Leopard Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761544-9781622039142-redvelations/"><u>Redvelations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761551-9781649630186-what-makes-us-human/"><u>What Makes Us Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761526-9781622037605-your-power-to-heal/"><u>Your Power to Heal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

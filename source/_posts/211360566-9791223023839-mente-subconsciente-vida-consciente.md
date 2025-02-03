@@ -1,7 +1,7 @@
 ---
 title: Mente Subconsciente, Vida Consciente | Free Book
-date: 2024-10-24T01:35:15.516Z
-updated: 2024-10-27T04:17:39.870Z
+date: 2025-01-29T16:07:47.730Z
+updated: 2025-02-01T23:45:07.551Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a78f065c85fd3a514d6f6fb0ef61988cdf351afbc1a7a87e7c747a551a237fd5.jpg
@@ -153,3 +153,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a78f065c85fd3a514d6f6fb0ef61988
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932953-9781855844445-good-and-evil-spirits/"><u>Good and Evil Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932947-9781855842946-knowledge-of-the-higher-worlds/"><u>Knowledge of the Higher Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932949-9781912992034-love-love-love/"><u>Love, Love, Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932956-9781855843110-the-fifth-gospel/"><u>The Fifth Gospel | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

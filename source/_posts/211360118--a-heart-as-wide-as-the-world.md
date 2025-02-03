@@ -1,7 +1,7 @@
 ---
 title: A Heart as Wide as the World | Free Book
-date: 2024-10-20T19:58:45.813Z
-updated: 2024-10-27T00:32:07.351Z
+date: 2025-01-29T18:23:07.289Z
+updated: 2025-02-02T06:07:28.350Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e94e61b89949b6248c4e3a42bae17b9808f1fdb588b70f8efe60a2c1b5d8049d.jpg
@@ -144,3 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e94e61b89949b6248c4e3a42bae17b9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932884-9781855842991-biography-freedom-and-destiny/"><u>Biography: Freedom and Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932880-9781855844926-good-health/"><u>Good Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932877-9781912992386-journeying-into-spirit-worlds/"><u>Journeying Into Spirit Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932883-9781855844377-karmic-relationships-volume-3/"><u>Karmic Relationships: Volume 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932876-9781855844353-karmic-relationships-volume-4/"><u>Karmic Relationships: Volume 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932875-9781855842939-on-meditation/"><u>On Meditation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

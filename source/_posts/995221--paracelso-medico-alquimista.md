@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2025-01-20T20:28:36.645Z
-updated: 2025-01-24T20:47:44.155Z
+date: 2025-01-28T17:08:31.230Z
+updated: 2025-02-02T03:01:20.549Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,14 +143,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210190799-9781777192174-ease-amidst-challenging-times/"><u>EASE Amidst Challenging Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210189705-9781722505479-harnassing-the-miraculous-power-of-a-definite-chief-aim/"><u>Harnassing the Miraculous Power of a Definite Chief Aim | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210190957-9780760369609-in-focus-shamanism/"><u>In Focus Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210191028-9781732165830-living-aligned/"><u>Living Aligned | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210191340-9789948348825-oiny-smytha-mrym/"><u>وإني سميتها مريم | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066188-9789359040059-irish-witchcraft-and-demonology/"><u>Irish Witchcraft and Demonology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066189-9789359043418-the-history-of-spiritualism-vol-ii/"><u>The History of Spiritualism, Vol. II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066207-9789359043692-the-voice-of-venus/"><u>The Voice of Venus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066202-9789359046563-through-the-gates-of-death/"><u>Through the Gates of Death | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

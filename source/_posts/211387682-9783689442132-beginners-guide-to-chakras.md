@@ -1,7 +1,7 @@
 ---
 title: BEGINNER'S GUIDE TO CHAKRAS | Free Book
-date: 2024-10-19T16:10:49.149Z
-updated: 2024-10-26T16:33:26.606Z
+date: 2025-01-26T18:50:50.650Z
+updated: 2025-02-01T21:20:13.302Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/683facab94e8408f11bcf4479cf644acbdaddde310e93a9d06416b2bc382f515.jpg
@@ -181,3 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/683facab94e8408f11bcf4479cf644a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210727501-9780760361177-meditation/"><u>Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727507-9781592338085-moon-power/"><u>Moon Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727512-9781610580502-the-best-meditations-on-the-planet/"><u>The Best Meditations on the Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727513-9781592337972-the-world-is-your-oracle/"><u>The World Is Your Oracle | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

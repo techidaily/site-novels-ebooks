@@ -1,7 +1,7 @@
 ---
 title: County Folk-Lore - Volume II - Examples of Printed Folk-Lore Concerning the North Riding of Yorkshire, York and the Ainsty | Free Book
-date: 2024-10-24T17:30:19.744Z
-updated: 2024-10-26T17:26:11.925Z
+date: 2025-01-27T17:41:56.084Z
+updated: 2025-02-02T06:43:13.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ce29dc588d9c59556d612222b5205e2dc9cc1664df6131562c89288d33a96e5.jpg
@@ -134,3 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ce29dc588d9c59556d612222b5205e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877181-9781601639714-grimoire-for-the-apprentice-wizard/"><u>Grimoire For The Apprentice Wizard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877178-9781609254278-the-book-of-black-magic/"><u>The Book of Black Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877171-9781609252915-the-demon-lover/"><u>The Demon Lover | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877176-9781609254018-the-history-of-magic/"><u>The History of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877175-9781609253936-the-luminaries/"><u>The Luminaries | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

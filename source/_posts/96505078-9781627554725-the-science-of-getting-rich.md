@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-01-23T02:26:23.656Z
-updated: 2025-01-24T22:31:29.770Z
+date: 2025-01-26T16:02:03.969Z
+updated: 2025-02-01T22:20:42.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,13 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210285248-9781087947334-a-curious-future-2nd-ed/"><u>A Curious Future (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210285483-9781098079086-shaking-like-a-leaf/"><u>Shaking Like a Leaf | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210285396-9781736884409-the-love-frequency/"><u>The Love Frequency | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210285395-9780648078739-whats-awakening-really-like/"><u>What's Awakening Really Like? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235312-9798218317188-activating-the-light-within-and-embracing-your-soul/"><u>Activating the Light Within and Embracing Your Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235662-9780997717457-after-the-afterlife/"><u>After the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235606-9789493359215-animal-symbolism-and-oracle-messages/"><u>Animal Symbolism and Oracle Messages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235695-9798869127082-confesiones-de-un-suicida/"><u>Confesiones de un Suicida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235653-9780645649598-intergenerational-blind-spots/"><u>Intergenerational Blind Spots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235147-9798869083982-la-abadia-de-los-benedictinos/"><u>La Abadía de los Benedictinos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235273-9781913768171-sigils-for-magic/"><u>Sigils For Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211235501-9798988180098-transmissions-of-earth-spirit-wisdom/"><u>Transmissions of Earth Spirit Wisdom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

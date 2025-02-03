@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2025-01-22T20:51:25.382Z
-updated: 2025-01-24T23:13:22.620Z
+date: 2025-01-27T20:13:40.037Z
+updated: 2025-02-01T23:40:40.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -173,17 +173,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210549786-9781958150917-aaron-hedges/"><u>Aaron Hedges | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210550033-9781945026966-angels/"><u>Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210549968-9781957990040-cheiros-memoirs/"><u>Cheiro's Memoirs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210549590-9781913618339-chinese-astrology/"><u>Chinese Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210549739-9781778070334-manifest-it/"><u>Manifest It! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210550491-9781667427621-ovnis-en-la-biblia/"><u>Ovnis en la Biblia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210549593-9781913618315-palmistry/"><u>Palmistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210549591-9781913618322-runes/"><u>Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211470855-9781839388637-akashic-records/"><u>Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211470866-9798330454129-breaking-free-from-samsara/"><u>Breaking Free from Samsara | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211471022-9781839388651-nde/"><u>NDE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211470867-9798330454174-superando-o-samsara/"><u>Superando o Samsara | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472516-9781763712928-the-hearts-compass/"><u>The Heart's Compass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211470309--the-philosophy-and-practice-of-polarity-magic/"><u>The Philosophy and Practice of Polarity Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472061--the-step-by-step-astrology-workbook/"><u>The Step-by-Step Astrology Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211472524-9798330450688-think-before-you-run/"><u>Think Before You Run | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211471101-9798991552219-your-higher-power/"><u>Your Higher Power | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Silence: Entering the Cosmic Sea of Consciousness: Journal of a Western Yogi | Free Book"
-date: 2024-10-22T19:39:43.933Z
-updated: 2024-10-26T20:51:03.918Z
+date: 2025-01-27T22:50:37.770Z
+updated: 2025-02-01T23:25:48.526Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9631081f38cd43100f936e570610e9ac84cdaf5f212528b2518968d2302b13b0.jpg
@@ -152,3 +152,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9631081f38cd43100f936e570610e9a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210742726-9781667447667-apprenez-a-mediter/"><u>Apprenez à méditer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742572-9781667447087-el-biorritmo/"><u>El Biorritmo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742334-9781000842487-exploring-spirituality-from-a-post-jungian-perspective/"><u>Exploring Spirituality from a Post-Jungian Perspective | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742647-9781667443645-fas-saibhir-agus-tu-ag-dul-isteach-sa-domhan-na-haoise-orga-le-trachtairi-meditation/"><u>Fás Saibhir agus tú ag Dul isteach sa Domhan na hAoise Órga (le Tráchtairí Meditation) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742498-9781667447414-lecons-du-monastere/"><u>Leçons du Monastère | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742655-9781667445168-megan-va-in-barca-a-vela/"><u>Megan va in barca a vela | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742719-9781667447391-recuperacao-e-prevencao-covid-19-e-outras-doencas/"><u>Recuperação e Prevenção: Covid-19 e outras Doenças | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210742625-9781667445342-recupero-e-prevenzione-covid-19-e-altre-malattie/"><u>Recupero e Prevenzione: Covid-19 e altre Malattie | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: De Tien Geboden van God & De Bergrede | Free Book
-date: 2024-10-23T21:15:12.398Z
-updated: 2024-10-26T18:02:59.525Z
+date: 2025-01-31T04:01:03.059Z
+updated: 2025-02-02T06:23:53.384Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f075c5310904b7f4f0bbf09a41b43771a6fe2493db7527a45a67ba7c5b6ef786.jpg
@@ -159,3 +159,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f075c5310904b7f4f0bbf09a41b4377
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210816443-9781644116661-alphabets-and-the-mystery-traditions/"><u>Alphabets and the Mystery Traditions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816449-9781644118351-dendera-temple-of-time/"><u>Dendera, Temple of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816441-9781644116487-fortuna/"><u>Fortuna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816437-9781591434627-giza-the-tesla-connection/"><u>Giza: The Tesla Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816447-9781644118047-living-wands-of-the-druids/"><u>Living Wands of the Druids | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816448-9781644118306-pleiadian-soul-healing/"><u>Pleiadian Soul Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816442-9781644116548-sacred-geometry-in-ancient-goddess-cultures/"><u>Sacred Geometry in Ancient Goddess Cultures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816445-9781644117453-the-hermetic-tree-of-life/"><u>The Hermetic Tree of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210816450-9781644118375-theurgy-theory-and-practice/"><u>Theurgy: Theory and Practice | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

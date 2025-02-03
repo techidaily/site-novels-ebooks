@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-01-23T20:14:50.168Z
-updated: 2025-01-24T22:31:56.622Z
+date: 2025-01-25T18:40:43.934Z
+updated: 2025-02-01T16:37:41.790Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac74de8a56a5100b4de522a0f979aca32845.jpg
@@ -264,14 +264,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/391cb1b1f2820bc7b1124939f470ac7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210313053-9780984002979-dialogues-with-yeshua-and-mary-magdalene/"><u>Dialogues with Yeshua and Mary Magdalene | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210313300-9781735338798-fire-in-the-sky/"><u>Fire in the Sky | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210313324-9781736616253-the-infallible-way/"><u>The Infallible Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210313196-9781087967288-what-is-consciousness/"><u>What Is Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210313223-9781087967172-what-is-para-consciousness/"><u>What Is Para-consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253758-9781998186044-empowering-the-modern-witch/"><u>EMPOWERING THE MODERN WITCH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253715-9781958997505-guia-de-iniciacion-a-la-meditacion-cristiana/"><u>GUÍA DE INICIACIÓN A LA MEDITACIÓN CRISTIANA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253776-9783988317063-kundalini-awakening/"><u>KUNDALINI AWAKENING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253660-9798988340331-the-cognative-fitness-workbook/"><u>The Cognative Fitness Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253779-9782384552344-the-magic-of-the-middle-ages/"><u>The Magic of the Middle Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253737-9798218279172-the-teachings-of-atlantis-secrets-of-the-cosmos/"><u>The Teachings Of Atlantis - Secrets of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253759-9783988317087-third-eye-awakening/"><u>THIRD EYE AWAKENING | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

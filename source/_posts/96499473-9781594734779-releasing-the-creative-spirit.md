@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2025-01-23T01:31:15.300Z
-updated: 2025-01-24T22:05:53.293Z
+date: 2025-01-25T19:41:34.349Z
+updated: 2025-02-01T19:19:09.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,18 +182,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210276847-9780998276540-ayahuasca-religions/"><u>Ayahuasca Religions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210277401-9781637301456-beyond-the-diploma/"><u>Beyond the Diploma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210277069-9781722526689-manifest-the-perfect-mate/"><u>Manifest the Perfect Mate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210276055-9781948626286-radical-loving/"><u>Radical Loving | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210276145-9781493044849-spooky-great-smokies/"><u>Spooky Great Smokies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210276146-9781493044887-spooky-massachusetts-2nd-ed/"><u>Spooky Massachusetts (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210275982-9781922456564-the-soul-warrior/"><u>The Soul Warrior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210277068-9781722526276-wake-up-and-live/"><u>Wake Up and Live! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210276437-9781401963125-you-are-more-than-you-think-you-are/"><u>You Are More Than You Think You Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219930-9781797226408-blame-the-stars/"><u>Blame the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219848-9781398845855-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211220129-9781977271068-on-becomeing-a-woman-of-wisdom/"><u>On Be(come)ing a Woman of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219703--spirits-come-from-water/"><u>Spirits Come from Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211220091-9781465484857-star-wars-be-more-yoda/"><u>Star Wars: Be More Yoda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211219594-9781837991129-the-little-book-of-numerology/"><u>The Little Book of Numerology | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

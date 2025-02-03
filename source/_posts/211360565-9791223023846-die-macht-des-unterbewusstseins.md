@@ -1,7 +1,7 @@
 ---
 title: Die Macht des Unterbewusstseins | Free Book
-date: 2024-10-20T21:48:51.757Z
-updated: 2024-10-26T18:40:21.577Z
+date: 2025-01-25T20:41:23.164Z
+updated: 2025-02-02T06:02:23.351Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5b5a58d0d1560660117fecbd71ab9afb12c2c17f74631317b28040b125855dd8.jpg
@@ -144,3 +144,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5b5a58d0d1560660117fecbd71ab9af
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932944-9781912230938-child-of-the-cosmos/"><u>Child of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932933-9781855844667-concerning-the-affinity-of-the-living-and-the-dead/"><u>Concerning The Affinity of The Living And The Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932942-9781912230600-demons-and-healing/"><u>Demons and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932934-9781855843103-manifestations-of-karma/"><u>Manifestations of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932938-9781912992133-nature-spirits-and-what-they-say/"><u>Nature Spirits and What They Say | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932939-9781855842809-strengthening-the-will/"><u>Strengthening the Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932946-9781912230945-the-three-meetings/"><u>The Three Meetings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932941-9781855844308-transforming-the-soul-volume-1/"><u>Transforming The Soul: Volume 1 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

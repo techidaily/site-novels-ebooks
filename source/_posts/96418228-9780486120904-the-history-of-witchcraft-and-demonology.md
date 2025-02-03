@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2025-01-19T01:36:00.414Z
-updated: 2025-01-24T23:33:46.817Z
+date: 2025-01-29T22:20:34.370Z
+updated: 2025-02-01T20:45:00.578Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,15 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210526334-9781636925059-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210526272-9781722527280-the-art-of-power/"><u>The Art of Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210526271-9781722527297-the-art-of-self-mastery/"><u>The Art of Self-Mastery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210526221-9781801520317-the-keys-to-the-temple/"><u>The Keys to the Temple | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210526222-9781801520355-the-occult-philosophy-workbook/"><u>The Occult Philosophy Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210526328-9781638813187-the-unrevealing-shadow-walker/"><u>The Unrevealing Shadow Walker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445919-9781963036053-247-flow/"><u>24/7 Flow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445799-9798330371075-66-dias-para-cambiar-su-vida/"><u>66 días para cambiar su vida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445689-9781839388477-antarctica-shocking-secrets/"><u>Antarctica: Shocking Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445908-9798330364985-dreaming-big/"><u>Dreaming Big | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445602-9798330365647-sous-les-mains-de-la-misericorde/"><u>Sous les Mains de la Miséricorde | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445543-9798330367054-the-art-of-mindfulness/"><u>The Art of Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211445693-9798330369416-the-mindful-parent/"><u>The Mindful Parent | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

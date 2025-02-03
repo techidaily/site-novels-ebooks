@@ -1,7 +1,7 @@
 ---
 title: Paranormal and Transcendental Experience | Free Book
-date: 2025-01-22T17:38:34.345Z
-updated: 2025-01-24T19:19:24.605Z
+date: 2025-01-28T19:39:24.637Z
+updated: 2025-02-02T01:04:36.617Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858be456feab2af71507ceb8cba5237ffe9a.jpg
@@ -138,18 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210529418-9781638747628-armed-with-god/"><u>Armed with God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210530959-9781612834849-freeing-the-captives/"><u>Freeing the Captives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529388-9781639039258-positives/"><u>Positives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529378-9781639610679-scattered-smothered-and-yet-covered-by-the-grace-of-god/"><u>Scattered, Smothered, and Yet Covered by the Grace of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210530288-9780998688732-tantra-iluminado/"><u>Tantra Iluminado | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210530786-9780645000641-the-colour-medicine-oracle-guidebook/"><u>The Colour Medicine Oracle Guidebook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529435-9781639035960-the-journey/"><u>The Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210529402-9781639617524-thy-will-be-done/"><u>Thy Will Be Done | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210530724-9781778142215-vedic-astrology-the-vedas/"><u>Vedic Astrology & The Vedas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448272-9798368815367-moon-man-4/"><u>Moon Man #4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448601-9798991070317-queen-of-the-nile/"><u>Queen of the Nile | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211448615-9780645830989-the-practicing-witch-diary-book-of-shadows-2025-northern-hemisphere/"><u>The Practicing Witch Diary - Book of Shadows - 2025 - Northern Hemisphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447816-9781763682818-the-practicing-witch-diary-book-of-shadows-2025-southern-hemisphere/"><u>The Practicing Witch Diary - Book of Shadows - 2025 - Southern Hemisphere | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211447817-9798330381081-enas-neos-tropos-ypar3hs/"><u>Ένας νέος τρόπος ύπαρξης | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

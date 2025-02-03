@@ -1,7 +1,7 @@
 ---
 title: Trust in the Future | Free Book
-date: 2024-10-26T03:46:50.348Z
-updated: 2024-10-27T01:23:01.604Z
+date: 2025-01-26T04:59:16.548Z
+updated: 2025-02-02T01:35:54.293Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/db040688307b93808db0864b8673998383ada2d7bf2692cd03d980f184052265.jpg
@@ -150,3 +150,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/db040688307b93808db0864b8673998
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210724576-9798885057325-calm-your-storms-and-move-your-mountains/"><u>Calm Your Storms and Move Your Mountains | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723652-9781733032933-creating-joy-and-harmony-volume-1/"><u>Creating Joy and Harmony - Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210724679-9781737421108-divine-mother-azna/"><u>Divine Mother Azna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723569-9781662480256-escaping-out-of-the-matrix/"><u>Escaping Out of the Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210725083-9781398472914-the-mirror-of-meditations/"><u>The Mirror of Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210723605-9798987406816-the-reality-of-free-will/"><u>The Reality of Free Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210724585-9780760378090-the-witchs-complete-guide-to-astrology/"><u>The Witch's Complete Guide to Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210725760-9798885406659-where-you-go-i-go/"><u>WHERE YOU GO, I GO | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

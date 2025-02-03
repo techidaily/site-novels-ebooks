@@ -1,7 +1,7 @@
 ---
 title: Mysteries, Prophecies, and the Hollow Earth | Free Book
-date: 2024-10-20T01:26:20.680Z
-updated: 2024-10-26T21:20:05.598Z
+date: 2025-01-27T04:01:45.889Z
+updated: 2025-02-01T18:29:13.583Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/522f7f21001c7757ebe6d058ea09853f136f25b14fa74985726b29bc2b74655a.jpg
@@ -205,3 +205,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/522f7f21001c7757ebe6d058ea09853
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210818890-9781956440461-all-night-all-day-life-death-angels/"><u>All Night, All Day: Life, Death & Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818880-9781685680190-jornada-para-a-autorrealizacao/"><u>Jornada para a Autorrealização | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210819543-9781685680114-leben-ohne-angst/"><u>Leben ohne Angst | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210819085-9781475862355-school-the-seedbed-of-society/"><u>School, The Seedbed of Society | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210819281-9781000863574-spiritual-healing-from-sexual-violence/"><u>Spiritual Healing from Sexual Violence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818892-9781578598229-the-afterlife-book/"><u>The Afterlife Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818840-9781915889973-the-mind-detective/"><u>The Mind Detective | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818827-9780646862965-your-happily-ever-after/"><u>Your Happily Ever After | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210818879-9780876129593-naputstviya-na-paramahansa-jogananda/"><u>Напътствия на Парамаханса Йогананда | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

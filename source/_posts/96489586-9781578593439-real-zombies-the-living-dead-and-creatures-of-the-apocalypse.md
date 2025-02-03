@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-19T21:43:39.337Z
-updated: 2025-01-25T05:21:11.628Z
+date: 2025-01-26T04:50:57.410Z
+updated: 2025-02-02T05:27:40.680Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,13 +236,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210347531-9782226388599-a-la-recherche-de-la-vie-interieure/"><u>A la recherche de la vie intérieure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210347520-9782226421968-de-lame/"><u>De l'âme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210347653-9782226422033-oser-lemerveillement/"><u>Oser l'émerveillement | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210347527-9782226423023-une-vie-simple/"><u>Une vie simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211310985--101-mindfulness-practices-to-ease-anxiety/"><u>101 Mindfulness Practices to Ease Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211310991--the-longevity-formula/"><u>The Longevity Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211310978-9781923009493-the-world-of-italian-folk-magic/"><u>The World of Italian Folk Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211311018--tough-love-tarot/"><u>Tough Love Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211311050--transforming-the-legacy/"><u>Transforming the Legacy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

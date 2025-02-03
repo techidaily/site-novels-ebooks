@@ -1,7 +1,7 @@
 ---
 title: Mindfulness Workbook For Anxiety | Free Book
-date: 2024-10-24T21:46:30.585Z
-updated: 2024-10-27T00:20:52.244Z
+date: 2025-01-30T20:52:03.976Z
+updated: 2025-02-01T23:48:01.446Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/72e47aeec6bbc0d40184e937f21aa787e4ef31afa2fe5364f2f02a4d5ebffcb4.jpg
@@ -225,3 +225,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/72e47aeec6bbc0d40184e937f21aa78
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210970387-9781088252000-despite-everything/"><u>DESPITE EVERYTHING... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970401-9781088252499-heart-impulses/"><u>Heart Impulses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970402-9781088251768-la-force-du-destin/"><u>La Force Du Destin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970354-9781088253144-memories-that-the-wind-brings/"><u>Memories that the wind brings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970358-9780645886504-the-aquarius-story/"><u>The Aquarius Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970352-9780645886566-the-libra-story/"><u>The Libra Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970368-9780645886597-the-scorpio-story/"><u>The Scorpio Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970361-9780645886603-the-taurus-story/"><u>The Taurus Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970391-9781088252369-until-life-set-them-apart/"><u>Until Life Set Them Apart | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

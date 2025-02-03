@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2025-01-22T05:16:42.177Z
-updated: 2025-01-24T19:26:18.949Z
+date: 2025-01-28T01:14:44.874Z
+updated: 2025-02-02T04:17:42.999Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,16 +147,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210476996-9780801888977-arcana-mundi-a-collection-of-ancient-texts/"><u>Arcana Mundi: A Collection of Ancient Texts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210476720-9781504074650-beyond-any-kind-of-god/"><u>Beyond Any Kind of God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210477048-9781421401171-investigating-the-supernatural/"><u>Investigating the Supernatural | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210476837-9781789044461-practically-pagan-an-alternative-guide-to-planet-friendly-living/"><u>Practically Pagan - An Alternative Guide to Planet Friendly Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210476842-9781803411385-the-celtic-wheel-of-the-year/"><u>The Celtic Wheel of the Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210476537-9781401970468-the-wisdom-of-the-council/"><u>The Wisdom of The Council | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210476839-9781789047905-the-witchs-book-of-simples/"><u>The Witch's Book of Simples | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211416270-9781684351275-a-guide-to-sky-monsters/"><u>A Guide to Sky Monsters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211414929-9798987674949-journey-to-true-self/"><u>Journey to True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211415123-9781964959078-russian-edition-treasures-of-darkness-volume-2/"><u>Russian Edition - Treasures of Darkness: Volume 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211415170-9781964959061-traversing-the-pathways/"><u>Traversing the Pathways | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

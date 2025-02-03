@@ -1,7 +1,7 @@
 ---
 title: Words from a Man of No Words | Free Book
-date: 2025-01-23T01:29:52.665Z
-updated: 2025-01-25T04:01:01.095Z
+date: 2025-01-28T02:48:41.172Z
+updated: 2025-02-01T20:16:20.025Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8922661ebb155d58a17f6829b124188229258714554edd73ea110ef11459446c.jpg
@@ -173,17 +173,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8922661ebb155d58a17f6829b124188
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210361759-9781761037214-celtic-mythology/"><u>Celtic Mythology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361742-9780578977508-mindfulness-and-mysticism/"><u>Mindfulness and Mysticism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361483-9780997717860-one-2nd-ed/"><u>ONE... (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361536-9780982339916-step-into-your-miracle-zone/"><u>Step Into Your Miracle Zone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361496-9781737540519-the-golden-remembrance/"><u>The Golden Remembrance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361665-9781911134596-the-magical-knowledge-trilogy/"><u>The Magical Knowledge Trilogy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361523-9781737435617-the-next-room/"><u>The Next Room | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210361694-9781910559666-walking-with-persephone/"><u>Walking with Persephone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211336047-9781964083018-on-butterflies-wings/"><u>On Butterflies' Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211336229-9781634244862-slaves-of-satan/"><u>Slaves of Satan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211337845-9781493069910-spooky-south-3rd-ed/"><u>Spooky South (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211337331-9798990439122-take-back-your-life/"><u>Take Back Your Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

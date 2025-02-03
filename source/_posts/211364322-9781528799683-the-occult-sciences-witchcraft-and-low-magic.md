@@ -1,7 +1,7 @@
 ---
 title: The Occult Sciences - Witchcraft and Low Magic | Free Book
-date: 2024-10-23T20:28:25.506Z
-updated: 2024-10-26T22:45:44.555Z
+date: 2025-01-31T20:53:25.849Z
+updated: 2025-02-01T18:34:12.697Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/55586b3eb141c6fdc215a56e31f47965f3ace705a4278c01b66a8306e8a0f090.jpg
@@ -128,3 +128,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/55586b3eb141c6fdc215a56e31f4796
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877283-9781612833996-color-therapy-plain-simple/"><u>Color Therapy Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877274-9781612832821-impossible-realities/"><u>Impossible Realities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877269-9781612833156-out-of-body-experiences/"><u>Out of Body Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877275-9781612833316-the-et-chronicles/"><u>The E.T. Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877266-9781612833231-the-future-is-yours/"><u>The Future Is Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877270-9781612833088-ufos-ets-and-alien-abductions/"><u>UFOs, ETs, and Alien Abductions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877271-9781612833293-unconventional-flying-objects/"><u>Unconventional Flying Objects | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

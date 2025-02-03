@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-01-22T06:08:50.311Z
-updated: 2025-01-25T03:59:26.262Z
+date: 2025-01-28T20:23:31.795Z
+updated: 2025-02-01T19:23:29.849Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,14 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210284652-9781913768126-living-witchcraft/"><u>Living WItchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210284654-9781735740102-self-empower-using-self-coaching-neuroadaptability-and-ayurveda/"><u>Self Empower: Using Self Coaching, Neuroadaptability, and Ayurveda | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210284682-9781774815014-the-initiates-of-the-flame/"><u>The Initiates of the Flame | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210284667-9780645120516-they-sent-me-forth/"><u>They Sent Me Forth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210284224-9781954676039-what-if-anything-is-out-there/"><u>What, If Anything, Is Out There? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211232925-9798888518595-a-journey-of-hope/"><u>A Journey of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234886-9798869109064-an-outline-of-occult-science/"><u>An Outline of Occult Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234323--in-love-and-trust/"><u>In Love and Trust | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234753-9798988642114-influence/"><u>Influence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234136-9780008696023-the-element-encyclopedia-of-5000-spells/"><u>The Element Encyclopedia of 5000 Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234325--the-evolution-of-consciousness/"><u>The Evolution of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234544-9781637843840-together-with-my-sisters-begin-again/"><u>Together With My Sisters: Begin Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211233012-9780975180136-updating-planetary-consciousness/"><u>Updating Planetary Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234885-9798869109231-44kq44kr44or44oi44k144kk44ko44oz44k544gu5qac6kab/"><u>オカルトサイエンスの概要 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

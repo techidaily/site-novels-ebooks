@@ -1,7 +1,7 @@
 ---
 title: Liberándote de... libro de ejercicio | Free Book
-date: 2024-10-25T21:16:42.958Z
-updated: 2024-10-26T20:55:02.843Z
+date: 2025-01-26T07:38:52.083Z
+updated: 2025-02-02T07:19:42.601Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f222cca95a326daedea762b70b4d56c83e2eec6a81895d89a5f5f738c6b7e8a5.jpg
@@ -197,3 +197,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f222cca95a326daedea762b70b4d56c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210822908-9781088118030-four-citadels-the-key-of-twelve/"><u>FOUR CITADELS & THE KEY OF TWELVE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823607-9781394208609-knowledge-and-ideation/"><u>Knowledge and Ideation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823529-9783988263049-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-rites-and-ist-mysteries/"><u>The History of Magic Including a Clear and Precise Exposition of its Rites and ist Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210823670-9781399807371-the-knight-waite-tarot-guidebook/"><u>The Knight-Waite Tarot Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822954-9781960466051-budushee/"><u>Будущее | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

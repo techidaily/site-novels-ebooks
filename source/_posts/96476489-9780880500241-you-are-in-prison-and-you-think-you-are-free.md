@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2025-01-23T03:54:48.158Z
-updated: 2025-01-24T21:19:39.927Z
+date: 2025-01-28T17:04:01.268Z
+updated: 2025-02-02T01:49:32.254Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,17 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210428922-9781683488057-babaji/"><u>BABAJI | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428228-9780645206432-believing-in-me/"><u>believing in ME | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428200-9781956216042-born-giving-birth-to-a-new-you/"><u>Born Giving Birth to a New You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428916-9781662447952-quotes-the-famous-and-not-so-famous/"><u>Quotes: The Famous and Not so Famous | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210428766-9780762474288-the-night-school/"><u>The Night School | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210427372-9781913768256-the-roman-calendar/"><u>The Roman Calendar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210427203-9781088016381-two-near-death-experiences/"><u>Two Near-Death Experiences | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210429008-9781913816445-ways-of-the-soul/"><u>Ways of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383047-9798330230761-27/"><u> "27 " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383014-9798330229857-5/"><u>如何解读上帝的声音 - 5 种方法 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383049-9781957811048-discourses-volume-4-2017/"><u>Discourses Volume 4, 2017 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211382985-9783964465405-lame-sur-son-chemin-jusqua-la-perfection/"><u>L'âme sur son chemin jusqu'à la perfection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211382986-9783964461285-la-vie-que-jai-moi-meme-choisie/"><u>La vie que j'ai moi-même choisie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211382993-9798888244012-shaking-in-the-forest/"><u>Shaking In The Forest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211382748-9781957811123-silence-entering-the-cosmic-sea-of-consciousness-journal-of-a-western-yogi/"><u>Silence: Entering the Cosmic Sea of Consciousness: Journal of a Western Yogi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383019-9781950460472-sorry-not-sorry/"><u>Sorry, Not Sorry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383013-9798330229871-iishavara-ka-aavaza-ka-kasa-samajha-5-taraka/"><u>ईश्वर की आवाज़ को कैसे समझें - 5 तरीके | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

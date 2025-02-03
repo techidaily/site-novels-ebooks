@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2025-01-23T06:10:40.390Z
-updated: 2025-01-25T04:13:10.542Z
+date: 2025-01-28T05:06:10.054Z
+updated: 2025-02-01T22:42:51.176Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,15 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210290864-9781645690481-endurance-race-of-life-and-addiction/"><u>Endurance Race of Life and Addiction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210290638-9781801345880-guided-meditations-for-deep-sleep/"><u>Guided Meditations For Deep Sleep | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210290878-9781098044190-i-stuff-my-braso-what/"><u>I Stuff My Bra...So What? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210290940-9781644920350-im-not-a-hypocrite-im-human/"><u>I'm Not a Hypocrite I'm Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210290847-9781098011635-identity-in-christ/"><u>Identity in Christ | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210290849-9781098017040-will-there-be-chocolate-in-heaven/"><u>Will There Be Chocolate in Heaven? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237015-9798869163769-luz-que-consuela-a-los-afligidos/"><u>Luz que consuela a los afligidos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236829-9798890914446-soul-licensed/"><u>Soul Licensed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237022-9780975640302-the-book-about-a-book/"><u>The Book about a Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236870-9783892017677-the-free-spirit-god-in-us/"><u>The Free Spirit - God in Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237019-9783892017639-the-path-of-forgetting/"><u>The Path of Forgetting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211237049-9798890419200-the-pathway-to-healing-is-painful/"><u>The Pathway to Healing Is Painful | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Win the Battle Against Procrastination | Free Book
-date: 2024-10-22T20:35:37.447Z
-updated: 2024-10-26T21:36:36.428Z
+date: 2025-01-29T06:20:49.581Z
+updated: 2025-02-02T05:32:03.794Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/477b55b986a43835a0f95613976252324e7c348277e5cd7f69829f7ce44080b0.jpg
@@ -238,3 +238,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/477b55b986a43835a0f956139762523
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210930406-9780717165964-between-death-and-life-conversations-with-a-spirit/"><u>Between Death and Life – Conversations with a Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930296-9781841815664-how-to-manifest-anything/"><u>How to Manifest Anything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930172-9780717179152-michael-murphys-book-of-dreams/"><u>Michael Murphy's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930444-9780717184392-mind-body-soul-journal/"><u>Mind, Body, Soul Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930329-9780717151776-the-courage-to-be-happy/"><u>The Courage to Be Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931708-9780859658652-the-handbook-of-palmistry/"><u>The Handbook of Palmistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930166-9780717181230-the-source/"><u>The Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210931284-9780719822155-way-into-faerie/"><u>Way into Faerie | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

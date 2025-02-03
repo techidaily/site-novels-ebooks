@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2025-01-21T19:38:45.450Z
-updated: 2025-01-25T03:02:20.245Z
+date: 2025-01-30T05:30:02.975Z
+updated: 2025-02-01T16:29:59.530Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,17 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210295108-9781644581933-coming-out-of-darkness/"><u>Coming Out of Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210294996-9781642995336-dispensing-truth/"><u>Dispensing Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210295208-9781642998115-fourteen-days-to-light-hope-and-healing/"><u>Fourteen Days To Light, Hope, and Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210295286-9781644580509-healing-from-the-heart/"><u>Healing From the Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210295318-9781642582642-life-changing-tidbits/"><u>Life Changing Tidbits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210295360-9781644584514-metamorphyx/"><u>Metamorphyx | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210295164-9781635254600-ptsd-raw-and-real-a-reason-for-hope-and-motivation-to-fight-on/"><u>PTSD Raw and Real: A Reason for Hope and Motivation To Fight On | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210295370-9781645155621-push/"><u>PUSH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240976--alchemy-of-nine-dimensions-3rd-ed/"><u>Alchemy of Nine Dimensions (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241246--ancient-goddess-magic/"><u>Ancient Goddess Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240974-9781591435327-living-your-best-5d-life/"><u>Living Your Best 5D Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241250-9781644118498-meetings-with-remarkable-magicians/"><u>Meetings with Remarkable Magicians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240973--nothing-in-this-book-is-true-but-its-exactly-how-things-are-5th-ed/"><u>Nothing in This Book Is True, But It's Exactly How Things Are (5th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211240975--seeding-consciousness/"><u>Seeding Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241247-9781644116760-the-beginners-guide-to-crystal-healing-2nd-ed/"><u>The Beginner's Guide to Crystal Healing (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

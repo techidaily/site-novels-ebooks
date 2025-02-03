@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2025-01-20T22:38:33.992Z
-updated: 2025-01-25T02:32:13.228Z
+date: 2025-01-28T23:49:57.123Z
+updated: 2025-02-01T22:50:58.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,16 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210418714-9780578327662-bigger-than-the-sky/"><u>Bigger Than the Sky | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210420385-9781401968205-dream-guidance/"><u>Dream Guidance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210420398-9781623177096-hoodoo-for-everyone/"><u>Hoodoo for Everyone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418581-9781951879037-notes-from-the-second-dimension/"><u>Notes from the Second Dimension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2104195-9781936012336-realizing-soul/"><u>Realizing Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418609-9781956896282-the-game-of-lovelife/"><u>The Game of Love/Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210418676-9781953555205-you-are-more/"><u>You Are More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375522-9780062018397-cloud-nine/"><u>Cloud Nine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375470-9780062906892-life-is-gods-best-gift/"><u>Life Is God's Best Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375457-9780062913357-madame-clairevoyants-guide-to-the-stars/"><u>Madame Clairevoyant's Guide to the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375385-9781800652453-mindful-homes/"><u>Mindful Homes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375438-9780061748950-papal-magic/"><u>Papal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375465-9780061741890-the-dark-sacrament/"><u>The Dark Sacrament | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375609-9780061874697-the-first-30-days/"><u>The First 30 Days | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

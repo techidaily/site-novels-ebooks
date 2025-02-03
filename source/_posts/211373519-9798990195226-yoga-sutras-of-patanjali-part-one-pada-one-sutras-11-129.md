@@ -1,7 +1,7 @@
 ---
 title: Yoga Sutras of Patanjali Part One, Pada One Sutras 1.1 - 1.29 | Free Book
-date: 2024-10-20T03:05:28.616Z
-updated: 2024-10-27T00:11:15.586Z
+date: 2025-02-01T02:56:21.322Z
+updated: 2025-02-02T00:16:46.187Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1cf2e2ff9e6bbb0e71f285ad33ae18436ca9bf0ff1f7543c7b534acde2986e31.jpg
@@ -158,3 +158,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1cf2e2ff9e6bbb0e71f285ad33ae184
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210822430-9798218162627-the-power-of-perspective-and-the-gift-of-gratitude/"><u>The Power of Perspective and the Gift of Gratitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821954-9798987771112-the-ruby-heart-of-the-dragon/"><u>The Ruby Heart of the Dragon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822246-9781638146544-the-worth-of-a-soul/"><u>The Worth of a Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210822443-9798886857399-what-are-your-hands-doing/"><u>What Are Your Hands Doing? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210821955-9798988097914-your-divine-power-within/"><u>Your Divine Power Within | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

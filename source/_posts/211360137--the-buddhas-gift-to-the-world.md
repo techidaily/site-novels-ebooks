@@ -1,7 +1,7 @@
 ---
 title: The Buddha's Gift to the World | Free Book
-date: 2024-10-25T22:23:53.043Z
-updated: 2024-10-26T20:07:28.656Z
+date: 2025-01-31T16:24:56.699Z
+updated: 2025-02-02T07:03:07.337Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e1470d860f868fd39a18465dd2a80fde8c952711f199744d8115b1c8fa912f2.jpg
@@ -153,3 +153,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e1470d860f868fd39a18465dd2a80f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210932894-9781855844803-cosmic-christianity-and-the-impulse-of-michael/"><u>Cosmic Christianity and the Impulse of Michael | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932886-9781855844360-karmic-relationships-volume-1/"><u>Karmic Relationships: Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932890-9781912230587-the-coronavirus-pandemic/"><u>The Coronavirus Pandemic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932888-9781855844254-the-interior-of-the-earth/"><u>The Interior of the Earth | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

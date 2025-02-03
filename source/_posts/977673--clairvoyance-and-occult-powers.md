@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2025-01-19T04:56:12.578Z
-updated: 2025-01-25T03:05:20.561Z
+date: 2025-01-25T23:43:51.670Z
+updated: 2025-02-01T16:10:58.333Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,18 +133,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210210403-9781777318949-2021-year-of-tarot/"><u>2021 Year of Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210284-9781647866617-a-quantum-healing-expression/"><u>A Quantum Healing Expression | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209538-9781582708003-miracles-and-other-realities/"><u>Miracles and Other Realities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209405-9781071581094-passe-backstage-para-o-outro-lado/"><u>Passe Backstage Para O Outro Lado | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210661-9781722526078-romancing-the-soul/"><u>Romancing the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209539-9781582708379-stop-fixing-yourself/"><u>Stop Fixing Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210651-9781722526122-the-power-of-your-transcendental-mind-condensed-classics/"><u>The Power of Your Transcendental Mind (Condensed Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210656-9781722526719-the-secret-formula/"><u>The Secret Formula | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210663-9781722526696-think-and-grow-rich-and-the-richest-man-in-babylon-with-study-guides/"><u>Think and Grow Rich and The Richest Man in Babylon with Study Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130896-9782385640231-entrez-dans-lere-du-verseau/"><u>Entrez dans l'ère du Verseau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130890-9782385640217-karma-mode-demploi-karmatherapie/"><u>Karma, mode d'emploi (karmathérapie...) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131650-9781454952459-metaphysical-af/"><u>Metaphysical AF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130950-9782355992728-n-73-le-cantique-des-cantiques-rituel-initiatique/"><u>N. 73 Le cantique des cantiques, rituel initiatique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130948-9782355992674-n69-les-lieux-initiatiques-de-la-maitrise/"><u>N.69 Les lieux initiatiques de la maîtrise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130944-9782355992704-n71-les-dix-offices-de-la-loge-et-lhomme-univers/"><u>N.71 Les dix offices de la loge et l'homme univers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130954-9782355992735-n72-le-grand-maitre-architecte-la-maitrise-de-letui-de-mathematiques/"><u>N.72 Le grand maître architecte, la maîtrise de l'étui de mathématiques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131713-9798889265160-the-7-secrets-to-creating-a-life-you-love/"><u>The 7 Secrets to Creating a Life You Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211131618-9781837963034-when-therapy-doesnt-work/"><u>When Therapy Doesn't Work | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

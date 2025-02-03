@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2025-01-21T02:38:56.065Z
-updated: 2025-01-24T18:22:04.985Z
+date: 2025-01-27T16:17:30.527Z
+updated: 2025-02-02T07:40:14.586Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,13 +160,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210454551-9781761037627-divination/"><u>Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454552-9781761039959-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454550-9781761037597-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210454484-9781953474049-the-voice-of-eros-illustrated/"><u>The Voice of Eros (Illustrated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211395255--magic-memory-and-natural-philosophy-in-the-sixteenth-and-seventeenth-centuries/"><u>Magic, Memory and Natural Philosophy in the Sixteenth and Seventeenth Centuries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211396865-9781528799355-palmistry-a-manual-of-cheirosophy/"><u>Palmistry - A Manual of Cheirosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211394169-9781507301135-the-numbers-of-your-life/"><u>The Numbers of Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211396866-9781528799843-the-physical-phenomena-of-mysticism-with-especial-reference-to-the-stigmata-divine-and-diabolic/"><u>The Physical Phenomena of Mysticism - With Especial Reference to the Stigmata, Divine and Diabolic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

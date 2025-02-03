@@ -1,7 +1,7 @@
 ---
 title: The Witch of the Forest's Guide to Folklore Magick | Free Book
-date: 2024-10-20T16:19:43.347Z
-updated: 2024-10-26T17:13:37.113Z
+date: 2025-02-01T06:25:28.764Z
+updated: 2025-02-02T04:44:31.995Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d778e7d2717544c3e7fc672ec498db8cc8b2ccc4895c99a276f31d5b4c4a1997.jpg
@@ -164,3 +164,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d778e7d2717544c3e7fc672ec498db8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761772-9781649631350-a-year-in-practice/"><u>A Year in Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761774-9781591798798-eyes-wide-open/"><u>Eyes Wide Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761770-9781591798361-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761781-9781622034680-tending-the-heart-fire/"><u>Tending the Heart Fire | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

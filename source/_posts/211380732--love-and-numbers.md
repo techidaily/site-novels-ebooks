@@ -1,7 +1,7 @@
 ---
 title: Love and Numbers | Free Book
-date: 2024-10-20T03:22:55.829Z
-updated: 2024-10-26T16:38:54.686Z
+date: 2025-01-30T19:40:43.132Z
+updated: 2025-02-01T22:19:00.627Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9029cfb57dd4e4cec51657ce804cbe1bb6974744f08f04b3577475c8f4722bcc.jpg
@@ -144,3 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9029cfb57dd4e4cec51657ce804cbe1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210774011-9781959811053-claim-your-light-unlock-your-capacity-to-become-a-more-vibrant-and-authentic-person/"><u>Claim Your Light: : Unlock Your Capacity to Become a More Vibrant and Authentic Person | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210774072-9780834845046-good-fengshui/"><u>Good Fengshui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210775788-9798889130437-mindfulness-unlock-the-power-of-presence-and-achieve-inner-peace-with-the-ultimate-guide-to-mindfulness/"><u>Mindfulness: Unlock the Power of Presence and Achieve Inner Peace with the Ultimate Guide to Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210775789-9798889130451-positive-psychology-unlock-the-power-of-positive-thinking-and-enhance-your-life-with-the-proven-techniques-of-positive-psychology/"><u>Positive Psychology: Unlock the Power of Positive Thinking and Enhance Your Life with the Proven Techniques of Positive Psychology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

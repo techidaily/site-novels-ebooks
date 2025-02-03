@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2025-01-20T00:58:38.233Z
-updated: 2025-01-25T02:11:12.621Z
+date: 2025-01-30T22:49:32.486Z
+updated: 2025-02-01T23:53:16.469Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,17 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210262871-9781952491108-awaken-to-unconditional-love/"><u>Awaken to Unconditional Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210263145-9781631953859-beyond-the-pale/"><u>Beyond the Pale | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210260817-9781801349901-energy-healing-for-beginners/"><u>Energy Healing for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210264697-9781642280623-i-am-here/"><u>I Am Here | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210261012-9781528767668-is-spiritualism-based-on-fraud-the-evidence-given-by-sir-a-c-doyle-and-others-drastically-examined/"><u>Is Spiritualism Based on Fraud? - The Evidence Given by Sir A. C. Doyle and Others Drastically Examined | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210264334-9781594336751-lil-girls/"><u>Lil’ Girls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210260815-9781801346993-practical-numerology-amp-astrology-for-beginners/"><u>Practical Numerology &amp; Astrology For Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210260816-9781801349574-third-eye-kundalini-amp-sexuality-awakening-for-beginners/"><u>Third Eye, Kundalini &amp; Sexuality Awakening for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211180265-9798887755045-10-words/"><u>10 Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211180329-9798869087898-almas-en-llamas/"><u>Almas en Llamas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211180370-9798989632220-fear-less-love-more/"><u>FEAR LESS, LOVE MORE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211180345-9798218311452-harmony-of-my-soul/"><u>Harmony of My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211180368-9798218341862-life-in-a-week/"><u>Life in a Week | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211180328-9798869089427-overcoming-adversity/"><u>Overcoming Adversity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211179143-9798218264529-solving-the-mystery-of-you/"><u>Solving the Mystery of You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211180365-9798869089311-the-death-of-the-planet/"><u>The Death of the Planet | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

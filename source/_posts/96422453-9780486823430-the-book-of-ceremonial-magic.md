@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2025-01-22T02:10:59.403Z
-updated: 2025-01-24T22:39:56.246Z
+date: 2025-01-31T05:12:13.523Z
+updated: 2025-02-01T21:58:27.416Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,15 +161,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210533598-9781398814516-cancer/"><u>Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533596-9781398814561-capricorn/"><u>Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533597-9781398814530-libra/"><u>Libra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533595-9781398814554-sagittarius/"><u>Sagittarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533594-9781398814547-scorpio/"><u>Scorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210533600-9781398814523-virgo/"><u>Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455298-9798330398249-hackear-el-universo/"><u>Hackear el Universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455288-9798330398164-hackear-o-universo/"><u>Hackear o Universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455291-9798330398102-hacking-the-universe/"><u>Hacking the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455300-9798330398270-manipulati-universul/"><u>Manipulați Universul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455278-9798330397822-secretele-maestrului-alchimist/"><u>Secretele maestrului alchimist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455277-9798330397761-secretos-del-maestro-alquimista/"><u>Secretos del Maestro Alquimista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455490-9798218506162-transformative-declarations/"><u>Transformative Declarations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211455301-9798330398300-piratepse-to-sympan/"><u>Πιράτεψε το Σύμπαν | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2025-01-21T16:09:48.743Z
-updated: 2025-01-24T20:36:41.354Z
+date: 2025-02-01T01:22:17.444Z
+updated: 2025-02-02T03:39:35.353Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,18 +170,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210402704-9781789048438-conform-or-be-cast-out/"><u>Conform or Be Cast Out | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210404465-9781662432354-from-darkness-to-light/"><u>From Darkness to Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210404440-9798985030716-innocent-again/"><u>Innocent Again | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210404357-9780799356953-my-pad-met-engele/"><u>My pad met engele | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210403945-9780711266841-natural-magick/"><u>Natural Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210402715-9781782790556-pagan-portals-the-triple-goddess/"><u>Pagan Portals - The Triple Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210404136-9798985059915-portrait-of-my-soul/"><u>Portrait Of My Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210404229-9781735740140-quantum-golf-2nd-edition/"><u>Quantum Golf 2nd Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210404438-9781396318450-the-unknown-life-of-jesus-christ/"><u>The Unknown Life of Jesus Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364446-9798330205745-5ywz5lqo5asp5acc44cb5zyw54ux5zkm6bur5pqx546l5zu955qe55yf5a6e5pwf5lqliowcqoakuatus9kmqjos4rea4uoiniowkqewgguwsjowcsoelsewqjuankoi1oos6hg/"><u>关于天堂、地狱和黑暗王国的真实故事 在濒死体验中游览天堂和地狱后捐赠了 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364318-9781528799560-county-folk-lore-volume-v-examples-of-printed-folk-lore-concerning-lincolnshire/"><u>County Folk-Lore - Volume V - Examples of Printed Folk-Lore Concerning Lincolnshire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364445-9798330204335-mondschein-anfange/"><u>Mondschein-Anfänge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364377-9798869396860-spellbound-mastering-modern-satanism-witchcraft-rituals-explore-the-depths-of-occult-practices-with-this-comprehensive-guide-to-modern-rituals-and-spells-in-sat/"><u>Spellbound: Mastering Modern Satanism & Witchcraft Rituals - Explore the depths of occult practices with this comprehensive guide to modern rituals and spells in Satanism and witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364388-9781763566132-tarot-tells/"><u>Tarot Tells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364316-9781528799393-the-healing-hand/"><u>The Healing Hand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364322-9781528799683-the-occult-sciences-witchcraft-and-low-magic/"><u>The Occult Sciences - Witchcraft and Low Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211364319-9781528799850-witchcraft-and-black-magic/"><u>Witchcraft and Black Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: La vie que j'ai moi-même choisie | Free Book
-date: 2024-10-20T02:28:19.243Z
-updated: 2024-10-26T19:28:38.483Z
+date: 2025-01-31T23:46:44.215Z
+updated: 2025-02-01T18:07:53.300Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7f7d9a1f6f20c4352d94df785a81314fce2bea5887ca13a50cae74261347a3a4.jpg
@@ -145,3 +145,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7f7d9a1f6f20c4352d94df785a81314
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210745576-9781088082430-morning-manna/"><u>Morning Manna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746671-9780593581377-remember-love/"><u>Remember Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746086-9798885044820-the-intuition-experiment/"><u>The Intuition Experiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210745628-9798987229217-what-you-want-wants-you/"><u>What You Want Wants You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210745597-9781088085035-you-have-another-you/"><u>You Have Another You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746483-9781634243414-youre-not-alone/"><u>You’re Not Alone | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Soul Making | Free Book
-date: 2024-10-25T02:35:31.847Z
-updated: 2024-10-26T17:46:50.220Z
+date: 2025-02-01T00:15:02.653Z
+updated: 2025-02-02T01:02:26.034Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f6513c632631f36b07b2c80c0a5598f6d8081578781622da5e218b41525b90b.jpg
@@ -155,3 +155,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f6513c632631f36b07b2c80c0a5598
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210974318-9798987211410-a-second-act-in-life/"><u>A Second Act in Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974314-9798888328545-finished/"><u>Finished | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974021-9781606390825-glacier-ghost-stories/"><u>Glacier Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974017-9781606390818-haunted-montana/"><u>Haunted Montana | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

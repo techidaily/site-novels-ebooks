@@ -1,7 +1,7 @@
 ---
 title: Mindful Moments | Free Book
-date: 2024-10-22T23:56:46.922Z
-updated: 2024-10-26T22:06:43.670Z
+date: 2025-01-30T03:23:06.368Z
+updated: 2025-02-01T23:02:00.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c9b60192b68811fd558ab02563ee9fac6ed983dc427a837f730bb5a5ed5441ea.jpg
@@ -148,3 +148,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c9b60192b68811fd558ab02563ee9fa
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210933006-9781912992355-creating-gaia-culture/"><u>Creating Gaia Culture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933007-9781915776006-encounters-with-vidar/"><u>Encounters with Vidar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933012-9781855844643-human-beings-experiences-beyond-the-gates-of-death/"><u>Human Being's Experiences Beyond The Gates of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933005-9781912992232-knowledge-of-spirit-worlds-and-life-after-death/"><u>Knowledge of Spirit Worlds and Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933002--the-etheric/"><u>The Etheric | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933004-9781912230624-the-etheric/"><u>The Etheric | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210933119--the-stupendous-story-of-us/"><u>The Stupendous Story of Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

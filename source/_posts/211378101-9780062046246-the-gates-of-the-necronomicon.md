@@ -1,7 +1,7 @@
 ---
 title: The Gates of the Necronomicon | Free Book
-date: 2024-10-26T01:52:34.128Z
-updated: 2024-10-27T03:30:33.817Z
+date: 2025-01-26T05:43:35.530Z
+updated: 2025-02-02T02:24:36.071Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd56d85aff2769ac0a2c3d563ca4811f33edc12f9edc56e1181581e908c68ffa.jpg
@@ -172,3 +172,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd56d85aff2769ac0a2c3d563ca4811
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210772869-9781649698490-a-difference-of-ability/"><u>A Difference of Ability | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772866-9781922439642-extra-ordinary/"><u>Extra Ordinary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772871-9781649691262-on-love-life-pain/"><u>On Love, Life & Pain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772858-9781649699800-what-if/"><u>WHAT IF | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

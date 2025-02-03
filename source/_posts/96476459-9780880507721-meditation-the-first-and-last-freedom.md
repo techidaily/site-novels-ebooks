@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2025-01-21T04:05:12.796Z
-updated: 2025-01-25T00:39:23.481Z
+date: 2025-01-26T01:48:03.247Z
+updated: 2025-02-01T23:46:30.386Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,16 +175,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210411313-9781722526986-awakened-imagination/"><u>Awakened Imagination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411363-9781761037429-chakras/"><u>Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411367-9781761037450-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411370-9780645348514-light-ways/"><u>Light Ways | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411315-9781722526993-seedtime-and-harvest/"><u>Seedtime and Harvest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411314-9781722527006-the-law-and-the-promise/"><u>The Law and the Promise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411312-9781722526979-the-power-of-awareness/"><u>The Power of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372484-9781921878848-crystals/"><u>Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372489-9781922579188-mediumship/"><u>Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372454-9781921295898-numerology-for-your-family/"><u>Numerology for Your Family | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372490-9781922579805-teen-magick/"><u>TEEN MAGICK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372456-9781921295928-what-happens-next/"><u>What Happens Next? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372481-9781921878589-you-are-abundant/"><u>You Are Abundant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372451-9781921295867-you-are-inspired/"><u>You Are Inspired | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

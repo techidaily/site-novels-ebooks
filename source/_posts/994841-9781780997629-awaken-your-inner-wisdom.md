@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2025-01-23T18:58:27.278Z
-updated: 2025-01-25T01:57:46.862Z
+date: 2025-02-01T04:44:32.085Z
+updated: 2025-02-01T20:08:41.196Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,13 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210186753-9781684035199-a-moment-for-me/"><u>A Moment for Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210187004-9781777467210-a-new-human-story/"><u>A New Human Story | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210186266-9781913689148-gef/"><u>Gef! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210186782-9781784883607-wishcraft/"><u>WishCraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053338-9781088292167-dhanwantari/"><u>Dhanwantari | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053403-9783988314864-kundalini-awakening/"><u>KUNDALINI AWAKENING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053453-9781662495168-manual-de-tecnicas-para-la-construccion-personal/"><u>MANUAL DE TÉCNICAS PARA LA CONSTRUCCIÓN PERSONAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211047698-9781088287675-survived-and-thriving/"><u>Survived and Thriving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211053407-9788119786039-the-subconscious-renaissance/"><u>The Subconscious Renaissance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211047651-9781088299227-wealthy-woman-affirmations/"><u>Wealthy Woman Affirmations | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

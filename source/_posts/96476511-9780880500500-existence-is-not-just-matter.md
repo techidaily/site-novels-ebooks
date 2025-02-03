@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2025-01-22T21:17:33.663Z
-updated: 2025-01-25T03:16:52.060Z
+date: 2025-01-28T04:06:23.891Z
+updated: 2025-02-02T00:45:42.686Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,15 +164,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210450155-9781667418315-ousar/"><u>Ousar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450148-9781667419701-perfeita-exatamente-como-eu-sou/"><u>Perfeita exatamente como eu sou | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450173-9781667421070-simbolos-curativos-de-los-antiguos-eslavos-glagolitico-terapia-artistica/"><u>Símbolos curativos de los antiguos eslavos. Glagolítico. Terapia artística | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450195-9781667417905-tu-meriti-il-meglio/"><u>Tu meriti il meglio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450121-9781667421391-uma-vida-de-sonhos/"><u>Uma vida de sonhos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210450218-9781667421216-yoga-para-principiantes-yoga-magico-las-mejores-posturas-de-yoga-suave/"><u>Yoga para principiantes: Yoga Mágico - Las mejores posturas de yoga suave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389077-9798330247509-a-collection-of-50-spells/"><u>A Collection of 50 Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389020-9798330249954-chi-sono-le-dieci-domande-sullidentita-definitive-per-adolescenti-e-preadolescenti/"><u>Chi sono? Le DIECI domande sull'IDENTITÀ definitive per ADOLESCENTI e Preadolescenti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389021-9798330249930-quem-sou-eu-as-dez-perguntas-finais-de-identidade-para-adolescentes-e-pre-adolescentes/"><u>Quem sou eu? As DEZ perguntas finais de IDENTIDADE para ADOLESCENTES e Pré-ADOLESCENTES | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389148-9781937209810-this-minute-matters-the-essence-of-presence/"><u>This Minute Matters--The Essence of Presence | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

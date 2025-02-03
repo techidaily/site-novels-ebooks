@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2025-01-23T22:59:36.536Z
-updated: 2025-01-25T02:46:53.237Z
+date: 2025-01-29T17:06:53.082Z
+updated: 2025-02-01T21:58:24.311Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,13 +143,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210242868-9780648873976-angels-of-truth-we-are/"><u>Angels of Truth We Are | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210243000-9781637529010-convergence/"><u>Convergence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210241741-9780593329467-the-art-of-sacred-smoke/"><u>The Art of Sacred Smoke | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210242953-9781736398210-the-seeker-and-the-teacher-of-light/"><u>The Seeker and The Teacher of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158567-9798986210698-my-little-prayer-book/"><u>My Little Prayer Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158463-9780645923131-never-retire/"><u>Never Retire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159334-9780062403865-siddharthas-brain/"><u>Siddhartha's Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159271-9780062976895-spells-for-the-modern-mystic/"><u>Spells for the Modern Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158363-9798987356012-the-fairytale-god-3rd-ed/"><u>The Fairytale God (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159325-9780061747984-the-history-of-last-nights-dream/"><u>The History of Last Night's Dream | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

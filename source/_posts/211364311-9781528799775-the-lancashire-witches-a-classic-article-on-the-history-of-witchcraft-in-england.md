@@ -1,7 +1,7 @@
 ---
 title: The Lancashire Witches - A Classic Article on the History of Witchcraft in England | Free Book
-date: 2024-10-22T16:50:29.696Z
-updated: 2024-10-26T20:02:47.217Z
+date: 2025-01-28T16:32:52.494Z
+updated: 2025-02-01T23:48:52.539Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ebbaeb8f719a635406bce257b4711601fd63c9800e2f4c8b27eafc4c48400fc.jpg
@@ -141,3 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ebbaeb8f719a635406bce257b47116
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877206-9781609256951-astral-travel/"><u>Astral Travel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877208-9781609256869-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877209-9781609255404-mind-into-matter/"><u>Mind into Matter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877211-9781609257835-the-rosicrucians/"><u>The Rosicrucians | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

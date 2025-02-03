@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2025-01-24T00:25:52.784Z
-updated: 2025-01-24T18:27:58.916Z
+date: 2025-01-30T22:24:55.365Z
+updated: 2025-02-02T07:58:18.948Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,17 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210518965-9781777476014-beloved-i-can-show-you-heaven/"><u>Beloved, I Can Show You Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210519627-9781098095567-broken-crushed-shattered-mended-healed/"><u>Broken, Crushed, Shattered, Mended, Healed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210517789-9780241523018-finding-peace/"><u>Finding Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210518922-9780578352480-little-ideas-for-living-life-well/"><u>Little Ideas For Living Life Well | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210518893-9780760373064-the-big-book-of-tarot-meanings/"><u>The Big Book of Tarot Meanings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210519021-9798985440300-the-building-blocks-of-meditation/"><u>The Building Blocks of Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210518972-9781733301510-the-essential-manifesting-guidebook-2020/"><u>The Essential Manifesting Guidebook 2020 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210518849-9780578385655-thoughts-and-observations/"><u>Thoughts and Observations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441721--co-creating-with-nature/"><u>Co-Creating with Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211440833-9781476653389-cultural-encyclopedia-of-lsd-2d-ed/"><u>Cultural Encyclopedia of LSD, 2d ed. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441229-9798330354313-head-heart-crotch-connections/"><u>Head, Heart, Crotch Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441440-9798330358267-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441040-9781910559932-the-witch-and-the-wildwood/"><u>The Witch and the Wildwood | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2025-01-18T16:05:05.466Z
-updated: 2025-01-25T03:20:39.707Z
+date: 2025-01-29T06:20:40.167Z
+updated: 2025-02-02T03:06:14.220Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,18 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210545395-9781399704908-astrology-self-care-aquarius/"><u>Astrology Self-Care: Aquarius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545412-9781399704595-astrology-self-care-aries/"><u>Astrology Self-Care: Aries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545400-9781399704861-astrology-self-care-capricorn/"><u>Astrology Self-Care: Capricorn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545393-9781399704717-astrology-self-care-leo/"><u>Astrology Self-Care: Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545408-9781399704779-astrology-self-care-libra/"><u>Astrology Self-Care: Libra | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545407--astrology-self-care-pisces/"><u>Astrology Self-Care: Pisces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545413-9781399704748-astrology-self-care-virgo/"><u>Astrology Self-Care: Virgo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545511-9781645677475-ritual-baths-for-the-beginner-witch/"><u>Ritual Baths for the Beginner Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210545486-9781250874498-the-master-key-system-the-complete-original-edition/"><u>The Master Key System: The Complete Original Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211461026-9781839388576-anomalous-phenomena/"><u>Anomalous Phenomena | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211461625--the-true-and-the-eternal/"><u>THE TRUE AND THE ETERNAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211461672-9781446313916-the-witch-ionary/"><u>The Witch-ionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211461090-9798330418961-victorian-spiritualism/"><u>Victorian Spiritualism | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

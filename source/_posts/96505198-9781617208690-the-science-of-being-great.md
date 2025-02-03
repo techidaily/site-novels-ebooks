@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2025-01-19T03:33:20.660Z
-updated: 2025-01-24T18:01:13.243Z
+date: 2025-01-28T17:44:56.958Z
+updated: 2025-02-01T16:09:21.234Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,13 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210290245-9781734920956-feminine-archetypes/"><u>Feminine Archetypes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210289716-9781507217443-money-spells/"><u>Money Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210290439-9781662410581-principles-of-progress/"><u>Principles of Progress | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210290511-9781636308029-visible-visions-motivation/"><u>Visible Visions Motivation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236668-9781777690212-aura/"><u>Aura | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236638-9780976149590-crossing-an-unseen-bridge/"><u>Crossing an Unseen Bridge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236611-9798218353995-how-to-master-your-karma/"><u>How to Master Your Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236607-9781736106679-las-ensenanzas-energeticas-de-los-tres/"><u>Las Enseñanzas Energéticas de Los Tres | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236760-9798869158161-lirios-de-esperanza/"><u>Lirios de Esperanza | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236565-9781396324932-the-planet-mars-and-its-inhabitants/"><u>The Planet Mars and Its Inhabitants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236815-9781989840665-women-of-the-hebrew-bible/"><u>Women of the Hebrew Bible | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Energy Healing | Free Book
-date: 2025-01-21T16:36:34.813Z
-updated: 2025-01-25T04:17:25.947Z
+date: 2025-01-31T04:21:49.298Z
+updated: 2025-02-01T21:50:48.368Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6cce730c1931af609312127866b506500a6.jpg
@@ -187,16 +187,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9efcca8517c397cd30fb9e62d91dc6c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210217563-9781529360240-crystals-for-self-care/"><u>Crystals for Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210217603-9781841815084-godsfield-companion-chakras/"><u>Godsfield Companion: Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210217590-9781841815091-godsfield-companion-mindfulness/"><u>Godsfield Companion: Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210211134-9781528767767-psychical-and-supernormal-phenomena-their-observation-and-experimentation/"><u>Psychical and Supernormal Phenomena - Their Observation and Experimentation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210217567-9780753734759-the-crystal-experience/"><u>The Crystal Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210211207-9781734025095-the-eggshell-effect/"><u>The Eggshell Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210217570-9780753734728-the-meditation-experience/"><u>The Meditation Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133073-9780975864968-avoiding-the-cosmic-2x4/"><u>Avoiding The Cosmic 2x4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133034-9781960466112-divine-creation-2nd-ed/"><u>Divine Creation (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211132886-9780834845473-finding-radical-wholeness/"><u>Finding Radical Wholeness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211132995-9781961785014-meeting-the-muse-after-midlife/"><u>Meeting the Muse After Midlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211132883-9780834845541-presence/"><u>Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133076-9781960466136-the-aquarius-age/"><u>The Aquarius Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211133035-9781910559895-the-kitchen-witch-companion/"><u>The Kitchen Witch Companion | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

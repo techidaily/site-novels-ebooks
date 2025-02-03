@@ -1,7 +1,7 @@
 ---
 title: 365 Happy Bedtime Mantras | Free Book
-date: 2024-10-20T19:52:48.016Z
-updated: 2024-10-27T05:01:08.796Z
+date: 2025-01-30T23:35:20.077Z
+updated: 2025-02-02T05:38:25.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b794d8dc2841c5afc80dc7062783b831de59883ca7a64c2eb9ccf4206f071d19.jpg
@@ -144,3 +144,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b794d8dc2841c5afc80dc7062783b83
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210922806-9781803814254-destiny-blockers/"><u>Destiny Blockers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925076-9781920707385-embrace-your-elegant-power/"><u>Embrace Your Elegant Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920412-9780719826863-hedge-witch/"><u>Hedge Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920792-9780719831577-sea-witchs-companion/"><u>Sea Witch's Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920330-9780719826870-the-hedge-witchs-way/"><u>The Hedge Witch's Way | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Crystals for Psychic Self-Defense | Free Book
-date: 2024-10-21T22:26:17.355Z
-updated: 2024-10-26T20:32:09.808Z
+date: 2025-01-31T07:59:18.892Z
+updated: 2025-02-02T06:25:07.539Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7c4e7b1397328b9819eae8cfbe58844f92c32f8f8460b726819544f9ab609bd5.jpg
@@ -152,3 +152,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7c4e7b1397328b9819eae8cfbe58844
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210969956-9781088230190-al-final-de-la-ultima-hora/"><u>Al Final de la Última Hora | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968765-9781088226001-cuando-el-pasado-no-pasa/"><u>Cuando el pasado no pasa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968761-9781088227220-el-pasado-no-importa/"><u>El Pasado No Importa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969752-9781439678619-haunted-inns-and-hotels-of-virginia/"><u>Haunted Inns and Hotels of Virginia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969963-9781088229859-renunciando-por-amor/"><u>Renunciando por Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210968759-9781088228142-there-is-always-a-reason/"><u>There Is Always A Reason | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210969944-9781088237731-todo-tiene-su-precio/"><u>Todo tiene su precio | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

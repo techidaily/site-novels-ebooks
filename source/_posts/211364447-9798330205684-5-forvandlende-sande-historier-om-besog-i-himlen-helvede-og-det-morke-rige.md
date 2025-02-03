@@ -1,7 +1,7 @@
 ---
 title: 5 forvandlende sande historier om besøg i himlen, helvede og det mørke rige | Free Book
-date: 2024-10-24T05:15:06.971Z
-updated: 2024-10-26T18:57:18.119Z
+date: 2025-02-01T00:15:30.117Z
+updated: 2025-02-01T23:25:39.468Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/07e2beedca1d54277a957943d1cccf04bb261fdd8b8be2ec35fb3edb330c9385.jpg
@@ -170,3 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/07e2beedca1d54277a957943d1cccf0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877374-9781633411753-asatru/"><u>Asatru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877369-9781633411517-extraterrestrial-contact/"><u>Extraterrestrial Contact | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877371-9781633410442-fairies-pookas-and-changelings/"><u>Fairies, Pookas, and Changelings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877365-9781633411432-grimoire-of-aleister-crowley/"><u>Grimoire of Aleister Crowley | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877368-9781633411531-sacred-smoke/"><u>Sacred Smoke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877437-9781685680459-vnutrennij-pokoj/"><u>Внутренний покой | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

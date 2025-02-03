@@ -1,7 +1,7 @@
 ---
 title: Transcendent Wisdom of the Maya | Free Book
-date: 2025-01-17T18:23:29.671Z
-updated: 2025-01-24T17:32:58.177Z
+date: 2025-01-28T23:15:21.636Z
+updated: 2025-02-02T07:33:31.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8fe342fd625e873a2ea83a159fafc7d7dd.jpg
@@ -208,13 +208,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210557110-9781734677355-el-camino-del-alma-a-la-salud-total/"><u>EL CAMINO DEL ALMA A LA SALUD TOTAL | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210557103-9781955068000-haunted-missouri/"><u>Haunted Missouri | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210556952-9781885928375-the-golden-book-of-wisdom/"><u>The Golden Book of Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210555992-9780306828997-the-power-of-awe/"><u>The Power of Awe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477679-9781964744643-living-with-eternity/"><u>Living with Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477682-9781890679644-stop-thought/"><u>Stop Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477494-9798330098774-summary-of-luis-elizondos-imminent/"><u>Summary of Luis Elizondo’s Imminent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477074-9789695592267-the-art-of-embracing-nothingness/"><u>The Art of Embracing Nothingness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Así hablaba Paramahansa Yogananda | Free Book
-date: 2024-10-21T00:11:29.931Z
-updated: 2024-10-26T23:05:51.810Z
+date: 2025-01-29T22:33:54.123Z
+updated: 2025-02-01T19:54:30.375Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dabc7a8e01d6821819395fa1fe3ec8e0882773e7b8385f8ab5e39077171ecd0a.jpg
@@ -477,3 +477,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dabc7a8e01d6821819395fa1fe3ec8e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210717284-9781739218713-connecting-to-source-a-path-to-self-discovery-through-verse/"><u>Connecting to Source - A path to self-discovery through verse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717197-9780876128565-intuition-soul-guidance-for-lifes-decisions/"><u>Intuition: Soul Guidance for Life's Decisions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717348-9780876128114-manifesting-divine-consciousness-in-daily-life/"><u>Manifesting Divine Consciousness in Daily Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717349-9780876127889-only-love/"><u>Only Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717267-9789198735901-raja-yoga-yoga-as-meditation/"><u>RAJA YOGA - YOGA AS MEDITATION! | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

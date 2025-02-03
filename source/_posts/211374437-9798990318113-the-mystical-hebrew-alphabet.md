@@ -1,7 +1,7 @@
 ---
 title: The Mystical Hebrew Alphabet | Free Book
-date: 2024-10-20T19:47:16.687Z
-updated: 2024-10-27T04:03:04.821Z
+date: 2025-01-26T00:19:29.954Z
+updated: 2025-02-01T22:42:11.404Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8148f2e7d996569be6f391d0150dcfe77d305bbbed836ea91f02ded0c65eec13.jpg
@@ -246,3 +246,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8148f2e7d996569be6f391d0150dcfe
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761859-9781591798644-awakening-into-oneness/"><u>Awakening into Oneness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761847-9781591798866-how-to-read-the-akashic-records/"><u>How to Read the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761854-9781604074642-the-guru-question/"><u>The Guru Question | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761849-9781591798804-true-meditation/"><u>True Meditation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

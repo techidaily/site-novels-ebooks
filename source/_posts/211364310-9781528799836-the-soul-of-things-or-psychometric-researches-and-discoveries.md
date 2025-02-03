@@ -1,7 +1,7 @@
 ---
 title: The Soul of Things or Psychometric - Researches and Discoveries | Free Book
-date: 2024-10-25T02:27:58.774Z
-updated: 2024-10-27T01:34:34.459Z
+date: 2025-02-01T00:58:47.163Z
+updated: 2025-02-01T23:02:38.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3af9549d301de2624ae9d7a72a9566cf11658c3c4791f664c36dee1810bc2644.jpg
@@ -142,3 +142,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3af9549d301de2624ae9d7a72a9566c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877202-9781609255800-learning-astrology/"><u>Learning Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877197-9781609256340-real-magic/"><u>Real Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877195-9781609255206-simple-feng-shui/"><u>Simple Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877199-9781609256548-symbolism-of-the-celtic-cross/"><u>Symbolism of the Celtic Cross | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877200-9781609255787-the-diary-of-a-drug-fiend/"><u>The Diary of a Drug Fiend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877198-9781609255428-the-spiritual-universe/"><u>The Spiritual Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877203-9781609256623-the-yod-book/"><u>The Yod Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

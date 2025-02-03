@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2025-01-24T05:43:37.009Z
-updated: 2025-01-24T16:37:05.383Z
+date: 2025-01-31T23:54:32.012Z
+updated: 2025-02-02T03:53:37.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,17 +181,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210200999-9781908005151-art-of-mindful-silence/"><u>Art of Mindful Silence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200996-9781908005137-art-of-mindful-walking/"><u>Art of Mindful Walking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210201517-9781647465773-becoming-whole/"><u>Becoming Whole | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200997-9781908005540-mindfulness-the-art-of-managing-anger/"><u>Mindfulness & the Art of Managing Anger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200973-9781782401230-mindfulness-the-natural-world/"><u>Mindfulness & the Natural World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200731-9781610580502-the-best-meditations-on-the-planet/"><u>The Best Meditations on the Planet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210200695-9781627887601-the-key-to-crystals/"><u>The Key to Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210201660-9781735740126-trouble-in-paradise/"><u>Trouble In Paradise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124035-9781088032992-5yal5ooz55qe56er5a2m77yi55s15a2q54mi77yj/"><u>冥想的科学（电子版） | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124034-9781088032725-5yal5ooz55qe56er5a2477yi6zu75a2q54mi77yj/"><u>冥想的科學（電子版） | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123862-9781088022429-love-overcame/"><u>Love Overcame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124217-9781088058794-ludopatia/"><u>Ludopatía | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124289-9781611049213-the-necessity-of-prayer/"><u>The Necessity of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124295-9781611049251-the-reality-of-prayer/"><u>The Reality of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124255-9781088063019-the-tantric-sex-lovers/"><u>The Tantric Sex Lover's | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124294-9781611049176-the-weapon-of-prayer/"><u>The Weapon of Prayer | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

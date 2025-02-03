@@ -1,7 +1,7 @@
 ---
 title: English Witchcraft - From the Beginning to the Present Day (Fantasy and Horror Classics) | Free Book
-date: 2024-10-26T04:38:17.973Z
-updated: 2024-10-27T03:18:03.127Z
+date: 2025-01-30T19:50:12.090Z
+updated: 2025-02-01T19:59:57.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7cf051d442f3bfae05199d3863b07da1e3e02bd47f6c741820ef553625671b9d.jpg
@@ -143,3 +143,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7cf051d442f3bfae05199d3863b07da
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210877168-9781609250225-serpent-of-light/"><u>Serpent of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877166-9781609252366-spirit-allies/"><u>Spirit Allies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877169-9781609253592-the-secrets-of-doctor-taverner/"><u>The Secrets of Doctor Taverner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877164-9781609252359-twenty-five-doors-to-meditation/"><u>Twenty-Five Doors to Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877167-9781609252267-vedic-astrology/"><u>Vedic Astrology | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

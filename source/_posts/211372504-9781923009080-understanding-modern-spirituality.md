@@ -1,7 +1,7 @@
 ---
 title: Understanding Modern Spirituality | Free Book
-date: 2024-10-25T03:14:56.737Z
-updated: 2024-10-27T00:30:44.486Z
+date: 2025-01-29T02:31:04.889Z
+updated: 2025-02-02T03:51:11.892Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a2c2fb77347633be04215cd6e33c74a444712fe3dd953d54cbc2530ee4991de.jpg
@@ -173,3 +173,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a2c2fb77347633be04215cd6e33c74
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210780136-9781633413207-a-tea-witchs-grimoire/"><u>A Tea Witch's Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780135-9781633413092-scott-cunninghamthe-path-taken/"><u>Scott Cunningham—The Path Taken | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780137-9781633413153-the-marie-laveau-voodoo-grimoire/"><u>The Marie Laveau Voodoo Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210780134-9781881098966-the-witches-almanac-2024-2025-standard-edition-issue-43/"><u>The Witches' Almanac 2024-2025 Standard Edition Issue 43 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
