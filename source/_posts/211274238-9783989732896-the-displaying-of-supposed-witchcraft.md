@@ -1,7 +1,7 @@
 ---
 title: The Displaying Of Supposed Witchcraft | Free Book
-date: 2024-10-25T03:12:45.206Z
-updated: 2024-10-27T04:12:15.818Z
+date: 2025-02-02T16:09:02.181Z
+updated: 2025-02-03T18:47:27.487Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9692e18229d4c286e22913f8efecbed699d2f114e78cad59744d8065c1b56639.jpg
@@ -142,3 +142,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9692e18229d4c286e22913f8efecbed
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782324-9781591438359-gobekli-tepe-genesis-of-the-gods/"><u>Gobekli Tepe: Genesis of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782323-9781591438526-gods-of-eden/"><u>Gods of Eden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782325-9781591439585-gods-of-the-runes/"><u>Gods of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782327-9781591438472-power-animal-meditations/"><u>Power Animal Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782326-9781591438670-prayers-and-meditations-of-the-quero-apache/"><u>Prayers and Meditations of the Quero Apache | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

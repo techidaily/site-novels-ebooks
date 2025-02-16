@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Capricorn | Free Book
-date: 2025-01-21T05:59:08.996Z
-updated: 2025-01-24T20:09:40.746Z
+date: 2025-01-30T17:23:12.238Z
+updated: 2025-02-03T16:18:58.205Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977ee44c94c191dcc84849061ae3794bfc4ca.jpg
@@ -169,16 +169,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b37dde5556fb9c59460267c27cf977e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210705156-9780760379998-angel-numbers/"><u>Angel Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705161-9780760379974-candle-magic/"><u>Candle Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705147-9780760380581-celtic-mysticism/"><u>Celtic Mysticism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705153-9780760376393-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705157-9780760377697-moon-meditations/"><u>Moon Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705150-9780760379981-pendulum-magic/"><u>Pendulum Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705141--your-human-design/"><u>Your Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595871-9781452537108-a-green-witchs-formulary/"><u>A Green Witch's Formulary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595947-9781452537122-ageless-child/"><u>Ageless Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595807-9781452504155-ethics-of-a-psychic-reading/"><u>Ethics of a Psychic Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595827-9781452545189-finding-the-light/"><u>Finding the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595783-9781449736156-justins-jesus/"><u>Justin's Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595817-9781504351966-keys-to-your-divine/"><u>Keys to Your Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595800-9781462052547-shadow-path/"><u>Shadow Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595841-9781452503967-the-dawn-chorus/"><u>The Dawn Chorus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595788-9781462020379-the-heart-of-a-ready-scribe/"><u>The Heart of a Ready Scribe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

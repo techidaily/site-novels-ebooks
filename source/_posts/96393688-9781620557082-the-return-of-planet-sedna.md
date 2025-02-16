@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2025-01-18T05:27:26.880Z
-updated: 2025-01-24T21:33:34.718Z
+date: 2025-02-01T17:04:47.047Z
+updated: 2025-02-03T18:52:02.695Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,16 +205,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210573516-9781399803199-21-day-abundance-challenge/"><u>21 Day Abundance Challenge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571881-9798986306209-amada-por-amor/"><u>Amada Por Amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571732-9781524869113-be-mindful-and-simplify-your-life/"><u>Be Mindful and Simplify Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571888-9798985515718-ditch-the-boyfriend-and-get-a-life-coach/"><u>Ditch the Boyfriend and Get a Life Coach | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571897-9781911134633-el-tarot-del-siglo-xxi-escubre-todos-los-secretos-de-la-adivinacion-cotidiana-y-magica/"><u>El Tarot del Siglo XXI - escubre todos los secretos de la adivinación cotidiana y mágica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210573720-9781662468063-ministering-without-walls/"><u>Ministering Without Walls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210572043-9791029913709-the-rosicrucian-mysteries/"><u>The Rosicrucian Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1155124-9781608681389-a-womans-book-of-rituals-and-celebrations/"><u>A Woman's Book of Rituals and Celebrations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1159253-9781583946565-awaken-your-genius/"><u>Awaken Your Genius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1155125-9781608682133-circle-of-stones/"><u>Circle of Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154586-9781577313564-path-of-empowerment/"><u>Path of Empowerment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154592-9781577313434-practicing-the-power-of-now/"><u>Practicing the Power of Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154593-9781608681358-practicing-the-presence-of-the-goddess/"><u>Practicing the Presence of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1157615-9781780996004-tarot-for-grownups/"><u>Tarot for Grownups | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1155122-9781608682089-the-christmas-house/"><u>The Christmas House | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

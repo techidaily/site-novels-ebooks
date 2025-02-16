@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Sagittarius | Free Book
-date: 2025-01-22T19:35:33.027Z
-updated: 2025-01-25T02:12:22.566Z
+date: 2025-01-30T16:07:04.565Z
+updated: 2025-02-03T16:05:22.831Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379c97a1dda998ff087b353f1fe5678bf59b.jpg
@@ -171,13 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b297271aa29e26a00b95831990cb379
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210703188-9781684986309-and-then-god-stepped-in/"><u>...And Then God Stepped In | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703209-9781684981052-life-of-a-soul/"><u>Life of a Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703472-9781913590789-mother-earth-is-calling-you/"><u>Mother Earth is Calling You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703476-9798987098127-vision-walk/"><u>Vision Walk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595201-9781449757328-jesus-our-portion/"><u>Jesus Our Portion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595211-9781452547299-surfing-the-paradoxes-of-everyday-transformation/"><u>Surfing the Paradoxes of Everyday Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595260-9781449751326-the-shining-one-and-poems-by-allan/"><u>The Shining One and Poems by Allan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595242-9781452541174-who-we-are/"><u>Who We Are | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

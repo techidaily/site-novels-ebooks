@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2025-01-25T21:46:19.006Z
-updated: 2025-02-02T06:21:24.595Z
+date: 2025-02-02T17:15:15.042Z
+updated: 2025-02-03T17:42:00.412Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,14 +179,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211429485-9781955312684-being-afraid-but-freaking-doing-it-anyway/"><u>Being Afraid but Freaking Doing It Anyway | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211427529-9781647422448-does-my-voice-matter/"><u>Does My Voice Matter? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211429478-9798893912272-jesus-of-nazareth-our-liberator/"><u>Jesus Of Nazareth Our Liberator | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211429460-9781958997888-obrando-en-abundancia/"><u>OBRANDO EN ABUNDANCIA | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211427878-9781938314551-the-complete-enneagram/"><u>The Complete Enneagram | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1115417-9781907203558-celestial-ambulance/"><u>Celestial Ambulance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1115418-9781907203534-indigo-awakes/"><u>Indigo Awakes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121172-9781842439517-occult-london/"><u>Occult London | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1120958-9781780998428-pagan-portals-kitchen-witchcraft/"><u>Pagan Portals - Kitchen Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1115254-9781780999425-reiki-jin-kei-do/"><u>Reiki Jin Kei Do | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1115420-9781907203596-the-quirky-medium/"><u>The Quirky Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1120228-9780988432741-uppvaknande-genom-en-kurs-i-mirakler/"><u>Uppvaknande genom En Kurs i Mirakler | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

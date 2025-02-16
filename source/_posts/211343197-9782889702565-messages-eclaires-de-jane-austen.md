@@ -1,7 +1,7 @@
 ---
 title: Messages éclairés de Jane Austen | Free Book
-date: 2024-10-20T17:48:22.421Z
-updated: 2024-10-27T05:56:11.765Z
+date: 2025-01-30T16:54:42.191Z
+updated: 2025-02-03T16:12:22.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1707405044fbcda080609ed14db24c43d85b4efb9cfbf7ede2c336ba783ce227.jpg
@@ -150,3 +150,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1707405044fbcda080609ed14db24c4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2543815-9781786780027-deep-awake/"><u>Deep Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543809-9781780289748-happiness-and-other-small-things-of-absolute-importance/"><u>Happiness and Other Small Things of Absolute Importance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543812-9781780289915-john-the-baptist-and-the-last-gnostics/"><u>John the Baptist and the Last Gnostics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543814-9781786780010-opening-the-doors-of-perception/"><u>Opening the Doors of Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543810-9781780289786-radical-awakening/"><u>Radical Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543811-9781780289830-the-illuminati/"><u>The Illuminati | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543817-9781786780041-the-secret-american-destiny/"><u>The Secret American Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543658-9781635050837-the-truth-is-beyond-belief/"><u>The Truth Is Beyond Belief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2543808-9781780289533-what-is-numerology/"><u>What is Numerology? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

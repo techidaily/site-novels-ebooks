@@ -1,7 +1,7 @@
 ---
 title: The 21 Day Mindfulness Challenge | Free Book
-date: 2024-10-23T18:39:17.663Z
-updated: 2024-10-26T16:20:52.608Z
+date: 2025-01-31T17:49:45.953Z
+updated: 2025-02-03T16:16:16.995Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c4646e3cee8a9acc8eeb9a2fe351a79bdca7b1507248630762c73c644d0738a.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c4646e3cee8a9acc8eeb9a2fe351a7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782279-9781594776267-a-study-of-numbers/"><u>A Study of Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782277-9781594775277-a-yoga-of-indian-classical-dance/"><u>A Yoga of Indian Classical Dance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782276-9781594775376-the-goddess-in-india/"><u>The Goddess in India | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782278-9781594776229-the-gospel-of-john-in-the-light-of-indian-mysticism-3rd-ed/"><u>The Gospel of John in the Light of Indian Mysticism (3rd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

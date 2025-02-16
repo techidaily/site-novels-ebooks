@@ -1,7 +1,7 @@
 ---
 title: Blueprint for Holistic Healing | Free Book
-date: 2025-01-20T16:33:07.918Z
-updated: 2025-01-24T19:42:33.824Z
+date: 2025-01-27T16:22:48.761Z
+updated: 2025-02-03T18:15:58.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0c3fcfbb9f190d1a66c5dd6334d24e3be0.jpg
@@ -139,14 +139,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9bece76085b4dc0b0bedf2eeccd70d0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210644795-9798986216652-26-strings/"><u>26 Strings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644799-9780997228175-mindful-practice-of-falun-gong-chinese-edition/"><u>法輪功的正念實踐 Mindful Practice of Falun Gong (Chinese Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644825-9780349431758-tapping-in/"><u>Tapping In | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644691-9781959018117-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210644777-9781955985697-waking-up-to-feeling/"><u>Waking Up to Feeling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568704-9781491724088-advice-for-life-from-the-mouths-of-elders/"><u>Advice for Life from the Mouths of Elders | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568672-9781469704302-manifest-success/"><u>Manifest Success! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568755-9781475909456-pilgrimage-to-java/"><u>Pilgrimage to Java | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568689-9781440108945-resolution/"><u>Resolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568667-9781440138980-the-kindness-of-strangers/"><u>The Kindness of Strangers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568664-9781450236737-waiting-to-live/"><u>Waiting to Live | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

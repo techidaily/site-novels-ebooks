@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Aries | Free Book
-date: 2025-01-22T06:11:44.925Z
-updated: 2025-01-25T00:42:27.381Z
+date: 2025-01-28T17:10:54.981Z
+updated: 2025-02-03T18:49:29.489Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c673df5f0e24e4004b6764826ed31b1d645.jpg
@@ -178,17 +178,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32f409e078c2fb82ea8e343843f97c6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210704318-9780834844827-casting-indras-net/"><u>Casting Indra's Net | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705120-9780760377857-decoding-the-stars/"><u>Decoding the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210704109-9798886167337-entering-into-the-secrets-of-god/"><u>ENTERING INTO THE SECRETS OF GOD | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210705140-9780760379967-mountain-magic/"><u>Mountain Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210704332-9780241626603-the-crystal-path/"><u>The Crystal Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210704112-9781504081023-the-new-revelation/"><u>The New Revelation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210704421-9781647008680-there-are-no-coincidences/"><u>There Are No Coincidences | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210704587-9789948812845-nkat-taalmt-mnha/"><u>نقاط تعلمت منها | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595371-9781452546483-a-path-less-conventional/"><u>A Path Less Conventional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595493-9781452503615-conversations-through-my-soul-of-presence/"><u>Conversations Through My Soul of Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595637-9781449758929-encouraged/"><u>Encouraged | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595462-9781449749781-inside-out/"><u>Inside Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595387-9781469751474-oh-my-gosh-i-over-slept/"><u>Oh, My Gosh I over Slept! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595740-9781452545127-one-moar-paradigm/"><u>One Moar Paradigm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595536-9781449753337-rainbow-over-my-house/"><u>Rainbow over My House | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595670-9781462024957-the-happiness-thermometer/"><u>The Happiness Thermometer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595649-9781452543314-touchstone-moments/"><u>Touchstone Moments | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

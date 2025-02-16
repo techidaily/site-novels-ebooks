@@ -1,7 +1,7 @@
 ---
 title: Witches and Witch Hunts Through the Ages | Free Book
-date: 2024-10-22T20:20:40.294Z
-updated: 2024-10-26T16:20:46.276Z
+date: 2025-01-31T18:13:07.848Z
+updated: 2025-02-03T16:33:37.279Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/80c10d3bcd4c25bde8d78f7ea3b92f5ad4f26162d86bfd82da5d52b955a308a5.jpg
@@ -152,3 +152,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/80c10d3bcd4c25bde8d78f7ea3b92f5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95774504-9781608684960-expect-the-unexpected/"><u>Expect the Unexpected | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774475-9781449485535-expect-wonderful-things/"><u>Expect Wonderful Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95776658-9788121252263-mind-and-ideology/"><u>Mind And Ideology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95777808-9781493027996-spooky-michigan-2nd-ed/"><u>Spooky Michigan (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95775814-9781946764010-the-nest-in-the-stream/"><u>The Nest in the Stream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774685-9781937673857-the-new-diplomatic-strategies-of-sir-winston-churchill/"><u>The New Diplomatic Strategies of Sir Winston Churchill | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774166-9781515414421-thoughts-i-met-on-the-highway/"><u>Thoughts I Met On the Highway | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774167-9781515415503-three-paths-to-god/"><u>Three Paths to God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95774168-9781515414414-through-the-gates-of-good/"><u>Through the Gates of Good | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

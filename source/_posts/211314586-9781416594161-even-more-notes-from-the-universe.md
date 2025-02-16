@@ -1,7 +1,7 @@
 ---
 title: Even More Notes From the Universe | Free Book
-date: 2024-10-23T03:34:47.509Z
-updated: 2024-10-27T02:58:13.470Z
+date: 2025-01-29T18:27:04.639Z
+updated: 2025-02-03T17:49:03.957Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/82937871334cf572de53bdef0d6b578d1fc26fe06109de5d458e6a52ed23c5d9.jpg
@@ -167,3 +167,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/82937871334cf572de53bdef0d6b578
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95711784-9780786751907-a-dark-muse/"><u>A Dark Muse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713822-9781780992006-a-spiritual-look-at-the-12-signs/"><u>A Spiritual Look at the 12 Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95712431-9780786727957-do/"><u>Do | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95711245-9781580054515-lessons-from-the-monk-i-married/"><u>Lessons from the Monk I Married | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713823-9781785355271-mastering-the-mind-realising-the-self/"><u>Mastering the Mind, Realising the Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713383-9781608684632-meditation-saved-my-life/"><u>Meditation Saved My Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713824-9781785354953-pagan-portals-animal-magic/"><u>Pagan Portals - Animal Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

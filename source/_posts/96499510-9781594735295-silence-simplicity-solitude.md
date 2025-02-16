@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2025-01-31T17:26:42.122Z
-updated: 2025-02-02T02:48:34.252Z
+date: 2025-01-29T18:05:43.159Z
+updated: 2025-02-03T17:17:08.771Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,17 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211221693-9798886859355-gods-still-calling/"><u>...God's Still Calling... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211220370-9798889609087-birth-of-a-jewel/"><u>Birth of a Jewel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211221085-9780740798382-keep-calm-and-carry-on/"><u>Keep Calm and Carry On | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211221703--lazy-witchcraft-for-crazy-shtty-days/"><u>Lazy Witchcraft for Crazy, Sh*tty Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211221713-9780760392256-sea-magick/"><u>Sea Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211220855-9798350070712-summary-of-garrett-graffs-ufo/"><u>Summary of Garrett Graff's UFO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211220220-9780711290754-the-stories-behind-astrology/"><u>The Stories Behind Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211220310--the-uncommon-book-of-prayer/"><u>The Uncommon Book of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935350-9781844093212-angel-inspiration/"><u>Angel Inspiration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935358-9781844093687-choosing-to-be-2nd-ed/"><u>Choosing to Be (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935359-9781844093038-clearing/"><u>Clearing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935345-9781844099566-crafting-a-magical-life/"><u>Crafting a Magical Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935360-9781844093991-earth-alchemy/"><u>Earth Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935357-9781844098088-facing-darkness-finding-light/"><u>Facing Darkness, Finding Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935353-9781844099467-the-healing-of-individuals-families-nations/"><u>The Healing of Individuals, Families & Nations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935356-9781844093816-the-order-of-melchizedek/"><u>The Order of Melchizedek | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

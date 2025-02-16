@@ -1,7 +1,7 @@
 ---
 title: The Kama Sutra of Vatsyayana | Free Book
-date: 2025-01-30T22:24:55.365Z
-updated: 2025-02-02T07:58:18.948Z
+date: 2025-01-31T18:42:16.633Z
+updated: 2025-02-03T17:43:31.322Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc513cd6e30c3daf4936f415baef4189a1f7f.jpg
@@ -149,14 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9539ec338f5713ef9cfe0152329fc51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211441721--co-creating-with-nature/"><u>Co-Creating with Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211440833-9781476653389-cultural-encyclopedia-of-lsd-2d-ed/"><u>Cultural Encyclopedia of LSD, 2d ed. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441229-9798330354313-head-heart-crotch-connections/"><u>Head, Heart, Crotch Connections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441440-9798330358267-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441040-9781910559932-the-witch-and-the-wildwood/"><u>The Witch and the Wildwood | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125512-9781609257019-21st-century-mage/"><u>21st Century Mage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125522-9781609257873-adepts-of-the-five-elements/"><u>Adepts of the Five Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125526-9781609252755-aleister-crowley-and-the-practice-of-the-magical-diary/"><u>Aleister Crowley And the Practice of the Magical Diary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125529-9781609256326-alu-an-advanced-guide-to-operative-runology/"><u>ALU, An Advanced Guide to Operative Runology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125531-9781609254162-ancient-egyptian-divination-and-magic/"><u>Ancient Egyptian Divination and Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125498-9781612832838-future-memory/"><u>Future Memory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125518-9781609250676-the-abcs-of-chakra-therapy/"><u>The ABC's of Chakra Therapy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The World of Italian Folk Magic | Free Book
-date: 2024-10-22T16:37:15.174Z
-updated: 2024-10-26T19:29:04.656Z
+date: 2025-01-28T18:24:37.794Z
+updated: 2025-02-03T17:58:46.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb3d438161091fcf6a623d3fcb8f1eacf00df0fbaddf764ed9ae232749e387bc.jpg
@@ -186,3 +186,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb3d438161091fcf6a623d3fcb8f1ea
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95650601-9781623171919-awakening-through-the-nine-bodies/"><u>Awakening through the Nine Bodies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652281-9781515412908-power-through-prayer/"><u>Power Through Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652282-9781515412892-practical-mental-influence/"><u>Practical Mental Influence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652283-9781515412878-prayer-and-praying-men/"><u>Prayer and Praying Men | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95651852-9781101993460-within-you-is-the-power/"><u>Within You Is the Power | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2025-01-30T05:30:02.975Z
-updated: 2025-02-01T16:29:59.530Z
+date: 2025-01-28T18:19:00.141Z
+updated: 2025-02-03T18:23:07.091Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,16 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211240976--alchemy-of-nine-dimensions-3rd-ed/"><u>Alchemy of Nine Dimensions (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211241246--ancient-goddess-magic/"><u>Ancient Goddess Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211240974-9781591435327-living-your-best-5d-life/"><u>Living Your Best 5D Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211241250-9781644118498-meetings-with-remarkable-magicians/"><u>Meetings with Remarkable Magicians | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211240973--nothing-in-this-book-is-true-but-its-exactly-how-things-are-5th-ed/"><u>Nothing in This Book Is True, But It's Exactly How Things Are (5th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211240975--seeding-consciousness/"><u>Seeding Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211241247-9781644116760-the-beginners-guide-to-crystal-healing-2nd-ed/"><u>The Beginner's Guide to Crystal Healing (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037668-9781633410732-blackthorns-botanical-magic/"><u>Blackthorn's Botanical Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96059414-9781786781925-spiritual-science/"><u>Spiritual Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96059395-9781101993071-strange-frequencies/"><u>Strange Frequencies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96059415-9781786781970-the-anatomy-of-loneliness/"><u>The Anatomy of Loneliness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96064561-9781608685554-the-creation-frequency/"><u>The Creation Frequency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96060104-9781616406448-the-future-of-astrology/"><u>The Future of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96039702-9781937866020-the-medical-cannabis-guidebook/"><u>The Medical Cannabis Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037671-9781938289835-the-seven-secrets-to-healthy-happy-relationships/"><u>The Seven Secrets to Healthy, Happy Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96037670-9781881098478-the-witches-almanac-issue-38-spring-2019-to-spring-2020/"><u>The Witches' Almanac: Issue 38, Spring 2019 to Spring 2020 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

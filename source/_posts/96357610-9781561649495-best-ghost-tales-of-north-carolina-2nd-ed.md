@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina (2nd ed.) | Free Book
-date: 2025-01-20T05:31:23.346Z
-updated: 2025-01-25T00:42:34.055Z
+date: 2025-01-28T18:11:45.600Z
+updated: 2025-02-03T17:14:21.748Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951cc0ca1ce8cce45e75434e981ae3e320eec.jpg
@@ -156,14 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb84b89be3d8a86e3b1b2f25ac3951c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210655588-9781454940609-a-little-bit-of-zen/"><u>A Little Bit of Zen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655590-9781454940838-wicca-book-of-spells/"><u>Wicca Book of Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655596-9781454941019-wicca-crystal-magic/"><u>Wicca Crystal Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655591-9781454941033-wicca-essential-oils-magic/"><u>Wicca Essential Oils Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655589-9781454940852-wicca-for-beginners/"><u>Wicca for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572084-9781449708528-por-que-no-yo/"><u>¿Por Qué No Yo? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572358-9780595616190-culture-clash/"><u>Culture Clash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572190-9781440109621-hands-of-hope/"><u>Hands of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572138-9781450255387-miss-thang-destiny-fulfilled/"><u>Miss Thang! Destiny Fulfilled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572389-9781469746166-questions-answers-on-the-path-of-ascension-and-self-realization/"><u>Questions & Answers on the Path of Ascension and Self-Realization | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572158-9781450210386-rising-from-the-dark-side-of-life/"><u>Rising from the Dark Side of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572225-9781440152078-stumbling-down-the-shamanic-path/"><u>Stumbling Down the Shamanic Path | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

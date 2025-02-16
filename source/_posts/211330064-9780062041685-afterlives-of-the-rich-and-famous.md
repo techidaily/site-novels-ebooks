@@ -1,7 +1,7 @@
 ---
 title: Afterlives of the Rich and Famous | Free Book
-date: 2024-10-22T02:35:44.195Z
-updated: 2024-10-26T16:54:48.430Z
+date: 2025-01-27T18:01:10.109Z
+updated: 2025-02-03T18:00:57.855Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75bfe211711bdc676b8b644f1cbeac2e21a250d38eb4d2a4ac36dd63650528d3.jpg
@@ -154,3 +154,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75bfe211711bdc676b8b644f1cbeac2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/402147-9780307482495-breathwalk/"><u>Breathwalk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402155-9780307482686-casebook-alien-implants/"><u>Casebook: Alien Implants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/406684-9780307482785-childrens-past-lives/"><u>Children's Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402176-9780307483560-dark-object/"><u>Dark Object | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402268-9780307486318-instant-emotional-healing/"><u>Instant Emotional Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402387-9780307490865-she-flies-without-wings/"><u>She Flies Without Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402458-9780307484703-the-fatima-secret/"><u>The Fatima Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402547-9780307492272-ufo-briefing-document/"><u>UFO Briefing Document | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

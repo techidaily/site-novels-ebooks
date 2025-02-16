@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2025-01-26T23:59:34.371Z
-updated: 2025-02-01T23:38:47.727Z
+date: 2025-01-29T16:43:47.050Z
+updated: 2025-02-03T18:04:13.089Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,15 +164,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211369875-9783964463470-isten-gyogyit/"><u>Isten gyógyít | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211369871-9783964463494-liobani/"><u>Liobani | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211370308-9780253034731-new-england-nightmares/"><u>New England Nightmares | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211369927-9781787959514-quantum-mythology/"><u>Quantum Mythology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211369841-9798330208517-radical-de-vie-dincolo-de-abuz/"><u>RADICAL DE VIE Dincolo de Abuz | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211369893-9783892019039-tu-el-animal-tu-el-hombre/"><u>Tú, el animal. Tú el hombre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476499-9780880500272-every-human-being-is-a-seeker-of-truth/"><u>Every Human Being Is a Seeker of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476498-9780880504379-its-all-about-change/"><u>It's All About Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476495-9780880500401-the-man-with-the-inexplicable-life/"><u>The Man with the Inexplicable Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476493-9780880500517-the-secret-of-meditation/"><u>The Secret of Meditation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

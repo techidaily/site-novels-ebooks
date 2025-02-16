@@ -1,7 +1,7 @@
 ---
 title: Journey Through Many Lifetimes | Free Book
-date: 2025-01-20T02:57:19.583Z
-updated: 2025-01-24T23:09:41.216Z
+date: 2025-01-29T18:34:24.158Z
+updated: 2025-02-03T16:32:50.543Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7ea4d6d30cb1cbbf507aa4daf0cc9d2bc3e.jpg
@@ -141,18 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/efdb5e17d007111a8df7acbf6e92a7e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210648160-9781631958397-a-book-about-you/"><u>A Book About YOU | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210646868-9781608688449-hagitude/"><u>Hagitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648330-9782017166184-lastrologie/"><u>L'astrologie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648314-9781087748085-lo-que-dios-dice-sobre-nuestros-cuerpos/"><u>Lo que Dios dice sobre nuestros cuerpos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210646288-9780593435762-reiki-illustrated/"><u>Reiki Illustrated | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210646015-9781590207604-the-book-of-english-magic/"><u>The Book of English Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210648003-9781684931033-the-man-who-tapped-the-secrets-of-the-universe/"><u>The Man Who Tapped the Secrets of the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210645927-9781685269654-what-is-life-all-about/"><u>What Is Life All About? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210646477-9781493063420-witches-and-warlocks-of-new-york/"><u>Witches and Warlocks of New York | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570241-9780595609215-a-to-z-acrophonology/"><u>A to Z Acrophonology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570277-9780595870097-how-do-i-reach-my-true-destiny/"><u>How Do I Reach My True Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570211-9781440161704-intersection-between-slavery-and-the-military-in-haiti/"><u>Intersection Between Slavery and the Military in Haiti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570267-9781475900569-multi-mega-trans-metamorphosis/"><u>Multi-Mega-Trans-Metamorphosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570248-9780595828586-passionate-joy/"><u>Passionate Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570265-9781462047963-the-shaman-warrior/"><u>The Shaman Warrior | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

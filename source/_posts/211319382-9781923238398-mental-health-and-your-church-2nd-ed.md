@@ -1,7 +1,7 @@
 ---
 title: Mental Health and Your Church (2nd ed.) | Free Book
-date: 2024-10-24T00:34:20.458Z
-updated: 2024-10-27T03:28:21.194Z
+date: 2025-01-31T16:40:00.684Z
+updated: 2025-02-03T17:30:24.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c3b4b6a34957308801d97267c8a113eccd0806e2844c52faca09d00be57e0fa.jpg
@@ -210,3 +210,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c3b4b6a34957308801d97267c8a113
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/683361-9781429992459-creativity/"><u>Creativity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/682182-9781849893503-hearts-on-fire/"><u>Hearts On Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/680632-9781583944028-new-self-new-world/"><u>New Self, New World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/683804-9781556439735-person-to-person-astrology/"><u>Person-to-Person Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/681047-9781446458143-reading-toes/"><u>Reading Toes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/683780-9781583944158-silence/"><u>Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/682178-9781907792366-the-a-z-spiritualism-dictionary/"><u>The A-Z Spiritualism Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/683718-9780307957733-the-prophet/"><u>The Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/680777-9781451657401-the-secret-language-of-color-ebook/"><u>The Secret Language of Color eBook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

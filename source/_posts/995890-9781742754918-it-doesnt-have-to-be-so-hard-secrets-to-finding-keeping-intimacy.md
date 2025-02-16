@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2025-01-28T01:21:24.930Z
-updated: 2025-02-01T18:02:29.659Z
+date: 2025-01-31T17:39:44.871Z
+updated: 2025-02-03T17:03:53.030Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,18 +176,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211066361-9789359046440-atlantis-the-antediluvian-world/"><u>Atlantis: The Antediluvian World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066330-9789359043319-modern-magic/"><u>Modern Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066351-9789359043258-occultism-and-common-sense/"><u>Occultism and Common-Sense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066373-9789359043456-the-blue-island-experiences-of-a-new-arrival-beyond-the-veil/"><u>The Blue Island: Experiences of A New Arrival Beyond The Veil | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066393-9789359043777-the-enlightenment-of-the-world/"><u>The Enlightenment of the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066374-9789359043852-the-other-world-or-glimpses-of-the-supernatural-being-facts-records-and-traditons/"><u>The Other World; or, Glimpses Of The Supernatural Being Facts Records And Traditons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066391-9789359046389-the-spirit-land/"><u>The Spirit Land | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066390-9789359043296-thought-forms/"><u>Thought-Forms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066385-9789359043630-unveiled-mysteries/"><u>Unveiled Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782578-9781594778414-tan-tien-chi-kung-2nd-ed/"><u>Tan Tien Chi Kung (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782581-9781620551233-the-deva-handbook/"><u>The Deva Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782576-9781594778629-the-diloggun/"><u>The Diloggún | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782577-9781620554937-the-divining-heart/"><u>The Divining Heart | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

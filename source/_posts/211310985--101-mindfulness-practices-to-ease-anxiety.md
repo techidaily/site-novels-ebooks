@@ -1,7 +1,7 @@
 ---
 title: 101 Mindfulness Practices to Ease Anxiety | Free Book
-date: 2024-10-25T20:39:28.052Z
-updated: 2024-10-27T03:46:36.524Z
+date: 2025-01-27T17:38:16.203Z
+updated: 2025-02-03T18:27:19.262Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ccbe3879f28255205adedeeeb0278fbfe25c4633540b76a6153c489897b0ae9f.jpg
@@ -142,3 +142,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ccbe3879f28255205adedeeeb0278fb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95660104-9781515413592-a-spiritual-canticle-of-the-soul-and-the-bridegroom-christ/"><u>A Spiritual Canticle of the Soul and the Bridegroom Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95659179-9781612833668-practical-spellcraft/"><u>Practical Spellcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652289-9781515412755-purpose-in-prayer/"><u>Purpose in Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95659180-9781612833705-the-little-book-of-dream-symbols/"><u>The Little Book of Dream Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652295-9781515412960-the-possibilities-of-prayer/"><u>The Possibilities of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652296-9781515412953-the-power-of-awareness/"><u>The Power Of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95652300-9781515412915-the-power-of-your-subconscious-mind/"><u>The Power of Your Subconscious Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95659178-9781633410343-the-witching-herbs/"><u>The Witching Herbs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2025-01-25T23:43:51.670Z
-updated: 2025-02-01T16:10:58.333Z
+date: 2025-01-27T17:04:33.845Z
+updated: 2025-02-03T18:07:04.398Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,18 +133,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211130896-9782385640231-entrez-dans-lere-du-verseau/"><u>Entrez dans l'ère du Verseau | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130890-9782385640217-karma-mode-demploi-karmatherapie/"><u>Karma, mode d'emploi (karmathérapie...) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211131650-9781454952459-metaphysical-af/"><u>Metaphysical AF | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130950-9782355992728-n-73-le-cantique-des-cantiques-rituel-initiatique/"><u>N. 73 Le cantique des cantiques, rituel initiatique | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130948-9782355992674-n69-les-lieux-initiatiques-de-la-maitrise/"><u>N.69 Les lieux initiatiques de la maîtrise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130944-9782355992704-n71-les-dix-offices-de-la-loge-et-lhomme-univers/"><u>N.71 Les dix offices de la loge et l'homme univers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130954-9782355992735-n72-le-grand-maitre-architecte-la-maitrise-de-letui-de-mathematiques/"><u>N.72 Le grand maître architecte, la maîtrise de l'étui de mathématiques | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211131713-9798889265160-the-7-secrets-to-creating-a-life-you-love/"><u>The 7 Secrets to Creating a Life You Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211131618-9781837963034-when-therapy-doesnt-work/"><u>When Therapy Doesn't Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783041-9781594778728-ecstasy-the-complete-guide/"><u>Ecstasy: The Complete Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783047-9781594777110-krishna-in-the-sky-with-diamonds/"><u>Krishna in the Sky with Diamonds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783044-9781594775062-molecular-consciousness/"><u>Molecular Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783037-9781594779671-morphic-resonance-4th-ed/"><u>Morphic Resonance (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783046-9781620551608-peyote-dreams/"><u>Peyote Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783043-9781620550434-phantastica/"><u>Phantastica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783049-9781620551486-shamanic-quest-for-the-spirit-of-salvia/"><u>Shamanic Quest for the Spirit of Salvia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783048-9781594775109-the-heart-mind-matrix/"><u>The Heart-Mind Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783045-9781594779923-tryptamine-palace/"><u>Tryptamine Palace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

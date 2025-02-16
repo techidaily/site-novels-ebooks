@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2025-01-26T05:43:09.655Z
-updated: 2025-02-02T00:44:10.104Z
+date: 2025-01-29T16:58:55.112Z
+updated: 2025-02-03T18:14:14.279Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,18 +213,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211359630-9798869397485-embracing-the-elements/"><u>Embracing the Elements | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359591-9798330200085-hexes-and-hauntings/"><u>Hexes and Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359524-9798869398253-los-carneros-de-panurgia/"><u>Los Carneros de Panúrgia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359581--mindfulness-and-presence/"><u>Mindfulness and Presence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359643-9798869397362-the-green-witchs-guide-to-growing-magic-herbalism-for-kitchen-witches-unlock-the-secrets-of-nature-to-enrich-your-culinary-and-magical-practices/"><u>The Green Witch's Guide to Growing Magic: Herbalism for Kitchen Witches - Unlock the Secrets of Nature to Enrich Your Culinary and Magical Practices | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359590-9798869375155-the-mystical-connection/"><u>The Mystical Connection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359602-9798330200290-the-ultimate-book-of-witchcraft-spells/"><u>The Ultimate Book of Witchcraft Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359638-9798869397874-the-ultimate-guide-to-runes/"><u>The Ultimate Guide to Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211359636-9798869397607-witches-grimoire-a-comprehensive-collection-of-powerful-spells-for-wicca-practitioners-master-the-art-of-witchcraft-and-spellcasting-enhance-your-magical-skills/"><u>Witches' Grimoire: A Comprehensive Collection of Powerful Spells for Wicca Practitioners - Master the Art of Witchcraft and Spellcasting - Enhance Your Magical Skills | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440136-9781561646388-ancient-city-hauntings/"><u>Ancient City Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96454333-9781561649495-best-ghost-tales-of-north-carolina/"><u>Best Ghost Tales of North Carolina | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440154-9781561646326-florida-ghost-stories/"><u>Florida Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440126-9781561646029-orlandos-historic-haunts/"><u>Orlando's Historic Haunts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96438816-9781908746900-peachey-letters/"><u>Peachey Letters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96455109-9781420909616-practical-mysticism/"><u>Practical Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96440283-9781612680330-second-opinion/"><u>Second Opinion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96437876-9781595588869-the-cushion-in-the-road/"><u>The Cushion in the Road | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96438705-9781934170311-the-secret-source/"><u>The Secret Source | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2025-01-27T16:17:30.527Z
-updated: 2025-02-02T07:40:14.586Z
+date: 2025-01-28T17:31:58.338Z
+updated: 2025-02-03T17:58:45.905Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,13 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211395255--magic-memory-and-natural-philosophy-in-the-sixteenth-and-seventeenth-centuries/"><u>Magic, Memory and Natural Philosophy in the Sixteenth and Seventeenth Centuries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211396865-9781528799355-palmistry-a-manual-of-cheirosophy/"><u>Palmistry - A Manual of Cheirosophy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394169-9781507301135-the-numbers-of-your-life/"><u>The Numbers of Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211396866-9781528799843-the-physical-phenomena-of-mysticism-with-especial-reference-to-the-stigmata-divine-and-diabolic/"><u>The Physical Phenomena of Mysticism - With Especial Reference to the Stigmata, Divine and Diabolic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/979615-9781780997582-hey-holy-spirit-its-me-again/"><u>Hey, Holy Spirit, It's Me Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/979626-9781780998626-shamanism-the-book-of-journeys/"><u>Shamanism: The Book of Journeys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/979627-9781780991221-spiritual-wisdom-from-the-altai-mountains/"><u>Spiritual Wisdom from the Altai Mountains | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/987542-9781451656053-ten-years-later/"><u>Ten Years Later | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/991774-9780307814869-the-creative-dreamer/"><u>The Creative Dreamer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/982548-9781572338814-the-spirit-of-the-appalachian-trail/"><u>The Spirit of the Appalachian Trail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/979628-9781780990415-the-three-secrets-of-aging/"><u>The Three Secrets of Aging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/979629-9781780993423-two-hearts-in-tuva/"><u>Two Hearts in Tuva | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-26T04:50:57.410Z
-updated: 2025-02-02T05:27:40.680Z
+date: 2025-01-31T16:54:32.481Z
+updated: 2025-02-03T16:00:29.093Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,14 +236,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211310985--101-mindfulness-practices-to-ease-anxiety/"><u>101 Mindfulness Practices to Ease Anxiety | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211310991--the-longevity-formula/"><u>The Longevity Formula | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211310978-9781923009493-the-world-of-italian-folk-magic/"><u>The World of Italian Folk Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211311018--tough-love-tarot/"><u>Tough Love Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211311050--transforming-the-legacy/"><u>Transforming the Legacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317084-9781401939274-a-rebel-chick-mystics-guide/"><u>A Rebel Chick Mystic's Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317080-9781401931995-beyond-happiness/"><u>Beyond Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317068-9781401929718-born-knowing/"><u>Born Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317066-9781401928629-inspired-destiny/"><u>Inspired Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317073-9781401933036-the-nature-of-good-and-evil/"><u>The Nature of Good and Evil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317070-9781401933227-trust-your-vibes-at-work-and-let-them-work-for-you/"><u>Trust Your Vibes At Work, And Let Them Work For You! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317093-9781401942434-your-hidden-symmetry/"><u>Your Hidden Symmetry | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

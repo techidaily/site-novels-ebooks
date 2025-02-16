@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Supernatural | Free Book
-date: 2025-01-18T20:25:46.408Z
-updated: 2025-01-25T04:19:30.031Z
+date: 2025-01-31T18:31:13.305Z
+updated: 2025-02-03T16:09:36.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566938aa6bc3f19a4f2c2da321ce85b9b240.jpg
@@ -142,14 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210628684-9781087895956-a-slice-of-light/"><u>A Slice of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210628743-9781685265458-god-loves-us-all-greatly-caring-for-ourselves-as-we-care-for-our-beloved-sick-pets/"><u>God Loves Us All Greatly: Caring for Ourselves as We Care for Our Beloved Sick Pets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210628790-9780986330957-pain/"><u>Pain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210628889-9781732117235-rooted-in-faith/"><u>Rooted in Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210628704-9798985751451-trauma-inspired/"><u>Trauma-Inspired | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138547178-9780987866233-a-quest-for-healing-a-story-of-love-ebook/"><u>A Quest for Healing – A Story of Love - EBOOK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138552564-9781578596928-area-51/"><u>Area 51 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545043-9781623173500-consciousness-medicine/"><u>Consciousness Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545085-9780399582561-dont-hate-meditate/"><u>Don't Hate, Meditate! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545037-9781401929886-four-acts-of-personal-power/"><u>Four Acts of Personal Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545033-9781401920517-the-art-of-redemption/"><u>The Art of Redemption | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138547224-9789176371138-the-prophet-wisehouse-classics-edition/"><u>THE PROPHET (Wisehouse Classics Edition) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

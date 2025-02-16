@@ -1,7 +1,7 @@
 ---
 title: Stellar Sativas and Cosmic Indicas | Free Book
-date: 2024-10-25T05:19:12.304Z
-updated: 2024-10-27T04:10:56.739Z
+date: 2025-01-30T17:42:09.646Z
+updated: 2025-02-03T18:05:11.958Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0e268f487f0e58ca8681d1b42b2f0cbacefdeb7009b5a7e34ebb7394022cb456.jpg
@@ -177,3 +177,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0e268f487f0e58ca8681d1b42b2f0cb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/882073-9781907203305-5p1r1t-r3v3l4t10n5-2nd-ed/"><u>5P1R1T R3V3L4T10N5 (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/879330-9781583945179-exploring-the-edge-realms-of-consciousness/"><u>Exploring the Edge Realms of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/873695-9781448146666-intuition/"><u>Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/875513-9780307815958-looking-for-the-other-side/"><u>Looking for the Other Side | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

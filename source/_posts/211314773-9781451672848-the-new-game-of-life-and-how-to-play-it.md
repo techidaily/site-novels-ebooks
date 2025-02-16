@@ -1,7 +1,7 @@
 ---
 title: The New Game of Life and How to Play It | Free Book
-date: 2024-10-24T20:12:41.019Z
-updated: 2024-10-26T23:26:12.624Z
+date: 2025-01-31T18:09:14.742Z
+updated: 2025-02-03T16:01:20.748Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/53ee235609ffa6b120058272a6c30d773213c67f5417eb5ebb399eaa9549b37d.jpg
@@ -167,3 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/53ee235609ffa6b120058272a6c30d7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/781876-9781846949098-an-angels-guide-to-working-with-the-power-of-light/"><u>An Angels' Guide to Working with the Power of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781882-9781780991450-mirror-of-the-free/"><u>Mirror of the Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781885-9781780991481-seeing-the-good-in-unfamiliar-spiritualities/"><u>Seeing the Good in Unfamiliar Spiritualities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781877-9781846948367-the-awakening-human-being/"><u>The Awakening Human Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781886-9781846948305-the-silence-of-the-mind/"><u>The Silence of the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/781888-9781780991504-writings-from-oneness/"><u>Writings from Oneness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

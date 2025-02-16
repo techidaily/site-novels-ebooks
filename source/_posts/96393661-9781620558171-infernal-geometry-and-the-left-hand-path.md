@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2025-01-29T22:51:00.733Z
-updated: 2025-02-02T06:32:44.887Z
+date: 2025-01-30T17:21:35.749Z
+updated: 2025-02-03T18:27:37.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,17 +203,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211476316--close-encounters/"><u>Close Encounters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476671-9781907767494-prophecy-and-power-2nd-ed/"><u>Prophecy and Power (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211475872--redistribution-of-wealth-in-america-and-beyond-the-new-civil-war/"><u>Redistribution Of Wealth In America And Beyond - The New Civil War | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476485-9781839388712-rosicrucianism/"><u>Rosicrucianism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476413-9781839388699-shamanism/"><u>Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211475891-9781397665270-the-call-of-kumayl/"><u>The Call of Kumayl | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477015-9781397665355-the-secret-of-the-saucers/"><u>The Secret of the Saucers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211476238-9781397665300-the-sixth-book-of-moses-and-the-seventh-book-of-moses/"><u>The Sixth Book of Moses and The Seventh Book of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128031-9781609257842-gay-witchcraft/"><u>Gay Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128035-9781609257736-mastering-the-toltec-way/"><u>Mastering the Toltec Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128040-9781609257668-sai-baba/"><u>Sai Baba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128046-9781609258290-tarot-decoded/"><u>Tarot Decoded | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128034-9781609258511-the-mark-of-the-beast/"><u>The Mark of the Beast | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2025-01-28T01:13:18.833Z
-updated: 2025-02-01T17:26:20.229Z
+date: 2025-02-02T16:48:02.245Z
+updated: 2025-02-03T18:29:25.911Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,16 +192,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211127323-9780760390559-chakras-for-beginners/"><u>Chakras for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211127401-9788196536596-health-diet/"><u>Health & Diet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211127801-9781398484078-rewiring-the-human-brain-how-extra-terrestrials-shape-humanity/"><u>Rewiring the Human Brain: How Extra-terrestrials Shape Humanity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211127298-9780760390634-simple-meditation-practice-for-beginners/"><u>Simple Meditation Practice for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211128400-9781736737064-the-4c-heart/"><u>The 4C Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211128301-9781955136938-utterances-from-heaven/"><u>Utterances from "Heaven " | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211128424-9781912914340-you-matter/"><u>You Matter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783013-9781594775642-ayahuasca/"><u>Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783016-9781620551943-ayahuasca-medicine/"><u>Ayahuasca Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783017-9781594775130-cactus-of-mystery/"><u>Cactus of Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783027-9781594777714-chaos-creativity-and-cosmic-consciousness-2nd-ed/"><u>Chaos, Creativity, and Cosmic Consciousness (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783031-9781594775185-green-psychology/"><u>Green Psychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783028-9781620550571-sharp-spear-crystal-mirror/"><u>Sharp Spear, Crystal Mirror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783025-9781620555385-the-panic-fables/"><u>The Panic Fables | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783024-9781620551462-the-sense-of-being-stared-at/"><u>The Sense of Being Stared At | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783026-9781594775017-the-shamanic-odyssey/"><u>The Shamanic Odyssey | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

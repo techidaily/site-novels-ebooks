@@ -1,7 +1,7 @@
 ---
 title: The Zodiac Year | Free Book
-date: 2024-10-25T05:55:48.625Z
-updated: 2024-10-26T19:41:06.875Z
+date: 2025-02-02T18:31:46.527Z
+updated: 2025-02-03T16:00:46.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3e19d2cfc531833cfa856a0d94f326f53b98b553f54d94b79523f8eb461d681b.jpg
@@ -147,3 +147,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3e19d2cfc531833cfa856a0d94f326f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782134-9781620553954-awakening-higher-consciousness/"><u>Awakening Higher Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782133-9781594779893-quantum-shift-in-the-global-brain/"><u>Quantum Shift in the Global Brain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782138-9781594777721-the-hermetic-code-in-dna/"><u>The Hermetic Code in DNA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782137-9781594779312-the-invisible-history-of-the-rosicrucians/"><u>The Invisible History of the Rosicrucians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782135-9781620554166-the-john-michell-reader-2nd-ed/"><u>The John Michell Reader (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782136-9781594776298-the-sacred-embrace-of-jesus-and-mary/"><u>The Sacred Embrace of Jesus and Mary | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

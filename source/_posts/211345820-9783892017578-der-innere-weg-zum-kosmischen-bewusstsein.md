@@ -1,7 +1,7 @@
 ---
 title: Der Innere Weg zum kosmischen Bewusstsein | Free Book
-date: 2024-10-20T23:38:46.256Z
-updated: 2024-10-27T05:29:26.260Z
+date: 2025-01-31T17:05:39.122Z
+updated: 2025-02-03T16:39:50.413Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2b75d2120ed4fb2398cf40115ea7b6852252728082a072bacc697dad5d00a310.jpg
@@ -162,3 +162,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2b75d2120ed4fb2398cf40115ea7b68
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2208320-9780007279746-an-angel-by-my-side/"><u>An Angel By My Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208312-9780007279760-derek-acorah-extreme-psychic/"><u>Derek Acorah: Extreme Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208306-9780007279821-derek-acorahs-amazing-psychic-stories/"><u>Derek Acorah’s Amazing Psychic Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208317-9780007279845-haunted-britain-and-ireland-over-100-of-the-scariest-places-to-visit-in-the-uk-and-ireland/"><u>Haunted Britain and Ireland: Over 100 of the Scariest Places to Visit in the UK and Ireland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208364-9780007283927-haunted-scariest-stories-from-the-uks-no-1-psychic/"><u>Haunted: Scariest stories from the UK's no. 1 psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208367-9780007283965-the-element-encyclopedia-of-secret-signs-and-symbols/"><u>The Element Encyclopedia of Secret Signs and Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2208370-9780007283743-your-personal-horoscope-2009-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2009: Month-by-month Forecasts for Every Sign | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

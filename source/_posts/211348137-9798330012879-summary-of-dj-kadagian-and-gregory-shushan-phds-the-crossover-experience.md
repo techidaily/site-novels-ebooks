@@ -1,7 +1,7 @@
 ---
 title: Summary of DJ Kadagian and Gregory Shushan PhD's The Crossover Experience | Free Book
-date: 2024-10-20T22:05:30.731Z
-updated: 2024-10-27T01:12:36.578Z
+date: 2025-01-28T18:30:11.783Z
+updated: 2025-02-03T17:25:42.935Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbc4c28fb59093df798afdc052c2acc85c3a26739a4666c1dd89d08cf5a771e0.jpg
@@ -138,3 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbc4c28fb59093df798afdc052c2acc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2246129-9781848585119-10000-dreams-interpreted/"><u>10,000 Dreams Interpreted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2246374-9781609259846-levitation/"><u>Levitation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2236865-9781785352973-the-audible-life-stream/"><u>The Audible Life Stream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2233012-9780316393294-witches/"><u>Witches | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

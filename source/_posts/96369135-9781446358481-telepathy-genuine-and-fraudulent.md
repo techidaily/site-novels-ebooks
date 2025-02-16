@@ -1,7 +1,7 @@
 ---
 title: "Telepathy: Genuine and Fraudulent | Free Book"
-date: 2025-01-24T04:09:13.084Z
-updated: 2025-01-25T02:59:39.515Z
+date: 2025-01-29T16:07:00.948Z
+updated: 2025-02-03T16:54:55.135Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391dc86b2fcd9a349461b60713368b976b43.jpg
@@ -150,15 +150,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d77043acd623894e29f45d767dd5391
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210673461-9783000734441-conversations-with-the-universe/"><u>Conversations with The Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673484-9798986826813-from-disbelief-to-assurance/"><u>From Disbelief to Assurance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673018-9798986043227-problem-solved/"><u>Problem Solved | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673015-9781838197162-quotes-about-consciousness/"><u>Quotes about Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673025-9798986664729-the-new-5d-human/"><u>The new 5D HUman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210673547-9781685173876-the-struggle-and-how-we-slayed-the-dragon/"><u>The Struggle and How We Slayed the Dragon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583970-9781449714352-compass-points-for-daily-living/"><u>Compass Points for Daily Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583565-9781452532486-free-to-fly/"><u>Free to Fly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583538-9781452540184-luminous-mountain/"><u>Luminous Mountain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138583900-9781491780893-tarot/"><u>Tarot | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

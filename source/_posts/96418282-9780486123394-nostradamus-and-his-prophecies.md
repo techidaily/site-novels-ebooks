@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2025-01-26T04:35:42.863Z
-updated: 2025-02-01T18:52:18.949Z
+date: 2025-01-30T17:43:39.759Z
+updated: 2025-02-03T16:46:00.738Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,14 +151,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211447313-9798330373581-alef-la-verdad-original/"><u>Alef - La Verdad Original | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447352-9798991067140-from-quiet-moments/"><u>From Quiet Moments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447353-9798991067126-from-quiet-moments/"><u>From Quiet Moments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447354-9798991067188-from-quiet-moments/"><u>From Quiet Moments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447324-9798991221726-the-power-of-life-coaching-volume-4/"><u>The Power of Life Coaching Volume 4 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125800-9781609252304-intuition/"><u>Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125801-9781609251352-intuitive-living/"><u>Intuitive Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125805-9781609255725-john-dees-five-books-of-mystery/"><u>John Dee's Five Books of Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125817-9781609250751-keywords-for-the-crowley-tarot/"><u>Keywords for the Crowley Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125818-9781609254209-the-ki-process/"><u>The Ki Process | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

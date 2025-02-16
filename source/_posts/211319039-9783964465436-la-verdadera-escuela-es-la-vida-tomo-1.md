@@ -1,7 +1,7 @@
 ---
 title: La verdadera escuela es la vida. Tomo 1 | Free Book
-date: 2024-10-21T17:16:51.974Z
-updated: 2024-10-26T16:46:22.897Z
+date: 2025-01-29T17:48:03.552Z
+updated: 2025-02-03T16:12:27.773Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aed8b703327663f731e0da446e2d14c42bdad85febd49f658a5f2f68a3bc4b0f.jpg
@@ -147,3 +147,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aed8b703327663f731e0da446e2d14c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/675980-9780753547243-alien-dawn-an-investigation-into-the-contact-experience/"><u>Alien Dawn: An Investigation into the Contact Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/676317-9781846947476-essence-of-reality/"><u>Essence of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/673209-9781451654301-healing-your-rift-with-god/"><u>Healing Your Rift with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/673232-9781451654356-intuitive-wellness/"><u>Intuitive Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/673267-9781451654394-the-great-wing/"><u>The Great Wing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/675789-9781439147030-walk-in-balance/"><u>Walk in Balance | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

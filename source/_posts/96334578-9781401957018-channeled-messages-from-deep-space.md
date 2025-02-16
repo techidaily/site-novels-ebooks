@@ -1,7 +1,7 @@
 ---
 title: Channeled Messages from Deep Space | Free Book
-date: 2025-01-19T17:54:22.378Z
-updated: 2025-01-24T21:51:06.161Z
+date: 2025-01-31T17:06:16.525Z
+updated: 2025-02-03T16:03:59.106Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f7b764cbb04d2a03ae69325a1bbdf28490.jpg
@@ -230,13 +230,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e7cce5406d19702b533a0c3b44e578f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210655587-9781454940463-year-of-the-ox/"><u>Year of the Ox | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655573-9781454939108-zodiac-signs-scorpio/"><u>Zodiac Signs: Scorpio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655574-9781454939115-zodiac-signs-taurus/"><u>Zodiac Signs: Taurus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210655580-9781454939122-zodiac-signs-virgo/"><u>Zodiac Signs: Virgo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572036-9781462075270-guided-by-spirit/"><u>Guided by Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572068-9781469782263-hoo/"><u>Hoo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572083-9781450297257-the-pounce-theory/"><u>The Pounce Theory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572046-9781450253246-the-signs-that-god-speaks-and-the-mysteries-of-the-universe/"><u>The Signs That God Speaks And, the Mysteries of the Universe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

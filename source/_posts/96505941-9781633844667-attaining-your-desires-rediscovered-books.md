@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2025-01-27T08:08:01.004Z
-updated: 2025-02-01T18:48:53.158Z
+date: 2025-01-30T16:31:36.674Z
+updated: 2025-02-03T17:48:43.313Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,14 +140,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211151014--crystals-love/"><u>Crystals & Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150623-9781958711842-eloveate/"><u>Eloveate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211151758-9781685681104-la-intuicion/"><u>La intuición | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150662-9781958405826-re-write-your-life-ii/"><u>Re-Write Your Life II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150461-9781977269584-the-bible-of-the-pure-soul-and-mind/"><u>The Bible of the Pure Soul and Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95813520-9781507149577-investigating-events-with-astrology-practical-astrology/"><u>Investigating Events with Astrology: Practical Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95814285-9781507168042-le-vostre-vite-infestate/"><u>Le vostre vite infestate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95814523-9781507148631-previsoes-astrologicas-uma-nova-descoberta-sobre-a-leitura-de-transitos-planetarios/"><u>Previsões astrológicas: uma nova descoberta sobre a leitura de trânsitos planetários | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95815132-9781507152249-taro-arcanos-menores-seus-significados-sem-necessidade-de-memorizar/"><u>Tarô Arcanos Menores, seus significados sem necessidade de memorizar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95815654-9781616405953-the-joy-of-ritual/"><u>The Joy of Ritual | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

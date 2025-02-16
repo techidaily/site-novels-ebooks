@@ -1,7 +1,7 @@
 ---
 title: The Modern Witch's Handbook | Free Book
-date: 2024-10-25T19:33:08.770Z
-updated: 2024-10-27T05:28:34.637Z
+date: 2025-02-01T16:29:36.916Z
+updated: 2025-02-03T17:11:07.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1639cfb897a449bbe8a9ff6ea363356d31bfb616b7818104c3fe7c3bd71da321.jpg
@@ -165,3 +165,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1639cfb897a449bbe8a9ff6ea363356
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/677705-9780857010131-a-tai-chi-imagery-workbook/"><u>A Tai Chi Imagery Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/677627-9780857010179-chinese-medical-qigong/"><u>Chinese Medical Qigong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/677981-9789814346047-feng-shui-in-chinese-architecture/"><u>Feng Shui in Chinese Architecture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/677682-9780857010162-managing-stress-with-qigong/"><u>Managing Stress with Qigong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/677980-9789814346030-personalise-your-feng-shui/"><u>Personalise Your Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/677708-9780857010292-qigong-for-multiple-sclerosis/"><u>Qigong for Multiple Sclerosis | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

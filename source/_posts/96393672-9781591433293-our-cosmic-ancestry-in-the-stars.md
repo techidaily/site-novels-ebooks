@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2025-01-23T20:03:48.609Z
-updated: 2025-01-24T20:04:42.520Z
+date: 2025-01-31T17:29:43.775Z
+updated: 2025-02-03T18:42:13.652Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,15 +191,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210563940-9791029913730-freemasonry-and-catholicism/"><u>Freemasonry and Catholicism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563831-9781685177867-i-looked-in-your-eyes-and-saw-the-devil/"><u>I Looked in Your Eyes and Saw the Devil | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563763-9780988499058-peace-energy/"><u>Peace & Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563785-9798985899108-the-message/"><u>The Message | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563928-9781087954714-transcendence/"><u>Transcendence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563911-9781637511572-zek/"><u>Zek | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154039-9781577317258-developing-intuition/"><u>Developing Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154045-9781577318927-dreamgates/"><u>Dreamgates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154046-9781608680597-dreaming-the-soul-back-home/"><u>Dreaming the Soul Back Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154050-9781577312949-echoes-of-the-soul/"><u>Echoes of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154034-9781608681556-effortless-mind/"><u>Effortless Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154417-9781608680610-everyday-meditation/"><u>Everyday Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154418-9781577319719-expand-this-moment/"><u>Expand This Moment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154267-9780991697533-the-other-side-of-truth/"><u>The Other Side of Truth | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

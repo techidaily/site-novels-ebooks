@@ -1,7 +1,7 @@
 ---
 title: Wild Alchemy | Free Book
-date: 2024-10-25T02:06:31.511Z
-updated: 2024-10-26T17:40:52.962Z
+date: 2025-01-31T16:54:16.098Z
+updated: 2025-02-03T17:52:00.189Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b286f89f50889f67f94a1f4f41308168e7d10d215aa080cda1dda692c38f7352.jpg
@@ -133,3 +133,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b286f89f50889f67f94a1f4f4130816
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782177-9781594778575-atlantis-and-the-cycles-of-time/"><u>Atlantis and the Cycles of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782174-9781620550922-joseph-campbell-a-fire-in-the-mind/"><u>Joseph Campbell: A Fire in the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782186-9781594779909-science-and-the-akashic-field-2nd-ed/"><u>Science and the Akashic Field (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782187-9781594779022-science-and-the-near-death-experience/"><u>Science and the Near-Death Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782185-9781594776519-science-and-the-reenchantment-of-the-cosmos/"><u>Science and the Reenchantment of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782184-9781594777851-shakti/"><u>Shakti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782180-9781594776830-the-return-of-the-dead/"><u>The Return of the Dead | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

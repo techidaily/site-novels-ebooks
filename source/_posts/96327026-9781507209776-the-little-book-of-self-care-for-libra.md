@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Libra | Free Book
-date: 2025-01-23T05:55:17.130Z
-updated: 2025-01-24T18:46:12.637Z
+date: 2025-01-30T17:32:24.289Z
+updated: 2025-02-03T17:27:22.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9c3e734e63a96b466b3af667a3a62c89c9.jpg
@@ -168,18 +168,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2136bc8e43802af0a37786747d07ca9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210702510-9798218064846-behind-her-smile-was-pain/"><u>Behind Her Smile Was Pain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703148-9780875169255-book-of-solace/"><u>Book of Solace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210702483-9781915393555-happy-birthday-love-joan/"><u>Happy Birthday-Love, Joan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210702514-9781958997116-operating-in-abundance-2nd-ed/"><u>Operating in Abundance (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210702493-9781913590727-soul-shine/"><u>Soul Shine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703001-9781401971243-spirit-talker/"><u>Spirit Talker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703184-9781684985050-the-end-of-aging/"><u>The End of Aging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703083-9781958405178-the-quantum-being/"><u>The Quantum Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703099-9781778058516-you-are-love/"><u>You Are Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595141-9781449726966-angel-in-my-room/"><u>Angel in My Room | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595175-9781449748753-divine-inspirations/"><u>Divine Inspirations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595112-9781463307011-fantasmas-mito-realidad-o-fantasia/"><u>Fantasmas: Mito, Realidad O Fantasía | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595130-9781449755782-fasting-outside-the-box/"><u>Fasting Outside the Box | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595142-9781469700168-i-cry-for-you-i-cry-for-me/"><u>I Cry for You, I Cry for Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595131-9781452546469-pathways-to-god/"><u>Pathways to God | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

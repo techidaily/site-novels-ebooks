@@ -1,7 +1,7 @@
 ---
 title: Heal Yourself, Heal the World | Free Book
-date: 2024-10-24T05:13:26.986Z
-updated: 2024-10-26T19:24:11.658Z
+date: 2025-01-27T16:46:32.183Z
+updated: 2025-02-03T17:28:50.460Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4eea32d8e058c33a0d9ad98ed11c77746e04f34556dc069bf63ef75a8ce7f70f.jpg
@@ -168,3 +168,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4eea32d8e058c33a0d9ad98ed11c777
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/811271-9781448111824-2012/"><u>2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/815733-9781466805149-haunted-america/"><u>Haunted America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/816789-9781448118205-lillian-toos-little-book-of-abundance/"><u>Lillian Too's Little Book Of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/809676-9780857005137-spiritual-care-at-the-end-of-life/"><u>Spiritual Care at the End of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/808435-9781846948268-the-parable-of-his-story/"><u>The Parable of His-Story | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

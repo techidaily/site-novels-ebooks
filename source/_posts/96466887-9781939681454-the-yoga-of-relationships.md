@@ -1,7 +1,7 @@
 ---
 title: The Yoga of Relationships | Free Book
-date: 2025-01-27T05:12:07.180Z
-updated: 2025-02-02T00:53:23.995Z
+date: 2025-01-28T16:22:35.811Z
+updated: 2025-02-03T18:33:51.968Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabbce5ee0d059b3d3249bd61805ae7119053.jpg
@@ -162,17 +162,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7d20d5863ad0f51f57ad693f50eabb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211434956-9781648414688-cooking-with-magic-mushrooms/"><u>Cooking with Magic Mushrooms | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435308-9781068848902-decode-the-deck/"><u>Decode the Deck | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435707-9788412856330-die-wahl-der-seele-teil-1/"><u>Die Wahl der Seele. Teil 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435708-9788412856354-die-wahl-der-seele-teil-2/"><u>Die Wahl der Seele. Teil 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435706-9798894650548-our-spiritual-being-above-and-beyond-our-human-condition-spirit-form/"><u>Our Spiritual Being Above and Beyond our Human Condition: Spirit & Form | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435042--pain-free/"><u>Pain Free | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435582-9798218474614-spell-jars-and-pouches/"><u>Spell Jars and Pouches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211435021--truth-demands/"><u>Truth Demands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1122848-9781136183218-alchemy-in-europe/"><u>Alchemy in Europe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121464--el-libro-de-las-supersticiones/"><u>El libro de las supersticiones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124117-9781618520470-enchanted-one/"><u>Enchanted One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124118-9781618520234-foal-and-the-angels/"><u>Foal and the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124121-9781609258627-the-best-of-the-equinox-dramatic-ritual/"><u>The Best of the Equinox, Dramatic Ritual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/112408-9781930051195-the-joy-of-weight-loss/"><u>The Joy of Weight Loss | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

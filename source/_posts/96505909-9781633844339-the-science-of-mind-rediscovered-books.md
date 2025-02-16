@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2025-01-27T23:31:39.710Z
-updated: 2025-02-02T02:35:53.051Z
+date: 2025-01-30T16:16:49.115Z
+updated: 2025-02-03T18:31:00.958Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,16 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211150221-9780008667535-aries-2025-your-personal-horoscope/"><u>Aries 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150224-9780008667566-cancer-2025-your-personal-horoscope/"><u>Cancer 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150223-9780008667559-gemini-2025-your-personal-horoscope/"><u>Gemini 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150225-9780008667573-leo-2025-your-personal-horoscope/"><u>Leo 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211149978-9781739579708-seer-i/"><u>SEER I | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150222-9780008667542-taurus-2025-your-personal-horoscope/"><u>Taurus 2025: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211150220-9780008667528-your-personal-horoscope-2025/"><u>Your Personal Horoscope 2025 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95811738-9781944529178-anthropology-and-psychic-research/"><u>Anthropology and Psychic Research | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95812045-9781616406363-astrology-and-your-health/"><u>Astrology and Your Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95811244-9781944529277-devices-for-monitoring-nonphysical-energies/"><u>Devices for Monitoring Nonphysical Energies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95811545-9781507172742-la-tua-buona-stella-15-strumenti-per-lavorare-con-la-legge-dellattrazione/"><u>La tua buona stella: 15 strumenti per lavorare con la Legge dell'Attrazione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95811514-9781944529147-parapsychology-today/"><u>Parapsychology Today | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810928-9781944529307-psychic-phenomena-and-mystical-experience/"><u>Psychic Phenomena and Mystical Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95811426-9781524758837-real-magic/"><u>Real Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95811630-9781616409128-the-master-key-system/"><u>The Master Key System | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

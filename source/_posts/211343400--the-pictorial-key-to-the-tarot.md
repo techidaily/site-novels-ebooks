@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2024-10-19T17:18:14.035Z
-updated: 2024-10-26T20:44:56.501Z
+date: 2025-01-31T16:44:15.978Z
+updated: 2025-02-03T18:12:46.160Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8f3a40336981d2a11900b96df673a0d15bcb3d155a2651c8696c542e00d24986.jpg
@@ -144,3 +144,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8f3a40336981d2a11900b96df673a0d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2562565-9781785352966-beyond-the-furthest-edge-of-night/"><u>Beyond the Furthest Edge of Night | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563544-9781780282534-cracking-the-symbol-code/"><u>Cracking the Symbol Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2562398-9781493024933-haunted-boston/"><u>Haunted Boston | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563551-9781780284255-intervention/"><u>Intervention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2562572-9781782794677-secrets-of-the-combined-astrology/"><u>Secrets of the Combined Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2562573-9781782797784-the-art-of-ritual/"><u>The Art of Ritual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2562575-9781785350061-the-gift-of-an-angel/"><u>The Gift of an Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2563547-9781780284095-the-psychics-handbook/"><u>The Psychic's Handbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

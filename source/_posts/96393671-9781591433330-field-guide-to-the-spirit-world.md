@@ -1,7 +1,7 @@
 ---
 title: Field Guide to the Spirit World | Free Book
-date: 2025-01-20T23:14:40.169Z
-updated: 2025-01-24T19:18:49.621Z
+date: 2025-01-28T18:12:19.679Z
+updated: 2025-02-03T18:04:53.674Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f9627ce9889a5066fd40f398ff9914148716f.jpg
@@ -207,14 +207,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/115f8f3d3bac7860acd62ef55f8f962
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210563523-9789391028848-ashramed/"><u>Ashramed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563175-9782019465025-les-7-codes-de-larbre-de-vie/"><u>Les 7 codes de l'arbre de vie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562414-9781935492023-serving-amp-giving/"><u>Serving &amp; Giving | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563061-9781911670193-the-alexander-technique-workbook/"><u>The Alexander Technique Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562419-9781893020795-you-are-the-blessings/"><u>You Are the Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154015-9781577319696-a-book-of-miracles/"><u>A Book of Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153701-9781608681396-astrology-for-the-new-age/"><u>Astrology for the New Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153704-9781577318293-beginning-mindfulness/"><u>Beginning Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153708-9781577318378-beyond-knowing/"><u>Beyond Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154025-9781577319535-christian-mystics/"><u>Christian Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154031-9781932073287-creating-miracles/"><u>Creating Miracles | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

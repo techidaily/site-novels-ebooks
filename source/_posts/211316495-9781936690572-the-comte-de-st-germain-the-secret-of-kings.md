@@ -1,7 +1,7 @@
 ---
 title: THE COMTE DE ST. GERMAIN  The Secret of kings | Free Book
-date: 2024-10-24T02:08:47.155Z
-updated: 2024-10-27T05:31:20.195Z
+date: 2025-02-01T16:13:23.772Z
+updated: 2025-02-03T16:17:09.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91d9010dbab44dabe7da2d5b9e0ea4dd49c72e74972db64ad685825418544e0a.jpg
@@ -148,3 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91d9010dbab44dabe7da2d5b9e0ea4d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/906781-9781476700410-a-message-of-hope-from-the-angels/"><u>A Message of Hope from the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/906163-9781583945704-cosmic-cradle-revised-edition/"><u>Cosmic Cradle, Revised Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/906160-9781583945674-journey-of-your-soul/"><u>Journey of Your Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/906580-9781743347836-the-one/"><u>The One | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

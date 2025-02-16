@@ -1,7 +1,7 @@
 ---
 title: The Hidden Meaning of Birds--A Spiritual Field Guide | Free Book
-date: 2025-01-19T22:03:07.891Z
-updated: 2025-01-24T20:31:01.343Z
+date: 2025-02-01T17:30:31.917Z
+updated: 2025-02-03T16:18:31.622Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b328c27d0da18dbcae6a65e3c2ccf06fc39484cebda1ef58e7c59b816f16bf11.jpg
@@ -186,18 +186,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b328c27d0da18dbcae6a65e3c2ccf06
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210569356-9781399803038-21-day-mindfulness-challenge/"><u>21 Day Mindfulness Challenge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210567260-9781788179201-21-days-to-understand-qabalah/"><u>21 Days to Understand Qabalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569498-9798985980011-how-the-stars-tell-time/"><u>How the Stars Tell Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569738-9780760373460-in-focus-divination/"><u>In Focus Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569460-9798986216614-lucid-journey/"><u>Lucid Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569220-9781398824393-profeten/"><u>Profeten | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210568175-9781493044900-spooky-north-carolina-2nd-ed/"><u>Spooky North Carolina (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210567409-9781737092438-the-ketamine-papers/"><u>The Ketamine Papers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210569571-9798885406864-walking-spiritually-naturally/"><u>Walking Spiritually Naturally | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154463-9781577316916-el-poder-del-ahora/"><u>El poder del ahora | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154469-9781577319467-human-design/"><u>Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154461-9781608680825-know-yourself-forget-yourself/"><u>Know Yourself, Forget Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154532-9781608681464-the-magical-path/"><u>The Magical Path | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

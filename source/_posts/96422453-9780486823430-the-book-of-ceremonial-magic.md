@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2025-01-31T05:12:13.523Z
-updated: 2025-02-01T21:58:27.416Z
+date: 2025-01-29T18:07:27.213Z
+updated: 2025-02-03T18:48:19.421Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,17 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211455298-9798330398249-hackear-el-universo/"><u>Hackear el Universo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455288-9798330398164-hackear-o-universo/"><u>Hackear o Universo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455291-9798330398102-hacking-the-universe/"><u>Hacking the Universe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455300-9798330398270-manipulati-universul/"><u>Manipulați Universul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455278-9798330397822-secretele-maestrului-alchimist/"><u>Secretele maestrului alchimist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455277-9798330397761-secretos-del-maestro-alquimista/"><u>Secretos del Maestro Alquimista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455490-9798218506162-transformative-declarations/"><u>Transformative Declarations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455301-9798330398300-piratepse-to-sympan/"><u>Πιράτεψε το Σύμπαν | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125983-9781609257705-quantum-affirmations/"><u>Quantum Affirmations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125994-9781609252847-reclaim-the-power-of-the-witch/"><u>Reclaim the Power of the Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125997-9781609254087-relating/"><u>Relating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126001-9781609253974-retrograde-planets/"><u>Retrograde Planets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126002-9781609256449-return-again/"><u>Return Again | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125976-9781609254650-the-psychic-self-defense-personal-training-manual/"><u>The Psychic Self-Defense Personal Training Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125982-9781609257903-the-qabalah/"><u>The Qabalah | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

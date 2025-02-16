@@ -1,7 +1,7 @@
 ---
 title: Make Up Your Mind to Be Happy | Free Book
-date: 2025-01-24T02:08:15.143Z
-updated: 2025-01-24T16:28:00.445Z
+date: 2025-01-27T16:59:11.948Z
+updated: 2025-02-03T16:21:21.039Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6390825bfede81050f5295315166d3340a.jpg
@@ -138,15 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4f5efd628af52a04501c4b4042956d6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210685484-9781644116821-a-new-science-of-the-afterlife/"><u>A New Science of the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685483-9781644116012-runes-and-astrology-3rd-ed/"><u>Runes and Astrology (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685486-9781644116869-tales-and-legends-of-the-devil/"><u>Tales and Legends of the Devil | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685481-9781644112915-the-hermetic-marriage-of-art-and-alchemy/"><u>The Hermetic Marriage of Art and Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685487-9781644117170-the-royal-path-of-shakti/"><u>The Royal Path of Shakti | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685485-9781644116098-the-secret-of-resilience/"><u>The Secret of Resilience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589390-9781452541129-get-to-good/"><u>Get to Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589362-9781452547275-open-the-mind-exercise-the-soul/"><u>Open the Mind Exercise the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589429-9781452545783-spiritual-awakening/"><u>Spiritual Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589460-9781458200761-the-sacred-unspoken-language/"><u>The Sacred, Unspoken Language | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589394-9781452539119-who-would-i-be-if-i-werent-so-afraid/"><u>Who Would I Be If I Weren't so Afraid? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

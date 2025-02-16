@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2025-01-28T02:35:49.703Z
-updated: 2025-02-01T20:42:55.660Z
+date: 2025-01-31T16:36:41.922Z
+updated: 2025-02-03T16:36:29.573Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,14 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211148665-9781398838048-astrology/"><u>Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211149717-9780645870213-by-divine-instruction-lessons-in-metaphysical-healing/"><u>By Divine Instruction - Lessons in Metaphysical Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211148663-9781398838055-palmistry/"><u>Palmistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211149654-9780711294226-radical-self-care/"><u>Radical Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211149667-9780760391341-the-aura-chakra-healing-companion/"><u>The Aura & Chakra Healing Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810540-9781507143643-arcanos-maiores-do-tarot-o-seu-significado-sem-recorrer-a-memoria/"><u>Arcanos Maiores do Tarot: o seu significado sem recorrer à memória. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809100-9781944529123-precognition-and-retrocognition/"><u>Precognition and Retrocognition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809797-9781507143513-predictive-astrology-a-new-discovery-in-the-transits-reading/"><u>Predictive Astrology, a new discovery in the transits reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810344-9781616409777-rightly-dividing-the-word/"><u>Rightly Dividing the Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809905-9781944529253-the-emergence-of-paraphysics-theoretical-foundations/"><u>The Emergence of Paraphysics: Theoretical Foundations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809320-9781944529093-the-psychic-personality/"><u>The Psychic Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95809021-9781944529154-the-psychobiology-of-psi/"><u>The Psychobiology of Psi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95810808-9781786781383-the-shadow-that-seeks-the-sun/"><u>The Shadow That Seeks the Sun | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

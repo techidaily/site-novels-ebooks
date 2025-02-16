@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2025-01-27T21:17:46.504Z
-updated: 2025-02-01T17:50:28.668Z
+date: 2025-01-28T16:58:17.460Z
+updated: 2025-02-03T16:39:52.571Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,18 +171,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211213375-9798889603474-angels-my-bedside/"><u>Angels @ My Bedside | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211213023-9798888328941-anunnaki-are-in-the-bible/"><u>Anunnaki Are In The Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211219112-9798890611291-awakening-the-healing-power-within-holistic-nutrition-and-natural-therapies/"><u>Awakening The Healing Power Within Holistic Nutrition And Natural Therapies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211218275-9781803414799-developing-your-supernatural-awareness/"><u>Developing Your Supernatural Awareness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211218270-9781789048612-fairy/"><u>Fairy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211218273-9781803413228-pagan-portals-artemis/"><u>Pagan Portals: Artemis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211213608-9798350069341-summary-of-dean-koontzs-a-big-little-life/"><u>Summary of Dean Koontz's A Big Little Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211218272-9781803412665-the-mindful-medium-a-practical-guide-to-spirituality/"><u>The Mindful Medium: A Practical Guide to Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211213934-9781801292795-why-our-minds-wander/"><u>Why Our Minds Wander | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935316-9781844098316-crystal-gifts/"><u>Crystal Gifts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931743-9781507207192-emotional-detox/"><u>Emotional Detox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935314-9781844093403-gem-water/"><u>Gem Water | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931776-9781501188282-messages-from-the-divine/"><u>Messages from the Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935318-9781844093427-purifying-crystals/"><u>Purifying Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931691-9781614294214-relational-mindfulness/"><u>Relational Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935315-9781844093373-the-healing-crystals-first-aid-manual/"><u>The Healing Crystals First Aid Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95931739-9781507207215-the-modern-witchcraft-book-of-natural-magick/"><u>The Modern Witchcraft Book of Natural Magick | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

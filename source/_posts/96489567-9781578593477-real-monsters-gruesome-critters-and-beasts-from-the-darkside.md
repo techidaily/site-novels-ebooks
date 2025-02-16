@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2025-01-28T05:02:52.778Z
-updated: 2025-02-01T21:08:15.548Z
+date: 2025-01-28T16:07:02.715Z
+updated: 2025-02-03T17:04:21.752Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,17 +262,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211360577-9791223023853-despertando-a-consciencia-interior/"><u>Despertando a Consciência Interior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211363968--intuition/"><u>Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211363330-9782017289807-le-mont-des-oliviers/"><u>Le Mont des Oliviers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211361585-9781529936933-let-the-light-in/"><u>Let the Light In | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360566-9791223023839-mente-subconsciente-vida-consciente/"><u>Mente Subconsciente, Vida Consciente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360706--mindful-moments/"><u>Mindful Moments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360647-9788090910997-paralelni-svety/"><u>Paralelní světy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211360569-9791223023860-podsoznanie/"><u>Подсознание | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456390-9781420937664-mental-chemistry/"><u>Mental Chemistry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456244-9781596746718-miracle-mongers-and-their-methods/"><u>Miracle Mongers and Their Methods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456840-9781420948141-the-key-of-solomon-the-king-clavicula-salomonis/"><u>The Key of Solomon the King: Clavicula Salomonis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96456876-9781420956108-the-science-of-mind-the-original-1926-edition/"><u>The Science of Mind (The Original 1926 Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96464922-9781615931132-the-shaman-and-ayahuasca/"><u>The Shaman and Ayahuasca | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Summary of Neven Paar's Serpent Rising | Free Book
-date: 2024-10-19T18:17:37.990Z
-updated: 2024-10-27T01:15:57.277Z
+date: 2025-01-28T18:22:59.670Z
+updated: 2025-02-03T17:19:53.027Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3f1ebe7d7c3c28311e209437986f44ba3e4274b4c1f736f555f029caf669a3be.jpg
@@ -136,3 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3f1ebe7d7c3c28311e209437986f44b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782338-9781591439264-return-of-the-children-of-light/"><u>Return of the Children of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782342-9781591438694-the-lost-tomb-of-viracocha/"><u>The Lost Tomb of Viracocha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782337-9781591438205-the-pleiadian-tantric-workbook/"><u>The Pleiadian Tantric Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782339-9781591432340-the-suppressed-history-of-american-banking/"><u>The Suppressed History of American Banking | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

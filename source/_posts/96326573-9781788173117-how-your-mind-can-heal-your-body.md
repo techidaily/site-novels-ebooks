@@ -1,7 +1,7 @@
 ---
 title: How Your Mind Can Heal Your Body | Free Book
-date: 2025-01-23T19:25:53.848Z
-updated: 2025-01-24T16:40:37.725Z
+date: 2025-01-29T18:45:54.179Z
+updated: 2025-02-03T16:02:14.131Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae21f464db4b729cc585ccad327ca47566d7.jpg
@@ -210,18 +210,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ee2e2f4fb33580154939ac3ed51ae2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210696101-9781959114628-dark-occult-magick-powerful-summoning-spells-for-entities-to-seek-protection-and-incredible-power/"><u>Dark Occult Magick | Powerful Summoning Spells for Entities to Seek Protection and Incredible Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210695950-9780876129715-in-het-diepst-van-je-ziel/"><u>In het diepst van je ziel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696147-9798886163575-life-on-earth/"><u>Life on Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210694523-9781475870138-meditation-in-the-college-classroom/"><u>Meditation in the College Classroom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696054-9780645206456-my-way-my-truthful-way/"><u>My Way, my Truthful Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210695949-9780876129982-nella-quiete-del-cuore/"><u>Nella Quiete del Cuore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696140-9798885406383-the-waiting-room/"><u>THE WAITING ROOM | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210694337-9781528939355-what-does-it-mean-to-be-human/"><u>What Does It Mean To Be Human? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210695951-9780876129517-zwiesprache-mit-gott/"><u>Zwiesprache mit Gott | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593061-9781469746821-a-seven-day-trip-with-the-earth/"><u>A Seven-Day Trip with the Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593559-9781462022168-chemo-plan-your-day/"><u>C.H.E.M.O. Plan Your Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593560-9781449733650-coffee-with-jesus/"><u>Coffee with Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593228-9781449743178-diamond-in-the-sky/"><u>Diamond in the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593561-9781462042142-homers-son/"><u>Homer’S Son | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593071-9781452544489-messages-from-within/"><u>Messages from Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593140-9781449736859-the-little-things/"><u>The Little Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138593066-9781452518152-transformission/"><u>Transformission | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

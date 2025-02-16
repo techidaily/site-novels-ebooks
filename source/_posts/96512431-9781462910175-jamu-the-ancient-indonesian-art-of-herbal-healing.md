@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2025-01-25T21:53:14.771Z
-updated: 2025-02-01T17:59:37.139Z
+date: 2025-01-31T18:37:03.090Z
+updated: 2025-02-03T16:45:14.627Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,14 +175,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211122981-9783988319029-dark-psychology-secrets/"><u>DARK PSYCHOLOGY SECRETS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211123000-9781088253328-feeling-in-your-skin/"><u>FEELING IN YOUR SKIN | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211123014-9781088250495-la-actriz/"><u>La Actriz | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211122968-9781685221928-maximizing-your-potential-increase-your-mental-capacity-to-become-the-person-youve-always-wanted-to-be-in-life-with-nothing-standing-in-your-way/"><u>Maximizing Your Potential: Increase Your Mental Capacity To Become The Person You've Always Wanted To Be In Life, With Nothing Standing In Your Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211122991-9781952491450-the-ultimate-quest/"><u>The Ultimate Quest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782781-9781620550762-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782778-9781620553442-osogbo/"><u>Osogbo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782782-9781620550625-tao-and-tai-chi-kung/"><u>Tao and T'ai Chi Kung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782779-9781620555170-tao-tantric-arts-for-women/"><u>Tao Tantric Arts for Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782780-9781594777912-taoist-astral-healing/"><u>Taoist Astral Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

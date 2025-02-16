@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2025-01-29T17:17:12.858Z
-updated: 2025-02-02T03:39:14.649Z
+date: 2025-01-31T18:41:32.287Z
+updated: 2025-02-03T18:44:21.861Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,15 +156,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211412797-9781778310621-escape-nightmares/"><u>Escape Nightmares | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211412846-9781736221792-how-he-got-me-started/"><u>HOW HE GOT ME STARTED | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211412317-9782385640668-le-mini-guide-ultime-des-signes-et-synchronicites/"><u>Le Mini-guide ultime des signes et synchronicités | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211412901-9783892016083-mi-vida-que-yo-mismo-elegi/"><u>Mi vida que yo mismo elegí | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211412806-9798869366399-the-mindful-journey/"><u>The Mindful Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211412883-9780645878059-zen-demystified/"><u>Zen Demystified | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1021691-9781936012527-emerson-and-the-dream-of-america/"><u>Emerson and the Dream of America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1025636-9781250035943-moral-immoral-amoral/"><u>Moral, Immoral, Amoral | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1023260-9781471112379-the-afterlife-is-real/"><u>The Afterlife is Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1013577-9781448164653-the-book-of-the-eclipse/"><u>The Book Of The Eclipse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1013589-9781446458686-the-celtic-shaman/"><u>The Celtic Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010638-9781780996370-the-transformational-truth-of-tarot/"><u>The Transformational Truth of Tarot | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

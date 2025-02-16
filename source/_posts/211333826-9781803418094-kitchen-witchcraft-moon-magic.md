@@ -1,7 +1,7 @@
 ---
 title: Kitchen Witchcraft & Moon Magic | Free Book
-date: 2024-10-20T20:24:28.365Z
-updated: 2024-10-27T00:48:18.269Z
+date: 2025-02-01T16:54:34.962Z
+updated: 2025-02-03T17:22:53.045Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adc9d471be0ce376abfbd17f9e73d653eccef4c7133ea2b27daa64c413837c1c.jpg
@@ -152,3 +152,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adc9d471be0ce376abfbd17f9e73d65
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2645092-9780752471044-ghosts-at-christmas/"><u>Ghosts at Christmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645010-9780752462387-haunted-aberdeen-district/"><u>Haunted Aberdeen & District | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2645011-9780752462394-haunted-cotswolds/"><u>Haunted Cotswolds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2644879-9780752481494-haunted-dundee/"><u>Haunted Dundee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2644209-9781449478520-hello-sunshine/"><u>Hello Sunshine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2644199-9781449475178-zen-penguins/"><u>Zen Penguins | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

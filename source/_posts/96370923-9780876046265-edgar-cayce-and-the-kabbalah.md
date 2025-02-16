@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce and the Kabbalah | Free Book
-date: 2025-01-21T22:10:44.771Z
-updated: 2025-01-24T20:21:49.448Z
+date: 2025-01-27T18:08:10.095Z
+updated: 2025-02-03T16:22:50.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b212686194f65e619964bbbc63e450c7505b39c.jpg
@@ -146,13 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b21268
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210609519-9781910231265-everyday-astrology-for-a-better-life/"><u>Everyday Astrology for a Better Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210609541-9781910231562-master-the-art-of-running/"><u>Master the Art of Running | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210609471-9781911163886-the-healing-home/"><u>The Healing Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210609528-9781910231418-the-magic-of-crystals/"><u>The Magic of Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318738-9781782792000-are-you-happy-now/"><u>Are You Happy Now? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318743-9781782790129-delayed-departure/"><u>Delayed Departure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318745-9781780998589-eternal-way-to-bliss/"><u>Eternal Way to Bliss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318746-9781782791003-how-to-listen-to-a-gemini/"><u>How to Listen to a Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318755-9781780999371-the-power-of-the-voice/"><u>The Power of the Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1316765-9781881098010-the-witches-almanac-issue-33-spring-2014-spring-2015/"><u>The Witches' Almanac: Issue 33, Spring 2014-Spring 2015 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1318756-9781782791553-traditional-witchcraft-and-the-pagan-revival/"><u>Traditional Witchcraft and the Pagan Revival | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

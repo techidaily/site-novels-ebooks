@@ -1,7 +1,7 @@
 ---
 title: Travelling the Fairy Path | Free Book
-date: 2025-01-26T18:44:42.657Z
-updated: 2025-02-02T01:44:52.353Z
+date: 2025-02-01T17:16:42.872Z
+updated: 2025-02-03T17:52:12.662Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97cdb78071cd751a9dcd7ff5b076934119c.jpg
@@ -153,14 +153,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec7386c3c2e193f7bdf540b109a97
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211352256-9798869387509-breaking-the-curse/"><u>Breaking the Curse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352213-9781989840733-its-still-all-about-energy/"><u>It's Still All About Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352260-9791223001417-los-doce-signos/"><u>Los Doce Signos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352224-9798894580197-ufo-sightings/"><u>Ufo Sightings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352214-9791222494210-unleashing-your-mind-power/"><u>Unleashing Your Mind Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393668-9781591433415-curanderismo-soul-retrieval/"><u>Curanderismo Soul Retrieval | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393671-9781591433330-field-guide-to-the-spirit-world/"><u>Field Guide to the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393670-9781591433439-healing-journeys-with-the-black-madonna/"><u>Healing Journeys with the Black Madonna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393666-9781620558911-living-a-life-of-harmony/"><u>Living a Life of Harmony | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393667-9781591433187-shamanic-alchemy/"><u>Shamanic Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393669-9781620557655-stones-of-the-goddess/"><u>Stones of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393663-9781591433354-transcendent-wisdom-of-the-maya/"><u>Transcendent Wisdom of the Maya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393664-9781620557617-witchcraft-and-secret-societies-of-rural-england/"><u>Witchcraft and Secret Societies of Rural England | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

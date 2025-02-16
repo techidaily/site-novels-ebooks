@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2025-01-29T22:20:34.370Z
-updated: 2025-02-01T20:45:00.578Z
+date: 2025-02-01T18:25:29.775Z
+updated: 2025-02-03T17:41:06.834Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,16 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211445919-9781963036053-247-flow/"><u>24/7 Flow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211445799-9798330371075-66-dias-para-cambiar-su-vida/"><u>66 días para cambiar su vida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211445689-9781839388477-antarctica-shocking-secrets/"><u>Antarctica: Shocking Secrets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211445908-9798330364985-dreaming-big/"><u>Dreaming Big | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211445602-9798330365647-sous-les-mains-de-la-misericorde/"><u>Sous les Mains de la Miséricorde | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211445543-9798330367054-the-art-of-mindfulness/"><u>The Art of Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211445693-9798330369416-the-mindful-parent/"><u>The Mindful Parent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125678-9781609251499-dreaming-of-the-council-ways/"><u>Dreaming of the Council Ways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125681-9781609253868-dynamics-of-the-unconscious/"><u>Dynamics of the Unconscious | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125702-9781609254711-everyday-tarot/"><u>Everyday Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125679-9781609251512-the-druid-magic-handbook/"><u>The Druid Magic Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125700-9781609256432-the-everyday-psychic/"><u>The Everyday Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125711-9781609254452-the-fifth-dimension/"><u>The Fifth Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125737-9781609250140-the-god-theory/"><u>The God Theory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125744-9781609254216-the-great-secret-or-occultism-unveiled/"><u>The Great Secret or Occultism Unveiled | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

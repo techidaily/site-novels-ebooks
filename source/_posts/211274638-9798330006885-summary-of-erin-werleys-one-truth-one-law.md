@@ -1,7 +1,7 @@
 ---
 title: Summary of Erin Werley's One Truth One Law | Free Book
-date: 2024-10-22T19:13:16.808Z
-updated: 2024-10-27T03:06:02.767Z
+date: 2025-01-28T16:39:07.788Z
+updated: 2025-02-03T18:29:02.547Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00f70342cedced8f4cbb405a3537e16137d0aa1035a56e487882d429e4f99e6a.jpg
@@ -136,3 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00f70342cedced8f4cbb405a3537e16
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782345-9781591437611-animal-voices/"><u>Animal Voices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782343-9781591439622-the-pleiadian-agenda/"><u>The Pleiadian Agenda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782347-9781591437734-the-pleiadian-house-of-initiation/"><u>The Pleiadian House of Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782346-9781591439035-the-pleiadian-workbook/"><u>The Pleiadian Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782344-9781591432821-the-tablets-of-light/"><u>The Tablets of Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2025-01-31T04:52:38.994Z
-updated: 2025-02-01T17:52:29.712Z
+date: 2025-01-31T17:48:20.037Z
+updated: 2025-02-03T17:32:20.462Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,15 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211153901-9781454954453-a-little-bit-of-enneagram/"><u>A Little Bit of Enneagram | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211154998-9782889702169-au-coeur-de-nos-vies-anterieures-decouvrir-lhistoire-de-son-ame/"><u>Au coeur de nos vies antérieures : Découvrir l'histoire de son âme | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211154000-9798886741049-deciphering-angel-numbers/"><u>Deciphering Angel Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211154982-9780593448458-sage-warrior/"><u>Sage Warrior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211153864-9781662477058-suicide-is-not-an-option/"><u>Suicide is Not an Option | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211153903-9781454951292-the-book-of-juju/"><u>The Book of Juju | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95816957-9781617508905-cat-talk/"><u>Cat Talk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95816962-9781617506215-develop-your-psychic-abilities/"><u>Develop Your Psychic Abilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95816677-9781633410572-keys-to-perception/"><u>Keys to Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95816993-9781547502813-smetti-di-essere-un-perdente-11-cambiamenti-in-21-giorni-per-vivere-nelleccellenza/"><u>Smetti di essere un perdente. 11 cambiamenti in 21 giorni per vivere nell'eccellenza, | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95817225-9781507139882-tarot-pairings-between-major-and-minor-arcana/"><u>Tarot Pairings between Major and Minor Arcana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95816992-9781616406325-the-great-new-england-sea-serpent/"><u>The Great New England Sea Serpent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95816735-9781616406271-the-third-level-of-reality/"><u>The Third Level of Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95817345-9781616406257-thunderbirds/"><u>Thunderbirds | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

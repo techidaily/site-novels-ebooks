@@ -1,7 +1,7 @@
 ---
 title: Les grands enseignements cosmiques de Jésus de Nazareth avec des explications de Gabriele | Free Book
-date: 2024-10-22T21:34:57.450Z
-updated: 2024-10-26T19:47:20.947Z
+date: 2025-01-28T17:42:24.630Z
+updated: 2025-02-03T18:36:17.291Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5a2bfca4bbcdefda21e2b5c4bf64c6dfeb1ac835e4fa49a9996b12625077a57.jpg
@@ -155,3 +155,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5a2bfca4bbcdefda21e2b5c4bf64c6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2593836-9781683250272-cancer/"><u>Cáncer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593840-9781683250319-escorpio/"><u>Escorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593837-9781683250289-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593838-9781683250296-virgo/"><u>Virgo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Las grandes enseñanzas cósmicas de JESÚS de Nazaret | Free Book
-date: 2024-10-21T19:04:23.979Z
-updated: 2024-10-27T05:18:19.296Z
+date: 2025-02-02T18:13:00.533Z
+updated: 2025-02-03T17:02:11.839Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec64e2bdd68bdc64e799080a9f00bd57c773110722d03d173abbc4b6b05d0912.jpg
@@ -163,3 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec64e2bdd68bdc64e799080a9f00bd5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2173115-9781848589582-ghosts/"><u>Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173125-9781848589438-greatest-mysteries-of-the-unexplained/"><u>Greatest Mysteries of the Unexplained | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173145-9781848587175-secret-wisdom/"><u>Secret Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173132-9781848588493-the-dark-history-of-the-occult/"><u>The Dark History of the Occult | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

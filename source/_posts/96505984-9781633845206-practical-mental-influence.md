@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2025-01-29T17:06:53.082Z
-updated: 2025-02-01T21:58:24.311Z
+date: 2025-01-31T17:42:21.422Z
+updated: 2025-02-03T17:22:13.444Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,15 +143,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211158567-9798986210698-my-little-prayer-book/"><u>My Little Prayer Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211158463-9780645923131-never-retire/"><u>Never Retire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159334-9780062403865-siddharthas-brain/"><u>Siddhartha's Brain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159271-9780062976895-spells-for-the-modern-mystic/"><u>Spells for the Modern Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211158363-9798987356012-the-fairytale-god-3rd-ed/"><u>The Fairytale God (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211159325-9780061747984-the-history-of-last-nights-dream/"><u>The History of Last Night's Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95827921-9781547508471-assim-acima-como-abaixo-a-minha-vida-como-um-adepto-uma-autobiografia-por-seila-orienta/"><u>Assim Acima, Como Abaixo. A Minha Vida Como Um Adepto. Uma Autobiografia por Seila Orienta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828505-9781608684946-big-love/"><u>Big Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828523-9781681652924-el-despertar-de-la-conciencia/"><u>El despertar de la conciencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828176-9781547507542-el-primer-arcano-menor/"><u>El Primer Arcano Menor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95824000-9780892546671-geomancy/"><u>Geomancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95825155-9780007484096-the-dream-dictionary-from-a-to-z-revised-edition/"><u>The Dream Dictionary from A to Z [Revised edition] | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

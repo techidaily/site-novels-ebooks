@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2025-01-18T22:09:31.921Z
-updated: 2025-01-24T20:45:05.557Z
+date: 2025-02-02T17:18:20.973Z
+updated: 2025-02-03T16:32:22.783Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -212,18 +212,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210560846-9781439672587-bigfoot-in-maine/"><u>Bigfoot in Maine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210561581-9781957546742-building-the-bridge-inward-through-meditation/"><u>Building the Bridge Inward through Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562412-9781935492214-el-descanso-pleno/"><u>El descanso pleno | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562032-9780593435885-guided-tarot-for-teens/"><u>Guided Tarot for Teens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562409-9781935492108-living-the-spiritual-principles-of-health-and-well-being/"><u>Living the Spiritual Principles of Health and Well-Being | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562315-9781734574197-star-quest-navigator-navigator/"><u>Star Quest: Navigator: Navigator | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210560911-9789354351082-stop-predicting-revisit-life/"><u>Stop Predicting - Revisit Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210561856-9781398414754-the-love-path/"><u>The Love Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562411-9781893020887-the-rest-of-your-life/"><u>The Rest of Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153682-9781577317005-365-prescriptions-for-the-soul/"><u>365 Prescriptions for the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153688-9781577319658-active-dreaming/"><u>Active Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1153690-9781577317074-all-my-relations/"><u>All My Relations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152505-9781476728643-the-spiritual-science-of-emma-curtis-hopkins/"><u>The Spiritual Science of Emma Curtis Hopkins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1152610-9781476744728-tipping-sacred-cows/"><u>Tipping Sacred Cows | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Summary of Skye Alexander's The Modern Witchcraft Spell Book | Free Book
-date: 2024-10-26T05:41:15.344Z
-updated: 2024-10-27T02:17:24.638Z
+date: 2025-01-29T17:03:42.211Z
+updated: 2025-02-03T18:09:41.489Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/10545f8176701fbade92f9c771e5fed06293580052ec7bb9a2210e2f365387dc.jpg
@@ -136,3 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/10545f8176701fbade92f9c771e5fed
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2249885-9781101906590-clear-your-clutter-with-feng-shui-revised-and-updated/"><u>Clear Your Clutter with Feng Shui (Revised and Updated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/224978-9781416513391-project-beta/"><u>Project Beta | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2249170-9781476616902-the-mysteries-of-consciousness/"><u>The Mysteries of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2249065-9781250102805-the-vampire-tarot/"><u>The Vampire Tarot | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

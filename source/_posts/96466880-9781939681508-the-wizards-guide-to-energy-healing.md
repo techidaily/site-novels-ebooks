@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2025-01-27T16:49:27.535Z
-updated: 2025-02-02T03:25:57.735Z
+date: 2025-01-27T18:51:22.943Z
+updated: 2025-02-03T18:24:15.309Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,17 +178,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211432845-9780988115750-30-things/"><u>30 Things | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211432544-9783964460813-a-minha-vida-que-eu-mesmo-escolhi/"><u>A minha vida que eu mesmo escolhi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433433-9781250237019-hundred/"><u>Hundred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211432612-9798330323722-los-reckenstein/"><u>Los Reckenstein | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433098-9788197384509-the-complete-book-of-ayurvedic-home-remedies/"><u>The Complete Book Of Ayurvedic Home Remedies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433289-9781466828032-the-haunting-of-twenty-first-century-america/"><u>The Haunting of Twenty-First-Century America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433350-9781466835870-the-presidents-and-ufos/"><u>The Presidents and UFOs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211433613-9781429924580-trucker-ghost-stories/"><u>Trucker Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121187-9781842438213-conspiracy-theories/"><u>Conspiracy Theories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121434--el-tarot-intuitivo-del-siglo-xxi/"><u>El tarot intuitivo del siglo XXI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121432--entre-en-los-poderes-de-la-parapsicologia/"><u>Entre en… los poderes de la parapsicología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121433--entre-en-los-poderes-del-espiritismo/"><u>Entre en… los poderes del espiritismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121431--las-ciencias-ocultas/"><u>Las ciencias ocultas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121425--los-misterios-de-los-venenos/"><u>Los misterios de los venenos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1121424--los-seres-de-luz/"><u>Los seres de luz | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

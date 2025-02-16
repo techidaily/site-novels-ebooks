@@ -1,7 +1,7 @@
 ---
 title: The Art of Mandala Meditation | Free Book
-date: 2024-10-20T02:10:17.957Z
-updated: 2024-10-26T16:07:38.661Z
+date: 2025-01-27T17:02:03.319Z
+updated: 2025-02-03T18:19:37.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b7c9d9d8cb6f41d8b5c0229bbc39dd60b64f6fe9162059b3773d3f9b933f1a5.jpg
@@ -150,3 +150,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b7c9d9d8cb6f41d8b5c0229bbc39dd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95705538-9781786781024-enlightenment-is-your-nature/"><u>Enlightenment Is Your Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702350-9781608684038-listening-to-ayahuasca/"><u>Listening to Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703530-9781633410466-midlife-is-not-a-crisis/"><u>Midlife Is Not a Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703529-9781612833743-the-everything-answer-book/"><u>The Everything Answer Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95702351-9781608684489-the-leap/"><u>The Leap | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703156-9781507204313-the-supernatural-guide-to-the-other-side/"><u>The Supernatural Guide to the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703224-9781515415206-the-way-of-peace/"><u>The Way of Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703227-9781515415176-the-weapon-of-prayer/"><u>The Weapon of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95703805-9781608684618-words-at-the-threshold/"><u>Words at the Threshold | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

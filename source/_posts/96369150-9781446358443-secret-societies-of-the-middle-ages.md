@@ -1,7 +1,7 @@
 ---
 title: Secret Societies of the Middle Ages | Free Book
-date: 2025-01-24T04:50:23.104Z
-updated: 2025-01-24T19:41:20.557Z
+date: 2025-01-27T17:57:27.808Z
+updated: 2025-02-03T18:52:26.260Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b775347a9552b96b09b72b89bf9a5e980fd2777.jpg
@@ -157,16 +157,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/88388b1d95fec793230039b55b77534
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210676438-9781639854042-a-guiding-light-to-the-future/"><u>A Guiding Light To The Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210676853-9781788604352-ageing-upwards/"><u>Ageing Upwards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210677068-9781398827790-green-witchcraft/"><u>Green Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210676582-9781958921043-shamanism/"><u>Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210677067-9781398827998-the-book-of-tarot/"><u>The Book of Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210676635-9781948692175-third-place/"><u>Third Place | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210676849-9781662469572-your-passport-to-alternative-spirituality-and-the-after-life/"><u>Your Passport to Alternative Spirituality and the After-Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585921-9781450282017-divagating-through-the-tarot/"><u>Divagating Through the Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585086-9781452538716-journey-with-gwen/"><u>Journey with Gwen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585813-9781462020249-life-is-too-short/"><u>Life Is Too Short | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584808-9781462033850-psychic-beauty-energy-cords-psychic-exercises/"><u>Psychic Beauty ~ Energy Cords & Psychic Exercises ~ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585305-9781475940237-the-acts-of-creation/"><u>The Acts of Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138585853-9781462004799-the-pathway-beyond/"><u>The Pathway Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584409-9781450294010-tribute-to-a-common-man/"><u>Tribute to a Common Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138584552-9781449743642-your-destiny-and-your-palace/"><u>Your Destiny and Your Palace | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

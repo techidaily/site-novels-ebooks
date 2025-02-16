@@ -1,7 +1,7 @@
 ---
 title: Money Loves Me | Free Book
-date: 2024-10-24T23:59:39.702Z
-updated: 2024-10-26T22:08:28.223Z
+date: 2025-02-01T16:55:52.813Z
+updated: 2025-02-03T17:07:44.738Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3b4c403ebb56a2ea5a0f3480e383a875286ae16103cf4fe27e40a61b98703761.jpg
@@ -141,3 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3b4c403ebb56a2ea5a0f3480e383a87
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782173-9781594776571-judas-and-jesus/"><u>Judas and Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782171-9781620551622-kabbalah-and-the-power-of-dreaming/"><u>Kabbalah and the Power of Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782172-9781620555743-the-mystery-of-skara-brae/"><u>The Mystery of Skara Brae | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782170-9781620550595-the-spiritual-art-of-dialogue/"><u>The Spiritual Art of Dialogue | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

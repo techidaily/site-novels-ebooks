@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2025-01-29T18:19:46.360Z
-updated: 2025-02-01T22:17:02.644Z
+date: 2025-01-30T17:16:25.217Z
+updated: 2025-02-03T17:11:36.874Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,15 +219,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211277714-9798869289414-galactic-ganja-guide/"><u>Galactic Ganja Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211278185-9781667470450-le-divorce-est-il-une-decision-incontournable/"><u>Le divorce : est-il une décision incontournable ? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211277920-9781962581110-panic-to-peace/"><u>Panic to Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211278067-9781738377404-pineal-gland/"><u>Pineal Gland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211277720-9798888242995-rise-in-recovery/"><u>Rise in Recovery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211277773-9798869237682-the-psychic-gourmets-guide-to-high-vibrational-eating/"><u>The Psychic Gourmet's Guide to High Vibrational Eating | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316914-9781401932060-a-spiritual-philosophy-for-the-new-world/"><u>A Spiritual Philosophy for the New World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316908-9781401931148-along-the-path-to-enlightenment/"><u>Along the Path to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316911-9781401932589-nothing-is-too-good-to-be-true/"><u>Nothing Is Too Good to Be True | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316904-9781401930875-what-if/"><u>What If? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

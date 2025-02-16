@@ -1,7 +1,7 @@
 ---
 title: The Curious Lore of Precious Stones | Free Book
-date: 2024-10-24T21:38:02.099Z
-updated: 2024-10-26T20:36:33.951Z
+date: 2025-01-30T18:25:23.388Z
+updated: 2025-02-03T18:31:22.587Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0983c2c3406439506661166d53c8ab4d37f85c5088c33feda80461784cd0351e.jpg
@@ -171,3 +171,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0983c2c3406439506661166d53c8ab4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782167-9781620551523-dawn-of-the-akashic-age/"><u>Dawn of the Akashic Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782168-9781594776021-matrix-of-creation-2nd-ed/"><u>Matrix of Creation (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782165-9781620550380-meditations-on-the-peaks/"><u>Meditations on the Peaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782164-9781594776618-witchcraft-medicine/"><u>Witchcraft Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782169-9781594776823-witches-werewolves-and-fairies/"><u>Witches, Werewolves, and Fairies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

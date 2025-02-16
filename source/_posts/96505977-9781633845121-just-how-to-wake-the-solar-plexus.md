@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2025-01-26T23:07:22.354Z
-updated: 2025-02-01T21:46:11.735Z
+date: 2025-01-31T18:17:28.751Z
+updated: 2025-02-03T17:46:06.255Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,13 +134,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211156160-9798889431060-christian-mystical-theology/"><u>Christian Mystical Theology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211156389-9798868999239-rosa-azul/"><u>Rosa Azul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211155312-9780306832468-turning-inward/"><u>Turning Inward | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211156156-9798888322154-victory-in-apparent-defeat/"><u>Victory in Apparent Defeat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95818637-9781944529079-a-history-of-parapsychology/"><u>A History of Parapsychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95817680-9781547501168-despertar-kundalini-tecnicas-para-elevar-su-energia-shakti/"><u>DESPERTAR KUNDALINI Técnicas Para Elevar Su Energía Shakti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95818705-9781507144152-la-tua-vita-su-misura-realizza-una-vita-appagante-con-la-legge-di-attrazione/"><u>La tua vita su misura: realizza una vita appagante con la Legge di Attrazione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95818497-9781944529208-psychic-research-and-the-healing-process/"><u>Psychic Research and the Healing Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95817394-9781616406066-the-perfect-horoscope/"><u>The Perfect Horoscope | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

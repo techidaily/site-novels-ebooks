@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2025-01-27T03:18:39.465Z
-updated: 2025-02-02T01:28:53.597Z
+date: 2025-01-31T18:50:40.653Z
+updated: 2025-02-03T18:01:54.371Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,16 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211166456-9780760388310-owl-magick/"><u>Owl Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166448-9780760388983-phantom-phenomena/"><u>Phantom Phenomena | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166028-9798989182770-the-bible-30-the-6-commandments-of-the-chosen-life/"><u>The Bible 3.0, The 6 Commandments of the Chosen Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166421-9780760391303-the-crystal-companion/"><u>The Crystal Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166420-9780760391327-the-wheel-of-the-year-companion/"><u>The Wheel of the Year Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166459-9780711289628-the-witchs-book-of-spells/"><u>The Witch's Book of Spells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211166455-9780760390245-vampires/"><u>Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842528-9781788284554-discover-meditation-mindfulness/"><u>Discover Meditation & Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842534-9781788286527-hauntings/"><u>Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842530-9781788284523-the-complete-book-of-dreams/"><u>The Complete Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842529-9781788284547-the-complete-book-of-healing/"><u>The Complete Book of Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

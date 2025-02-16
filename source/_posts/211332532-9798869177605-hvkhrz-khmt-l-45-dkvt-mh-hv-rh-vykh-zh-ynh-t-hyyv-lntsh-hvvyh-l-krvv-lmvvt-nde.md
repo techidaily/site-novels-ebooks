@@ -1,7 +1,7 @@
 ---
 title: הוכרז כמת ל -45 דקות - מה שהוא ראה ואיך זה שינה את חייו לנצח - חוויה של קרוב למוות (NDE) | Free Book
-date: 2024-10-25T23:41:27.016Z
-updated: 2024-10-26T16:32:53.110Z
+date: 2025-02-02T17:41:41.177Z
+updated: 2025-02-03T16:43:53.959Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/275c7e6b5a5b84539026bc51902c6ad3db37c1445e192b49b84a5094da4ddc42.jpg
@@ -142,3 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/275c7e6b5a5b84539026bc51902c6ad
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/261484-9781101215395-blessings-from-the-other-side/"><u>Blessings From the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2615720-9780752472027-brigid/"><u>Brigid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616214-9780752481715-haunted-chatham/"><u>Haunted Chatham | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616215-9780752481739-haunted-wigan/"><u>Haunted Wigan | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

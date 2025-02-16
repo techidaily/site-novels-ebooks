@@ -1,7 +1,7 @@
 ---
 title: Stories from the Other Side | Free Book
-date: 2025-01-21T17:36:59.714Z
-updated: 2025-01-24T20:42:28.732Z
+date: 2025-01-30T18:05:53.705Z
+updated: 2025-02-03T17:56:57.373Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a44611615474af793bfb24f78449e6425107cce13.jpg
@@ -159,14 +159,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7ff32c6914ed49534731d71a4461161
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210685849-9781803410937-a-beginners-guide-to-ogham-divination/"><u>A Beginner's Guide to Ogham Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685841-9781803410593-align-living-and-loving-from-the-true-self/"><u>Align: Living and Loving from the True Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685508-9781646045211-spell-jars-for-the-modern-witch/"><u>Spell Jars for the Modern Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685845-9781785353932-the-holistic-guide-to-your-health-wellbeing-today/"><u>The Holistic Guide To Your Health & Wellbeing Today | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685747-9781982194321-will-to-wild/"><u>Will to Wild | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589921-9781475913378-building-heaven-on-earth/"><u>Building Heaven on Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589973-9781475959376-life-is-a-game/"><u>Life Is a Game | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589780-9781475957082-the-morning-echo/"><u>The Morning Echo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589835-9781452541556-we-are-mountains/"><u>We Are Mountains | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

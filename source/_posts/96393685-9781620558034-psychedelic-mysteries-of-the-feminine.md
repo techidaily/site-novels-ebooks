@@ -1,7 +1,7 @@
 ---
 title: Psychedelic Mysteries of the Feminine | Free Book
-date: 2025-01-23T20:02:23.202Z
-updated: 2025-01-24T23:45:31.244Z
+date: 2025-01-31T17:23:46.618Z
+updated: 2025-02-03T16:42:03.149Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632a4352990196f552dc9c43583ded2e2ad0.jpg
@@ -188,18 +188,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210571121-9781449441586-be-a-light-unto-yourself/"><u>Be a Light Unto Yourself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571713-9781524855000-kintsugi/"><u>Kintsugi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571421-9781398824348-nostradamus-and-other-prophets-and-seers/"><u>Nostradamus and Other Prophets and Seers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571425-9781398824379-psychic-powers/"><u>Psychic Powers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571423-9781398824355-runes/"><u>Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571711-9781524853044-so-whos-counting/"><u>So Who's Counting? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571717-9781449494827-the-little-book-of-witchcraft/"><u>The Little Book of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210570627-9781953450449-the-zodiac-and-the-salts-of-salvation/"><u>The Zodiac and the Salts of Salvation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210570632-9781953450500-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154537-9781577317050-a-still-small-voice/"><u>A Still, Small Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154549-9781608681136-living-in-the-light/"><u>Living in the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154551-9781577317470-look-for-the-good-and-youll-find-god/"><u>Look for the Good and You'll Find God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154554-9781608681228-love-has-wings/"><u>Love Has Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154561-9781608681143-meditation-the-complete-guide/"><u>Meditation: The Complete Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154579-9781608680313-one-minute-mindfulness/"><u>One-Minute Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154581-9781608680788-ordinary-sacred/"><u>Ordinary Sacred | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

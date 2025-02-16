@@ -1,7 +1,7 @@
 ---
 title: Living Beyond the Five Senses | Free Book
-date: 2024-10-21T05:22:37.696Z
-updated: 2024-10-27T04:11:47.377Z
+date: 2025-01-27T18:22:55.276Z
+updated: 2025-02-03T16:53:23.022Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34445d20aa5d043fe5e0c6f674d12529d76d115ed776116d4080f9044d6e7a5f.jpg
@@ -140,3 +140,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34445d20aa5d043fe5e0c6f674d1252
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/950889-9781101611319-ask-george-anderson/"><u>Ask George Anderson | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95519156-9781910565834-embodying-authenticity/"><u>Embodying Authenticity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95523631-9781612833729-reincarnation-plain-simple/"><u>Reincarnation Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/954720-9781780991672-so-you-want-to-be-a-healer/"><u>So You Want To be A Healer? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95521140-9781633410220-tarot-for-one/"><u>Tarot for One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95521141-9781633410428-the-key-of-solomon-the-king/"><u>The Key of Solomon the King | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/954725-9781780991726-the-old-ones-in-the-old-book/"><u>The Old Ones in the Old Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/954726-9781780996981-the-spiritual-mind/"><u>The Spiritual Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/954727-9781846949692-the-spiritual-teachers-handbook/"><u>The Spiritual Teacher's Handbook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

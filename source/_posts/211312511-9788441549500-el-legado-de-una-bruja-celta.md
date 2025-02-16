@@ -1,7 +1,7 @@
 ---
 title: El legado de una bruja celta | Free Book
-date: 2024-10-20T21:29:30.754Z
-updated: 2024-10-27T01:30:56.421Z
+date: 2025-02-01T18:00:27.742Z
+updated: 2025-02-03T17:25:14.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a07e89a54b485d28b7c83005e4fae55e2754642a675ff46fef1d19d66cb08b1c.jpg
@@ -159,3 +159,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a07e89a54b485d28b7c83005e4fae55
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95689790-9781440536472-love-astrology-capricorn/"><u>Love Astrology: Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689795-9781440536410-love-astrology-libra/"><u>Love Astrology: Libra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689791-9781440536458-love-astrology-sagittarius/"><u>Love Astrology: Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689793-9781440536434-love-astrology-scorpio/"><u>Love Astrology: Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689796-9781440536397-love-astrology-virgo/"><u>Love Astrology: Virgo | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: I Don't Believe in Astrology | Free Book
-date: 2024-10-21T01:36:34.759Z
-updated: 2024-10-27T01:11:15.745Z
+date: 2025-01-30T16:34:41.758Z
+updated: 2025-02-03T17:31:32.217Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/876a14eb87000c95389f7dbbb4798cda28c8a91720a08cbccf277c5538f74db9.jpg
@@ -150,3 +150,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/876a14eb87000c95389f7dbbb4798cd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95695543-9780008240462-a-tree-in-your-pocket/"><u>A Tree in Your Pocket | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95696045-9780857012654-calculating-the-bazi/"><u>Calculating the BaZi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95699078-9781524704667-discovering-your-souls-purpose/"><u>Discovering Your Soul's Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95698566-9781101993590-living-presence-revised/"><u>Living Presence (Revised) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95698988-9781524705169-the-book-of-truth/"><u>The Book of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95695618-9781841814797-the-crystal-zodiac/"><u>The Crystal Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95698815-9781524704896-the-impersonal-life/"><u>The Impersonal Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95696072-9781515415466-the-new-thought-collection-2/"><u>The New Thought Collection #2 | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

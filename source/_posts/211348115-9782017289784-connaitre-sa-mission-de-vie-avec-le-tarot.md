@@ -1,7 +1,7 @@
 ---
 title: Connaître sa mission de vie avec le tarot | Free Book
-date: 2024-10-24T19:02:58.893Z
-updated: 2024-10-27T03:08:16.953Z
+date: 2025-01-27T18:37:56.414Z
+updated: 2025-02-03T18:09:40.195Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a3bd00c8b487eb33f5b2f7ee0955b433bec4449d8f05644ae75f1e767b31af1.jpg
@@ -148,3 +148,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a3bd00c8b487eb33f5b2f7ee0955b4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2226152-9781498505963-agamben-and-the-signature-of-astrology/"><u>Agamben and the Signature of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2227095-9781785351709-clouds-of-heaven-beings-of-light/"><u>Clouds of Heaven, Beings of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2231609-9781476621715-consciousness-studies/"><u>Consciousness Studies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2225881-9781250102553-the-complete-book-of-numerology/"><u>The Complete Book of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/222552-9781588364678-the-light-of-conscience/"><u>The Light of Conscience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2231671-9781938289477-warrior-goddess-training-companion-workbook/"><u>Warrior Goddess Training Companion Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2227101-9781785350337-what-dwells-within/"><u>What Dwells Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2225673-9789381836729-what-is-your-true-zodiac-sign/"><u>What is Your True Zodiac Sign? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

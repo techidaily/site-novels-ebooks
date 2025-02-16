@@ -1,7 +1,7 @@
 ---
 title: Russian Edition - Legacy of Sonship | Free Book
-date: 2024-10-20T00:31:49.658Z
-updated: 2024-10-26T18:10:36.142Z
+date: 2025-02-02T18:44:43.317Z
+updated: 2025-02-03T16:27:10.358Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0b6a467b8ae165f0a55ece3d112cd90312cf1d5ba2a3c0ecc1820817a1155fbd.jpg
@@ -146,3 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0b6a467b8ae165f0a55ece3d112cd90
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782132-9781594779541-the-crazy-wisdom-of-ganesh-baba/"><u>The Crazy Wisdom of Ganesh Baba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782127-9781594776427-the-cry-of-the-huna/"><u>The Cry of the Huna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782123-9781594777226-the-kingdom-of-agarttha/"><u>The Kingdom of Agarttha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782126-9781594777578-twelve-tribe-nations-3rd-ed/"><u>Twelve-Tribe Nations (3rd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Curanderismo Soul Retrieval | Free Book
-date: 2025-01-29T20:47:55.697Z
-updated: 2025-02-01T20:22:41.231Z
+date: 2025-02-01T17:50:25.616Z
+updated: 2025-02-03T17:54:10.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed51578ee401a573874d976459b0dd19d6aa.jpg
@@ -196,16 +196,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/216940-9781416503330-after-the-martian-apocalypse/"><u>After the Martian Apocalypse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2172967-9781848584358-atlantis-and-other-lost-worlds/"><u>Atlantis and Other Lost Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2168600-9781910565377-being-versus-becoming/"><u>Being Versus Becoming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2172964-9781848586154-bigfoot/"><u>Bigfoot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2172907-9781908556677-laughing-buddha-waving-cat/"><u>Laughing Buddha, Waving Cat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2166936-9781608683338-seven-cups-of-consciousness/"><u>Seven Cups of Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2172962-9781848587038-the-a-to-z-of-dream-interpretation/"><u>The A to Z of Dream Interpretation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144823-9781609254827-the-platonic-doctrines-of-albinus/"><u>The Platonic Doctrines of Albinus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144825-9781609258139-the-qabalah-workbook-for-magicians/"><u>The Qabalah Workbook for Magicians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144828-9781938289064-the-universe-in-black-and-white/"><u>The Universe in Black and White | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1144830-9781609256159-voodoo-hoodoo-spellbook/"><u>Voodoo Hoodoo Spellbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

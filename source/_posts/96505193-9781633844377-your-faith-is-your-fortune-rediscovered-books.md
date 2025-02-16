@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2025-01-28T17:28:59.198Z
-updated: 2025-02-02T02:03:48.640Z
+date: 2025-01-27T16:59:44.438Z
+updated: 2025-02-03T16:36:29.309Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,14 +144,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211236560-9798889402800-5d-consciousness-activations/"><u>5D Consciousness Activations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236502-9781990863516-get-your-footprints-out-of-my-garden/"><u>Get Your Footprints Out Of My Garden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236529-9798869145369-how-to-fight-darkness-with-light/"><u>How to Fight Darkness with Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236537-9798869145864-realms-unbound/"><u>Realms Unbound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236509-9780979384783-underneath-your-personality/"><u>Underneath Your Personality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955293-9780008301910-aries-2019-your-personal-horoscope/"><u>Aries 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95950843--be-here/"><u>Be Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955294-9780008301927-taurus-2019-your-personal-horoscope/"><u>Taurus 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95950870-9781856753470-the-book-of-chakra-healing/"><u>The Book of Chakra Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948906-9781785354601-witchcraftinto-the-wilds/"><u>Witchcraft…Into the Wilds | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

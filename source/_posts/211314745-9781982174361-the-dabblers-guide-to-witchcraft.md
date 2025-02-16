@@ -1,7 +1,7 @@
 ---
 title: The Dabbler's Guide to Witchcraft | Free Book
-date: 2024-10-20T20:05:05.997Z
-updated: 2024-10-26T18:11:44.325Z
+date: 2025-01-27T16:05:22.519Z
+updated: 2025-02-03T16:40:31.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75a79ec8e3709d492091ee4db34787a63ea4cb4760660bebf60eeeae47fbd863.jpg
@@ -176,3 +176,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75a79ec8e3709d492091ee4db34787a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/773531-9781446459829-i-fly-out-with-bright-feathers/"><u>I Fly Out With Bright Feathers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769805--milton-blacks-2012-horoscopes/"><u>Milton Black's 2012 Horoscopes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/776230-9781448116027-one-mans-odyssey/"><u>One Man's Odyssey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/770486-9781849895729-paul-andrews-presents-the-book-of-werewolves/"><u>Paul Andrews Presents - The Book of Werewolves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/771948-9781780990866-the-1111-code/"><u>The 11.11 Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/771947-9781780990842-the-good-remembering/"><u>The Good Remembering | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769803-9781583944837-you-are-a-spiritual-being-having-a-human-experience/"><u>You Are a Spiritual Being Having a Human Experience | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2025-01-31T21:25:54.078Z
-updated: 2025-02-01T17:31:36.508Z
+date: 2025-01-31T18:44:49.815Z
+updated: 2025-02-03T17:46:59.114Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,18 +130,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211128452-9798868925122-el-rey-de-los-mendigos/"><u>El Rey de los Mendigos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211128795-9798868930041-el-ultimo-pasajero/"><u>El Último Pasajero | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211129447-9781761187940-everyday-folklore/"><u>Everyday Folklore | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130213-9781914271502-hot-erotic-short-stories-3-in-1naughty-adult-collection/"><u>Hot Erotic Short Stories 3 in 1Naughty Adult Collection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211128641-9798888517505-next-a-little-guide-about-moving-forward-from-imposter-syndrome-fear-perfectionism-and-certainty/"><u>NEXT: A Little Guide About Moving Forward from Imposter Syndrome, Fear, Perfectionism, and Certainty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130477-9781604736649-shadows-and-cypress/"><u>Shadows and Cypress | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211128550-9798885254434-strong-woman-arisen/"><u>Strong Woman Arisen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211130085-9781454949848-the-rainbow-witch/"><u>The Rainbow Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211128752-9781739394530-the-transformation-keys-unleash-your-best-self/"><u>The Transformation Keys: Unleash Your Best Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783034-9781594775154-global-awakening/"><u>Global Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783033-9781594779176-radical-nature-2nd-ed/"><u>Radical Nature (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783035-9781594778667-the-crack-in-the-cosmic-egg/"><u>The Crack in the Cosmic Egg | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783032-9781594778582-the-spiritual-life-of-water/"><u>The Spiritual Life of Water | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

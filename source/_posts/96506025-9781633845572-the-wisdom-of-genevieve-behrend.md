@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2025-01-27T07:47:01.374Z
-updated: 2025-02-01T20:49:15.603Z
+date: 2025-01-29T16:55:13.925Z
+updated: 2025-02-03T18:07:43.886Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,17 +158,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211165184-9781736821831-awakened-soul/"><u>Awakened Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165059-9798869027603-bajo-el-cielo-de-bagdad/"><u>Bajo el Cielo de Bagdad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211163778-9782889702176-communiquer-intuitivement-avec-les-animaux/"><u>Communiquer intuitivement avec les animaux | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211163736-9780645665338-longchenpas-three-cycles-of-natural-freedom/"><u>Longchenpa’s Three Cycles of Natural Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165134-9798869029386-the-reincarnation-of-a-queen/"><u>The Reincarnation of a Queen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211164124-9780762487509-the-wheel-of-the-year/"><u>The Wheel of the Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211164059-9781837821303-the-wild-wool-shepherdess/"><u>The Wild Wool Shepherdess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211163607-9781524894382-trust-your-timing/"><u>Trust Your Timing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841433-9781683253822-el-aura-energia-vital-luminosa/"><u>El Aura. Energía vital luminosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841425-9781683253747-el-extraordinario-mundo-de-los-fantasmas/"><u>El extraordinario mundo de los fantasmas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841435-9781683253846-el-tarot-egipcio/"><u>El tarot egipcio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841434-9781683253839-feng-shui-y-el-poder-de-la-piramide/"><u>Feng Shui y El Poder de La Piramide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841427-9781683253761-los-test-psicologicos-de-aptitud-y-personalidad/"><u>Los test psicologicos de aptitud y personalidad | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

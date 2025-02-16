@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2025-01-31T20:09:17.871Z
-updated: 2025-02-02T04:09:23.309Z
+date: 2025-01-30T16:46:10.788Z
+updated: 2025-02-03T16:44:30.331Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,13 +183,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211347294-9781454956075-a-glitch-in-the-matrix/"><u>A Glitch in the Matrix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211347353-9798869369871-galactic-chronicles-book-one/"><u>Galactic Chronicles Book One | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211347311-9798893810400-life-and-love/"><u>Life and Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211347335-9798990399303-the-calculus-of-life/"><u>The Calculus of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370916-9780876046463-dreams-visions/"><u>Dreams & Visions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370921-9780876047507-earth-changes/"><u>Earth Changes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370923-9780876046265-edgar-cayce-and-the-kabbalah/"><u>Edgar Cayce and the Kabbalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370922-9780876047088-energy-medicine/"><u>Energy Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370911-9780876046814-make-up-your-mind-to-be-happy/"><u>Make Up Your Mind to Be Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370919-9780876046319-meditation-prayer-affirmation/"><u>Meditation, Prayer & Affirmation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370918-9780876046791-planetary-influences-sojourns/"><u>Planetary Influences & Sojourns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370920-9780876046777-we-live-forever/"><u>We Live Forever | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

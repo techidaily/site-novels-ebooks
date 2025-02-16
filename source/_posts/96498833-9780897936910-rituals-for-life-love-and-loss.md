@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2025-02-01T08:11:26.807Z
-updated: 2025-02-01T17:19:17.803Z
+date: 2025-02-01T17:04:20.577Z
+updated: 2025-02-03T18:15:44.112Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,14 +179,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211266220-9798887936321-moment-of-the-broken-covenant/"><u>Moment of the Broken Covenant | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211266219-9798887937755-relax-youre-not-going-to-die-part-2/"><u>Relax. . . You're Not Going to Die Part 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211265814-9798891302464-the-aroma-after-the-rain/"><u>The Aroma After the Rain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211266568-9781838385569-the-vortex/"><u>The Vortex 漩涡 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211266125-9798893307573-two-sides-to-every-story/"><u>Two Sides To Every Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316639-9781401941888-directing-your-destiny/"><u>Directing Your Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316635-9781401946852-e-cubed/"><u>E-Cubed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316657-9781401949747-memories-of-heaven/"><u>Memories of Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316637-9781401939663-pocket-guide-to-spirit-animals/"><u>Pocket Guide to Spirit Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316649-9781401951931-secrets-of-the-lost-mode-of-prayer/"><u>Secrets of the Lost Mode of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316648-9781401949594-the-biology-of-belief-10th-anniversary-edition/"><u>The Biology of Belief 10th Anniversary Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316636-9781401944674-the-magic-path-of-intuition/"><u>The Magic Path of Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316645-9781401947613-the-truth-of-spirits/"><u>The Truth of Spirits | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

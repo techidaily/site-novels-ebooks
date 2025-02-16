@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2025-01-29T02:08:45.080Z
-updated: 2025-02-01T19:55:51.038Z
+date: 2025-01-31T18:34:26.489Z
+updated: 2025-02-03T17:50:51.243Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,15 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211250058-9780645909715-2024-wood-dragon-year/"><u>2024 Wood Dragon Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211250044-9780995923140-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211249997-9781777230869-astrology/"><u>Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211249962-9781777477899-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211249760-9781777114282-developing-sixth-sense/"><u>Developing Sixth Sense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211250008-9781396323256-extra-sensory-perception/"><u>Extra-Sensory Perception | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96181048-9781401954741-its-not-your-money/"><u>It's Not Your Money | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96181148-9781841814889-the-astrology-bible/"><u>The Astrology Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96181163-9780349413846-the-little-book-of-peace/"><u>The Little Book of Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96181138-9781781576519-the-witchcraft-handbook/"><u>The Witchcraft Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Spiritual Wisdom from the Altai Mountains | Free Book
-date: 2025-01-29T19:07:36.605Z
-updated: 2025-02-01T16:53:54.376Z
+date: 2025-02-01T16:07:21.407Z
+updated: 2025-02-03T17:05:45.773Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012bbbca88624227d37d97b8109319153273b.jpg
@@ -132,16 +132,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec57091bb3d0b0a1c19a3a5d829012b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211141803-9781644117491-celtic-tree-alphabets-2nd-ed/"><u>Celtic Tree Alphabets (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141802-9781644117439-encounters-with-mermaids-2nd-ed/"><u>Encounters with Mermaids (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141805-9781644117996-psychedelics-and-the-coming-singularity/"><u>Psychedelics and the Coming Singularity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141815-9781644119105-song-of-the-dark-man/"><u>Song of the Dark Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141754-9781591435259-the-secret-life-of-mother-mary/"><u>The Secret Life of Mother Mary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141806-9781644118023-the-way-of-imagination/"><u>The Way of Imagination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141816-9781644119280-voudon-gnosticism/"><u>Voudon Gnosticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783119-9781620552070-el-calendario-maya-y-la-transformacion-de-la-consciencia/"><u>El Calendario Maya y la Transformación de la Consciencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783115-9781594778384-el-codigo-maya/"><u>El código maya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783123-9781620552117-el-dominio-de-la-conciencia/"><u>El Dominio de la Conciencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783116-9781620552100-el-mundo-es-como-uno-lo-suena/"><u>El mundo es como uno lo sueña | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783114-9781620551295-el-poder-curativo-de-la-mente/"><u>El poder curativo de la mente | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783126-9781620555408-las-frecuencias-de-los-chakras/"><u>Las frecuencias de los chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783124-9781594776694-las-practicas-sexuales-del-quodoushka/"><u>Las prácticas sexuales del Quodoushka | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

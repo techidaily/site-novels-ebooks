@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2025-01-29T04:19:59.636Z
-updated: 2025-02-02T08:06:35.649Z
+date: 2025-01-31T16:01:29.105Z
+updated: 2025-02-03T18:25:38.523Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,14 +131,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211131849-9798868930461-all-the-flowers-that-i-won/"><u>All the flowers that I won | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211131762-9798868905155-broken-scepters-stories-of-the-christiandom-episodes-of-the-holy-inquisition/"><u>BROKEN SCEPTERS: Stories of the Christiandom. Episodes of the Holy Inquisition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211131769-9781801520638-coelbren/"><u>Coelbren | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211132577-9781977267986-six-pathways-to-happiness-volume-2/"><u>Six Pathways to Happiness Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211131768-9781801520942-the-meditation-retreat-manual/"><u>The Meditation Retreat Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783051-9781620554470-blindspots/"><u>BlindSpots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783058-9781594778018-darwins-unfinished-business/"><u>Darwin's Unfinished Business | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783061-9781620551684-dmt-and-the-soul-of-prophecy/"><u>DMT and the Soul of Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783064-9781594779732-dmt-the-spirit-molecule/"><u>DMT: The Spirit Molecule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783054-9781620554906-dreaming-wide-awake/"><u>Dreaming Wide Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783057-9781594777455-drugs-of-the-dreaming/"><u>Drugs of the Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783062-9781620550496-the-rebirth-of-nature/"><u>The Rebirth of Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783059-9781620551257-the-religion-of-ayahuasca-2nd-ed/"><u>The Religion of Ayahuasca (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783063-9781620554746-the-witches-ointment/"><u>The Witches' Ointment | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

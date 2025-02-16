@@ -1,7 +1,7 @@
 ---
 title: Transcendent Wisdom of the Maya | Free Book
-date: 2025-01-28T23:15:21.636Z
-updated: 2025-02-02T07:33:31.869Z
+date: 2025-02-02T17:22:42.170Z
+updated: 2025-02-03T18:45:56.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8fe342fd625e873a2ea83a159fafc7d7dd.jpg
@@ -208,13 +208,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9ef831a50f24a26ed915c8040bba8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211477679-9781964744643-living-with-eternity/"><u>Living with Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477682-9781890679644-stop-thought/"><u>Stop Thought | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477494-9798330098774-summary-of-luis-elizondos-imminent/"><u>Summary of Luis Elizondo’s Imminent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477074-9789695592267-the-art-of-embracing-nothingness/"><u>The Art of Embracing Nothingness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128291-9781136183072-john-dees-natural-philosophy/"><u>John Dee's Natural Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1131766-9781938289026-pearls-of-wisdom/"><u>Pearls of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1132881-9781583946237-rainforest-medicine/"><u>Rainforest Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1131763-9781609258481-spirit-walking/"><u>Spirit Walking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1131765-9781938289071-the-big-book-of-reincarnation/"><u>The Big Book of Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128047-9781609258412-the-true-and-invisible-rosicrucian-order/"><u>The True and Invisible Rosicrucian Order | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1130170-9780982432389-the-witches-almanac-issue-31-spring-2012-to-spring-2013/"><u>The Witches' Almanac: Issue 31, Spring 2012 to Spring 2013 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1130171-9780982432341-the-witches-almanac-issue-32-spring-2013-to-spring-2014/"><u>The Witches' Almanac: Issue 32, Spring 2013 to Spring 2014 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1131767-9781612830988-time-loops-and-space-twists/"><u>Time Loops and Space Twists | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

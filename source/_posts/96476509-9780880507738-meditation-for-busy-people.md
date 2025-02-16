@@ -1,7 +1,7 @@
 ---
 title: Meditation for Busy People | Free Book
-date: 2025-01-30T23:16:24.308Z
-updated: 2025-02-02T02:06:02.418Z
+date: 2025-01-31T18:53:23.116Z
+updated: 2025-02-03T16:42:50.466Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3d07d629ab0f01e2ddaf61527d3ee5650b.jpg
@@ -178,13 +178,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ed15344b696fe0c5be15d4505997e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211389000-9798330249893-quien-soy-las-diez-preguntas-definitivas-sobre-identidad-para-adolescentes-y-preadolescentes/"><u>¿Quién soy? Las DIEZ preguntas definitivas sobre IDENTIDAD para ADOLESCENTES y PREADOLESCENTES | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211389005-9798330249992-5oir5piv6lcb77yfiomdkuwwkew5towsjomdkuwwkew5toeahowngewkpe7ioaegei6qs7vemxrumimcdpnzlmmkxmnjliy3vvjog6lqr5lu95pcc57si5oml5yam/"><u>我是谁？ 青少年和青少年的十大终极身份问题 青春期前： 身份搜索手册 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211389017-9798330249886-wer-bin-ich-die-zehn-ultimativen-identitatsfragen-fur-teens-und-vorpubertierende/"><u>Wer bin ich? Die ZEHN ultimativen IDENTITÄTSFRAGEN für TEENS und Vorpubertierende | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211389018-9798330249978-ma-kana-ha-kashara-oura-kashara-ka-le-thasa-saravasharashhatha-pahacana-sabthha-parashana-paratanasa/"><u>मैं कौन हूँ? किशोरों और किशोरों के लिए दस सर्वश्रेष्ठ पहचान संबंधी प्रश्न प्रीटीन्स | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506738-9781515406181-awakened-imagination/"><u>Awakened Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96507074-9781579510954-cannabis-alchemy/"><u>Cannabis Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96507075-9781579511647-entheogens-myth-and-human-consciousness/"><u>Entheogens, Myth, and Human Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506809-9781515407133-new-thought-bundle-2/"><u>New Thought Bundle #2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506776-9781515406914-new-thought-super-pack-2/"><u>New Thought Super Pack #2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96507079-9781579511517-simple-pleasures/"><u>Simple Pleasures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506747-9781515406303-the-infinite-way/"><u>The Infinite Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506762-9781515406327-the-power-of-awareness/"><u>The Power Of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96506924-9781515412250-through-the-gates-of-good/"><u>Through the Gates of Good | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

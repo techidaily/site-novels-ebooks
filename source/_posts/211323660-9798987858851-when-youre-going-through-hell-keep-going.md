@@ -1,7 +1,7 @@
 ---
 title: When You're Going Through Hell ...Keep Going | Free Book
-date: 2024-10-26T03:50:08.602Z
-updated: 2024-10-26T22:00:59.996Z
+date: 2025-01-27T18:08:32.180Z
+updated: 2025-02-03T17:59:17.590Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/70fd7a5a4874148c83e7d7ca665401b1ad4252682e1b738e5479529531cecc56.jpg
@@ -219,3 +219,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/70fd7a5a4874148c83e7d7ca665401b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/542087-9781451603675-divining-your-dreams/"><u>Divining Your Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/542210-9781439173039-manifesting-michelangelo/"><u>Manifesting Michelangelo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/542016-9781451603866-the-sivananda-companion-to-meditation/"><u>The Sivananda Companion to Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/542179-9781451603583-zolars-encyclopedia-and-dictionary-of-dreams/"><u>Zolar's Encyclopedia and Dictionary of Dreams | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

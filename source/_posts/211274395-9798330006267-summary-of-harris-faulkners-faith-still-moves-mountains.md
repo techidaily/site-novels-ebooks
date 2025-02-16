@@ -1,7 +1,7 @@
 ---
 title: Summary of Harris Faulkner's Faith Still Moves Mountains | Free Book
-date: 2024-10-23T20:15:13.146Z
-updated: 2024-10-26T22:16:16.370Z
+date: 2025-02-02T18:51:00.549Z
+updated: 2025-02-03T16:16:01.278Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/067067291415f4a27da46302dea6f872503698a8c3041c909acd75094004d35d.jpg
@@ -135,3 +135,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/067067291415f4a27da46302dea6f87
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782336-9781591437765-return-of-the-divine-sophia/"><u>Return of the Divine Sophia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782332-9781591437512-revolt-of-the-rebel-angels/"><u>Revolt of the Rebel Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782329-9781591437543-the-mysterious-origins-of-hybrid-man/"><u>The Mysterious Origins of Hybrid Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782330-9781591438298-the-power-of-ecstatic-trance/"><u>The Power of Ecstatic Trance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782331-9781591438724-the-power-of-emotion/"><u>The Power of Emotion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782334-9781591439172-the-wars-of-gods-and-men-book-iii/"><u>The Wars of Gods and Men (Book III) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

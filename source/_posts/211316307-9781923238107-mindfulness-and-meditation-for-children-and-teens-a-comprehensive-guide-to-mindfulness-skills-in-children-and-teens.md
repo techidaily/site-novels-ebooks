@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness and Meditation for Children and Teens : A Comprehensive Guide to Mindfulness Skills in Children and Teens | Free Book"
-date: 2024-10-20T19:58:00.036Z
-updated: 2024-10-26T17:13:41.001Z
+date: 2025-01-28T16:59:45.194Z
+updated: 2025-02-03T16:10:45.109Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/247f703b60a974faac8f495f236e620a6915e4284fde2c724c634c9ac10bff6f.jpg
@@ -173,3 +173,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/247f703b60a974faac8f495f236e620
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/888060-9780307817792-gemstones-a-to-z/"><u>Gemstones A to Z | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/887902-9781459707429-haunted-ontario-2nd-ed/"><u>Haunted Ontario (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/888679-9781407028453-life-before-death/"><u>Life Before Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/888134-9781583945865-stillness/"><u>Stillness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

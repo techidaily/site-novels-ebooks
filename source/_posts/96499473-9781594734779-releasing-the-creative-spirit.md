@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2025-01-25T19:41:34.349Z
-updated: 2025-02-01T19:19:09.588Z
+date: 2025-01-28T18:38:09.457Z
+updated: 2025-02-03T18:03:22.352Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,15 +182,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211219930-9781797226408-blame-the-stars/"><u>Blame the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211219848-9781398845855-moon-magic/"><u>Moon Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211220129-9781977271068-on-becomeing-a-woman-of-wisdom/"><u>On Be(come)ing a Woman of Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211219703--spirits-come-from-water/"><u>Spirits Come from Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211220091-9781465484857-star-wars-be-more-yoda/"><u>Star Wars: Be More Yoda | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211219594-9781837991129-the-little-book-of-numerology/"><u>The Little Book of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935341-9781844097876-fighting-buddha/"><u>Fighting Buddha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935340-9781844093922-in-case-of-spiritual-emergency/"><u>In Case of Spiritual Emergency | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935337-9781844098668-in-perfect-timing/"><u>In Perfect Timing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935338-9781844093571-the-gift-of-forgiveness/"><u>The Gift of Forgiveness | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

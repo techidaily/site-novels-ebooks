@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2025-01-28T21:04:52.812Z
-updated: 2025-02-01T19:11:08.301Z
+date: 2025-01-28T16:37:43.455Z
+updated: 2025-02-03T16:39:48.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,18 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211236362-9798886151879-a-sacred-way-to-gain-freedom-from-multi-generational-curses/"><u>A Sacred Way to Gain Freedom from Multi-Generational Curses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236379-9781396324833-in-days-to-come/"><u>In Days to Come | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236454-9798869146021-lecciones-de-la-senzala/"><u>Lecciones de la Senzala | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236445-9798218337025-love-heals-all-wounds/"><u>Love Heals All Wounds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236425-9798868943508-my-time-keeping-the-light-shining/"><u>MY TIME: Keeping The Light Shining | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236380-9789358814279-the-art-of-letting-go/"><u>The Art of Letting Go | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236418-9798989828623-the-art-of-mindkeeping/"><u>The Art of Mindkeeping | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236481-9781396324956-the-tarot/"><u>The Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236376-9781778921049-aaatmad-bh-nfs-zibatrin-lbasi-kh-mitoni-bposhi/"><u>اعتماد به نفس زیباترین لباسی که میتونی بپوشی | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95947345-9781623173012-changed-in-a-flash/"><u>Changed in a Flash | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95946814-9781925515664-confucius/"><u>Confucius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948899-9781785355981-divining-with-animal-guides/"><u>Divining with Animal Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948900-9781785356636-earth-astrologys-missing-planet/"><u>Earth: Astrology's Missing Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95948905-9781782798439-spiritual-beings-or-economic-tools/"><u>Spiritual Beings or Economic Tools | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95946815-9781925515961-the-book-of-eternity/"><u>The Book of Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95947320-9781786781741-the-premonition-code/"><u>The Premonition Code | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Secret Life of a Satanist | Free Book
-date: 2025-01-22T21:21:51.660Z
-updated: 2025-01-25T02:09:49.184Z
+date: 2025-01-29T17:09:10.027Z
+updated: 2025-02-03T16:28:51.678Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290f30e1c936b63c2de7854a4594e4b69411.jpg
@@ -160,14 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/12ef153bc97cf27685f13bcb6f3c290
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210659510-9798985627152-inspired-meditations-book-iii/"><u>Inspired Meditations Book III | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659821-9781685702731-know-your-future/"><u>Know Your Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210660657-9798986782058-numerology-for-brilliance-2nd-ed/"><u>Numerology for Brilliance (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659796-9781952692482-the-mindfulness-bell-thich-nhat-hanh-memorial-issue-89-2022/"><u>The Mindfulness Bell: Thich Nhat Hanh Memorial Issue 89, 2022 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659820-9781638740889-thoughts-from-a-mothers-love/"><u>Thoughts from a Mother's Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574373-9781450257152-a-collection-of-chaos/"><u>A Collection of Chaos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574309-9781469785424-an-awakening-within/"><u>An Awakening Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574209-9781469761916-love-cycles/"><u>Love Cycles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574406-9781440126734-meet-yourself-again-for-the-first-time/"><u>Meet Yourself Again for the First Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574305-9780595795789-more-than-just-words/"><u>More Than Just Words | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

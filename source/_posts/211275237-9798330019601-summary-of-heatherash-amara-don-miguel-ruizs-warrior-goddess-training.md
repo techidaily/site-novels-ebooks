@@ -1,7 +1,7 @@
 ---
 title: Summary of HeatherAsh Amara & don Miguel Ruiz's Warrior Goddess Training | Free Book
-date: 2024-10-23T03:07:13.951Z
-updated: 2024-10-27T01:45:39.682Z
+date: 2025-01-30T16:02:05.202Z
+updated: 2025-02-03T18:31:36.340Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/397652ebca68f939e083b29ce2e45cf9b19d0b512dc2255faa12197b5ea0ec10.jpg
@@ -138,3 +138,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/397652ebca68f939e083b29ce2e45cf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782408-9781591438717-earthwalks-for-body-and-spirit/"><u>Earthwalks for Body and Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782406-9781591438229-ecstatic-body-postures/"><u>Ecstatic Body Postures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782403-9781591437536-secrets-of-aboriginal-healing-2nd-ed/"><u>Secrets of Aboriginal Healing (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782401-9781591437758-secrets-of-ancient-america/"><u>Secrets of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782402-9781591439905-secrets-of-antigravity-propulsion/"><u>Secrets of Antigravity Propulsion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782400-9781591439776-shamanism-for-the-age-of-science-2nd-ed/"><u>Shamanism for the Age of Science (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782405-9781591437710-the-lost-city-of-the-exodus/"><u>The Lost City of the Exodus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782399-9781591432166-the-omniverse-2nd-ed/"><u>The Omniverse (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782397-9781591439578-there-were-giants-upon-the-earth/"><u>There Were Giants Upon the Earth | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

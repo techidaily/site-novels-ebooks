@@ -1,7 +1,7 @@
 ---
 title: More About Life in the World Unseen | Free Book
-date: 2024-10-23T17:28:17.006Z
-updated: 2024-10-27T05:39:15.715Z
+date: 2025-01-30T18:44:52.563Z
+updated: 2025-02-03T17:25:13.379Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9edfbc177ec0030d362f7d7cf2fd76cd8ce0970a8d4258c0a0fc35b525cc6a3e.jpg
@@ -155,3 +155,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9edfbc177ec0030d362f7d7cf2fd76c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782301-9781591432623-ecstatic-soul-retrieval/"><u>Ecstatic Soul Retrieval | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782300-9781591438335-lost-race-of-the-giants/"><u>Lost Race of the Giants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782302-9781591439011-merlin-and-the-discovery-of-avalon-in-the-new-world/"><u>Merlin and the Discovery of Avalon in the New World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782304-9781591439561-the-earth-chronicles-expeditions-2nd-ed/"><u>The Earth Chronicles Expeditions (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782303-9781591439554-the-earth-chronicles-handbook/"><u>The Earth Chronicles Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782299-9781594779237-the-elixir-of-immortality/"><u>The Elixir of Immortality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782298-9781591438656-the-gospel-of-the-toltecs/"><u>The Gospel of the Toltecs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

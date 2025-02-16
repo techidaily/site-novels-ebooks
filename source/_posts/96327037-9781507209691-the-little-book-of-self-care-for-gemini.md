@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Gemini | Free Book
-date: 2025-01-23T17:50:57.302Z
-updated: 2025-01-24T20:37:07.996Z
+date: 2025-01-31T16:40:21.072Z
+updated: 2025-02-03T17:49:50.520Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b70899244b6afd8c15f35581b3b721bc2026f4.jpg
@@ -169,16 +169,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85b9bf9a35b88a406192562992b7089
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210704047-9781915393531-happy-birthday-love-jane/"><u>Happy Birthday-Love, Jane | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703544-9781959561163-laying-of-hands/"><u>Laying of Hands | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703950-9780711280694-nature-devotional/"><u>Nature Devotional | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703553-9781998754076-out-of-love/"><u>Out of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210703534-9781959561064-quantum-origins/"><u>Quantum Origins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210704086-9798885403467-souls-that-bind/"><u>Souls That Bind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210704014-9780760379950-the-beginners-guide-to-spirit-animals/"><u>The Beginner's Guide to Spirit Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595367-9781449755126-being-found-in-him/"><u>Being Found in Him | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595319-9781452544397-listen-im-still-here/"><u>Listen, I'm Still Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595283-9781449729455-of-truth-and-righteousness/"><u>Of Truth and Righteousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595277-9781452543086-the-akashic-field/"><u>The Akashic Field | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

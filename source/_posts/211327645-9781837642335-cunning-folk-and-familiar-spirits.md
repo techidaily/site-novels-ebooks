@@ -1,7 +1,7 @@
 ---
 title: Cunning Folk and Familiar Spirits | Free Book
-date: 2024-10-19T18:03:23.169Z
-updated: 2024-10-26T16:27:26.241Z
+date: 2025-01-31T18:03:25.644Z
+updated: 2025-02-03T18:18:05.876Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/247cb92c2fa49d0809a7a64a59a4f989f611791522f9c8e13b011ce084ab44f9.jpg
@@ -212,3 +212,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/247cb92c2fa49d0809a7a64a59a4f98
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/308424-9780965804271-bhagavad-gita-for-modern-times/"><u>Bhagavad Gita for Modern Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/296566-9781416565420-epiphanies/"><u>Epiphanies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/297427-9780553904925-new-moon-astrology/"><u>New Moon Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/302310-9781416565437-ocean-oracle/"><u>Ocean Oracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/302390-9781101211830-psychic-children/"><u>Psychic Children | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/301647--tarot-masterclass/"><u>Tarot Masterclass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/301300-9781416545224-the-energy-healing-experiments/"><u>The Energy Healing Experiments | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

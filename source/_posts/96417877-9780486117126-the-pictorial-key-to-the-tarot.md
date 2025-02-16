@@ -1,7 +1,7 @@
 ---
 title: The Pictorial Key to the Tarot | Free Book
-date: 2025-01-29T19:53:00.738Z
-updated: 2025-02-02T03:45:42.802Z
+date: 2025-01-31T16:14:01.506Z
+updated: 2025-02-03T16:14:40.378Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f75f7ab40dab30af31924f77d053e902a7.jpg
@@ -149,16 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f906312c556b11f30fc49277a28512f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211441830--palmistry-for-happiness/"><u>Palmistry for Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441723--sacred-forest-bathing/"><u>Sacred Forest Bathing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441833--the-call-of-the-old-gods/"><u>The Call of the Old Gods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441832--the-languages-of-magic/"><u>The Languages of Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441835--the-prenatal-shadow/"><u>The Prenatal Shadow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441722--the-psychedelic-shaman/"><u>The Psychedelic Shaman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441765--the-sacred-mushroom-3rd-ed/"><u>The Sacred Mushroom (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125532-9781609257293-angels-demons-gods-of-the-new-millennium/"><u>Angels, Demons & Gods of the New Millennium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125533-9781609254728-apocalypse-of-baruch-and-the-assumption-of-moses/"><u>Apocalypse Of Baruch And The Assumption Of Moses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125534-9781609254704-applied-magic/"><u>Applied Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125535-9781609256609-aquarius-now/"><u>Aquarius Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125544-9781609256890-astral-odyssey/"><u>Astral Odyssey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125537-9781609257071-the-art-and-practice-of-astral-projection/"><u>The Art and Practice of Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125539-9781609250706-the-art-and-practice-of-geomancy/"><u>The Art and Practice of Geomancy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125541-9781609257965-the-art-of-living-out-loud/"><u>The Art of Living Out Loud | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125547-9781609253844-the-astrological-neptune-and-the-quest-for-redemption/"><u>The Astrological Neptune and the Quest for Redemption | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

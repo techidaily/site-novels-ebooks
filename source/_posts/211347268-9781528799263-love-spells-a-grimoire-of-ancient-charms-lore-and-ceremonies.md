@@ -1,7 +1,7 @@
 ---
 title: Love Spells - A Grimoire of Ancient Charms, Lore, and Ceremonies | Free Book
-date: 2024-10-20T01:37:46.537Z
-updated: 2024-10-26T23:53:24.248Z
+date: 2025-02-02T18:42:44.166Z
+updated: 2025-02-03T17:11:30.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4a689421e627d90a2f51a610d416f69673d0df40d3efe44b151cc3f0e8dd4779.jpg
@@ -147,3 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4a689421e627d90a2f51a610d416f69
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2212463-9780007536900-capricorn-2014-your-personal-horoscope/"><u>Capricorn 2014: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212460-9780007536870-libra-2014-your-personal-horoscope/"><u>Libra 2014: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212462-9780007536894-sagittarius-2014-your-personal-horoscope/"><u>Sagittarius 2014: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212461-9780007536887-scorpio-2014-your-personal-horoscope/"><u>Scorpio 2014: Your Personal Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2025-01-30T19:35:11.217Z
-updated: 2025-02-02T08:02:49.109Z
+date: 2025-01-31T16:20:24.449Z
+updated: 2025-02-03T18:38:23.238Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,18 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211140235-9781088082669-awakening-the-souls-vibration/"><u>Awakening the Soul's Vibration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140333-9781988842042-druidism/"><u>Druidism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140243-9781958082768-here-and-hereafter/"><u>Here and Hereafter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140754-9781960466198-messages-from-the-mystical-cards/"><u>Messages from the Mystical Cards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140596-9781961064102-play/"><u>Play | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140580-9781960466150-the-future/"><u>The Future | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140741-9798989283613-the-recipe/"><u>The Recipe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211139877-9781642587494-walking-with-god/"><u>Walking with God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140344-9781961364073-women-who-dream/"><u>Women Who Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783093-9781620556436-into-the-mystic/"><u>Into the Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783085-9781620551400-lsd-and-the-divine-scientist/"><u>LSD and the Divine Scientist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783090-9781620553671-magic-mushroom-explorer/"><u>Magic Mushroom Explorer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783088-9781620554623-teachings-of-the-peyote-shamans/"><u>Teachings of the Peyote Shamans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783098-9781594778711-the-prophets-way/"><u>The Prophet's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783094-9781594779374-the-psilocybin-solution/"><u>The Psilocybin Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783097-9781594779367-the-psychedelic-explorers-guide/"><u>The Psychedelic Explorer's Guide | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

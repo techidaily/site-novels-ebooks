@@ -1,7 +1,7 @@
 ---
 title: Every Human Being Is a Seeker of Truth | Free Book
-date: 2025-01-27T20:41:43.114Z
-updated: 2025-02-01T23:52:01.382Z
+date: 2025-01-28T16:35:53.398Z
+updated: 2025-02-03T16:57:39.165Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d37353efde2dd2b3c3061d40aea56f8d7d3569.jpg
@@ -166,14 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76f2c3662b4c04a3be8fd75062d3735
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383465-9798330236428-have-we-lived-before-2/"><u>Have We Lived Before 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383487-9798330236978-selfish-healing/"><u>Selfish Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383492-9780645738636-the-complete-teachings-of-modern-wicca-for-the-seeker/"><u>The Complete Teachings of Modern Wicca For the Seeker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383486-9781088173145-trust-the-flow/"><u>Trust the Flow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383386--you-are-not-your-trauma-healing-journal/"><u>You Are Not Your Trauma Healing Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505633-9781633840522-how-to-live-life-and-love-it/"><u>How to Live Life and Love It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505601-9781633840119-new-lands/"><u>New Lands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505599-9781633840188-oracles-of-nostradamus/"><u>Oracles of Nostradamus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505536-9781627558594-the-conquest-of-fear/"><u>The Conquest of Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505644-9781633840614-the-law-of-the-higher-potential/"><u>The Law of the Higher Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505584-9781627558686-the-possibilities-of-prayer/"><u>The Possibilities of Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96505622-9781633840539-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

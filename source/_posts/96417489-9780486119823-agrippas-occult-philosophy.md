@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2025-01-27T16:15:52.618Z
-updated: 2025-02-02T04:46:16.126Z
+date: 2025-02-02T17:22:32.615Z
+updated: 2025-02-03T18:36:31.569Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,14 +149,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211439394-9798894790343-keys-to-a-sacred-place/"><u>Keys To A Sacred Place | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439399--mediumship/"><u>Mediumship | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439126--naturally-modern-magick/"><u>Naturally Modern Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439302-9798330345380-sceptres-brises/"><u>SCEPTRES BRISÉS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439123--the-poisoned-arrow/"><u>The Poisoned Arrow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124270-9781619400153-a-true-story-of-startling-seances-in-san-francisco/"><u>A True Story of Startling Seances in San Francisco | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124261-9781619400733-sister-masons-a-burlesque-in-one-act/"><u>Sister Masons: A Burlesque in One Act: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124263-9781619400405-snake-charming/"><u>Snake Charming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124259-9781619400467-the-repairer-of-reputations/"><u>The Repairer of Reputations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124260-9781619400924-the-sepher-yetzirah-of-rabbi-ben-clifford/"><u>The Sepher Yetzirah of Rabbi Ben Clifford | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124264-9781619400474-the-sons-of-osiris-a-side-degree/"><u>The Sons of Osiris: A Side Degree | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124271-9781619400689-the-truth-about-telepathy/"><u>The Truth About Telepathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124277-9781619400290-the-werewolf-of-the-north/"><u>The Werewolf of the North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124275-9781619400092-water-wizardry/"><u>Water Wizardry | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

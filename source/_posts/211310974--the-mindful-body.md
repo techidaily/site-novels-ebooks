@@ -1,7 +1,7 @@
 ---
 title: The Mindful Body | Free Book
-date: 2024-10-25T18:48:50.174Z
-updated: 2024-10-27T02:49:41.209Z
+date: 2025-01-29T17:45:16.085Z
+updated: 2025-02-03T16:15:54.002Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d4137f416d29445f23b0453dbb655fd450c257132d236d49ec308013c521d2fc.jpg
@@ -136,3 +136,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d4137f416d29445f23b0453dbb655fd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95643166-9781612833682-chinese-astrology-plain-simple/"><u>Chinese Astrology Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95640836-9781579830489-divine-mother-divine-father/"><u>Divine Mother, Divine Father | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95641435-9780190466725-john-of-god/"><u>John of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95643131-9780857011602-jyotish/"><u>Jyotish | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95635777-9781612833712-numerology-plain-simple/"><u>Numerology Plain & Simple | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95642494-9781786780713-soul-story/"><u>Soul Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95637545-9781608684236-the-book-of-destinies/"><u>The Book of Destinies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95639095-9780750981316-the-borley-rectory-companion/"><u>The Borley Rectory Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95642493-9781786780706-the-healing-power-of-life-alignment/"><u>The Healing Power of Life Alignment | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Daily Tao | Free Book
-date: 2024-10-20T04:01:55.238Z
-updated: 2024-10-27T01:27:55.794Z
+date: 2025-01-29T18:13:58.713Z
+updated: 2025-02-03T16:47:31.970Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0167f59ce3853e2b6ed6d58d37617ad55c1c504991c4f4564c65c979885628a5.jpg
@@ -146,3 +146,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0167f59ce3853e2b6ed6d58d37617ad
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782386-9781591439066-bringers-of-the-dawn/"><u>Bringers of the Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782387-9781591439288-cherokee-astrology-2nd-ed/"><u>Cherokee Astrology (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782388-9781591438915-imagining-the-world-into-existence/"><u>Imagining the World into Existence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782382-9781591438687-magdalenes-lost-legacy/"><u>Magdalene's Lost Legacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782384-9781591439233-meditations-with-the-cherokee/"><u>Meditations with the Cherokee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782383-9781591437727-speaking-with-nature/"><u>Speaking with Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782389-9781591432289-the-shamanic-powers-of-rolling-thunder/"><u>The Shamanic Powers of Rolling Thunder | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

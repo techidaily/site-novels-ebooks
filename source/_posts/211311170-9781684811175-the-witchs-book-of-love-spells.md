@@ -1,7 +1,7 @@
 ---
 title: The Witch's Book of Love Spells | Free Book
-date: 2024-10-22T20:08:42.272Z
-updated: 2024-10-26T22:45:55.122Z
+date: 2025-01-27T17:04:14.443Z
+updated: 2025-02-03T16:59:40.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d729671900c063dd730fe10b3498b1fa52ca0cee208eb0458f7e29e317d15f73.jpg
@@ -172,3 +172,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d729671900c063dd730fe10b3498b1f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95684070-9781440513657-out-of-the-broom-closet/"><u>Out of the Broom Closet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95684004-9781440523335-the-everything-astrology-book/"><u>The Everything Astrology Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683979-9781440504679-the-everything-law-of-attraction-dream-dictionary/"><u>The Everything Law of Attraction Dream Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683982-9781440511233-the-everything-sex-signs-book/"><u>The Everything Sex Signs Book | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

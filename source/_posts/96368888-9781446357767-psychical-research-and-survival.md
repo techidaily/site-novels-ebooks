@@ -1,7 +1,7 @@
 ---
 title: Psychical Research and Survival | Free Book
-date: 2025-01-19T04:34:37.220Z
-updated: 2025-01-24T19:04:03.925Z
+date: 2025-01-27T16:47:00.093Z
+updated: 2025-02-03T16:14:59.797Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e1773637d63b2cf046deae37eb848ccca9c1991.jpg
@@ -146,18 +146,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc23d0d634e21630ab216da96e17736
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210662631-9781633412958-heal-the-witch-wound/"><u>Heal the Witch Wound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662640-9781633413047-liber-kaos/"><u>Liber Kaos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662641-9781633412972-protection-reversal-magick-revised-and-updated-edition/"><u>Protection & Reversal Magick (Revised and Updated Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662633-9781633412934-the-complete-enochian-dictionary/"><u>The Complete Enochian Dictionary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662638-9781633412941-the-evil-eye/"><u>The Evil Eye | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662635-9781633413009-the-treadwells-book-of-plant-magic/"><u>The Treadwell's Book of Plant Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662636-9781633412903-the-ufo-experience/"><u>The UFO Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662639-9781633413016-third-eye-spies/"><u>Third Eye Spies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210662634-9781633412965-uncharted/"><u>Uncharted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575641-9781450257978-colloquies/"><u>Colloquies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575445-9781452500348-conversations-with-mr-kiki-one-womans-spiritual-journey-with-her-best-friend/"><u>Conversations with Mr Kiki: One Woman’S Spiritual Journey with Her Best Friend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575607-9780595917563-explore-with-monitor-book-1/"><u>Explore with Monitor: Book 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575293-9781450238311-how-should-we-then-live/"><u>How Should We Then Live? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575270-9781462074686-i-bow-to-everything/"><u>I Bow to Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575361-9781469702735-just-smoke-and-mirrors/"><u>Just Smoke and Mirrors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575582-9781462073795-spiritspeak/"><u>Spiritspeak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575554-9781462086856-the-heartbeat-of-intelligence/"><u>The Heartbeat of Intelligence | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

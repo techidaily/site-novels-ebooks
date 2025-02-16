@@ -1,7 +1,7 @@
 ---
 title: The Starry Guide to Herbal Harmony | Free Book
-date: 2024-10-20T05:04:39.004Z
-updated: 2024-10-27T02:15:55.079Z
+date: 2025-01-30T18:06:55.960Z
+updated: 2025-02-03T17:14:06.750Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dafea56eadb64e5f3fbc4db7b292d2c9a1e78ac0fa5e1bd6e8ad320894bc6e3.jpg
@@ -203,3 +203,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dafea56eadb64e5f3fbc4db7b292d2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/676322-9781846947575-nature-as-mirror/"><u>Nature as Mirror | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/676319-9781846947537-sounding-the-mind-of-god/"><u>Sounding the Mind of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/676324-9781846947599-tales-from-the-afterlife/"><u>Tales From the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/676326-9781846947612-you-are-light/"><u>You are Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

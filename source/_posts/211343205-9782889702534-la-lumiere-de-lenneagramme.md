@@ -1,7 +1,7 @@
 ---
 title: La Lumière de l'ennéagramme | Free Book
-date: 2024-10-26T05:57:55.037Z
-updated: 2024-10-27T00:21:00.469Z
+date: 2025-01-29T16:15:38.301Z
+updated: 2025-02-03T16:41:50.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a88f7d97cf499450b8fc0f20ca964f70867de1bb28624efa8d3ed0916d5e6364.jpg
@@ -151,3 +151,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a88f7d97cf499450b8fc0f20ca964f7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2545161-9781626258006-already-awake/"><u>Already Awake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2544835-9781626256279-being/"><u>Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2545365-9781626256316-blessed-disillusionment/"><u>Blessed Disillusionment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2545093-9781785352553-dying-to-be-free/"><u>Dying to Be Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2545092-9781785352997-enso-morning/"><u>Enso Morning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2545087-9781785353154-pagan-portals-celtic-witchcraft/"><u>Pagan Portals - Celtic Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2544042-9781942733911-sacred-kink/"><u>Sacred Kink | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

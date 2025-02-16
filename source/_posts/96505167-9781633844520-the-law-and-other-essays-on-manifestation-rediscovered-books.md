@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2025-01-31T19:15:38.805Z
-updated: 2025-02-02T01:25:42.238Z
+date: 2025-02-02T18:21:01.302Z
+updated: 2025-02-03T17:51:13.226Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,16 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211236152-9781737127901-awaken-to-ascension/"><u>Awaken to Ascension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236168-9781738282319-echoes-of-krishna/"><u>Echoes of Krishna | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236222-9781998101689-effective-communication-in-relationships-marriage/"><u>Effective Communication In Relationships & Marriage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236159-9781739692339-egoist-effect/"><u>Egoist Effect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236234-9798869140395-habla-miguel/"><u>Habla Miguel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235971-9781963254020-once-again/"><u>Once Again | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235945-9781960861993-the-raptured-saints-and-the-left-behind/"><u>The Raptured Saints and the Left Behind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95944888-9781782743392-celtic-myths/"><u>Celtic Myths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95941926-9781612834085-secrets-of-chinese-divination/"><u>Secrets of Chinese Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95943807-9781633410794-the-bardic-book-of-becoming/"><u>The Bardic Book of Becoming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95942717-9781632658869-the-elements-of-spellcrafting/"><u>The Elements of Spellcrafting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95942439-9781614178675-the-love-of-angels-spiritual-encounters/"><u>The Love of Angels (Spiritual Encounters) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95940421-9781841814476-the-pilates-bible/"><u>The Pilates Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95938406-9780762493180-the-practical-witchs-spell-book/"><u>The Practical Witch's Spell Book | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

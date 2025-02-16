@@ -1,7 +1,7 @@
 ---
 title: Healing through Indigenous Wisdom | Free Book
-date: 2024-10-22T20:02:49.001Z
-updated: 2024-10-26T18:00:27.463Z
+date: 2025-01-29T17:59:42.440Z
+updated: 2025-02-03T17:03:30.136Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad92a3c6fde3317506f0d64cd3081d32ffff393a92a888d65f6cc2662c702851.jpg
@@ -177,3 +177,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad92a3c6fde3317506f0d64cd3081d3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95687310-9781440532641-5-minute-mindfulness/"><u>5-Minute Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687485-9781507200629-how-to-be-a-psychic/"><u>How to Be a Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687153-9781440519444-moon-spells/"><u>Moon Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687474-9781605502182-the-everything-spells-and-charms-book/"><u>The Everything Spells and Charms Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687184-9781440580031-the-modern-guide-to-witchcraft/"><u>The Modern Guide to Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95686860-9781507203644-the-modern-witchcraft-book-of-love-spells/"><u>The Modern Witchcraft Book of Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95687136-9781440541810-the-secret-power-of-you/"><u>The Secret Power of You | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2025-01-28T17:08:31.230Z
-updated: 2025-02-02T03:01:20.549Z
+date: 2025-01-27T18:23:03.679Z
+updated: 2025-02-03T18:28:10.319Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,13 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211066188-9789359040059-irish-witchcraft-and-demonology/"><u>Irish Witchcraft and Demonology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066189-9789359043418-the-history-of-spiritualism-vol-ii/"><u>The History of Spiritualism, Vol. II | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066207-9789359043692-the-voice-of-venus/"><u>The Voice of Venus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066202-9789359046563-through-the-gates-of-death/"><u>Through the Gates of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782562-9781591439813-advanced-civilizations-of-prehistoric-america/"><u>Advanced Civilizations of Prehistoric America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782561-9781591438496-astrology-and-the-rising-of-kundalini/"><u>Astrology and the Rising of Kundalini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782560-9781591432746-sacred-geometry-of-nature/"><u>Sacred Geometry of Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782559-9781591439424-the-giza-prophecy/"><u>The Giza Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782558-9781591432425-the-global-mind-and-the-rise-of-civilization-2nd-ed/"><u>The Global Mind and the Rise of Civilization (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

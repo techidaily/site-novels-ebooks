@@ -1,7 +1,7 @@
 ---
 title: Black Psychedelic Revolution | Free Book
-date: 2024-10-25T05:09:59.480Z
-updated: 2024-10-27T03:10:04.627Z
+date: 2025-01-29T17:36:52.529Z
+updated: 2025-02-03T17:12:00.296Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9d604558d1d6a156b08a958579c55122f2ed7f8797e4b823179110c6c064c47.jpg
@@ -162,3 +162,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9d604558d1d6a156b08a958579c551
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/710017-9781446489024-a-handbook-of-angels/"><u>A Handbook Of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/711457-9781429991995-courage/"><u>Courage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/712706-9781451663020-forgiveness/"><u>Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/710048-9781446489048-the-pendulum-book/"><u>The Pendulum Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/716245-9781905313846-the-psychology-of-paranormal-belief/"><u>The Psychology of Paranormal Belief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/714286-9781101543504-the-source-field-investigations/"><u>The Source Field Investigations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/714271-9781101477762-ufos-in-wartime/"><u>UFOs in Wartime | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

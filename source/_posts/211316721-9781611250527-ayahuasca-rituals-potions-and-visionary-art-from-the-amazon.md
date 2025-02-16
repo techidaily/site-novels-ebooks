@@ -1,7 +1,7 @@
 ---
 title: "Ayahuasca: Rituals, Potions and Visionary Art from the Amazon | Free Book"
-date: 2024-10-21T17:39:33.870Z
-updated: 2024-10-26T16:09:06.256Z
+date: 2025-02-01T16:21:37.061Z
+updated: 2025-02-03T16:54:28.937Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0fd9967e9819c764b03eb7474ffb41ab0b4f8bb7c7ce4f5c91982508a0496f69.jpg
@@ -144,3 +144,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0fd9967e9819c764b03eb7474ffb41a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/620369-9780307783752-a-womans-i-ching/"><u>A Woman's I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620371-9780307783776-all-women-are-healers/"><u>All Women Are Healers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620370-9780307783769-all-women-are-psychics/"><u>All Women Are Psychics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620373-9780307783646-diane-steins-guide-to-goddess-craft/"><u>Diane Stein's Guide to Goddess Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620367-9780307783738-essential-energy-balancing/"><u>Essential Energy Balancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620365-9780307783714-essential-energy-balancing-ii/"><u>Essential Energy Balancing II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620366-9780307783721-essential-energy-balancing-iii/"><u>Essential Energy Balancing III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620363-9780307783691-prophetic-visions-of-the-future/"><u>Prophetic Visions of the Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/620364-9780307783707-reliance-on-the-light/"><u>Reliance on the Light | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

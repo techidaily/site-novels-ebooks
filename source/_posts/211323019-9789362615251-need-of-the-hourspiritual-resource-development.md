@@ -1,7 +1,7 @@
 ---
 title: Need of the Hour/Spiritual Resource Development | Free Book
-date: 2024-10-23T18:55:10.488Z
-updated: 2024-10-26T17:26:58.326Z
+date: 2025-01-29T16:07:14.593Z
+updated: 2025-02-03T16:07:06.798Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0633bfb9173267f383cdf173c198d0b9b154846d743da19755d8badb1caeff8a.jpg
@@ -158,3 +158,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0633bfb9173267f383cdf173c198d0b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/731682-9781780990095-an-angel-whispered/"><u>An Angel Whispered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731683-9781846949944-avenues-of-the-human-spirit/"><u>Avenues of the Human Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731684-9781846949951-conscious-living-made-easy/"><u>Conscious Living Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731686-9781846949975-developing-consciousness/"><u>Developing Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731516-9781429907705-tarot-in-the-spirit-of-zen/"><u>Tarot in the Spirit of Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/731685-9781846949968-the-daughters-of-danu/"><u>The Daughters of Danu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/730408-9781446490631-we-are-one-another/"><u>We Are One Another | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

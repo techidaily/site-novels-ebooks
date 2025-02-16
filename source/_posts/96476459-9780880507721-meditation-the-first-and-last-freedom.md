@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2025-01-26T01:48:03.247Z
-updated: 2025-02-01T23:46:30.386Z
+date: 2025-02-01T16:59:14.582Z
+updated: 2025-02-03T16:28:40.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,16 +175,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211372484-9781921878848-crystals/"><u>Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372489-9781922579188-mediumship/"><u>Mediumship | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372454-9781921295898-numerology-for-your-family/"><u>Numerology for Your Family | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372490-9781922579805-teen-magick/"><u>TEEN MAGICK | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372456-9781921295928-what-happens-next/"><u>What Happens Next? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372481-9781921878589-you-are-abundant/"><u>You Are Abundant | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372451-9781921295867-you-are-inspired/"><u>You Are Inspired | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476518-9780880506205-last-in-the-evening/"><u>Last in the Evening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476519-9780880500746-love-letters-to-life/"><u>Love Letters to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476516-9780880500821-what-now-adam/"><u>What Now, Adam? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96476517-9780880506113-words-from-a-man-of-no-words/"><u>Words from a Man of No Words | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

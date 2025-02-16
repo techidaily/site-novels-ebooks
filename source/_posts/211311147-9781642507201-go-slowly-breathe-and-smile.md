@@ -1,7 +1,7 @@
 ---
 title: Go Slowly, Breathe and Smile | Free Book
-date: 2024-10-20T05:53:44.614Z
-updated: 2024-10-26T23:09:46.080Z
+date: 2025-02-02T17:14:05.245Z
+updated: 2025-02-03T17:36:22.073Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/721cd356a8be6a0fd89b97ffb623a1aff05e83e50ffb6dc6159a7acc9948b9ab.jpg
@@ -199,3 +199,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/721cd356a8be6a0fd89b97ffb623a1a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95683291-9781440512568-101-ways-to-find-a-ghost/"><u>101 Ways to Find a Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683232-9781440504259-365-ways-to-live-the-law-of-attraction/"><u>365 Ways to Live the Law of Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683675-9781440534379-a-haunted-october/"><u>A Haunted October | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683413-9781440591105-the-encyclopedia-of-crystals-herbs-and-new-age-elements/"><u>The Encyclopedia of Crystals, Herbs, and New Age Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683488-9781440501630-the-everything-guide-to-2012/"><u>The Everything Guide to 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683539-9781605505299-the-everything-psychic-book/"><u>The Everything Psychic Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683673-9781440534362-the-ghost-hunters-guidebook/"><u>The Ghost Hunter's Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683271-9781440513756-the-girls-guide-to-werewolves/"><u>The Girl's Guide to Werewolves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95683679-9781440526749-the-synchronicity-journal/"><u>The Synchronicity Journal | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2025-01-29T03:39:10.996Z
-updated: 2025-02-02T00:35:01.277Z
+date: 2025-01-31T17:16:22.978Z
+updated: 2025-02-03T16:01:30.153Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,14 +160,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211224383-9781529439021-spells-for-self-care/"><u>Spells for Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224404-9780762486755-the-cosmic-symposium/"><u>The Cosmic Symposium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224389-9780762488360-the-little-encyclopedia-of-enchanted-woodland-creatures/"><u>The Little Encyclopedia of Enchanted Woodland Creatures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224395-9780762488377-the-little-encyclopedia-of-mermaids/"><u>The Little Encyclopedia of Mermaids | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224405--your-birthday/"><u>Your Birthday | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935396-9781844097920-change-the-story-of-your-health/"><u>Change the Story of Your Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935392-9781844098606-change-your-story-change-your-life/"><u>Change Your Story, Change Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935388-9781844097739-dream-patterns/"><u>Dream Patterns | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935393-9781844093274-enlightenment-through-orbs/"><u>Enlightenment Through Orbs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935391-9781844098828-forgiveness-is-power/"><u>Forgiveness is Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935389-9781844097944-managing-psychic-abilities/"><u>Managing Psychic Abilities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935385-9781844093014-stories-we-need-to-know/"><u>Stories We Need to Know | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

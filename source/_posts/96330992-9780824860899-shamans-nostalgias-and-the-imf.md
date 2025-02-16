@@ -1,7 +1,7 @@
 ---
 title: Shamans, Nostalgias, and the IMF | Free Book
-date: 2025-01-23T20:00:34.616Z
-updated: 2025-01-25T03:28:26.198Z
+date: 2025-01-27T17:56:44.524Z
+updated: 2025-02-03T18:34:37.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b2363d581d42094f58090872f835c4b61aa822c64594c77ffd2615b241c42a00.jpg
@@ -176,17 +176,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b2363d581d42094f58090872f835c4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210710070-9781959143123-todo-era-mentira/"><u>¡TODO ERA MENTIRA! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710100-9789692792110-a-kick-in-the-attitude/"><u>A Kick In The Attitude! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709921-9780645602814-the-meditation-activists-travel-guide/"><u>The Meditation Activist's Travel Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709974-9780876127551-the-science-of-religion/"><u>The Science of Religion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710097-9798985202847-the-secret-of-crossings/"><u>The Secret of Crossings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710040-9781958895474-thrusting-against-negative-forces/"><u>Thrusting Against Negative Forces | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210710242-9781504081047-vital-message/"><u>Vital Message | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210709837-9780834845008-we-heal-together/"><u>We Heal Together | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597309-9781449720407-after-the-avalanche/"><u>After the Avalanche | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597062-9781475904499-daniels-view/"><u>Daniel's View | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597273-9781452534220-from-loss-to-enlightenment/"><u>From Loss to Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597167-9781449733827-healing-strength-loss/"><u>Healing Strength: Loss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138596982-9781452597812-jingle-bell-disorder/"><u>Jingle Bell Disorder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138596957-9781452537146-learning-to-dance-in-the-rain/"><u>Learning to Dance in the Rain | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597128-9781449718992-the-art-of-stubbornness/"><u>The Art of Stubbornness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597044-9781452539775-the-infinite-dream/"><u>The Infinite Dream | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

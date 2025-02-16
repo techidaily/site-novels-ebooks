@@ -1,7 +1,7 @@
 ---
 title: An Overview of the Edgar Cayce Material | Free Book
-date: 2025-01-20T16:35:01.127Z
-updated: 2025-01-25T01:37:24.318Z
+date: 2025-02-01T16:59:48.584Z
+updated: 2025-02-03T16:07:58.224Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa86584d7ab55c0c2edc64b865697096a39f.jpg
@@ -139,15 +139,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210623263-9781648480751-awakening-your-psychic-ability/"><u>Awakening Your Psychic Ability | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210625874-9781638603368-beneath-the-mask/"><u>Beneath the Mask | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210623865-9781493046973-haunted-highways-2nd-ed/"><u>Haunted Highways (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210622609-9781684930708-melchizedek-and-the-mystery-of-fire/"><u>Melchizedek and the Mystery of Fire | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210625889-9780760375235-the-complete-guide-to-living-by-the-moon/"><u>The Complete Guide to Living by the Moon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210623170-9781881098898-the-witches-almanac-2023-2024-standard-edition-issue-42/"><u>The Witches' Almanac 2023-2024 Standard Edition Issue 42 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545006-9781401926748-accepting-the-psychic-torch/"><u>Accepting the Psychic Torch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544997-9781401941109-archetypes/"><u>Archetypes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545011-9781401927714-chants-of-a-lifetime/"><u>Chants of a Lifetime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138545009-9781401922306-cosmos/"><u>CosMos | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

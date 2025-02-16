@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2025-01-30T06:22:53.209Z
-updated: 2025-02-01T20:41:54.739Z
+date: 2025-01-30T16:45:41.591Z
+updated: 2025-02-03T16:01:34.832Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,16 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211413167-9798330285105-cosmic-pleasures/"><u>Cosmic Pleasures | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413223-9798218464752-healing-the-inner-child/"><u>Healing the Inner Child | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413228-9798330282470-radicalement-vivant-au-dela-de-labus/"><u>Radicalement Vivant Au-delà de l'Abus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413271-9781913504113-the-psychedelic-renaissance/"><u>The Psychedelic Renaissance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413356-9781738396412-the-science-of-human-possibilities/"><u>The Science of Human Possibilities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413069-9798893795936-the-secret-52-star-codes-of-creation-hearts/"><u>The Secret 52 Star Codes of Creation (Hearts) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211413074-9798893795950-the-secret-52-star-codes-of-creation-spades/"><u>The Secret 52 Star Codes of Creation (Spades) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1040835-9780307828606-dreamland/"><u>Dreamland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036966-9780962929557-emotional-clearing/"><u>Emotional Clearing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036380-9781476727172-muchas-vidas-muchos-sabios-many-lives-many-masters/"><u>Muchas Vidas, Muchos Sabios (Many Lives, Many Masters) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1035238-9780857010681-shamanism-and-spirituality-in-therapeutic-practice/"><u>Shamanism and Spirituality in Therapeutic Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1032817--the-little-book-of-everyday-miracles/"><u>The Little Book of Everyday Miracles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1036967-9781780993041-the-meaning/"><u>The Meaning | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1037524-9780786490639-the-thought-reader-craze/"><u>The Thought Reader Craze | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

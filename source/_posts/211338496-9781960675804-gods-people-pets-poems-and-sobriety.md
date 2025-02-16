@@ -1,7 +1,7 @@
 ---
 title: God's People, Pets, Poems and Sobriety | Free Book
-date: 2024-10-19T19:43:42.996Z
-updated: 2024-10-26T17:05:10.700Z
+date: 2025-01-31T16:35:26.277Z
+updated: 2025-02-03T16:24:28.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/326ee99b2cae847fdb7a3b6ea3611783d9593243ce6cdfc65ffda263d5449c22.jpg
@@ -140,3 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/326ee99b2cae847fdb7a3b6ea361178
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2467623-9781633410145-ancient-egyptian-magic/"><u>Ancient Egyptian Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2463351-9781941394052-despertando-al-mundo/"><u>Despertando al mundo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2467575-9781936012770-in-the-oneness-of-time/"><u>In the Oneness of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2467622-9781609259808-practical-astrology-for-witches-and-pagans/"><u>Practical Astrology for Witches and Pagans | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2469342-9781101984086-the-ascension-mysteries/"><u>The Ascension Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2463274-9781623170318-tibetan-shamanism/"><u>Tibetan Shamanism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

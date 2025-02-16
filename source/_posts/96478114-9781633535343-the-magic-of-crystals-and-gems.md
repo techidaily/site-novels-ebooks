@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2025-02-01T03:08:47.019Z
-updated: 2025-02-02T05:59:54.729Z
+date: 2025-01-29T17:42:13.658Z
+updated: 2025-02-03T17:23:43.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,15 +181,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211349242-9798988596257-a-manual-for-manifesting-your-dream-life/"><u>A Manual For Manifesting Your Dream Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211349300-9781959453314-at-his-feet/"><u>At His Feet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211349052-9798869362698-one-book-god-is-love/"><u>One Book God is Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211349045-9798869345547-organic-life/"><u>Organic Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211349047-9798869362438-serpiente-ascendente/"><u>Serpiente Ascendente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211350503--the-great-architects-of-mars/"><u>The Great Architects of Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370972-9780876048795-angeles-arcangeles-y-fuerzas-invisibles/"><u>Angeles, Arcangeles y Fuerzas Invisibles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370966-9780876048528-beyond-death/"><u>Beyond Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370965-9780876048184-edgar-cayces-sacred-stones/"><u>Edgar Cayce's Sacred Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370969-9780876048467-soul-spirit/"><u>Soul & Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370978-9780876047880-unlocking-your-intuition/"><u>Unlocking Your Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370979-9780876049006-your-life/"><u>Your Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

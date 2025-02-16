@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2025-01-28T17:04:01.268Z
-updated: 2025-02-02T01:49:32.254Z
+date: 2025-01-30T18:40:49.221Z
+updated: 2025-02-03T17:18:52.173Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,18 +170,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211383047-9798330230761-27/"><u> "27 " | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383014-9798330229857-5/"><u>如何解读上帝的声音 - 5 种方法 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383049-9781957811048-discourses-volume-4-2017/"><u>Discourses Volume 4, 2017 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211382985-9783964465405-lame-sur-son-chemin-jusqua-la-perfection/"><u>L'âme sur son chemin jusqu'à la perfection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211382986-9783964461285-la-vie-que-jai-moi-meme-choisie/"><u>La vie que j'ai moi-même choisie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211382993-9798888244012-shaking-in-the-forest/"><u>Shaking In The Forest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211382748-9781957811123-silence-entering-the-cosmic-sea-of-consciousness-journal-of-a-western-yogi/"><u>Silence: Entering the Cosmic Sea of Consciousness: Journal of a Western Yogi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383019-9781950460472-sorry-not-sorry/"><u>Sorry, Not Sorry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383013-9798330229871-iishavara-ka-aavaza-ka-kasa-samajha-5-taraka/"><u>ईश्वर की आवाज़ को कैसे समझें - 5 तरीके | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499229-9781594733314-dancethe-sacred-art/"><u>Dance—The Sacred Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499241-9781594734533-divining-the-body/"><u>Divining the Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499272-9781594735714-dreamingthe-sacred-art/"><u>Dreaming—The Sacred Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499243-9781594734458-earth-water-fire-air/"><u>Earth, Water, Fire & Air | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499282-9781594734373-finding-time-for-the-timeless/"><u>Finding Time for the Timeless | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499393-9781594734021-meditation-its-practices/"><u>Meditation & Its Practices | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499428-9781580236775-our-dance-with-god/"><u>Our Dance with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499466-9781594734588-practicing-the-sacred-art-of-listening/"><u>Practicing the Sacred Art of Listening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499473-9781594734779-releasing-the-creative-spirit/"><u>Releasing the Creative Spirit | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

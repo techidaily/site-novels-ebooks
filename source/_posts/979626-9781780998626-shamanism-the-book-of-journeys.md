@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2025-01-28T22:38:25.883Z
-updated: 2025-02-02T04:29:34.698Z
+date: 2025-01-27T17:56:45.101Z
+updated: 2025-02-03T18:03:46.115Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,17 +141,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211140879-9781960466167-lenormand-tarot-deck-meaning/"><u>Lenormand Tarot Deck Meaning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140846-9788797273937-love-in-the-5th-dimension/"><u>Love in the 5th Dimension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140889-9781801520843-pragmatic-magical-thinking/"><u>Pragmatic Magical Thinking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141753-9781591435211-rediscovering-turtle-island/"><u>Rediscovering Turtle Island | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141752--the-geoengineered-transhuman-2nd-ed/"><u>The Geoengineered Transhuman (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211140891-9781801520898-the-homes-of-the-soul/"><u>The Homes of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141751-9781591434917-the-realized-light-of-the-twelve-dimensions/"><u>The Realized Light of the Twelve Dimensions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211141750-9781591434894-the-ufo-paradox/"><u>The UFO Paradox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783108-9781594777295-catastrofobia/"><u>Catastrofobia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783112-9781594778193-el-regreso-de-los-ninos-de-la-luz/"><u>El regreso de los niños de la luz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783109-9781620554678-los-diarios-del-acido/"><u>Los diarios del ácido | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783106-9781620556634-the-new-psychedelic-revolution/"><u>The New Psychedelic Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783100-9781620551424-the-new-science-of-psychedelics/"><u>The New Science of Psychedelics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783103-9781594777073-the-presence-of-the-past-4th-ed/"><u>The Presence of the Past (4th ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

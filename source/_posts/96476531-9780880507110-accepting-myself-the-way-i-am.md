@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2025-01-30T00:55:56.140Z
-updated: 2025-02-02T05:22:30.815Z
+date: 2025-01-27T17:47:23.803Z
+updated: 2025-02-03T18:44:50.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,13 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211348085-9782017230397-astrogenealogie/"><u>Astrogénéalogie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211348115-9782017289784-connaitre-sa-mission-de-vie-avec-le-tarot/"><u>Connaître sa mission de vie avec le tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211347995-9783989733282-sacred-books-of-the-east/"><u>Sacred Books Of The East | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211347905--spells-for-the-apocalypse-practical-magic-for-turbulent-times/"><u>Spells for the Apocalypse: Practical Magic for Turbulent Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370937-9780876047521-2038-the-great-pyramid-timeline-prophecy/"><u>2038 The Great Pyramid Timeline Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370932-9780876046913-edgar-cayces-origin-and-destiny-of-man/"><u>Edgar Cayce's Origin and Destiny of Man | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370940-9780876047187-the-calling/"><u>The Calling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370931-9780876046715-the-power-of-your-mind/"><u>The Power of Your Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370933-9780876046753-visits-from-heaven/"><u>Visits From Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370938-9780876046357-visits-to-heaven/"><u>Visits to Heaven | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

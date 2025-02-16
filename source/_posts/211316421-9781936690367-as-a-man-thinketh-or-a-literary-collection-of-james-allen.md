@@ -1,7 +1,7 @@
 ---
 title: As A Man Thinketh or a Literary Collection of James Allen | Free Book
-date: 2024-10-22T22:07:38.440Z
-updated: 2024-10-27T01:28:39.934Z
+date: 2025-02-01T18:03:03.760Z
+updated: 2025-02-03T17:21:45.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/248ff0a7b9e07af0e32caa646619f524d734dd6393cb6417da0eed8a4ef7b576.jpg
@@ -178,3 +178,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/248ff0a7b9e07af0e32caa646619f52
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/896533-9781583945209-a-parents-guide-to-crystals/"><u>A Parent's Guide to Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896530-9781583945124-radical-passion/"><u>Radical Passion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896535-9781583945230-the-christ-letters/"><u>The Christ Letters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/896539-9781583945988-the-guru-papers/"><u>The Guru Papers | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Ghostly Tales on Land and Sea | Free Book
-date: 2025-01-23T02:48:52.961Z
-updated: 2025-01-24T18:45:16.649Z
+date: 2025-02-02T17:20:47.918Z
+updated: 2025-02-03T17:20:48.231Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84ca67bb8fdd72f5a2d46f84bb32fed98e81.jpg
@@ -134,15 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b1c966c03df0e9648a575d6540ab84c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210661228-9781914447624-calm-up/"><u>Calm Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661205-9798985332018-god-is-realyou-dont-even-have-to-wonder/"><u>God is REAL...You Don't Even Have to Wonder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661284-9798985526776-gratitude/"><u>Gratitude | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661767-9781956108033-soul-warrior/"><u>Soul Warrior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661301-9798218009137-the-book-of-proverbs/"><u>The Book of Proverbs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210661783-9798986875514-the-real-you/"><u>The Real You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574779-9781450223867-god-had-a-plan-for-me/"><u>God Had a Plan for Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574864-9781450206884-marvelous-reflections/"><u>Marvelous Reflections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574882-9781449706814-not-by-chance/"><u>Not by Chance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574801-9781440115660-shadow-people/"><u>Shadow People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574733-9781469788692-the-100-most-entertaining-predictions-about-the-21st-century/"><u>The 100 Most Entertaining Predictions About the 21St Century | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138574763-9781462048434-the-magicians/"><u>The Magicians | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

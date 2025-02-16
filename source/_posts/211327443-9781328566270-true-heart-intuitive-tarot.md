@@ -1,7 +1,7 @@
 ---
 title: True Heart Intuitive Tarot | Free Book
-date: 2024-10-23T22:50:26.345Z
-updated: 2024-10-26T16:19:16.678Z
+date: 2025-01-31T18:50:03.097Z
+updated: 2025-02-03T17:28:42.483Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/814265691557cba9ff2977324d9a9f37a0910b706bd7caa901ed804b28a174b6.jpg
@@ -170,3 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/814265691557cba9ff2977324d9a9f3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/295380--buddhism-for-busy-people-2nd-ed/"><u>Buddhism for Busy People (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/295843-9780553904505-cosmic-love/"><u>Cosmic Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/292630-9781416561958-the-heart-of-the-soul/"><u>The Heart of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/295024-9781416561934-the-seat-of-the-soul/"><u>The Seat of the Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Just When You Thought You Knew | Free Book
-date: 2024-10-26T00:41:02.563Z
-updated: 2024-10-26T22:02:59.358Z
+date: 2025-01-30T17:13:01.761Z
+updated: 2025-02-03T17:13:13.306Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3a435f028bbc3b5ab4047c8b2391b96187104b98938f1f84685a3e69e4a4a0a5.jpg
@@ -140,3 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3a435f028bbc3b5ab4047c8b2391b96
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2618041-9780752477893-in-search-of-britains-haunted/"><u>In Search of Britain's Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/261683-9781101209257-life-on-the-other-side/"><u>Life on the Other Side | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616808-9781409167501-mindful-relationships/"><u>Mindful Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616810-9781409167549-mindfulness-at-work/"><u>Mindfulness at Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/261746-9781101203903-past-lives/"><u>Past Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2618225-9781493019182-spooky-south-2nd-ed/"><u>Spooky South (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

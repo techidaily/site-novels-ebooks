@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2025-01-29T07:04:27.986Z
-updated: 2025-02-01T16:16:10.134Z
+date: 2025-01-29T18:39:31.653Z
+updated: 2025-02-03T18:02:59.336Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,18 +163,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211446150-9798330375004-awakening/"><u>Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447312-9798330368198-lamour-ne-toublie-jamais/"><u>L'AMOUR NE T'OUBLIE JAMAIS | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446206-9781998014293-my-life-reclaimed/"><u>MY LIFE RECLAIMED | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446140-9781964959092-romanian-edition/"><u>Romanian Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447064-9780062281470-shakti-woman/"><u>Shakti Woman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447308-9781961064119-the-eros-sutras-volume-2/"><u>The Eros Sutras, Volume 2 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447309-9781961064195-the-eros-sutras-volume-3/"><u>The Eros Sutras, Volume 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211447020--the-healers/"><u>The Healers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211446786-9781936807581-welcome-to-psilocybin/"><u>Welcome to Psilocybin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125780-9781609251413-how-to-read-your-astrological-chart/"><u>How to Read Your Astrological Chart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125785-9781609253134-i-ching-companion/"><u>I Ching Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125795-9781609257385-initiation-into-numerology/"><u>Initiation into Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125797-9781609253875-the-inner-planets/"><u>The Inner Planets | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

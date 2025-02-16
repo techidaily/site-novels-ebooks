@@ -1,7 +1,7 @@
 ---
 title: No More What Ifs | Free Book
-date: 2024-10-23T02:02:59.598Z
-updated: 2024-10-27T02:34:34.166Z
+date: 2025-01-29T16:55:46.898Z
+updated: 2025-02-03T17:55:50.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba052dbefe86e924a9eb02c06194bf587f792b0990dfcec31adf1ab758260037.jpg
@@ -177,3 +177,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba052dbefe86e924a9eb02c06194bf5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2262156-9781501120220-abrete-a-lo-inesperado-outrageous-openness-spanish-edition/"><u>Ábrete a lo inesperado (Outrageous Openness Spanish Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2260834-9781623170462-mushroom-essences/"><u>Mushroom Essences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2262180-9781501112232-music-and-mantras/"><u>Music and Mantras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2260799-9780804179980-quantum-healing-revised-and-updated/"><u>Quantum Healing (Revised and Updated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2257723-9781608683703-secular-meditation/"><u>Secular Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2262112-9781501135545-the-37th-parallel/"><u>The 37th Parallel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2262148-9781501123542-the-e-word/"><u>The E-Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2255868-9781785350276-the-heart-of-life/"><u>The Heart of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2255869-9781785350399-the-logic-of-enlightenment/"><u>The Logic of Enlightenment | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

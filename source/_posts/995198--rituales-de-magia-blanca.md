@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2025-01-26T01:49:45.334Z
-updated: 2025-02-01T19:13:14.161Z
+date: 2025-01-30T18:48:12.743Z
+updated: 2025-02-03T18:09:44.073Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,18 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211058746-9781914447907-elemental-abundance/"><u>Elemental Abundance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211059043-9782017229520-le-pouvoir-des-synchronicites/"><u>Le pouvoir des synchronicités | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058853-9798888326473-let-go-let-god/"><u>Let Go, Let God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211063840-9781841815633-the-crystal-almanac/"><u>The Crystal Almanac | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058650-9781961347076-the-dead-call-upon-me/"><u>The Dead Call Upon Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211063738-9781592337736-the-key-to-spirit-animals/"><u>The Key to Spirit Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058575-9783988314888-third-eye-awakening/"><u>THIRD EYE AWAKENING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058844-9781734378337-unlocking-the-ancient-secrets-to-healing/"><u>Unlocking the Ancient Secrets to Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211058517-9798885832243-who-told-you-that/"><u>Who Told You That? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782537-9781591432180-beowulfs-ecstatic-trance-magic/"><u>Beowulf's Ecstatic Trance Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782534-9781591439103-jesus-after-the-crucifixion/"><u>Jesus after the Crucifixion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782526-9781591439196-the-12th-planet-book-i/"><u>The 12th Planet (Book I) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782527-9781591439325-the-cherokee-full-circle/"><u>The Cherokee Full Circle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782533-9781591439165-the-lost-realms-book-iv/"><u>The Lost Realms (Book IV) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782530-9781591437581-the-lost-tomb-of-king-arthur/"><u>The Lost Tomb of King Arthur | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782525-9781591438632-the-tutankhamun-prophecies/"><u>The Tutankhamun Prophecies | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Norse Gods and the Art of Seidr | Free Book
-date: 2024-10-20T17:27:15.464Z
-updated: 2024-10-26T19:27:27.115Z
+date: 2025-01-29T18:46:46.658Z
+updated: 2025-02-03T18:38:21.494Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bef2a3477266b11201c244c3e8fe50217cbe3e477e4d8970c8bd1d0746863140.jpg
@@ -168,3 +168,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bef2a3477266b11201c244c3e8fe502
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/484469-9780307555342-conscious-dreaming/"><u>Conscious Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484685-9780307556035-extraordinary-guidance/"><u>Extraordinary Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484580-9780307556608-heal-thy-self/"><u>Heal Thy Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484204-9780307555571-how-to-defend-yourself-against-alien-abduction/"><u>How to Defend Yourself Against Alien Abduction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484156-9780307434524-the-other-90/"><u>The Other 90% | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/485980-9780226642031-the-place-of-enchantment/"><u>The Place of Enchantment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/484149-9780307560797-true-balance/"><u>True Balance | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

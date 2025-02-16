@@ -1,7 +1,7 @@
 ---
 title: Galactic Chronicles Book One | Free Book
-date: 2024-10-19T16:12:52.686Z
-updated: 2024-10-27T00:38:16.250Z
+date: 2025-02-02T16:52:50.385Z
+updated: 2025-02-03T17:02:31.404Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f78082b8efee4bb59a64f8704379dbe3892b9f778dfdade24f3dde6a78378b8.jpg
@@ -207,3 +207,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f78082b8efee4bb59a64f8704379db
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2213946-9780008138011-libra-2016-your-personal-horoscope/"><u>Libra 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213429-9780007584581-meditation-the-only-introduction-youll-ever-need-principles-of/"><u>Meditation: The only introduction you’ll ever need (Principles of) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213468-9780007591466-mindfulness-weeks-1-2-of-your-8-week-plan/"><u>Mindfulness: Weeks 1-2 of Your 8-Week Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213469-9780007591473-mindfulness-weeks-3-4-of-your-8-week-plan/"><u>Mindfulness: Weeks 3-4 of Your 8-Week Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213470-9780007591480-mindfulness-weeks-5-6-of-your-8-week-plan/"><u>Mindfulness: Weeks 5-6 of Your 8-Week Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213471-9780007591497-mindfulness-weeks-7-8-of-your-8-week-plan/"><u>Mindfulness: Weeks 7-8 of Your 8-Week Plan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213947-9780008138028-scorpio-2016-your-personal-horoscope/"><u>Scorpio 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/221362-9781595472120-the-hermetic-arcanum/"><u>The Hermetic Arcanum | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213945-9780008138004-virgo-2016-your-personal-horoscope/"><u>Virgo 2016: Your Personal Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

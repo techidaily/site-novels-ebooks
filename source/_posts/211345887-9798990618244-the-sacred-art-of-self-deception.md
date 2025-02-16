@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of SELF-Deception | Free Book
-date: 2024-10-20T21:05:27.453Z
-updated: 2024-10-26T17:28:25.971Z
+date: 2025-01-31T17:02:06.438Z
+updated: 2025-02-03T18:06:41.602Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe2da5512d077454be3211eda68e6738dcd7b86b5a516155e541dfc8c9a1d02e.jpg
@@ -202,3 +202,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe2da5512d077454be3211eda68e673
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2211476-9780007478668-the-dog-in-2013-your-chinese-horoscope/"><u>The Dog in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211470-9780007478743-the-dragon-in-2013-your-chinese-horoscope/"><u>The Dragon in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211473-9780007478699-the-goat-in-2013-your-chinese-horoscope/"><u>The Goat in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211472-9780007478705-the-horse-in-2013-your-chinese-horoscope/"><u>The Horse in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211474-9780007478712-the-monkey-in-2013-your-chinese-horoscope/"><u>The Monkey in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211469-9780007478736-the-rabbit-in-2013-your-chinese-horoscope/"><u>The Rabbit in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211475-9780007478682-the-rooster-in-2013-your-chinese-horoscope/"><u>The Rooster in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211471-9780007478644-the-snake-in-2013-your-chinese-horoscope/"><u>The Snake in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211468-9780007478675-the-tiger-in-2013-your-chinese-horoscope/"><u>The Tiger in 2013: Your Chinese Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

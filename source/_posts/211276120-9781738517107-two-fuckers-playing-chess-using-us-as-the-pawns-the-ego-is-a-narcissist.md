@@ -1,7 +1,7 @@
 ---
 title: Two Fuckers Playing Chess Using Us As The Pawns, THE EGO IS A NARCISSIST | Free Book
-date: 2024-10-19T21:05:27.559Z
-updated: 2024-10-27T01:34:47.817Z
+date: 2025-01-30T17:20:02.094Z
+updated: 2025-02-03T16:22:28.021Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b36640203952b03ef7353119f3f718870520a4638583c11ff1aacd64fbbba5c5.jpg
@@ -219,3 +219,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b36640203952b03ef7353119f3f7188
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782474-9781591432661-atlantis-in-the-caribbean-3rd-ed/"><u>Atlantis in the Caribbean (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782467-9781591439912-forbidden-religion/"><u>Forbidden Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782466-9781591438922-forgotten-worlds/"><u>Forgotten Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782468-9781591439516-journeys-to-the-mythical-past-2nd-ed/"><u>Journeys to the Mythical Past (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782462-9781591439332-medicine-of-the-cherokee/"><u>Medicine of the Cherokee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782463-9781591437871-the-union-of-isis-and-thoth/"><u>The Union of Isis and Thoth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782464-9781591437567-the-vatican-heresy/"><u>The Vatican Heresy | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

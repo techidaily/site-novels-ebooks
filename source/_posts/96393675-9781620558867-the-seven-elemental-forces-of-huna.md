@@ -1,7 +1,7 @@
 ---
 title: The Seven Elemental Forces of Huna | Free Book
-date: 2025-01-20T02:54:07.720Z
-updated: 2025-01-25T00:04:29.196Z
+date: 2025-02-02T18:08:11.789Z
+updated: 2025-02-03T18:44:03.022Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1cf2774f26d28a10672b591c6afd98d9f6.jpg
@@ -183,15 +183,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210567257-9781788179218-21-days-to-master-numerology/"><u>21 Days to Master Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210566556-9781685179847-at-rhythms-purest-form/"><u>At Rhythms Purest Form | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210563946-9781684930470-magic/"><u>Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210564017-9781638746195-reverend-teacher-talks-on-aging/"><u>Reverend Teacher Talks on Aging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210566622-9781639856190-take-a-hike/"><u>Take A Hike | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210566582-9781722526221-the-master-key-system-with-study-guide/"><u>The Master Key System with Study Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154426-9781577312857-girls-like-us/"><u>Girls Like Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154429-9781577319511-goddesses-for-every-day/"><u>Goddesses for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154431-9781932073294-guided-imagery-for-self-healing/"><u>Guided Imagery for Self-Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154432-9781577319054-hand-wash-cold/"><u>Hand Wash Cold | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154433-9781577313502-handbook-for-the-spirit/"><u>Handbook for the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154438-9781577318354-hands-that-heal/"><u>Hands That Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154441-9781932073300-healing-into-possibility/"><u>Healing into Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154460-9781608681617-the-last-frontier/"><u>The Last Frontier | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

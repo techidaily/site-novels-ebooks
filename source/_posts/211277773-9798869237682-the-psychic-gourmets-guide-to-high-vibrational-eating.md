@@ -1,7 +1,7 @@
 ---
 title: The Psychic Gourmet's Guide to High Vibrational Eating | Free Book
-date: 2024-10-24T02:47:56.660Z
-updated: 2024-10-27T02:49:02.906Z
+date: 2025-01-29T18:38:11.882Z
+updated: 2025-02-03T16:07:54.669Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2bde570a4da7487aca39c015e4d7edc2564bc04ce4ba9808ace83ef4730d077b.jpg
@@ -141,3 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2bde570a4da7487aca39c015e4d7edc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95758294-9780834841024-mindfulness-on-the-go/"><u>Mindfulness on the Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758425-9781841814803-the-encyclopedia-of-crystals-new-edition/"><u>The Encyclopedia of Crystals, New Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95756414-9781250138071-the-wisdom-of-sundays/"><u>The Wisdom of Sundays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95758312-9781101992302-thriving-through-uncertainty/"><u>Thriving Through Uncertainty | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2025-01-26T01:43:36.465Z
-updated: 2025-02-01T23:53:54.156Z
+date: 2025-01-30T18:42:24.507Z
+updated: 2025-02-03T16:33:02.559Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,14 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211352079-9798869385574-el-secuestro/"><u>El Secuestro | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211351144-9780061984419-heroes-among-us/"><u>Heroes Among Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352063-9798869384065-los-vagabundos/"><u>Los Vagabundos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352196--nur-positive-schwingungen/"><u>Nur Positive Schwingungen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211352176-9789362613165-switch-mantra/"><u>Switch Mantra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393655-9781620559116-healing-body-meditations/"><u>Healing Body Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393661-9781620558171-infernal-geometry-and-the-left-hand-path/"><u>Infernal Geometry and the Left-Hand Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393656-9781620558058-instructions-for-spiritual-living-3rd-ed/"><u>Instructions for Spiritual Living (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393351-9780399582967-lifeprints/"><u>Lifeprints | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96393659-9781591433392-opening-the-akashic-records/"><u>Opening the Akashic Records | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2025-02-01T03:07:11.578Z
-updated: 2025-02-01T23:03:34.162Z
+date: 2025-01-27T17:55:02.653Z
+updated: 2025-02-03T16:59:23.612Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,17 +184,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211477907-9781507305683-atlas-of-extraterrestrial-zones/"><u>Atlas of Extraterrestrial Zones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477942-9781667479408-cuando-el-divorcio-es-imprescindible/"><u>Cuando el divorcio es imprescindible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2129387--sun-signs/"><u>Sun Signs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477908-9781507304334-the-magick-of-lenormand/"><u>The Magick of Lenormand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2120495-9780892546299-the-tantric-alchemist/"><u>The Tantric Alchemist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2120395-9781633410138-walking-among-us/"><u>Walking Among Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2120479-9780857012036-white-moon-on-the-mountain-peak/"><u>White Moon on the Mountain Peak | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2129456-9780349404646-working-with-spirit-guides/"><u>Working With Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138133-9780892545629-asteroid-goddesses/"><u>Asteroid Goddesses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1132934-9780770437527-awaken-the-spirit-within/"><u>Awaken the Spirit Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1137750-9781935295952-language-of-the-heart/"><u>Language of the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1138134-9780892545711-the-astrology-of-self-discovery/"><u>The Astrology of Self-Discovery | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

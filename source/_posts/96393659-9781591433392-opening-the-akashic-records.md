@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2025-01-28T07:42:44.499Z
-updated: 2025-02-01T19:17:55.553Z
+date: 2025-01-29T17:21:53.656Z
+updated: 2025-02-03T16:28:20.430Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -189,13 +189,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211473334--le-grand-livre-de-la-detox-emotionelle/"><u>Le grand livre de la détox emotionelle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211473385-9782385640118-revelez-votre-dharma/"><u>Révélez votre Dharma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211475845-9798987506233-the-wind-of-spoken-words/"><u>The Wind of Spoken Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211475075-9789948749684-klyl-mn-alshr-la-ydr/"><u>قليل من الشر لا يضر | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127086-9781612831978-spirit-animals-and-the-wheel-of-life/"><u>Spirit Animals and the Wheel of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128023-9781609258528-the-art-of-psychic-protection/"><u>The Art of Psychic Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128026-9781609258283-the-canon/"><u>The Canon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1128029-9781609258207-the-enochian-evocation-of-dr-john-dee/"><u>The Enochian Evocation of Dr. John Dee | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127114-9781612831961-the-way-back-to-paradise/"><u>The Way Back to Paradise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127397-9781476727042-theres-more-to-life-than-this/"><u>There's More to Life Than This | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127100-9781612830810-traveling-between-the-worlds/"><u>Traveling Between the Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127115-9781612831770-weve-never-been-alone/"><u>We've Never Been Alone | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

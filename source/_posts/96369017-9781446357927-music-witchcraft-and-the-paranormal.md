@@ -1,7 +1,7 @@
 ---
 title: Music, Witchcraft and the Paranormal | Free Book
-date: 2025-01-18T00:07:48.545Z
-updated: 2025-01-24T17:10:20.047Z
+date: 2025-01-29T18:17:40.192Z
+updated: 2025-02-03T17:54:54.348Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/824849f88568044cb778bb35098294032212fd9721553ac1111758a73a30f9bb.jpg
@@ -142,18 +142,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/824849f88568044cb778bb350982940
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210664403-9782889059621-loracle-de-la-vierge/"><u>L'Oracle de la Vierge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664401-9782889059652-loracle-du-scorpion/"><u>L'Oracle du Scorpion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664941-9782889052561-les-neuf-lecons-du-guerrier-maasai/"><u>Les neuf leçons du guerrier maasaï | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664781-9782889054787-les-quatre-nobles-verites-et-loctuple-sentier-du-bouddha/"><u>Les quatre Nobles Vérités et l'Octuple Sentier du Bouddha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664838-9782889054015-par-don-damour/"><u>Par don d'amour | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664967-9782889051465-petites-fleurs-du-coeur-pour-grandir-au-fil-des-jours/"><u>Petites fleurs du coeur pour grandir au fil des jours | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665283-9780740790546-reasons-to-be-happy/"><u>Reasons to Be Happy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664452-9782889058648-vibrations-se-reconnecter-a-nos-pouvoirs-invisibles/"><u>Vibrations : Se reconnecter à nos pouvoirs invisibles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210665139-9782889114221-vivre-ma-spiritualite-au-quotidien/"><u>Vivre ma spiritualité au quotidien | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138577023-9781462098156-the-real-prophet-of-doom/"><u> "The Real, Prophet, of Doom "! ... (...!) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138577127-9781440163982-hearthstories/"><u>Hearthstories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138577175-9781440134494-mrs-lilacs-year/"><u>Mrs. Lilac's Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138578258-9781452549033-my-fathers-writings/"><u>My Father's Writings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138577132-9781452501260-no-reason-for-goodbyes/"><u>No Reason for Goodbyes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138577066-9781450247481-the-practitioner-handbook/"><u>The Practitioner Handbook | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

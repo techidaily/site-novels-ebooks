@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2025-01-28T07:51:24.921Z
-updated: 2025-02-01T20:25:04.953Z
+date: 2025-01-27T18:18:52.373Z
+updated: 2025-02-03T16:47:45.647Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,15 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211364447-9798330205684-5-forvandlende-sande-historier-om-besog-i-himlen-helvede-og-det-morke-rige/"><u>5 forvandlende sande historier om besøg i himlen, helvede og det mørke rige | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364448-9798330205578-5-historias-transformadoras-de-la-vida-real-sobre-visitas-al-cielo-el-infierno-y-el-reino-oscuro/"><u>5 historias transformadoras de la vida real sobre visitas al cielo, el infierno y el reino oscuro | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364449-9798330205592-5-storie-trasformative-di-vita-vera-sulla-visita-al-paradiso-allinferno-e-al-regno-oscuro-il/"><u>5 storie trasformative di vita vera sulla visita al paradiso, all'inferno e al regno oscuro Il | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364453-9798330205677-5-transformatieve-waargebeurde-verhalen-over-een-bezoek-aan-de-hemel-de-hel-en-het-donkere/"><u>5 transformatieve waargebeurde verhalen over een bezoek aan de hemel, de hel en het donkere.. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364478-9798330200726-5-transformative-true-life-stories-on-visitation-to-heaven-hell-and-the-dark-kingdom/"><u>5 Transformative True-life Stories on Visitation to Heaven, Hell and the Dark Kingdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211364487-9798330205769-mindfulness-matters/"><u>Mindfulness Matters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466894-9781939681133-caught-in-the-act/"><u>Caught In The Act | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466868-9781586380489-conquest-of-mind-3rd-ed/"><u>Conquest of Mind (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466885-9781939681201-energy-healing-for-everyone/"><u>Energy Healing for Everyone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466876-9781586381172-passage-meditation-a-complete-spiritual-practice-4th-ed/"><u>Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466872-9781586380328-the-mantram-handbook-5th-ed/"><u>The Mantram Handbook (5th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466898-9781939681294-the-physics-of-angels/"><u>The Physics of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466880-9781939681508-the-wizards-guide-to-energy-healing/"><u>The Wizard's Guide to Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96466887-9781939681454-the-yoga-of-relationships/"><u>The Yoga of Relationships | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

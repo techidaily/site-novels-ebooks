@@ -1,7 +1,7 @@
 ---
 title: The Science of Self-Empowerment | Free Book
-date: 2025-01-22T03:51:47.189Z
-updated: 2025-01-24T23:27:52.187Z
+date: 2025-02-01T16:37:53.275Z
+updated: 2025-02-03T16:31:22.287Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc95324fa154e7d769cae63fdb8bae584f5ad79.jpg
@@ -189,14 +189,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cff1fe64dd3b5df06bdb5bceebc9532
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210690409-9781399707947-acceptance/"><u>Acceptance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210690773-9781639033065-awaken-my-soul/"><u>Awaken My Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210690800-9780760377642-in-focus-psychic-development/"><u>In Focus Psychic Development | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210690926-9781932794519-magnificent-you/"><u>Magnificent You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210690788-9798886165272-the-ninth-level-of-enlightenment/"><u>The Ninth Level of Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591835-9781449739836-firing-on-all-cylinders/"><u>Firing on All Cylinders | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591777-9781469738420-interior-lights-in-a-dark-universe/"><u>Interior Lights in a Dark Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591825-9781462049950-spirit-speaks-are-you-listening/"><u>Spirit Speaks. Are You Listening? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591814-9781462071098-the-big-picture/"><u>The Big Picture | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: A Complete Book of Reiki Healing | Free Book
-date: 2025-01-27T02:23:32.239Z
-updated: 2025-02-01T19:45:56.847Z
+date: 2025-01-28T18:45:36.098Z
+updated: 2025-02-03T16:12:23.511Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b7d87f2f8a05264db45a314eb9ae845e59.jpg
@@ -138,17 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/eb0b4126f0eb8a54b1e3f9c7ed2f90b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211268151-9781778237416-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211268225-9781777220853-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211268786-9781800653597-mindfulness-meditations/"><u>Mindfulness Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211268467-9798893959512-mining-for-meaning/"><u>Mining for Meaning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211268289-9781777220884-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211268126-9781958304952-sex-without-regrets/"><u>Sex without Regrets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211268448-9780997085051-the-happy-human-playbook/"><u>The Happy Human Playbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211268233-9798869236715-breite-thn-eleytheria-mesa-sas/"><u>Βρείτε την ελευθερία μέσα σας | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316694-9781781809471-knowthetruth/"><u>#KnowTheTruth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316692-9781848505469-advanced-thetahealing/"><u>Advanced ThetaHealing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316702-9781788170680-dogs-and-cats-have-souls-too/"><u>Dogs and Cats Have Souls Too | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316700-9781848503847-matrix-reimprinting-using-eft/"><u>Matrix Reimprinting using EFT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316688-9781401950613-playing-the-matrix/"><u>Playing the Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316682-9781401950415-the-lifetimes-when-jesus-and-buddha-knew-each-other/"><u>The Lifetimes When Jesus and Buddha Knew Each Other | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316691-9781401952921-the-sacred-science/"><u>The Sacred Science | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2025-01-27T20:13:40.037Z
-updated: 2025-02-01T23:40:40.869Z
+date: 2025-02-02T17:01:31.676Z
+updated: 2025-02-03T18:27:26.817Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -173,18 +173,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211470855-9781839388637-akashic-records/"><u>Akashic Records | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211470866-9798330454129-breaking-free-from-samsara/"><u>Breaking Free from Samsara | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211471022-9781839388651-nde/"><u>NDE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211470867-9798330454174-superando-o-samsara/"><u>Superando o Samsara | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472516-9781763712928-the-hearts-compass/"><u>The Heart's Compass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211470309--the-philosophy-and-practice-of-polarity-magic/"><u>The Philosophy and Practice of Polarity Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472061--the-step-by-step-astrology-workbook/"><u>The Step-by-Step Astrology Workbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211472524-9798330450688-think-before-you-run/"><u>Think Before You Run | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211471101-9798991552219-your-higher-power/"><u>Your Higher Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127063-9781612830667-psychic-children-speak-to-the-world/"><u>Psychic Children Speak to the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127061-9781612830421-the-practical-psychic-self-defense-handbook/"><u>The Practical Psychic Self-Defense Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127064-9781612831701-the-psychic-housewives-handbook/"><u>The Psychic Housewives' Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127066-9781612830438-the-quantum-doctor/"><u>The Quantum Doctor | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Financial Vipers of Venice | Free Book
-date: 2025-01-21T01:03:42.803Z
-updated: 2025-01-25T05:40:08.482Z
+date: 2025-01-27T16:38:21.799Z
+updated: 2025-02-03T18:23:52.285Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf70277606d3f7799e20c490b0b531163059.jpg
@@ -137,17 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb30443dbe204c4661f38e20b090bf7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210659422-9798886802986-daily-dose-of-melancholy/"><u>Daily Dose of Melancholy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659415-9781733772273-despertando-a-gaia/"><u>Despertando a Gaia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210657311-9780473648428-kutsamanin-muthis-gucu/"><u>Kutsamanın Müthiş Gücü | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659358-9781685702175-messages-he-gave-me/"><u>Messages He Gave Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210659349-9781639035038-social-media-gods-way/"><u>Social Media God's Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210657287-9798986782065-tantric-numerology-3rd-ed/"><u>Tantric Numerology (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210658623-9781590203804-the-secret-history-of-the-world/"><u>The Secret History of the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210658804-9781683355915-witching-hour/"><u>Witching Hour | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573593-9781450292634-authentic-love/"><u>Authentic Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573587-9781469712864-called-by-many-names/"><u>Called by Many Names | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573673-9781469766577-implosion/"><u>Implosion!!! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573713-9780595811328-learning-to-listen/"><u>Learning to Listen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573755-9781440138683-living-peacefully-in-a-big-city/"><u>Living Peacefully in a Big City | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573732-9781469722702-spiritspeak/"><u>Spiritspeak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573756-9781469756868-the-hand-of-god/"><u>The Hand of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138573786-9781475930139-the-new-universe/"><u>The New Universe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

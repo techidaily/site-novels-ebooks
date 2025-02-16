@@ -1,7 +1,7 @@
 ---
 title: Empowered For Your Journey Be Intentional | Free Book
-date: 2024-10-23T00:51:01.252Z
-updated: 2024-10-27T05:21:15.614Z
+date: 2025-01-27T16:38:23.748Z
+updated: 2025-02-03T18:32:15.122Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/155c04d2941892f095ec1284414e72e8df9e6806d8e2b4023f96d5455a84bd5b.jpg
@@ -171,3 +171,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/155c04d2941892f095ec1284414e72e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782451-9781591439370-earth/"><u>Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782448-9781591437741-secret-chamber-revisited-2nd-ed/"><u>Secret Chamber Revisited (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782450-9781591439493-the-lost-civilization-of-lemuria/"><u>The Lost Civilization of Lemuria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782449-9781591438045-the-lost-history-of-the-little-people/"><u>The Lost History of the Little People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782447-9781591432807-womb-awakening/"><u>Womb Awakening | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

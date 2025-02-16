@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2025-01-26T17:20:40.833Z
-updated: 2025-02-01T21:17:28.631Z
+date: 2025-02-01T16:03:22.976Z
+updated: 2025-02-03T18:14:49.117Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,13 +167,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211372593-9781925924121-journey-through-the-chakras/"><u>Journey Through The Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372583-9781925682465-past-lives-unveiled/"><u>Past Lives Unveiled | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372594-9781925924138-the-art-of-witch/"><u>The Art of Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211372595-9781925924145-the-book-of-faerie-spells/"><u>The Book of Faerie Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489219-9780907791607-ayahuasca-reader-2nd-ed/"><u>Ayahuasca Reader (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489275-9780990997818-blazing-splendor/"><u>Blazing Splendor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489220-9780907791676-changing-our-minds/"><u>Changing Our Minds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96487360-9781785357534-travelling-the-fairy-path/"><u>Travelling the Fairy Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489225-9780907791638-zig-zag-zen/"><u>Zig Zag Zen | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

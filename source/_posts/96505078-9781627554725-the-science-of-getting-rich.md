@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-01-26T16:02:03.969Z
-updated: 2025-02-01T22:20:42.122Z
+date: 2025-02-02T16:53:38.852Z
+updated: 2025-02-03T18:41:31.324Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,17 +137,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211235312-9798218317188-activating-the-light-within-and-embracing-your-soul/"><u>Activating the Light Within and Embracing Your Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235662-9780997717457-after-the-afterlife/"><u>After the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235606-9789493359215-animal-symbolism-and-oracle-messages/"><u>Animal Symbolism and Oracle Messages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235695-9798869127082-confesiones-de-un-suicida/"><u>Confesiones de un Suicida | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235653-9780645649598-intergenerational-blind-spots/"><u>Intergenerational Blind Spots | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235147-9798869083982-la-abadia-de-los-benedictinos/"><u>La Abadía de los Benedictinos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235273-9781913768171-sigils-for-magic/"><u>Sigils For Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211235501-9798988180098-transmissions-of-earth-spirit-wisdom/"><u>Transmissions of Earth Spirit Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937546-9781844097609-being-present/"><u>Being Present | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937227-9781946764249-biography-of-silence/"><u>Biography of Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937128-9780525509660-enchantments/"><u>Enchantments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935442-9781844097678-omni-reveals-the-four-principles-of-creation/"><u>Omni Reveals the Four Principles of Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937550-9781844097555-the-power-of-the-infinity-symbol/"><u>The Power of the Infinity Symbol | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935443-9781844098804-the-power-of-your-angels/"><u>The Power of Your Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935441-9781844097760-weave-the-heart-of-the-universe-into-your-life/"><u>Weave the Heart of the Universe into Your Life | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

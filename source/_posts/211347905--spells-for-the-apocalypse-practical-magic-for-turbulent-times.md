@@ -1,7 +1,7 @@
 ---
 title: "Spells for the Apocalypse: Practical Magic for Turbulent Times | Free Book"
-date: 2024-10-22T20:38:01.072Z
-updated: 2024-10-27T05:01:00.905Z
+date: 2025-01-27T17:33:54.204Z
+updated: 2025-02-03T16:16:45.175Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33a76092148296465e459f9ce5163983840082663a8675b2a9ac8e765c7931db.jpg
@@ -145,3 +145,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33a76092148296465e459f9ce516398
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2213950-9780008138059-aquarius-2016-your-personal-horoscope/"><u>Aquarius 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213949-9780008138042-capricorn-2016-your-personal-horoscope/"><u>Capricorn 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213951-9780008138066-pisces-2016-your-personal-horoscope/"><u>Pisces 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213948-9780008138035-sagittarius-2016-your-personal-horoscope/"><u>Sagittarius 2016: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213956-9780008138110-the-dragon-in-2016-your-chinese-horoscope/"><u>The Dragon in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213953-9780008138080-the-ox-in-2016-your-chinese-horoscope/"><u>The Ox in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213955-9780008138103-the-rabbit-in-2016-your-chinese-horoscope/"><u>The Rabbit in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213952-9780008138073-the-rat-in-2016-your-chinese-horoscope/"><u>The Rat in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2213954-9780008138097-the-tiger-in-2016-your-chinese-horoscope/"><u>The Tiger in 2016: Your Chinese Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

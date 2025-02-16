@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2025-01-22T02:14:40.399Z
-updated: 2025-01-25T02:33:37.630Z
+date: 2025-01-27T16:55:48.555Z
+updated: 2025-02-03T16:57:04.760Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -139,14 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210595508-9781955346252-bod-behavior/"><u>Bod Behavior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210595545-9781922499059-charlies-poem/"><u>Charlies Poem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210595541-9781684930739-letters-by-a-modern-mystic/"><u>Letters By A Modern Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210594700-9781401967727-spiritual-activator/"><u>Spiritual Activator | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210595438-9780760375273-tarot-by-numbers/"><u>Tarot by Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220040-9780892546220-amulets-talismans-and-magical-jewelry/"><u>Amulets, Talismans, and Magical Jewelry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221614-9781780997155-awaken-your-inner-faerie-in-30-days/"><u>Awaken Your Inner Faerie In 30 Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221615-9781780998916-beyond-god/"><u>Beyond God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221618-9781780996486-dear-poppyseed/"><u>Dear Poppyseed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220547-9781776526796-occultism-and-common-sense/"><u>Occultism and Common-Sense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1219264-9780698147850-stitches/"><u>Stitches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1219217-9781101633731-the-book-of-knowing-and-worth/"><u>The Book of Knowing and Worth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1220041-9780892545605-the-book-of-lilith/"><u>The Book of Lilith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1219168-9781101620274-whole-health/"><u>Whole Health | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

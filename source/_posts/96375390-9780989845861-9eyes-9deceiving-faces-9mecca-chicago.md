@@ -1,7 +1,7 @@
 ---
 title: "9Eyes 9Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2025-01-23T04:07:22.480Z
-updated: 2025-01-24T17:45:19.370Z
+date: 2025-01-31T18:12:33.594Z
+updated: 2025-02-03T17:00:59.315Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1916589fcdeaeb04308e2aba53c6677cbf523ee96329b3edd900c8897604c9e0.jpg
@@ -140,18 +140,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1916589fcdeaeb04308e2aba53c6677
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210650660-9781402783623-crossing-over/"><u>Crossing Over | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650653-9781402783159-infinite-quest/"><u>Infinite Quest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650583-9781402772788-keep-going/"><u>Keep Going | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650720-9781402789014-pain-free-living/"><u>Pain Free Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650713-9781402788956-practical-praying/"><u>Practical Praying | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210652047-9781411442900-the-book-of-life-volume-1-mind-and-body-barnes-noble-digital-library/"><u>The Book of Life : Volume 1, Mind and Body (Barnes & Noble Digital Library) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650695-9781402788741-the-enchanted-birthday-book/"><u>The Enchanted Birthday Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210651778-9781411439900-the-fasting-cure-barnes-noble-digital-library/"><u>The Fasting Cure (Barnes & Noble Digital Library) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650641-9781402781506-the-goodly-spellbook/"><u>The Goodly Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571025-9780595780181-church-folk-some-messed-up-folk/"><u>Church-Folk Some Messed-Up-Folk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571063-9781440193125-divine-inspiration-divine-understanding/"><u>Divine Inspiration, Divine Understanding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571034-9781450226097-love-loss-and-enlightenment/"><u>Love, Loss and Enlightenment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571032-9781449724672-moving-meditation/"><u>Moving Meditation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2025-01-28T05:06:10.054Z
-updated: 2025-02-01T22:42:51.176Z
+date: 2025-01-28T16:01:43.451Z
+updated: 2025-02-03T18:41:44.281Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,15 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211237015-9798869163769-luz-que-consuela-a-los-afligidos/"><u>Luz que consuela a los afligidos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236829-9798890914446-soul-licensed/"><u>Soul Licensed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211237022-9780975640302-the-book-about-a-book/"><u>The Book about a Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236870-9783892017677-the-free-spirit-god-in-us/"><u>The Free Spirit - God in Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211237019-9783892017639-the-path-of-forgetting/"><u>The Path of Forgetting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211237049-9798890419200-the-pathway-to-healing-is-painful/"><u>The Pathway to Healing Is Painful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955303-9780008302016-aquarius-2019-your-personal-horoscope/"><u>Aquarius 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95960124-9781608685356-chakra-healing-for-vibrant-energy/"><u>Chakra Healing for Vibrant Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96027869-9780525505341-inner-witch/"><u>Inner Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955304-9780008302023-pisces-2019-your-personal-horoscope/"><u>Pisces 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95956315-9781614173809-soul-survivor/"><u>Soul Survivor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95955630-9780525560319-tao-te-ching/"><u>Tao Te Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95959699-9781788884457-the-nazis-and-the-occult/"><u>The Nazis and the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95958909-9781623172442-thus-spoke-the-plant/"><u>Thus Spoke the Plant | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95958876-9781984800060-yoga-and-the-quest-for-the-true-self/"><u>Yoga and the Quest for the True Self | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

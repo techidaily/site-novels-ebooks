@@ -1,7 +1,7 @@
 ---
 title: Astrologic | Free Book
-date: 2024-10-23T22:35:40.398Z
-updated: 2024-10-26T18:41:16.065Z
+date: 2025-01-27T17:38:59.269Z
+updated: 2025-02-03T16:42:28.239Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66ab4a2c291a05378932796a7b465484c560b36d7e827ace4345f1ce5e5425dd.jpg
@@ -144,3 +144,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66ab4a2c291a05378932796a7b46548
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95695314-9781524742034-awakening-in-the-dream/"><u>Awakening in the Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95695259-9780399180361-bliss-more/"><u>Bliss More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95693320-9781612833934-out-of-australia/"><u>Out of Australia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95695531-9780007388370-the-dalai-lamas-book-of-transformation/"><u>The Dalai Lama’s Book of Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95695398-9781101992746-the-doctrine-and-ritual-of-high-magic/"><u>The Doctrine and Ritual of High Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95693776-9780985507961-the-heart-of-a-course-in-miracles/"><u>The Heart of A Course in Miracles | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

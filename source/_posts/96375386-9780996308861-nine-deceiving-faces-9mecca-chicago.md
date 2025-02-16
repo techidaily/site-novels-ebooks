@@ -1,7 +1,7 @@
 ---
 title: "Nine Deceiving Faces: 9Mecca Chicago | Free Book"
-date: 2025-01-22T16:13:24.812Z
-updated: 2025-01-25T04:24:09.164Z
+date: 2025-01-28T18:35:14.552Z
+updated: 2025-02-03T17:58:49.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439b6cbc62534ca76a09f60f54167ecc003e.jpg
@@ -140,14 +140,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fedb9a43eca46dae6c78c5f8179b439
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210650289-9781398827363-natural-magic/"><u>Natural Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650166-9781623177911-new-moon-magic/"><u>New Moon Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650328-9781958678701-peace-health-happiness/"><u>Peace Health Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210649464-9781685269715-spiritually-defining-seasons/"><u>Spiritually Defining Seasons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210650298-9781914366628-the-bridge-of-hearts/"><u>The Bridge of Hearts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570484-9780595843206-a-labor-of-love/"><u>A Labor of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570661-9781452500409-stepping-stones-to-self/"><u>Stepping Stones to Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570631-9780595897759-the-battle-between-faith-and-fear/"><u>The Battle Between Faith and Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570663-9781440108013-the-spiritual-wildfire/"><u>The Spiritual Wildfire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570678-9781469768588-to-scream-at-the-sky/"><u>To Scream at the Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570652-9780595907960-weng/"><u>Weng | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570619-9781440141133-who-is-chak-mol/"><u>Who Is Chak Mol? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

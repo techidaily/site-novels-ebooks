@@ -1,7 +1,7 @@
 ---
 title: Passion Potions and Love Rituals | Free Book
-date: 2024-10-20T18:43:20.130Z
-updated: 2024-10-27T01:18:34.986Z
+date: 2025-01-31T17:48:34.000Z
+updated: 2025-02-03T18:23:07.615Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1a0e671bd76feea378d05bd89aefe4d0b7f11326b4abe226270d99b00050d345.jpg
@@ -170,3 +170,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1a0e671bd76feea378d05bd89aefe4d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/649742-9780307785824-a-little-book-of-candle-magic/"><u>A Little Book of Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649741-9780307785817-a-little-book-of-healing-magic/"><u>A Little Book of Healing Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649743-9780307785831-a-little-book-of-pendulum-magic/"><u>A Little Book of Pendulum Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649744-9780307785862-crystal-enchantments/"><u>Crystal Enchantments | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649776-9780307785510-emmanuels-book/"><u>Emmanuel's Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649799-9780307717627-four-elements/"><u>Four Elements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649611-9780307788160-the-dead-are-alive/"><u>The Dead Are Alive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/649746-9780307785893-wicca/"><u>Wicca | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

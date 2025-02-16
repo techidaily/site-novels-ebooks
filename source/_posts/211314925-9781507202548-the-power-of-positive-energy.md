@@ -1,7 +1,7 @@
 ---
 title: The Power of Positive Energy | Free Book
-date: 2024-10-19T18:10:17.013Z
-updated: 2024-10-27T00:00:10.395Z
+date: 2025-01-28T17:29:54.201Z
+updated: 2025-02-03T18:44:59.105Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea7c0cec6713221925329c922e2cc4d2c5b8ad85b9b489a1d0e827b46471b4dc.jpg
@@ -171,3 +171,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea7c0cec6713221925329c922e2cc4d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/797104-9781451672817-a-spiritual-renegades-guide-to-the-good-life/"><u>A Spiritual Renegade's Guide to the Good Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/797371-9781448117703-born-to-heal/"><u>Born To Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/796797-9781849834841-celtic-angels/"><u>Celtic Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/796952-9781451623154-conscious-money/"><u>Conscious Money | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/796271-9781250015839-learning-to-silence-the-mind/"><u>Learning to Silence the Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/798490-9780307807397-life-after-death/"><u>Life After Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/796238-9781250014146-the-headspace-guide-to-meditation-and-mindfulness/"><u>The Headspace Guide to Meditation and Mindfulness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

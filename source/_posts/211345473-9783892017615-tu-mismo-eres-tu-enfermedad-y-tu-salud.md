@@ -1,7 +1,7 @@
 ---
 title: Tú mismo eres tu enfermedad y tu salud | Free Book
-date: 2024-10-25T20:47:54.740Z
-updated: 2024-10-26T23:34:47.058Z
+date: 2025-01-28T18:12:02.613Z
+updated: 2025-02-03T17:20:10.785Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9720314ce5a40e9d3c2e667155a5b5b87a66ca8833052fc53a96de2dbee0de4a.jpg
@@ -146,3 +146,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9720314ce5a40e9d3c2e667155a5b5b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2173153-9781848588509-crop-circles/"><u>Crop Circles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173148-9781848587878-poltergeists/"><u>Poltergeists | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173150-9781848587885-reincarnation/"><u>Reincarnation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173151-9781848587892-roswell/"><u>Roswell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2173146-9781848586543-the-book-of-reflection-simple-steps-to-self-discovery/"><u>The Book of Reflection: Simple Steps to Self Discovery | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

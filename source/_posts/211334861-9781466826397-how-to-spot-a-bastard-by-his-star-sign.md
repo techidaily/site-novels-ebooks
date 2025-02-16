@@ -1,7 +1,7 @@
 ---
 title: How to Spot a Bastard by His Star Sign | Free Book
-date: 2024-10-23T22:13:29.047Z
-updated: 2024-10-26T16:25:35.018Z
+date: 2025-02-02T16:57:36.104Z
+updated: 2025-02-03T16:54:30.713Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb10722503dfd404441afd1a216ed0c722c606f69bae53082ae5f88b9d125952.jpg
@@ -179,3 +179,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb10722503dfd404441afd1a216ed0c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2655256-9781608684076-dropping-the-struggle/"><u>Dropping the Struggle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/265699-9780553903515-extraordinary-knowing/"><u>Extraordinary Knowing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2653608-9780752492261-haunted-lambeth/"><u>Haunted Lambeth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2660412-9781614292883-inspiring-courage/"><u>Inspiring Courage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2655035-9780752492292-poltergeist-over-scotland/"><u>Poltergeist Over Scotland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2654455-9781683255642-quiromancia-guia-practica-para-leer-la-mano/"><u>Quiromancia. Guía práctica para leer la mano | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2659050-9781633410336-rosicrucian-trilogy/"><u>Rosicrucian Trilogy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2660191-9781841814551-the-afterlife-bible/"><u>The Afterlife Bible | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

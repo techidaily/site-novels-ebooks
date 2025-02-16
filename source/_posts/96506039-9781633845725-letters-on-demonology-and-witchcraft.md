@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2025-01-26T05:58:52.080Z
-updated: 2025-02-02T00:04:56.413Z
+date: 2025-02-02T18:31:54.176Z
+updated: 2025-02-03T17:26:17.013Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,15 +155,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211165210-9798989500406-aliens-are-with-us/"><u>Aliens Are With Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165297-9781925370379-crossing-the-bridge-to-animal-consciousness/"><u>Crossing the Bridge to Animal Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165224-9781961959002-karmic-astrology/"><u>Karmic Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165231-9798868931642-packing-up/"><u>Packing Up | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165256-9781922954633-the-other-side-of-the-looking-glass/"><u>The Other Side of the Looking Glass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211165281-9798985566772-the-willingness-muscle/"><u>The Willingness Muscle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841706-9781881098454-dame-fortunes-wheel-tarot/"><u>Dame Fortune's Wheel Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841442-9781683253914-el-jardin-feng-shui/"><u>El jardin Feng shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841466-9781683254164-entre-en-los-misterios-de-la-numerologia/"><u>Entre en… los misterios de la numerología | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842086-9781936012374-humanitys-spiritual-crisis/"><u>Humanity's Spiritual Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841436-9781683253853-las-claves-del-esoterismo/"><u>Las Claves del Esoterismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95841471-9781683254218-mejora-tu-autoestima/"><u>Mejora tu autoestima | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95842069-9781888729832-modern-esoteric/"><u>Modern Esoteric | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Tough Love Tarot | Free Book
-date: 2024-10-20T00:34:11.129Z
-updated: 2024-10-27T05:25:28.216Z
+date: 2025-01-28T17:43:29.369Z
+updated: 2025-02-03T17:06:07.399Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/133d9c465c273d3cf6a51c46a5df331d6ef586eeb8e2d1c2ac049e88efcc2c1e.jpg
@@ -147,3 +147,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/133d9c465c273d3cf6a51c46a5df331
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95665762-9782268084244-dictionnaire-des-symboles-maconniques/"><u>Dictionnaire des symboles maçonniques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95666148-9782268005225-ecritures-cathares/"><u>Ecritures cathares | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95665126-9781515413578-spiritual-torrents/"><u>Spiritual Torrents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95665141-9781515413233-the-reality-of-prayer/"><u>The Reality of Prayer | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

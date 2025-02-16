@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2025-02-01T04:44:32.085Z
-updated: 2025-02-01T20:08:41.196Z
+date: 2025-01-30T17:36:19.058Z
+updated: 2025-02-03T16:45:48.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,15 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211053338-9781088292167-dhanwantari/"><u>Dhanwantari | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211053403-9783988314864-kundalini-awakening/"><u>KUNDALINI AWAKENING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211053453-9781662495168-manual-de-tecnicas-para-la-construccion-personal/"><u>MANUAL DE TÉCNICAS PARA LA CONSTRUCCIÓN PERSONAL | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211047698-9781088287675-survived-and-thriving/"><u>Survived and Thriving | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211053407-9788119786039-the-subconscious-renaissance/"><u>The Subconscious Renaissance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211047651-9781088299227-wealthy-woman-affirmations/"><u>Wealthy Woman Affirmations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782514-9781591438533-affinity/"><u>Affinity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782508-9781591438069-sacred-medicine-of-bee-butterfly-earthworm-and-spider/"><u>Sacred Medicine of Bee, Butterfly, Earthworm, and Spider | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782510-9781591437529-the-ancient-giants-who-ruled-america/"><u>The Ancient Giants Who Ruled America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782513-9781591432722-the-angelic-origins-of-the-soul/"><u>The Angelic Origins of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782512-9781591432302-the-anunnaki-chronicles/"><u>The Anunnaki Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782511-9781591432388-trance-journeys-of-the-hunter-gatherers/"><u>Trance Journeys of the Hunter-Gatherers | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

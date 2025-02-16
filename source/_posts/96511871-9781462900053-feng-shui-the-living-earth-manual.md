@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2025-01-26T03:32:13.465Z
-updated: 2025-02-02T05:32:03.716Z
+date: 2025-01-30T17:13:11.742Z
+updated: 2025-02-03T18:45:28.784Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,14 +148,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211107519-9781667462547-agite-para-desfrutar-de-felicidade-estabilidade-e-uma-vida-celestial/"><u>Agite para Desfrutar de Felicidade, Estabilidade e uma Vida Celestial | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107662-9780733650222-everyday-enlightenment/"><u>Everyday Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107564-9781667462295-megan-et-la-vielle-dame/"><u>Megan et la Vielle Dame | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107523-9781667460123-o-biorritmo-um-guia-para-nossa-voz-interior/"><u>O Biorritmo - Um guia para nossa voz interior | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107496-9781667461496-symboles-de-guerison-des-anciens-slaves-glagolitique-art-therapie/"><u>Symboles de guérison des anciens Slaves. Glagolitique. Art-thérapie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782665-9781620555880-awakening-the-chakras/"><u>Awakening the Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782669-9781594778650-founding-fathers-secret-societies-2nd-ed/"><u>Founding Fathers, Secret Societies (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782664-9781594777547-qabbalistic-magic/"><u>Qabbalistic Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782670-9781620553770-shamanic-healing/"><u>Shamanic Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782666-9781620553169-the-book-of-primal-signs-2nd-ed/"><u>The Book of Primal Signs (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

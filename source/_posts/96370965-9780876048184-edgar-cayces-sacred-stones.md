@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Sacred Stones | Free Book
-date: 2025-01-21T22:53:24.976Z
-updated: 2025-01-24T16:01:24.844Z
+date: 2025-01-28T18:04:47.206Z
+updated: 2025-02-03T16:39:23.298Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c2342d3f9628aa1746820b2356f8531168276.jpg
@@ -138,18 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c234
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210632718-9781959018087-astrology/"><u>Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632676-9780760375969-create-your-own-tarot-cards/"><u>Create Your Own Tarot Cards | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632543--mindful-crafting/"><u>Mindful Crafting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632712-9781777791421-operation-who-am-i/"><u>Operation Who Am I | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632713-9781959018056-reiki/"><u>Reiki | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632727-9781959018025-runes/"><u>Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632721-9780645247510-strange-events/"><u>Strange Events | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632550-9780760359068-the-mindfulness-in-knitting/"><u>The Mindfulness in Knitting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210632666-9780999547298-the-nature-of-drugs-vol-2/"><u>The Nature of Drugs Vol. 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566229-9781401932114-an-autobiography-of-george-washington/"><u>An Autobiography of George Washington | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138566228-9781401922603-astrology-through-a-phychics-eyes/"><u>Astrology Through a Phychic's Eyes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138565813-9780880500937-falling-in-love-with-darkness/"><u>Falling in Love With Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138561271-9780281078059-see-love-be/"><u>See, Love, Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138564923-9780880504553-the-psychology-of-the-esoteric-2nd-ed/"><u>The Psychology of the Esoteric (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

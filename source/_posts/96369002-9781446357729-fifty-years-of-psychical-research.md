@@ -1,7 +1,7 @@
 ---
 title: Fifty Years of Psychical Research | Free Book
-date: 2025-01-22T17:07:29.226Z
-updated: 2025-01-25T01:03:55.590Z
+date: 2025-01-31T17:34:33.028Z
+updated: 2025-02-03T17:24:06.464Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2163593613e23d23e162d5f4e1237cd05c.jpg
@@ -139,14 +139,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8838518fa852aca559f90f750fab3a2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210664374-9782889059553-loracle-du-belier/"><u>L'Oracle du Bélier | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664368-9782889059706-loracle-du-cancer/"><u>L'Oracle du Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664377-9782889059546-loracle-du-taureau/"><u>L'Oracle du Taureau | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664372-9782889059768-rituels-pour-explorer-en-douceur-la-puissance-de-son-feminin/"><u>Rituels pour explorer en douceur la puissance de son féminin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664378-9782889059782-souvrir-a-soi-grace-au-pendule/"><u>S'ouvrir à soi grâce au pendule | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576570-9781450278607-how-old-are-we/"><u>How Old Are We | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576486-9781440141058-kukulcan/"><u>Kukulcan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576652-9781450236812-miraculous-wonders/"><u>Miraculous Wonders | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576394-9781440128400-moon-dance-the-feminine-dimensions-of-time/"><u>Moon Dance: the Feminine Dimensions of Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576633-9781450277457-the-book-of-origins/"><u>The Book of Origins | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

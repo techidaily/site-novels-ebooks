@@ -1,7 +1,7 @@
 ---
 title: Consciousness Beyond Life | Free Book
-date: 2024-10-20T22:16:17.703Z
-updated: 2024-10-26T22:47:25.388Z
+date: 2025-01-29T17:56:57.500Z
+updated: 2025-02-03T16:40:46.885Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d01e511e8294238bbf142b12fb9ec44a81c2bbc699bd7f74931a0419c2a78ec.jpg
@@ -200,3 +200,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d01e511e8294238bbf142b12fb9ec4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/402130-9780307481702-ask-the-dream-doctor/"><u>Ask the Dream Doctor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401606-9780316049238-the-dream-book/"><u>The Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401609-9780446549349-the-eagle-and-the-rose/"><u>The Eagle and the Rose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/402066-9781416587156-the-gabriel-method/"><u>The Gabriel Method | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401624-9780316186841-the-gift-of-nothing/"><u>The Gift of Nothing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401632-9780316045667-the-good-spell-book/"><u>The Good Spell Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401658-9780316055017-the-love-magic-book/"><u>The Love Magic Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401662-9780446549486-the-merciful-god-of-prophecy/"><u>The Merciful God of Prophecy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/401749-9780446554695-unsolved-ufo-mysteries/"><u>Unsolved UFO Mysteries | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

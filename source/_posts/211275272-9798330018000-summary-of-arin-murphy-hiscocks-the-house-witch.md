@@ -1,7 +1,7 @@
 ---
 title: Summary of Arin Murphy-Hiscock's The House Witch | Free Book
-date: 2024-10-22T02:01:28.917Z
-updated: 2024-10-27T02:40:36.235Z
+date: 2025-01-27T17:02:20.837Z
+updated: 2025-02-03T18:47:22.455Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/44f1042883201631b324c19b12aafa62feeb0b8eee7f7fe09e6e044ad215738b.jpg
@@ -136,3 +136,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/44f1042883201631b324c19b12aafa6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/95782416-9781591439714-14-steps-to-awaken-the-sacred-feminine/"><u>14 Steps to Awaken the Sacred Feminine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782414-9781591437819-earth-acupuncture/"><u>Earth Acupuncture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782409-9781591438977-earth-under-fire/"><u>Earth Under Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782412-9781591437550-the-king-who-refused-to-die/"><u>The King Who Refused to Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782413-9781591438458-twilight-language-of-the-nagual/"><u>Twilight Language of the Nagual | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

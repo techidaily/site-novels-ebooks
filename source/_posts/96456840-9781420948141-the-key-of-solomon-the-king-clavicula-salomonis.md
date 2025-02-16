@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2025-01-29T23:00:47.599Z
-updated: 2025-02-02T02:33:59.869Z
+date: 2025-01-31T17:22:06.066Z
+updated: 2025-02-03T17:24:36.100Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,18 +145,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211404131-9781763547612-finding-joy-when-life-gets-tough/"><u>Finding Joy When Life Gets Tough | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211411758-9781910027622-ghosts-of-war/"><u>Ghosts of War | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211410163-9781837992027-the-az-of-wellbeing/"><u>The A–Z of Wellbeing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211410366-9780875169545-the-art-of-radical-self-love/"><u>The Art of Radical Self-Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211404214-9798330274932-the-celestial-stoner/"><u>The Celestial Stoner | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211410250-9783964464859-the-great-cosmic-teachings-of-jesus-of-nazareth-to-his-apostles-and-disciples-who-could-understand-them/"><u>The Great Cosmic Teachings of Jesus of Nazareth to His Apostles and Disciples Who Could Understand Them | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211410332-9781778310614-the-holy-spirit-dreams/"><u>The Holy Spirit & Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211411480-9781961757400-the-power-and-impact-of-courageous-changemakers/"><u>The Power and Impact of Courageous Changemakers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211410318-9798330279609-unlocking-your-intuitive-wisdom/"><u>Unlocking Your Intuitive Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1003122-9780857010858-fire-dragon-meridian-qigong/"><u>Fire Dragon Meridian Qigong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010630-9781780993157-good-living-in-hard-times/"><u>Good Living in Hard Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010633-9781780993492-pagan-portals-hedge-riding/"><u>Pagan Portals - Hedge Riding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010634-9781780993300-pagan-portals-hedge-witchcraft/"><u>Pagan Portals - Hedge Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010635-9781780997865-palmistry-made-easy/"><u>Palmistry Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010636-9781780993973-psychology-of-a-medium/"><u>Psychology of a Medium | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1010637-9781780991634-the-angels-book-of-promises/"><u>The Angels' Book of Promises | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

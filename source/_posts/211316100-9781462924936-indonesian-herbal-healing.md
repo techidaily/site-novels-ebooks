@@ -1,7 +1,7 @@
 ---
 title: Indonesian Herbal Healing | Free Book
-date: 2024-10-19T18:23:20.413Z
-updated: 2024-10-26T17:37:09.134Z
+date: 2025-01-30T18:41:19.491Z
+updated: 2025-02-03T17:17:08.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/964507396bde35dae067f0a803b5150ec1fbbc50b28a10226248dc71bad7810a.jpg
@@ -148,3 +148,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/964507396bde35dae067f0a803b5150
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/873676-9781448146710-connecting-with-horses/"><u>Connecting with Horses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/873400-9781846948626-how-to-believe-in-a-sagittarius/"><u>How to Believe in a Sagittarius | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/872146-9781451684292-la-magia/"><u>La Magia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/873361-9780857010711-seated-taiji-and-qigong/"><u>Seated Taiji and Qigong | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/873670-9781448146802-the-holistic-approach-to-cancer/"><u>The Holistic Approach To Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/871909-9781846948022-traditional-witchcraft-for-fields-and-hedgerows/"><u>Traditional Witchcraft for Fields and Hedgerows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/871910-9781846948046-traditional-witchcraft-for-the-woods-and-forests/"><u>Traditional Witchcraft for the Woods and Forests | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

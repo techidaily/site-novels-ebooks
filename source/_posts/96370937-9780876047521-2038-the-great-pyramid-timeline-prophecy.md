@@ -1,7 +1,7 @@
 ---
 title: 2038 The Great Pyramid Timeline Prophecy | Free Book
-date: 2025-01-22T19:50:54.123Z
-updated: 2025-01-24T23:58:00.823Z
+date: 2025-01-29T18:07:37.197Z
+updated: 2025-02-03T17:56:57.008Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1eb900475374970b6dbc69b5f89cf7563d3.jpg
@@ -137,18 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/034b979922537e515e2728524de0e1e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210614965-9781523505159-an-invitation-to-dream/"><u>An Invitation to Dream | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614586-9781635862393-high-vibe-feng-shui/"><u>High-Vibe Feng Shui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614512-9781523514021-how-dreams-speak/"><u>How Dreams Speak | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614397-9781635861303-maia-tolls-wild-wisdom-companion/"><u>Maia Toll's Wild Wisdom Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614412-9781648291180-morning-rituals/"><u>Morning Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614415-9781648291173-restorative-rituals/"><u>Restorative Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614770-9781635862133-the-illustrated-bestiary/"><u>The Illustrated Bestiary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614686-9781635862232-the-illustrated-crystallary/"><u>The Illustrated Crystallary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210614910-9781579659264-whole-beauty-meditation-mindfulness/"><u>Whole Beauty: Meditation & Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1370637-9780895565310-astral-projection-made-easy/"><u>Astral Projection Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1367850-9781461741480-ghosts-on-the-coast-of-maine/"><u>Ghosts on the Coast of Maine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1375333-9781609258641-horns-of-honor/"><u>Horns of Honor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1367851-9781461741497-vineyard-supernatural/"><u>Vineyard Supernatural | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

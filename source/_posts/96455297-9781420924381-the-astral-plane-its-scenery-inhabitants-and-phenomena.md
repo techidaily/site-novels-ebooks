@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2025-01-28T16:34:55.490Z
-updated: 2025-02-02T03:24:59.278Z
+date: 2025-01-31T17:56:48.945Z
+updated: 2025-02-03T17:24:31.917Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,14 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211394062-9781507300480-aliens-god-and-the-bible/"><u>Aliens, God, and the Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394058-9781507301418-living-a-life-in-balance/"><u>Living a Life in Balance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394112-9781507300527-spirits-speak-of-conspiracies-mysteries/"><u>Spirits Speak of Conspiracies & Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394037-9781507301111-tarot-for-the-fiction-writer/"><u>Tarot for the Fiction Writer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211394163-9781507300091-the-ufo-phenomenon/"><u>The UFO Phenomenon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/977681--an-outline-of-occult-science-2nd-ed/"><u>An Outline of Occult Science (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/977604--astral-worship/"><u>Astral Worship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/977673--clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/979165-9781476714448-divine-healing-hands/"><u>Divine Healing Hands | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/977935-9781615642632-the-essential-guide-to-energy-healing/"><u>The Essential Guide to Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/976827-9781101603826-the-little-book-of-energy-medicine/"><u>The Little Book of Energy Medicine | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

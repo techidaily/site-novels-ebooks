@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2025-01-21T05:29:48.670Z
-updated: 2025-01-25T02:14:12.717Z
+date: 2025-01-31T16:26:27.440Z
+updated: 2025-02-03T17:10:16.244Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -142,14 +142,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210595623-9798986228617-finding-my-soul/"><u>Finding My Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210595748-9781452103273-horrorscopes/"><u>Horrorscopes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210595953-9789388511414-soft-skills-personality-development-for-life-success/"><u>Soft Skills Personality Development for Life Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210595639-9780645178050-the-path/"><u>The Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210595611-9798885902885-thoughts-of-serenity/"><u>Thoughts of Serenity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1222100-9781583947999-aya-awakenings/"><u>Aya Awakenings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221620-9781780997933-divine-guidance/"><u>Divine Guidance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221621-9781780995397-drinking-the-four-winds/"><u>Drinking the Four Winds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221623-9781782790624-how-to-care-for-a-cancer/"><u>How to Care for a Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1222045-9781461740988-lighthouse-hauntings/"><u>Lighthouse Hauntings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1222046-9781461740995-lighthouse-horrors/"><u>Lighthouse Horrors | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221628-9781780996783-on-angels-wings/"><u>On Angels' Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221629-9781780995601-shaman-pathways-elen-of-the-ways/"><u>Shaman Pathways - Elen of the Ways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221632-9781780998145-the-extraordinary-spirit-sightings-encounters-of-an-ordinary-surrey-lady/"><u>The Extraordinary Spirit Sightings & Encounters of an Ordinary Surrey Lady | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2025-01-30T22:49:32.486Z
-updated: 2025-02-01T23:53:16.469Z
+date: 2025-01-29T17:28:12.778Z
+updated: 2025-02-03T16:36:13.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,17 +138,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211180265-9798887755045-10-words/"><u>10 Words | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211180329-9798869087898-almas-en-llamas/"><u>Almas en Llamas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211180370-9798989632220-fear-less-love-more/"><u>FEAR LESS, LOVE MORE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211180345-9798218311452-harmony-of-my-soul/"><u>Harmony of My Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211180368-9798218341862-life-in-a-week/"><u>Life in a Week | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211180328-9798869089427-overcoming-adversity/"><u>Overcoming Adversity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211179143-9798218264529-solving-the-mystery-of-you/"><u>Solving the Mystery of You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211180365-9798869089311-the-death-of-the-planet/"><u>The Death of the Planet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95881463-9781786781550-a-course-in-mastering-alchemy/"><u>A Course in Mastering Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95881524-9781787131965-crystals/"><u>Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95885077-9781459742147-ghosts-of-niagara-on-the-lake-2nd-ed/"><u>Ghosts of Niagara-on-the-Lake (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95876043-9780525504436-infinite-possibility/"><u>Infinite Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95882109-9781785355943-the-art-of-freedom/"><u>The Art of Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95881452-9781786781505-the-gate-of-light/"><u>The Gate of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95884856-9780998688718-the-recognition-sutras/"><u>The Recognition Sutras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95876103-9780525619314-the-signs/"><u>The Signs | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

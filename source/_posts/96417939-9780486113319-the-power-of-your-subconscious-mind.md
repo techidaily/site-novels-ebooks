@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-02-01T03:10:58.058Z
-updated: 2025-02-02T04:28:37.141Z
+date: 2025-01-29T16:12:49.863Z
+updated: 2025-02-03T18:39:15.308Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac07a38be5866ac3c050132f9f679e6b03a3.jpg
@@ -141,14 +141,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c37a646385a8da54b6bc49c1cea8ac0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/211441846--abuela-ayahuasca/"><u>Abuela Ayahuasca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441845--cannabis-y-espiritualidad/"><u>Cannabis y espiritualidad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441848--feng-shui-with-archangels-unicorns-and-dragons/"><u>Feng Shui with Archangels, Unicorns, and Dragons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441838--the-sword-of-song-2nd-ed/"><u>The Sword of Song (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211441847--your-heart-knows-how-to-heal-you/"><u>Your Heart Knows How to Heal You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125548-9781609256753-astrologickal-magick/"><u>Astrologickal Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125550-9781609256319-astrology-for-initiates/"><u>Astrology for Initiates | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125552-9781609250805-the-astrology-of-2012-and-beyond/"><u>The Astrology of 2012 and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125553-9781609254872-the-astrology-of-family-dynamics/"><u>The Astrology of Family Dynamics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125554-9781609253851-the-astrology-of-fate/"><u>The Astrology of Fate | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
